@@ -4,7 +4,8 @@
 
 # Rishil Patel
 
-<details>
-<summary>Introduction</summary>
-<zero-md src="introduction.md"></zero-md>
-</details>
+- Hi
+  - <details>
+    <summary>Introduction</summary>
+    <zero-md src="introduction.md"></zero-md>
+  </details>
