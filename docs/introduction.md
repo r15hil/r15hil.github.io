@@ -1,5 +1,7 @@
-[__Back to home__](index.md)
+
+[__Go to page__](introduction.md)
 
 # Introduction
 
-![image](https://raw.githubusercontent.com/r15hil/old-site/main/img/IMG_6597.jpg)
+This is content 
+<!-- ![image](https://raw.githubusercontent.com/r15hil/old-site/main/img/IMG_6597.jpg) -->
