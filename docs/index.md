@@ -2,15 +2,15 @@
 
 <script type="module" src="https://cdn.jsdelivr.net/gh/zerodevx/zero-md@1/src/zero-md.min.js"></script>
 
-# Rishil Patel
+<zero-md src="navbar.md"></zero-md>
 
-- [Introduction](introduction/introduction.md)
+[Introduction](introduction/introduction.md)  
   <details>
     <summary></summary>
     <zero-md src="introduction/introduction-embed.md"></zero-md>
   </details>
 
-- [Introduction](introduction/introduction.md)
+[Introduction](introduction/introduction.md)
   <details>
   <summary></summary>
   <zero-md src="introduction/introduction-embed.md"></zero-md>
