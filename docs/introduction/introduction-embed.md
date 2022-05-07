@@ -1,6 +1,4 @@
 
-[__Go to page__](introduction.md)
-
 # Introduction
 
 This is content 

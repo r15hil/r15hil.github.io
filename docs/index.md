@@ -4,8 +4,14 @@
 
 # Rishil Patel
 
-- Hi
-  - <details>
-    <summary>Introduction</summary>
-    <zero-md src="introduction.md"></zero-md>
+- [Introduction](introduction/introduction.md)
+  <details>
+    <summary></summary>
+    <zero-md src="introduction/introduction-embed.md"></zero-md>
+  </details>
+
+- [Introduction](introduction/introduction.md)
+  <details>
+  <summary></summary>
+  <zero-md src="introduction/introduction-embed.md"></zero-md>
   </details>
