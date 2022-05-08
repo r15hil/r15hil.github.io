@@ -1,7 +1,9 @@
  [__Back to home__](../index.md)
 
  # Experience
+
 [Industry](#industry) | [Education](#education) | [Other](#other)
+
 ## Industry
 
 > ## Barclays Wealth Management, Knutsford UK
@@ -22,7 +24,7 @@
 >
 > July 2020 - August 2020 and
 > August 2019 - September 2019
-> Did research into how to create an interactive questionnaire and built a framework for the company to use for development in **Javascript** ☕️. I also developed a code generator supporting C++, Python, Swift and Java to send requests to the framework. My internship with inCase the year before, exposed me to test-driven development for the first time. I worked on deploying bug fixes 🪲, working with clients and app development where I built an app to monitor user requests, app usage etc 📈.</p>
+> Did research into how to create an interactive questionnaire and built a framework for the company to use for development in **Javascript** ☕️. I also developed a code generator supporting C++, Python, Swift and Java to send requests to the framework. My internship with inCase the year before, exposed me to test-driven development for the first time. I worked on deploying bug fixes 🪲, working with clients and app development where I built an app to monitor user requests, app usage etc 📈.
 
  ## Education 
 
