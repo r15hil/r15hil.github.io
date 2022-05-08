@@ -1,5 +1,8 @@
 # r15hil.github.io
  
+
+Not implemented anymore until further notice:
+
 Run build.sh to generate the site.
 When adding a new component, add the following, to generate md files which include imports:
 ```
