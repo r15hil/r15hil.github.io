@@ -6,6 +6,14 @@
 
 ## Industry
 
+> ## Microsoft Azure for Operators, Cambridge UK
+>
+> Software Engineer, September 2022 - Present
+>
+> Working as a software engineer using technologies such as **Python** 🐍, **C#** 🟦, **Azure** ☁️ and **Kubernetes** 🐳 to develop a platform for operators to manage their Azure resources. I am also working on a **React** ⚛️ frontend to interact with the platform.
+
+
+
 > ## Barclays Wealth Management, Knutsford UK
 >
 > Technology Developer Intern, June 2021 - August 2021
@@ -26,7 +34,7 @@
 > August 2019 - September 2019
 > Did research into how to create an interactive questionnaire and built a framework for the company to use for development in **Javascript** ☕️. I also developed a code generator supporting C++, Python, Swift and Java to send requests to the framework. My internship with inCase the year before, exposed me to test-driven development for the first time. I worked on deploying bug fixes 🪲, working with clients and app development where I built an app to monitor user requests, app usage etc 📈.
 
- ## Education 
+## Education 
 
 > Imperial College London
 >
@@ -86,6 +94,7 @@
 > - Human-Centered Robotics ⭐️⭐️⭐️⭐️⭐️
 > - Decentralised Finance ⭐️⭐️⭐️⭐️⭐️
 > </details>
+
 
 
 ## Other

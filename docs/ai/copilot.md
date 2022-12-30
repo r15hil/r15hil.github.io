@@ -1,4 +1,4 @@
-[__Back to home__](../index.md)
+[__Back to AI__](ai.md)
 
 # Copilot
 
@@ -49,6 +49,7 @@ It is pretty cool, it suggests the next sentence based on what you have written 
 Maybe if it had more context, like if all my pages were in the same folder, or I had more content on the site it would work better.
 
 Disclaimer: I am not sure if it is going to be useful.
+
 ps. I am not sure if it is going to be useful.
 
 ### References

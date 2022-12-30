@@ -2,4 +2,4 @@
 
 - [Introduction](introduction/introduction.md) 
 - [Experience](experience/experience.md)
-- [Copilot](copilot/copilot.md)
+- [AI generated things](ai/ai.md)
