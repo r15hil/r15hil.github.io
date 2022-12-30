@@ -1,6 +1,6 @@
- [__Back to home__](../index.md)
+[__Back to home__](../index.md)
 
- # Experience
+# Experience
 
 [Industry](#industry) | [Education](#education) | [Other](#other)
 
