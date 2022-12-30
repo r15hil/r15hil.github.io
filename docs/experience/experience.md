@@ -10,9 +10,7 @@
 >
 > Software Engineer, September 2022 - Present
 >
-> Working as a software engineer using technologies such as **Python** 🐍, **C#** 🟦, **Azure** ☁️ and **Kubernetes** 🐳 to develop a platform for operators to manage their Azure resources. I am also working on a **React** ⚛️ frontend to interact with the platform.
-
-
+> Working as a software engineer using technologies such as **Python** 🐍, **C** 🟦, **Rust** ☁️ and **Robot** 🐳. Both designing and developing solutions.
 
 > ## Barclays Wealth Management, Knutsford UK
 >
