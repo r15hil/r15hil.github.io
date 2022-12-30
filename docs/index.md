@@ -2,4 +2,4 @@
 
 - [Introduction](introduction/introduction.md) 
 - [Experience](experience/experience.md)
-- [Blog](introduction/introduction.md)
+- [Copilot](copilot/copilot.md)
