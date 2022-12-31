@@ -105,6 +105,6 @@
 
 > ## Dishoom, London UK
 >
-> Busser (part-time)
+> Busser (part-time), September 2021 - July 2022
 >
-> Every so often when I have time, I pick up odd-jobs and one is a saturday evening at Dishoom running dishes and polishing cutlery.
+> Every so often when I have time, I pick up odd-jobs and one is saturday evenings at Dishoom running dishes and polishing cutlery.
