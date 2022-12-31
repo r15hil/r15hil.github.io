@@ -6,8 +6,8 @@
 
 ## Industry
 
-> ## Microsoft Azure for Operators, Cambridge UK
->
+> ## Microsoft, Cambridge UK
+> #### Azure for Operators
 > Software Engineer, September 2022 - Present
 >
 > Working as a software engineer using technologies such as **Python** 🐍, **C** 🟦, **Rust** ☁️ and **Robot** 🐳. Both designing and developing solutions.
