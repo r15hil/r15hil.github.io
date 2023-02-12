@@ -19,7 +19,7 @@
 
 <script>
   // Set the target date
-  const targetDate = new Date("1999-06-12");
+  const targetDate = new Date("1999-12-06");
   
   // Get the current date
   const currentDate = new Date();
