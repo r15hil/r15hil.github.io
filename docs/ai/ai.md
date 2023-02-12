@@ -2,5 +2,4 @@
 
 # AI generated things
 
-- [GitHub Copilot](copilot.md) 
-- [ChatGPT](chatgpt.md)
+- [Stories](stories/stories.md)
