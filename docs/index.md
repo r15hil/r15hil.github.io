@@ -1,12 +1,21 @@
 # Rishil
 
-- [Introduction](introduction/introduction.md) 
-- [Experience](experience/experience.md)
-- [AI generated things](ai/ai.md)
-- [Books I've read](books/books.md)
+<style>
+  p {
+    font-family: Arial, sans-serif;
+    font-size: 18px;
+    line-height: 1.5;
+    margin-bottom: 20px;
+  }
+
+  span {
+    font-weight: bold;
+  }
+</style>
 
 <p>Today is: <span id="date"></span></p>
 <p>Days since I was born: <span id="days"></span></p>
+
 
 <script>
   // Set the target date
@@ -25,3 +34,9 @@
   // Display the number of days
   document.querySelector("#days").innerHTML = dayDiff;
 </script>
+
+- [Introduction](introduction/introduction.md) 
+- [Experience](experience/experience.md)
+- [AI generated things](ai/ai.md)
+- [Books I've read](books/books.md)
+
