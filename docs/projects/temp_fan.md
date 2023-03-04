@@ -55,8 +55,8 @@ void loop() {
 }
 
 ```
-![image](../../assets/pics/temp_fan_schematic.jpeg)
-![image](../../assets/pics/temp_fan_circuit.jpeg)
+![image](https://raw.githubusercontent.com/r15hil/r15hil.github.io/main/assets/pics/temp_fan_schematic.jpeg)
+![image](https://raw.githubusercontent.com/r15hil/r15hil.github.io/main/assets/pics/temp_fan_circuit.jpeg)
 
 ## Demo:
 
