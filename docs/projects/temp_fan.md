@@ -1,26 +1,25 @@
 [__Back to Projects__](projects.md)
 
+# 🔥 Temperature Controlled Fan
 
-# Temperature controlled fan
+This is a project I made to turn on/off a fan based on the temperature 🌡️.
 
-This is a project I made to turn on/off a fan based on the temperature.
+## What I already had:
+- 🧵 Wire Jumpers
+- 🛠️ Resistors
+- 🌡️ Temperature Sensor (DS18B20)
+- 💨 Fan (salvaged from an old hair dryer)
+- 🤖 Arduino Uno
+- 🍞 Breadboard
 
-## What I already had
-- Wire Jumpers 
-- Resistors
-- Temperature sensor (DS18B20)
-- Fan (salvaged from an old hair dryer)
-- Arduino Uno
-- Breadboard
+## What I had to get:
+- 💥 A mosfet (I used an IRFZ44N)
 
-## What I had to get
-- A mosfet (I used an IRFZ44N)
+## How it works:
 
-## How it works
+The Arduino reads the temperature from the sensor and if it's above 30 degrees, it turns on the mosfet which in turn powers up the fan 🌀. If the temperature is below 30 degrees, the mosfet is turned off and the fan stops spinning ❌.
 
-The arduino reads the temperature from the sensor and if it is above 30 degrees, it turns on the mosfet which in turn turns on the fan. If the temperature is below 30 degrees, the mosfet is turned off and the fan is turned off.
-
-## Code
+## Code:
 
 ```
 #include <OneWire.h>
@@ -56,11 +55,27 @@ void loop() {
 }
 
 ```
-
 ![image](../../assets/pics/temp_fan_schematic.jpeg)
 ![image](../../assets/pics/temp_fan_circuit.jpeg)
 
+## Demo:
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/KIM-IGIcUgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+## Time taken:
+
+Other than waiting for the mosfet to arrive, it took me about an hour and a half to make this (salvaging and cleaning the motor from the hairdryer took the longest!) 😅.
+
+## Rating:
+
+👍 Enjoyment: It was pretty fun to make this. I had to do a bit of research to figure out how to use the mosfet and how to use the temperature sensor.
+
+💪 Difficulty: 1/5
+
+## Future improvements:
+
+I could add a potentiometer to control the speed of the fan.
+I could make a case for the circuit and the fan (shall I buy a 3D printer? 🤔)
 
 ## Resources used
 - [Temperature sensor guide](https://randomnerdtutorials.com/guide-for-ds18b20-temperature-sensor-with-arduino/)
