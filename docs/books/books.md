@@ -13,9 +13,11 @@
 
 ## Books
 
-📚 Rebel Ideas: Matthew Syed
+📚 How to Win Friends and Influence People: Dale Carnegie
 
-✅ Mythos: Stephen Fry - 01/23 👍
+✅ Rebel Ideas: Matthew Syed - 2/23 👍
+
+✅ Mythos: Stephen Fry - 1/23 👍
 
 ✅ 1984: George Orwell - 12/22 👍
 
@@ -43,12 +45,14 @@
 
 ## Reading List
 
+🔜 The Defining Decade: Why Your Twenties Matter - Meg Jay
+
+🔜 Can't Hurt Me - David Goggins
+
 🔜 Thinking, Fast and Slow - Daniel Kahneman
 
 🔜 The Art of War - Sun Tzu
 
 🔜 Why We Sleep - Matthew Walker
-
-🔜 Can't Hurt Me - David Goggins
 
 🔜 Range - David Epstein
