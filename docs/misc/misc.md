@@ -3,3 +3,4 @@
 # Misc
 
 - [Speeches](speeches/speeches.md)
+- [AI Generated things](ai/ai.md)

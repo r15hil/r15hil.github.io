@@ -1,4 +1,4 @@
-[__Back to home__](../index.md)
+[__Back to Misc__](../misc.md)
 
 # AI generated things
 

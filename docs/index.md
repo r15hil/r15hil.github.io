@@ -12,8 +12,7 @@
 </style>
 
 <p>Today is: <span id="date"></span></p>
-<p>Days since I was born: <span id="days"></span></p>
-
+<!-- <p>Days since I was born: <span id="days"></span></p> -->
 
 <script>
   // Set the target date
@@ -47,12 +46,10 @@ Learn more about my professional experience, including my work history and skill
 
 A list of books I've read, or currently reading, or plan to read.
 
-## [AI generated things](ai/ai.md)
+## [Reviews](reviews/reviews.md)
 
-Some things I've generated using AI.
+Some reviews of places I've been to or things I've done.
 
 ## [Miscellaneous](misc/misc.md)
 
 Here's some stuff that doesn't fit anywhere else but I want to document somewhere.
-
----
