@@ -33,9 +33,26 @@
   document.querySelector("#days").innerHTML = dayDiff;
 </script>
 
-- [Introduction](introduction/introduction.md) 
-- [Experience](experience/experience.md)
-- [AI generated things](ai/ai.md)
-- [Books I've read](books/books.md)
-- [Personal Projects](projects/projects.md)
+## [About Me](introduction/introduction.md)
 
+Learn more about me.
+## [Personal Projects](projects/projects.md)
+
+See some of my the stuff I do randomly.
+
+## [Experience](experience/experience.md)
+
+Learn more about my professional experience, including my work history and skills.
+## [Books I've Read](books/books.md)
+
+A list of books I've read, or currently reading, or plan to read.
+
+## [AI generated things](ai/ai.md)
+
+Some things I've generated using AI.
+
+## [Miscellaneous](misc/misc.md)
+
+Here's some stuff that doesn't fit anywhere else but I want to document somewhere.
+
+---
