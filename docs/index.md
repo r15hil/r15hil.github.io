@@ -1,5 +1,3 @@
-# Rishil
-
 <style>
   p {
     font-family: Arial, sans-serif;
