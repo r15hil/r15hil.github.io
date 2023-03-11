@@ -1,5 +1,5 @@
-[Back to home](../index.md)
+[__Back to home__](../index.md)
 
-## Miscellaneous
+# Misc
 
 - [Speeches](speeches/speeches.md)
