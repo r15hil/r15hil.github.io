@@ -13,7 +13,9 @@
 
 ## Books
 
-📚 How to Win Friends and Influence People: Dale Carnegie
+📚 The Defining Decade: Why Your Twenties Matter - Meg Jay
+
+✅ How to Win Friends and Influence People: Dale Carnegie - 3/23 👍
 
 ✅ Rebel Ideas: Matthew Syed - 2/23 👍
 
@@ -44,8 +46,6 @@
 ✅ Lord of the Flies: William Golding - 11/16 👌
 
 ## Reading List
-
-🔜 The Defining Decade: Why Your Twenties Matter - Meg Jay
 
 🔜 Can't Hurt Me - David Goggins
 
