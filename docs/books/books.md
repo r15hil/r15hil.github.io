@@ -13,6 +13,8 @@
 
 ## Books
 
+📚 Can't Hurt Me: David Goggins
+
 📚 This is Going to Hurt: Adam Kay
 
 ✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - 3/23 👍
@@ -48,8 +50,6 @@
 ✅ Lord of the Flies: William Golding - 11/16 👌
 
 ## Reading List
-
-🔜 Can't Hurt Me - David Goggins
 
 🔜 Thinking, Fast and Slow - Daniel Kahneman
 
