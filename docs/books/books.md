@@ -13,7 +13,9 @@
 
 ## Books
 
-📚 The Defining Decade: Why Your Twenties Matter - Meg Jay
+📚 This is Going to Hurt: Adam Kay
+
+✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - 3/23 👍
 
 ✅ How to Win Friends and Influence People: Dale Carnegie - 3/23 👍
 
