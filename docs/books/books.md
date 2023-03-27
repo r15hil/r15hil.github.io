@@ -56,5 +56,3 @@
 🔜 The Art of War - Sun Tzu
 
 🔜 Why We Sleep - Matthew Walker
-
-🔜 Range - David Epstein
