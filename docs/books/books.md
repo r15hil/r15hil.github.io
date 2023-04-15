@@ -15,7 +15,7 @@
 
 📚 Can't Hurt Me: David Goggins
 
-📚 This is Going to Hurt: Adam Kay
+✅ This is Going to Hurt: Adam Kay - 4/23
 
 ✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - 3/23 👍
 
