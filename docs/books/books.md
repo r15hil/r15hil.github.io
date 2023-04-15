@@ -17,11 +17,11 @@
 
 ✅ This is Going to Hurt: Adam Kay - 4/23 👍
 
-✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - 3/23 👍
+✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - 3/23 👌
 
 ✅ How to Win Friends and Influence People: Dale Carnegie - 3/23 👍
 
-✅ Rebel Ideas: Matthew Syed - 2/23 👍
+✅ Rebel Ideas: Matthew Syed - 2/23 👌
 
 ✅ Mythos: Stephen Fry - 1/23 👍
 
