@@ -37,7 +37,7 @@
 Learn more about me.
 ## [Personal Projects](projects/projects.md)
 
-See some of my the stuff I do randomly.
+See some of the stuff I do randomly.
 
 ## [Experience](experience/experience.md)
 
