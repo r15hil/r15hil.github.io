@@ -13,7 +13,9 @@
 
 ## Books
 
-📚 Can't Hurt Me: David Goggins
+📚 Flowers for Algernon: Daniel Keyes
+
+✅ Can't Hurt Me: David Goggins - 5/23 👍
 
 ✅ This is Going to Hurt: Adam Kay - 4/23 👍
 
