@@ -13,7 +13,9 @@
 
 ## Books
 
-📚 Flowers for Algernon: Daniel Keyes
+📚 Uncommon Wealth: Kojo Koram
+
+✅ Flowers for Algernon: Daniel Keyes - 5/23 👍
 
 ✅ Can't Hurt Me: David Goggins - 5/23 👍
 
@@ -47,7 +49,7 @@
 
 ✅ When Breath Becomes Air: Paul Kalanithi - 1/18 👍
 
-✅ The Humans: Matt Haig Air - 8/17 👌
+✅ The Humans: Matt Haig - 8/17 👌
 
 ✅ Lord of the Flies: William Golding - 11/16 👌
 
