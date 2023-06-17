@@ -13,7 +13,9 @@
 
 ## Books
 
-📚 Uncommon Wealth: Kojo Koram
+📚 The Kite Runner: Khaled Hosseini
+
+✅ Uncommon Wealth: Kojo Koram - 6/23 👌
 
 ✅ Flowers for Algernon: Daniel Keyes - 5/23 👍
 
