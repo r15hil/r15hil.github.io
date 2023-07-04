@@ -13,7 +13,7 @@
 
 ## Books
 
-📚 The Kite Runner: Khaled Hosseini
+✅ The Kite Runner: Khaled Hosseini - 7/23 👍
 
 ✅ Uncommon Wealth: Kojo Koram - 6/23 👌
 
