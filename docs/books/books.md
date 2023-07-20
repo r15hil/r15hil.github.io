@@ -64,3 +64,15 @@
 🔜 The Art of War - Sun Tzu
 
 🔜 Why We Sleep - Matthew Walker
+
+🔜 The ONE Thing - Gary Keller and Jay Papasan
+
+🔜 The Beekeeper of Aleppo - Christy Lefteri
+
+🔜 Surviving to Drive - Guenther Steiner
+
+🔜 The 4-Hour Work Week - Tim Ferriss
+
+🔜 Deep Work - Cal Newport
+
+🔜 The Alchemist - Paulo Coelho
