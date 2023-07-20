@@ -13,7 +13,7 @@
 
 ## Books
 
-📚 The Anglo-Saxons: Marc Morris
+📚 Essentialism: Greg McKeown
 
 ✅ The Kite Runner: Khaled Hosseini - 7/23 👍
 
