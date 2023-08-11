@@ -13,6 +13,8 @@
 
 ## Books
 
+📚 Kafka on the Shore - Haruki Murakami
+
 📚 Essentialism: Greg McKeown
 
 ✅ The Kite Runner: Khaled Hosseini - 7/23 👍
