@@ -13,7 +13,7 @@
 
 ## Books
 
-📚 Essentialism: Greg McKeown
+✅ Essentialism: Greg McKeown - 8/23 👍
 
 ✅ Kafka on the Shore: Haruki Murakami - 8/23 👍
 
