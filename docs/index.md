@@ -35,9 +35,6 @@
 ## [About Me](introduction/introduction.md)
 
 Learn more about me.
-## [Personal Projects](projects/projects.md)
-
-See some of the stuff I do randomly.
 
 ## [Experience](experience/experience.md)
 
@@ -45,11 +42,3 @@ Learn more about my professional experience, including my work history and skill
 ## [Books I've Read](books/books.md)
 
 A list of books I've read, or currently reading, or plan to read.
-
-## [Reviews](reviews/reviews.md)
-
-Some reviews of places I've been to or things I've done.
-
-## [Miscellaneous](misc/misc.md)
-
-Here's some stuff that doesn't fit anywhere else but I want to document somewhere.
