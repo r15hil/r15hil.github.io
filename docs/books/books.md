@@ -13,6 +13,10 @@
 
 ## Books
 
+📚 Pachinko: Min Jin Lee
+
+📚 Surviving to Drive: Guenther Steiner
+
 ✅ Essentialism: Greg McKeown - 8/23 👍
 
 ✅ Kafka on the Shore: Haruki Murakami - 8/23 👍
