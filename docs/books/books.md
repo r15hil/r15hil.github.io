@@ -1,6 +1,23 @@
 [__Back to home__](../index.md)
 
+<script>
+    function checkWord() {
+        var inputWord = document.getElementById("searchWord").value;
+        var pageText = document.body.innerText;
+        var wordRegex = new RegExp("\\b" + inputWord + "\\b", "gi");
+        var found = pageText.match(wordRegex) !== null;
+        var resultElement = document.getElementById("result");
+        resultElement.textContent = found ? "Yes" : "No";
+    }
+</script>
+
 # Books I've read
+
+<label for="searchWord">Check if I have read:</label>
+<input type="text" id="searchWord">
+<button onclick="checkWord()">Check</button>
+
+<p id="result"></p>
 
 ## Key
 
