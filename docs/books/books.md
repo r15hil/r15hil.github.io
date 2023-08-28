@@ -40,8 +40,6 @@
 
         yearList.innerHTML = resultHTML;
     }
-    
-    countYearOccurrences();
 
 </script>
 
@@ -50,6 +48,7 @@
 <label for="searchWord">Check if I have read:</label>
 <input type="text" id="searchWord">
 <button onclick="checkWord()">Check</button>
+<button onclick="countYearOccurrences()">Count books</button>
 
 <p id="foundBook"></p>
 
