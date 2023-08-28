@@ -9,6 +9,39 @@
         var resultElement = document.getElementById("result");
         resultElement.textContent = found ? "Yes" : "No";
     }
+
+    function countYearOccurrences() {
+        var currentYear = new Date().getFullYear();
+        var pageText = document.body.innerText;
+        var yearRegex = /\b(20[1-9][0-9]|21[0-9][0-9])\b/g;
+        var yearOccurrences = {};
+
+        var matches = pageText.match(yearRegex);
+
+        if (matches) {
+            matches.forEach(function(match) {
+                if (yearOccurrences[match]) {
+                    yearOccurrences[match]++;
+                } else {
+                    yearOccurrences[match] = 1;
+                }
+            });
+        }
+
+        var resultElement = document.getElementById("result");
+        var resultHTML = "<ul>";
+
+        for (var year = 2011; year <= currentYear; year++) {
+            var count = yearOccurrences[year.toString()] || 0;
+            if (count > 0) {
+                resultHTML += "<li>" + year + ": " + count + "</li>";
+            }
+        }
+
+        resultHTML += "</ul>";
+        resultElement.innerHTML += resultHTML;
+    }
+
 </script>
 
 # Books I've read
@@ -18,6 +51,10 @@
 <button onclick="checkWord()">Check</button>
 
 <p id="result"></p>
+
+<script>
+    countYearOccurrences();
+</script>
 
 ## Key
 
