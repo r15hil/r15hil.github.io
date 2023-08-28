@@ -31,7 +31,7 @@
         var yearList = document.getElementById("yearList");
         var resultHTML = "";
 
-        for (var year = 2017; year <= currentYear; year++) {
+        for (var year = 2016; year <= currentYear; year++) {
             var count = yearOccurrences[year.toString()] || 0;
             if (count > 0) {
                 resultHTML += "<li>" + year + ": " + count + "</li>";
