@@ -31,7 +31,7 @@
         var resultElement = document.getElementById("result");
         var resultHTML = "<ul>";
 
-        for (var year = 2011; year <= currentYear; year++) {
+        for (var year = 2017; year <= currentYear; year++) {
             var count = yearOccurrences[year.toString()] || 0;
             if (count > 0) {
                 resultHTML += "<li>" + year + ": " + count + "</li>";
@@ -41,8 +41,6 @@
         resultHTML += "</ul>";
         resultElement.innerHTML += resultHTML;
     }
-    
-    countYearOccurrences();
 
 </script>
 
@@ -53,6 +51,10 @@
 <button onclick="checkWord()">Check</button>
 
 <p id="result"></p>
+
+<script>
+    countYearOccurrences();
+</script>
 
 ## Key
 
