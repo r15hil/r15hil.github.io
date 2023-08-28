@@ -6,7 +6,7 @@
         var pageText = document.body.innerText;
         var wordRegex = new RegExp("\\b" + inputWord + "\\b", "gi");
         var found = pageText.match(wordRegex) !== null;
-        var resultElement = document.getElementById("result");
+        var resultElement = document.getElementById("foundBook");
         resultElement.textContent = found ? "Yes" : "No";
     }
 
@@ -28,8 +28,8 @@
             });
         }
 
-        var resultElement = document.getElementById("result");
-        var resultHTML = "<ul>";
+        var yearList = document.getElementById("yearList");
+        var resultHTML = "";
 
         for (var year = 2017; year <= currentYear; year++) {
             var count = yearOccurrences[year.toString()] || 0;
@@ -38,9 +38,10 @@
             }
         }
 
-        resultHTML += "</ul>";
-        resultElement.innerHTML += resultHTML;
+        yearList.innerHTML = resultHTML;
     }
+    
+    countYearOccurrences();
 
 </script>
 
@@ -50,11 +51,10 @@
 <input type="text" id="searchWord">
 <button onclick="checkWord()">Check</button>
 
-<p id="result"></p>
+<p id="foundBook"></p>
 
-<script>
-    countYearOccurrences();
-</script>
+<ul id="yearList"></ul>
+
 
 ## Key
 
