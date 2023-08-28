@@ -41,6 +41,8 @@
         resultHTML += "</ul>";
         resultElement.innerHTML += resultHTML;
     }
+    
+    countYearOccurrences();
 
 </script>
 
@@ -51,10 +53,6 @@
 <button onclick="checkWord()">Check</button>
 
 <p id="result"></p>
-
-<script>
-    countYearOccurrences();
-</script>
 
 ## Key
 
