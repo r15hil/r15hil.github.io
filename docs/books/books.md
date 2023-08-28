@@ -32,59 +32,59 @@
 
 📚 Pachinko: Min Jin Lee
 
-📚 Surviving to Drive: Guenther Steiner
+✅ Surviving to Drive: Guenther Steiner - August 2023 👍
 
-✅ Essentialism: Greg McKeown - 8/23 👍
+✅ The Art of War: Sun Tzu - August 2023 👌
 
-✅ Kafka on the Shore: Haruki Murakami - 8/23 👍
+✅ Essentialism: Greg McKeown - August 2023 👌
 
-✅ The Kite Runner: Khaled Hosseini - 7/23 👍
+✅ Kafka on the Shore: Haruki Murakami - August 2023 👍
 
-✅ Uncommon Wealth: Kojo Koram - 6/23 👌
+✅ The Kite Runner: Khaled Hosseini - July 2023 👍
 
-✅ Flowers for Algernon: Daniel Keyes - 5/23 👍
+✅ Uncommon Wealth: Kojo Koram - June 2023 👌
 
-✅ Can't Hurt Me: David Goggins - 5/23 👍
+✅ Flowers for Algernon: Daniel Keyes - May 2023 👍
 
-✅ This is Going to Hurt: Adam Kay - 4/23 👍
+✅ Can't Hurt Me: David Goggins - May 2023 👍
 
-✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - 3/23 👌
+✅ This is Going to Hurt: Adam Kay - April 2023 👍
 
-✅ How to Win Friends and Influence People: Dale Carnegie - 3/23 👍
+✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - March 2023 👌
 
-✅ Rebel Ideas: Matthew Syed - 2/23 👌
+✅ How to Win Friends and Influence People: Dale Carnegie - March 2023 👍
 
-✅ Mythos: Stephen Fry - 1/23 👍
+✅ Rebel Ideas: Matthew Syed - February 2023 👌
 
-✅ 1984: George Orwell - 12/22 👍
+✅ Mythos: Stephen Fry - January 2023 👍
 
-✅ Animal Farm: George Orwell - 11/22 👍
+✅ 1984: George Orwell - December 2022 👍
 
-✅ Bhagavad Gita: Introdiced & Translated by Eknath Easwaran - 11/22 👍
+✅ Animal Farm: George Orwell - November 2022 👍
 
-✅ Prisoners of Geography: Tim Marshall - 10/22 👍
+✅ Bhagavad Gita: Introduced & Translated by Eknath Easwaran - November 2022 👍
 
-✅ Sapiens: Yuval Noah Harari - 10/22 👍
+✅ Prisoners of Geography: Tim Marshall - October 2022 👍
 
-✅ Brave New World: Aldous Huxley - 10/22 👍
+✅ Sapiens: Yuval Noah Harari - October 2022 👍
 
-✅ Tools of Titans: Tim Ferriss - - 3/21 👌
+✅ Brave New World: Aldous Huxley - October 2022 👍
 
-✅ The Chimp Paradox: Steve Peters - 2/21 👍
+✅ Tools of Titans: Tim Ferriss - March 2021 👌
 
-✅ Atomic habits: James Clear - 1/21 👌
+✅ The Chimp Paradox: Steve Peters - February 2021 👍
 
-✅ When Breath Becomes Air: Paul Kalanithi - 1/18 👍
+✅ Atomic habits: James Clear - January 2021 👌
 
-✅ The Humans: Matt Haig - 8/17 👌
+✅ When Breath Becomes Air: Paul Kalanithi - January 2018 👍
 
-✅ Lord of the Flies: William Golding - 11/16 👌
+✅ The Humans: Matt Haig - August 2017 👌
+
+✅ Lord of the Flies: William Golding - November 2016 👌
 
 ## Reading List
 
 🔜 Thinking, Fast and Slow - Daniel Kahneman
-
-🔜 The Art of War - Sun Tzu
 
 🔜 Why We Sleep - Matthew Walker
 
