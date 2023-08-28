@@ -34,7 +34,7 @@
         for (var year = 2017; year <= currentYear; year++) {
             var count = yearOccurrences[year.toString()] || 0;
             if (count > 0) {
-                resultHTML += "<li>" + year + ": " + count + "</li>";
+                resultHTML += "<li>" + year + ": " + count-1 + "</li>";
             }
         }
 
@@ -48,11 +48,10 @@
 <label for="searchWord">Check if I have read:</label>
 <input type="text" id="searchWord">
 <button onclick="checkWord()">Check</button>
-<button onclick="countYearOccurrences()">Count books</button>
 
 <p id="foundBook"></p>
 
-<ul id="yearList"></ul>
+<ul onload="countYearOccurrences()" id="yearList"></ul>
 
 
 ## Key
