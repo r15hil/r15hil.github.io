@@ -68,6 +68,8 @@
 
 📚 Pachinko: Min Jin Lee
 
+✅ Where the Crawdads Sing - Delia Owens 👍
+
 ✅ Surviving to Drive: Guenther Steiner - August 2023 👍
 
 ✅ The Art of War: Sun Tzu - August 2023 👌
