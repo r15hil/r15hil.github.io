@@ -68,7 +68,7 @@
 
 📚 Pachinko: Min Jin Lee
 
-✅ Where the Crawdads Sing - Delia Owens 👍
+✅ Where the Crawdads Sing: Delia Owens - October 2023 👍
 
 ✅ Surviving to Drive: Guenther Steiner - August 2023 👍
 
