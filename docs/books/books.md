@@ -122,6 +122,10 @@
 
 ## Reading List
 
+🔜 The Problems of Philosophy - Bertrand Russell
+
+🔜 What Does It All Mean? - Thomas Nagel
+
 🔜 Thinking, Fast and Slow - Daniel Kahneman
 
 🔜 Why We Sleep - Matthew Walker
@@ -129,8 +133,6 @@
 🔜 The ONE Thing - Gary Keller and Jay Papasan
 
 🔜 The Beekeeper of Aleppo - Christy Lefteri
-
-🔜 Surviving to Drive - Guenther Steiner
 
 🔜 The 4-Hour Work Week - Tim Ferriss
 
