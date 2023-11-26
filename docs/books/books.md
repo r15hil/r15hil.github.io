@@ -56,17 +56,21 @@
 
 
 ## Key
-
 📚 Reading |
 ✅ Read |
 👍 Enjoyed |
 👌 Decent |
 😕 Meh
+❤️ Recommend |
 
 
 ## Books
 
-📚 Pachinko: Min Jin Lee
+📚 Surely You're Joking, Mr. Feynman! - Richard P. Feynman
+
+📚 What Does It All Mean? - Thomas Nagel
+
+✅ Pachinko: Min Jin Lee - November 2023 👍❤️
 
 ✅ Where the Crawdads Sing: Delia Owens - October 2023 👍
 
@@ -82,7 +86,7 @@
 
 ✅ Uncommon Wealth: Kojo Koram - June 2023 👌
 
-✅ Flowers for Algernon: Daniel Keyes - May 2023 👍
+✅ Flowers for Algernon: Daniel Keyes - May 2023 👍❤️
 
 ✅ Can't Hurt Me: David Goggins - May 2023 👍
 
@@ -94,23 +98,23 @@
 
 ✅ Rebel Ideas: Matthew Syed - February 2023 👌
 
-✅ Mythos: Stephen Fry - January 2023 👍
+✅ Mythos: Stephen Fry - January 2023 👍❤️
 
 ✅ 1984: George Orwell - December 2022 👍
 
 ✅ Animal Farm: George Orwell - November 2022 👍
 
-✅ Bhagavad Gita: Introduced & Translated by Eknath Easwaran - November 2022 👍
+✅ Bhagavad Gita: Introduced & Translated by Eknath Easwaran - November 2022 👍❤️
 
 ✅ Prisoners of Geography: Tim Marshall - October 2022 👍
 
-✅ Sapiens: Yuval Noah Harari - October 2022 👍
+✅ Sapiens: Yuval Noah Harari - October 2022 👍❤️
 
 ✅ Brave New World: Aldous Huxley - October 2022 👍
 
 ✅ Tools of Titans: Tim Ferriss - March 2021 👌
 
-✅ The Chimp Paradox: Steve Peters - February 2021 👍
+✅ The Chimp Paradox: Steve Peters - February 2021 👍❤️
 
 ✅ Atomic habits: James Clear - January 2021 👌
 
@@ -122,9 +126,13 @@
 
 ## Reading List
 
-🔜 The Problems of Philosophy - Bertrand Russell
+🔜 Colorless Tsukuru Tazaki and His Years of Pilgrimage - Haruki Murakami
 
-🔜 What Does It All Mean? - Thomas Nagel
+🔜 The Life-Changing Magic of Tidying Up - Marie Kondo
+
+🔜 Guns, Germs, and Steel - Jared Diamond
+
+🔜 The Problems of Philosophy - Bertrand Russell
 
 🔜 Thinking, Fast and Slow - Daniel Kahneman
 
