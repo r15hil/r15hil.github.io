@@ -10,7 +10,7 @@
 > #### Azure for Operators
 > Software Engineer, September 2022 - Present
 >
-> Working as a software engineer using technologies such as **Python** 🐍, **C** 🟦, **Rust** ☁️ and **Robot** 🐳. Both designing and developing solutions.
+> Working as a software engineer designing, developing and testing. Notable technology I work with is Azure, C, Python, Cloud, Linux, Security, Networking, Telecoms and more.
 
 > ## Barclays Wealth Management, Knutsford UK
 >
