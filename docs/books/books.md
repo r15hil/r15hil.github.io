@@ -66,9 +66,9 @@
 
 ## Books
 
-📚 Surely You're Joking, Mr. Feynman! - Richard P. Feynman
+✅ Surely You're Joking, Mr. Feynman!: Richard P. Feynman - December 2023 👍
 
-📚 What Does It All Mean? - Thomas Nagel
+✅ What Does It All Mean?: Thomas Nagel - December 2023 👍
 
 ✅ Pachinko: Min Jin Lee - November 2023 👍❤️
 
