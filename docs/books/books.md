@@ -66,6 +66,8 @@
 
 ## Books
 
+📚 Guns, Germs and Steel: Jared Diamond
+
 ✅ Surely You're Joking, Mr. Feynman!: Richard P. Feynman - December 2023 👍
 
 ✅ What Does It All Mean?: Thomas Nagel - December 2023 👍
