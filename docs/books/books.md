@@ -66,6 +66,8 @@
 
 ## Books
 
+📚 Fahrenheit 451: Ray Bradbury
+
 📚 Guns, Germs and Steel: Jared Diamond
 
 ✅ Surely You're Joking, Mr. Feynman!: Richard P. Feynman - December 2023 👍
