@@ -68,7 +68,9 @@
 
 📚 Guns, Germs and Steel: Jared Diamond
 
-✅ Fahrenheit 451: Ray Bradbury - February 2024
+✅ A Wizard of Earthsea: Ursula K. Le Guin - March 2024 👍
+
+✅ Fahrenheit 451: Ray Bradbury - February 2024 👍
 
 ✅ Surely You're Joking, Mr. Feynman!: Richard P. Feynman - December 2023 👍
 
