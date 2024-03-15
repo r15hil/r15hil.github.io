@@ -66,6 +66,8 @@
 
 ## Books
 
+📚 Dune: Frank Herbert
+
 📚 Guns, Germs and Steel: Jared Diamond
 
 ✅ A Wizard of Earthsea: Ursula K. Le Guin - March 2024 👍
