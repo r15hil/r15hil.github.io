@@ -66,6 +66,10 @@
 
 ## Books
 
+📚 Born to Run: Christopher McDougall
+
+📚 The Psychology of Money: Morgan Housel
+
 📚 Dune: Frank Herbert
 
 📚 Guns, Germs and Steel: Jared Diamond
