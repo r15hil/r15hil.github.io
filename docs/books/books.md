@@ -59,7 +59,7 @@
 📚 Reading |
 ✅ Read |
 👍 Enjoyed |
-👌 Decent |
+👌 Ok |
 😕 Meh
 ❤️ Recommend |
 
@@ -68,11 +68,11 @@
 
 📚 Born to Run: Christopher McDougall
 
-📚 The Psychology of Money: Morgan Housel
-
 📚 Dune: Frank Herbert
 
 📚 Guns, Germs and Steel: Jared Diamond
+
+✅ The Psychology of Money: Morgan Housel - April 2024 👌
 
 ✅ A Wizard of Earthsea: Ursula K. Le Guin - March 2024 👍
 
