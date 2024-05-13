@@ -36,9 +36,6 @@
 
 Learn more about me.
 
-## [Experience](experience/experience.md)
-
-Learn more about my professional experience, including my work history and skills.
-## [Books I've Read](books/books.md)
+## [Reading](books/books.md)
 
 A list of books I've read, or currently reading, or plan to read.
