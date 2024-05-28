@@ -68,9 +68,7 @@
 
 📚 Born to Run: Christopher McDougall
 
-📚 Dune: Frank Herbert
-
-📚 Guns, Germs and Steel: Jared Diamond
+✅ 📚 Dune: Frank Herbert - May 2024 ❤️
 
 ✅ The Psychology of Money: Morgan Housel - April 2024 👌
 
