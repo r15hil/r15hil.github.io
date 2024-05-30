@@ -66,9 +66,11 @@
 
 ## Books
 
-📚 Born to Run: Christopher McDougall
+📚 Dune Messiah: Frank Herbert
 
-✅ 📚 Dune: Frank Herbert - May 2024 ❤️
+✅ Born to Run: Christopher McDougall - May 2024 ❤️
+
+✅ Dune: Frank Herbert - May 2024 ❤️
 
 ✅ The Psychology of Money: Morgan Housel - April 2024 👌
 
