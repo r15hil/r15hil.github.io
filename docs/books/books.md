@@ -66,6 +66,8 @@
 
 ## Books
 
+📚 The Alchemist: Paulo Coelho
+
 📚 Dune Messiah: Frank Herbert
 
 ✅ Born to Run: Christopher McDougall - May 2024 ❤️
@@ -140,11 +142,7 @@
 
 🔜 Colorless Tsukuru Tazaki and His Years of Pilgrimage - Haruki Murakami
 
-🔜 The Life-Changing Magic of Tidying Up - Marie Kondo
-
 🔜 Guns, Germs, and Steel - Jared Diamond
-
-🔜 The Problems of Philosophy - Bertrand Russell
 
 🔜 Thinking, Fast and Slow - Daniel Kahneman
 
@@ -158,4 +156,4 @@
 
 🔜 Deep Work - Cal Newport
 
-🔜 The Alchemist - Paulo Coelho
+🔜 My Experiments with Truth - M.K. Gandhi
