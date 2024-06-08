@@ -66,6 +66,8 @@
 
 ## Books
 
+📚 My Experiments with Truth - M.K. Gandhi
+
 📚 Dune Messiah: Frank Herbert
 
 ✅ The Alchemist: Paulo Coelho - June 2024 ❤️
@@ -155,5 +157,3 @@
 🔜 The 4-Hour Work Week - Tim Ferriss
 
 🔜 Deep Work - Cal Newport
-
-🔜 My Experiments with Truth - M.K. Gandhi
