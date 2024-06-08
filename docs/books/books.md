@@ -66,9 +66,9 @@
 
 ## Books
 
-📚 The Alchemist: Paulo Coelho
-
 📚 Dune Messiah: Frank Herbert
+
+✅ The Alchemist: Paulo Coelho - June 2024 ❤️
 
 ✅ Born to Run: Christopher McDougall - May 2024 ❤️
 
