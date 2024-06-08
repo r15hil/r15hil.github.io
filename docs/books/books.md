@@ -66,7 +66,7 @@
 
 ## Books
 
-📚 My Experiments with Truth - M.K. Gandhi
+📚 My Experiments with Truth: M.K. Gandhi
 
 📚 Dune Messiah: Frank Herbert
 
