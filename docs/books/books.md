@@ -60,13 +60,15 @@
 ✅ Read |
 👍 Enjoyed |
 👌 Ok |
-😕 Meh
+😕 Meh |
 ❤️ Recommend |
 
 
 ## Books
 
-📚 My Experiments with Truth: M.K. Gandhi
+📚 Children of Dune: Frank Herbert
+
+✅ My Experiments with Truth: M.K. Gandhi - June 2024 👍
 
 ✅ Dune Messiah: Frank Herbert - June 2024 👍
 
