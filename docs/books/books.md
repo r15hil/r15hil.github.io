@@ -66,6 +66,8 @@
 
 ## Books
 
+📚 Men Without Women: Haruki Murakami
+
 📚 God Emperor of Dune: Frank Herbert
 
 ✅ Children of Dune: Frank Herbert - July 2024 👍
