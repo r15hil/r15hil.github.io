@@ -165,3 +165,5 @@
 🔜 The 4-Hour Work Week - Tim Ferriss
 
 🔜 Deep Work - Cal Newport
+
+🔜 Goodnight Punpun - Inio Asano
