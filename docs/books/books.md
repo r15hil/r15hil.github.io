@@ -62,13 +62,15 @@
 👌 Ok |
 😕 Meh |
 ❤️ Recommend |
-
+🔛 Ongoing |
 
 ## Books
 
 📚 Men Without Women: Haruki Murakami
 
 📚 God Emperor of Dune: Frank Herbert
+
+🔛 ONE PIECE: Eiichiro Oda
 
 ✅ Children of Dune: Frank Herbert - July 2024 👍
 
