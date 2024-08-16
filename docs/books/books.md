@@ -68,9 +68,11 @@
 
 📚 Men Without Women: Haruki Murakami
 
-📚 God Emperor of Dune: Frank Herbert
+📚 Four Thousand Weeks: Oliver Burkeman
 
-🔛 ONE PIECE: Eiichiro Oda
+🔛 ONE PIECE: Eiichiro Oda ( > Chapter 50)
+
+✅ God Emperor of Dune: Frank Herbert - August 2024 👌
 
 ✅ Children of Dune: Frank Herbert - July 2024 👍
 
