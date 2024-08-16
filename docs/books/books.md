@@ -72,7 +72,7 @@
 
 🔛 ONE PIECE: Eiichiro Oda ( > Chapter 50)
 
-✅ God Emperor of Dune: Frank Herbert - August 2024 👌
+✅ God Emperor of Dune: Frank Herbert - August 2024 😕
 
 ✅ Children of Dune: Frank Herbert - July 2024 👍
 
@@ -151,6 +151,8 @@
 ✅ Lord of the Flies: William Golding - November 2016 👌
 
 ## Reading List
+
+🔜 I, Superorganism - Jon Turney
 
 🔜 Colorless Tsukuru Tazaki and His Years of Pilgrimage - Haruki Murakami
 
