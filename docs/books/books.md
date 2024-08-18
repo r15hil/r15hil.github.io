@@ -152,6 +152,8 @@
 
 ## Reading List
 
+🔜 The Golden Road - William Dalrymple
+
 🔜 I, Superorganism - Jon Turney
 
 🔜 Colorless Tsukuru Tazaki and His Years of Pilgrimage - Haruki Murakami
