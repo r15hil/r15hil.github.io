@@ -66,6 +66,8 @@
 
 ## Books
 
+📚 Heroes: Stephen Fry
+
 📚 Men Without Women: Haruki Murakami
 
 🔛 ONE PIECE: Eiichiro Oda ( > Chapter 50)
