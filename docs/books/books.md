@@ -66,11 +66,13 @@
 
 ## Books
 
-📚 Heroes: Stephen Fry
+📚 Troy: Stephen Fry
 
 📚 Men Without Women: Haruki Murakami
 
-🔛 ONE PIECE: Eiichiro Oda ( > Chapter 50)
+🔛 ONE PIECE: Eiichiro Oda ( > Chapter 75)
+
+✅ Heroes: Stephen Fry - September 2024 👍❤️
 
 ✅ Four Thousand Weeks: Oliver Burkeman - August 2024 👍
 
