@@ -62,15 +62,16 @@
 👌 Ok |
 😕 Meh |
 ❤️ Recommend |
-🔛 Ongoing |
 
 ## Books
 
-📚 Troy: Stephen Fry
+📚 Odyssey: Stephen Fry
+
+📚 Ultra-Processed People: Chris van Tulleken
 
 📚 Men Without Women: Haruki Murakami
 
-🔛 ONE PIECE: Eiichiro Oda ( > Chapter 75)
+✅ Troy: Stephen Fry - October 2024 👍
 
 ✅ Heroes: Stephen Fry - September 2024 👍❤️
 
