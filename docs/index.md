@@ -39,3 +39,5 @@ Learn more about me.
 ## [Reading](books/books.md)
 
 A list of books I've read, or currently reading, or plan to read.
+
+## [Other](misc/misc.md)
