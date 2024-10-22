@@ -62,15 +62,20 @@
 👌 Ok |
 😕 Meh |
 ❤️ Recommend |
-🔛 Ongoing |
 
 ## Books
 
+📚 Odyssey: Stephen Fry
+
+📚 Ultra-Processed People: Chris van Tulleken
+
 📚 Men Without Women: Haruki Murakami
 
-📚 Four Thousand Weeks: Oliver Burkeman
+✅ Troy: Stephen Fry - October 2024 👍
 
-🔛 ONE PIECE: Eiichiro Oda ( > Chapter 50)
+✅ Heroes: Stephen Fry - September 2024 👍❤️
+
+✅ Four Thousand Weeks: Oliver Burkeman - August 2024 👍
 
 ✅ God Emperor of Dune: Frank Herbert - August 2024 😕
 
@@ -151,6 +156,8 @@
 ✅ Lord of the Flies: William Golding - November 2016 👌
 
 ## Reading List
+
+🔜 The Golden Road - William Dalrymple
 
 🔜 I, Superorganism - Jon Turney
 
