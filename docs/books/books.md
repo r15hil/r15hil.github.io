@@ -65,11 +65,11 @@
 
 ## Books
 
-📚 Odyssey: Stephen Fry
-
-📚 Ultra-Processed People: Chris van Tulleken
+📚 Men Are from Mars, Women Are from Venus: John Gray
 
 📚 Men Without Women: Haruki Murakami
+
+✅ Ultra-Processed People: Chris van Tulleken - October 2024 👍
 
 ✅ Troy: Stephen Fry - October 2024 👍
 
