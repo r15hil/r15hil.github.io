@@ -1,19 +1,40 @@
 [__Back to home__](../index.md)
 
-# Secret Santa Generator
+# 🎅 Secret Santa Generator with Group Exclusions 🎅
 
-Enter a comma-separated list of names below, and click "Generate Secret Santa" to get the pairings.
+Enter a comma-separated list of names below, define exclusion groups, and click "Generate Secret Santa" to get the pairings.
 
 <form>
   <label for="names">Enter names (comma-separated):</label><br>
-  <textarea id="names" rows="5" cols="50" placeholder="e.g., Alice, Bob, Charlie, Dave"></textarea><br><br>
+  <textarea id="names" rows="4" cols="50" placeholder="e.g., Alice, Bob, Charlie, Dave"></textarea><br><br>
+
+  <label for="groups">Enter exclusion groups (format: {Name1, Name2}, {Name3, Name4}):</label><br>
+  <textarea id="groups" rows="4" cols="50" placeholder="e.g., {Alice, Bob}, {Charlie, Dave}"></textarea><br><br>
+
   <button type="button" onclick="generateSecretSanta()">Generate Secret Santa</button>
 </form>
 
-## Results
+## 🎉 Secret Santa Pairings:
 <ul id="results"></ul>
 
 <script>
+  function parseGroups(groupsInput, names) {
+    const groups = [];
+    groupsInput.split('},').forEach(group => {
+      const members = group.replace(/[{}]/g, '').split(',').map(name => name.trim()).filter(name => name);
+      if (members.every(member => names.includes(member))) {
+        groups.push(members);
+      }
+    });
+    return groups;
+  }
+
+  function isValidAssignment(assignments, groups) {
+    return groups.every(group => 
+      group.every(giver => !group.includes(assignments[giver]))
+    );
+  }
+
   function shuffleArray(array) {
     for (let i = array.length - 1; i > 0; i--) {
       const j = Math.floor(Math.random() * (i + 1));
@@ -23,6 +44,8 @@ Enter a comma-separated list of names below, and click "Generate Secret Santa" t
 
   function generateSecretSanta() {
     const namesInput = document.getElementById('names').value.trim();
+    const groupsInput = document.getElementById('groups').value.trim();
+
     if (!namesInput) {
       alert("Please enter a list of names.");
       return;
@@ -34,24 +57,37 @@ Enter a comma-separated list of names below, and click "Generate Secret Santa" t
       return;
     }
 
-    const originalNames = [...names];
-    shuffleArray(names);
-
-    // Ensure no one gets themselves
-    for (let i = 0; i < names.length; i++) {
-      if (names[i] === originalNames[i]) {
-        shuffleArray(names);
-        i = -1; // Restart the check
-      }
+    const groups = parseGroups(groupsInput, names);
+    if (groups.length === 0) {
+      alert("Please define at least one valid exclusion group.");
+      return;
     }
+
+    let assignments = {};
+    let shuffledNames = [...names];
+    let attempts = 0;
+
+    do {
+      shuffleArray(shuffledNames);
+      assignments = {};
+      for (let i = 0; i < names.length; i++) {
+        assignments[names[i]] = shuffledNames[i];
+      }
+      attempts++;
+      if (attempts > 1000) {
+        alert("Unable to generate a valid Secret Santa assignment with the given exclusions.");
+        return;
+      }
+    } while (!isValidAssignment(assignments, groups) || 
+             Object.entries(assignments).some(([giver, receiver]) => giver === receiver));
 
     const results = document.getElementById('results');
     results.innerHTML = '';
 
-    for (let i = 0; i < originalNames.length; i++) {
+    Object.entries(assignments).forEach(([giver, receiver]) => {
       const li = document.createElement('li');
-      li.textContent = `${originalNames[i]} -> ${names[i]}`;
+      li.textContent = `${giver} -> ${receiver}`;
       results.appendChild(li);
-    }
+    });
   }
 </script>
