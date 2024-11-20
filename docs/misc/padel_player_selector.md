@@ -6,16 +6,16 @@ Enter the names of four players below and click "Select Player" to find out who 
 
 <form>
   <label for="player1">Player 1:</label><br>
-  <input type="text" id="player1" placeholder="Enter Player 1's name"><br><br>
+  <input type="text" id="player1" value="Rishil"><br><br>
 
   <label for="player2">Player 2:</label><br>
-  <input type="text" id="player2" placeholder="Enter Player 2's name"><br><br>
+  <input type="text" id="player2" value="Hamza"><br><br>
 
   <label for="player3">Player 3:</label><br>
-  <input type="text" id="player3" placeholder="Enter Player 3's name"><br><br>
+  <input type="text" id="player3" value="Behroze"><br><br>
 
   <label for="player4">Player 4:</label><br>
-  <input type="text" id="player4" placeholder="Enter Player 4's name"><br><br>
+  <input type="text" id="player4" value="Zubair"><br><br>
 
   <button type="button" onclick="selectRandomPlayer()">Select Player</button>
 </form>
