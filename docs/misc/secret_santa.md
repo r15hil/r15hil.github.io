@@ -1,14 +1,14 @@
 [__Back to home__](../index.md)
 
-# 🎅 Secret Santa Generator with Group Exclusions 🎅
+# 🎅 Secret Santa Generator with Optional Exclusion Groups 🎅
 
-Enter a comma-separated list of names below, define exclusion groups, and click "Generate Secret Santa" to get the pairings.
+Enter a comma-separated list of names below, optionally define exclusion groups, and click "Generate Secret Santa" to get the pairings.
 
 <form>
   <label for="names">Enter names (comma-separated):</label><br>
   <textarea id="names" rows="4" cols="50" placeholder="e.g., Alice, Bob, Charlie, Dave"></textarea><br><br>
 
-  <label for="groups">Enter exclusion groups (format: {Name1, Name2}, {Name3, Name4}):</label><br>
+  <label for="groups">Optional: Enter exclusion groups (format: {Name1, Name2}, {Name3, Name4}):</label><br>
   <textarea id="groups" rows="4" cols="50" placeholder="e.g., {Alice, Bob}, {Charlie, Dave}"></textarea><br><br>
 
   <button type="button" onclick="generateSecretSanta()">Generate Secret Santa</button>
@@ -20,6 +20,7 @@ Enter a comma-separated list of names below, define exclusion groups, and click 
 <script>
   function parseGroups(groupsInput, names) {
     const groups = [];
+    if (!groupsInput.trim()) return groups; // Return empty groups if none are provided
     groupsInput.split('},').forEach(group => {
       const members = group.replace(/[{}]/g, '').split(',').map(name => name.trim()).filter(name => name);
       if (members.every(member => names.includes(member))) {
@@ -30,6 +31,7 @@ Enter a comma-separated list of names below, define exclusion groups, and click 
   }
 
   function isValidAssignment(assignments, groups) {
+    if (groups.length === 0) return true; // If no groups, all assignments are valid
     return groups.every(group => 
       group.every(giver => !group.includes(assignments[giver]))
     );
@@ -58,10 +60,6 @@ Enter a comma-separated list of names below, define exclusion groups, and click 
     }
 
     const groups = parseGroups(groupsInput, names);
-    if (groups.length === 0) {
-      alert("Please define at least one valid exclusion group.");
-      return;
-    }
 
     let assignments = {};
     let shuffledNames = [...names];
