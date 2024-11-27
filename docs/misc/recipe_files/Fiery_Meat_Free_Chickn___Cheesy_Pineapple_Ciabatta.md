@@ -25,7 +25,6 @@ If you like piña coladas, you're bound to enjoy this fiery twist on a Caribbean
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1684227513635-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and giv
 
 Put the tray[s] in the oven for 25-30 min or until the chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1684227517118-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Chop the remaining lettuce<span class="text-danger"> </span>into quarters length
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1684227522332-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add your ciabatta[s] to the tray and put the tray in the oven for 6-7 min or unt
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1684227534653-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free chick'n and cook for 5-6 min or until starting to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1684227536953-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Combine your mayo with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span
 
 Tip: Keep the remaining pineapple juice for your smoothies, cakes or marinades!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1684227543276-x200.jpg)
 
 ### Step 6
 
 Once the meat-free chick'n is starting to brown, add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!), ground allspice and soy sauce to the pan and cook for 2 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1684227545507-x200.jpg)
 
 ### Step 7
 

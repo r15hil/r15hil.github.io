@@ -23,7 +23,6 @@ This warming vegetable stew combines harissa paste, honey and sweet red onion. T
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/457.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Boil a kettle&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/457.step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the aubergine and onion with a large pinch of salt
 
 Cook for 5 min, moving the aubergine around the pan occasionally to colour slightly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/457.step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Combine the tomato paste, red wine vinegar, harissa paste&nbsp;(can't handle the
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/457.step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Cover with a lid and reduce the heat to medium
 
 Cook for 10 min or until the aubergine is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/457.step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Lay a few sheets of kitchen paper ready at the side of your pan and grab a slott
 
 Heat a wok or small pan with 3-5 tbsp olive oil over a medium heat&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/457.step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once hot, add the sliced garlic (separating them as you go) and cook until crisp
 
 Transfer the fried garlic to the kitchen paper (keep the oil for later) and sprinkle them with salt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/457.step-7-x200.jpg)
 
 ### Step 7
 

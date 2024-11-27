@@ -26,7 +26,6 @@ This Mexican staple is the sandwich of your dreams. You’ll build your pambazo 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1707839021787-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your dried ancho chilli[es] roughly and discard the stem[s]
 
 Add your chopped ancho chilli to a bowl, cover with 100ml<span class="text-purple"> [150ml]</span> <span class="text-danger">[200ml]</span> boiled water and set aside to soak
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678179759630-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the chips to a baking tray (or two!) with a drizzle of olive oil and a small
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678179763169-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the potato cubes and diced chorizo to the pan with a splash of cold water and cook, covered, for an initial 6-7 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678179766672-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Combine your white wine vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp] 
 
 Add the sliced onion to the bowl and set aside – this is your quick-pickled onion
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678179771929-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once the potato has had an initial 6-7 min, add the diced onion and dried oregan
 
 Once cooked through, add 2/3 of the pambazo sauce (save the rest for later!) and cook for 1-2 min further or until fragrant – this is your pambazo filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678179776862-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Brush the brioche lid[s] with the remaining pambazo sauce
 
 Add the brioche halves to a baking tray (or two!), then put the tray[s] in the oven for 4-5 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678179780328-x200.jpg)
 
 ### Step 7
 

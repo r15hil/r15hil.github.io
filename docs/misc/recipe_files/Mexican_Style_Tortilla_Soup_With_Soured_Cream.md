@@ -30,7 +30,6 @@ As well as being a deliciously satisfying option, our chipotle-spiced Mexican so
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1362-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a large, wide-based pot (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and cook for 4-5 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1362-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1362-v2-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Once the onion has softened, increase the heat to medium-high and add the diced 
 
 Give everything a good mix up and cook for 6-7 min further or until the vegetables have started to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1362-v2-Step-4-x200.jpg)
 
 ### Step 4
 
 Whilst the vegetables are softening, dissolve your vegetable stock mix, chipotle paste (not a fan of spice? Just add a little!) and a pinch of sugar in 550ml <span class="text-purple">[775ml] </span><span class="text-danger">[1L]</span> boiled water – this is your spicy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1362-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the tortilla triangles to a baking tray (or two!) with a pinch of salt and
 
 Give everything a good mix up, so the tortilla triangles are evenly coated in the oil and put the tray[s] in the oven for 6-8 min or until golden and crisp – these are your tortilla chips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1362-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Drain and rinse your black beans
 
 Add the drained black beans, chopped tomatoes and spicy stock to the pot and cook for 6-8 min or until the soup has thickened slightly – this is your Mexican-style soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Grated-cheddar-on-a-board-1657038859607-x200.jpg)
 
 ### Step 7
 

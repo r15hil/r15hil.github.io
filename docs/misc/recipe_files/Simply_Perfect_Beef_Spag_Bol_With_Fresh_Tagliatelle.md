@@ -29,7 +29,6 @@ Brilliant for weeknights and slurp-tastic for adults and children alike. Rustle 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1691484284265-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop your brown onion[s]
 
 Top, tail, peel and finely chop your carrot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-4-1691484364544-x200.jpg)
 
 ### Step 2
 
@@ -47,13 +45,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and carrot with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-4-1691484292814-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1691484296672-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once the onion and carrot are beginning to soften, add your beef mince to the pa
 
 Cook for 3-4 min further or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1691484299821-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add the chopped garlic, tomato paste, stock, chopped tomatoes, dried basil and d
 
 Season with a grind of black pepper, bring to the boil over a high heat and cook for 4-5 min further or until thickened and the mince is cooked through (no pink meat!) – this is your beef bolognese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1691484303236-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-7-1691484306753-x200.jpg)
 
 ### Step 7
 

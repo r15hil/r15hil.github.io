@@ -27,7 +27,6 @@ Kofte may mean meatball, but these super curried chickpea ones will give them a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2527Step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Slice the lemon<span class="text-danger">[s]</span> into 4 <span class="text-
 
 Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2527Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the drained chickpeas to a food processor along with the curry powder, 
 
 Blitz until almost smooth then add the grated carrot and pulse for 3 secs further until all of the carrot is incorporated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2527Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Sprinkle over half of the nigella seeds (save the rest for later!) and press t
 
 Put the tray in the oven for 20-25 min or until golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2527Step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the sweet potato fries to a large baking tray with a drizzle of vegetable
 
 Put the tray in the oven for 20 min or until the fries are tender and starting to crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2527Step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Squeeze the water out of the grated cucumber then add to a bowl along with the
 
 Give everything a good mix up – this is your raita
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2527Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Wash the baby leaf salad, then pat it dry with kitchen paper
 
 Add the diced cucumber to a bowl along with the baby leaf salad, juice of 1 <span class="text-danger">[2]</span> lemon wedge and the remaining nigella seeds – this is your cucumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2527Step-7-x200.jpg)
 
 ### Step 7
 

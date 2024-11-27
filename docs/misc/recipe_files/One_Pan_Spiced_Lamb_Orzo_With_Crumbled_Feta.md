@@ -29,7 +29,6 @@ This super easy one-pan uses cinnamon and bay leaf to enhance the rich lamb and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-22-1624013943958-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop your red onion[s]
 
 Top, tail, peel and finely dice your carrot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630512523635-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, remove from the pan and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1168.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Return the pan to a medium-high heat with a drizzle of olive oil
 
 Once hot, add the chopped onion and diced carrot with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1168.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[1L]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1168.-step-5-x200.jpg)
 
 ### Step 5
 
 Add your lamb mince and ground cinnamon (don't like cinnamon? Go easy!) to the pan and cook for 4 min or until starting to crisp, breaking it up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1168.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Increase the heat to medium-high and cook, covered, for 12-14 min or until the 
 
 Tip: Stir the orzo halfway through so it doesn't stick to the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1730117848130-x200.jpg)
 
 ### Step 7
 

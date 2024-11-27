@@ -27,7 +27,6 @@ This island-inspired chicken is a sun-kissed delight. You’ll coat chicken thig
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680603750934-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and chicken stock mix in 225ml <span class="text-purple">[300ml]</span> <span class="text-danger">[450ml]</span> boiled water – this is your coconut stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680603753595-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Zest your lime[s] (try to grate lightly with a micro-plane or sharp box grater a
 
 Chop your coriander finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680603756192-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your coconut rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680603758496-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Combine your chicken thighs in a bowl with your ground allspice, soy sauce, half
 
 Give everything a good mix up – this is your coated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680603761377-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated chicken to the pan and cook for 9 min on each side or until charred and cooked through (no pink meat!) – this is your Caribbean-style spiced chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680603764943-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Stand the mango[es] upright and very carefully slice the flesh away from the sto
 
 Chop the mango flesh roughly, discarding the stone[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680603771699-x200.jpg)
 
 ### Step 7
 

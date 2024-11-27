@@ -26,7 +26,6 @@ For this Mediterranean-style one-pan, you'll cook free range chicken and orzo in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699964465460-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your free range chicken thighs with a pinch of salt and pepper and cook for 3 min on each side or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699964470713-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Whilst the chicken is cooking, peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699964475555-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Once the chicken has browned, add the chopped onion to the pan and cook for 5 mi
 
 Once softened, add the chopped garlic and cook for 1 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699964479933-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your chicken stock mix in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[950ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699964484182-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add the chicken stock and soft cheese and reduce the heat to medium-low and cook
 
 Tip: Stirring the orzo will release the starch from the pasta, making it creamier!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699964488184-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Tear your basil leaves
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699964492563-x200.jpg)
 
 ### Step 7
 

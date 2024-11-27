@@ -22,7 +22,6 @@ This Tuscan-style orecchiette is on the table in 10. You’ll simmer chicken in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1688729312533-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683890935148-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chicken thigh with a generous pinch of salt and cook for an initial 7 min, turning half way, or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683890939735-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ While the chicken is browning, add your fresh orecchiette to a pot of boiled wat
 
 Cook your orecchiette for 4-6 min or until cooked with a slight bite
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683890944402-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Meanwhile, finely chop or grate your garlic
 
 Wash your spinach
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683890948298-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once your orecchiette is cooked with a slight bite, add your spinach to the pot 
 
 Once wilted, drain the orecchiette and spinach, reserving a cup of starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683890956379-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once fragrant, add your soft cheese, chicken stock mix and half of your Italian 
 
 Cook for 2-3 min or until the sauce is starting to thicken and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683890967977-x200.jpg)
 
 ### Step 7
 

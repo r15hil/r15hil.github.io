@@ -26,7 +26,6 @@ If you're willing to change that 'B' to an 'A' – our aubergine bacon is a next
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1588587874860-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Trim the stalk[s] off your aubergine[s] and cut in half lengthways
 
 Slice each half, lengthways, as finely as you can (approx. 0.5cm in thickness)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1588587878818-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the aubergine slices to the 'bacon' flavouring and give everything a good mi
 
 Line a baking tray (or two!) with non-stick baking paper, add the coated aubergine and put the tray[s] in the oven for 30-35 min or until starting to crisp – this is your smoky aubergine
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1588587882580-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Add the wedges to a separate baking tray with a pinch of salt and a drizzle of v
 
 Give everything a good mix up and put the tray in the oven for 20-25 min, or until cooked through and golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mashed-avocado-1657033403794-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add your smashed avocado to a bowl with a pinch of salt and mash with a fork until smooth
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1588587891269-x200.jpg)
 
 ### Step 5
 
@@ -72,13 +67,11 @@ Wash then remove 2 leaves per person from your lettuce and set aside, shred the 
 
 Set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1588587895284-x200.jpg)
 
 ### Step 6
 
 Combine your mayo with your Dijon mustard in a bowl – this is your Dijon mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1588587903142-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Uova al Purgatorio (eggs in purgatory) is a popular Italian dish of eggs baked i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1590499760230-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1590499765498-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Deseed the yellow pepper<span class="text-danger">[s] </span>(scrape the seeds a
 
 Chop the basil finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1590499773075-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once softened, add the chopped garlic and pepper to the pan, with half the 'Nduj
 
 Cook for 3-4 min or until the pepper is beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1590499778999-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the chicken stock to the pan with the chopped tomatoes and drained potatoes
 
 Stir through half the chopped basil – this is your tomato sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1590499784547-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Crack the eggs into the wells
 
 Tear the remaining 'Nduja over the tomato sauce (can't handle the heat? Go easy!) and cook, covered, for 5-6 min further or until the eggs are cooked to your liking
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1590499791120-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the ciabatta slices to a baking tray with a generous drizzle of olive oil an
 
 Put the tray in the oven for 5 min or until lightly crisped – these are your cheesy ciabatta slices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1590499797088-x200.jpg)
 
 ### Step 7
 

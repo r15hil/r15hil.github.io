@@ -24,7 +24,6 @@ You'll top this rich beef pie with cheesy sprout mash, then bake in the oven unt
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1668074696451-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop the Brussels sprouts into quarters
 
 Add the chopped potatoes to a pot of boiled water, bring to the boil over a high heat and cook for an initial 10 min, then add the sprouts and cook for 2-3 min further or until everything is fork tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1668074716316-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Top, tail, peel and dice the carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1668074725852-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once hot, add the chopped onion, carrot and garlic and cook for 3-4 min or
 
 Meanwhile, dissolve the beef stock mix and tomato paste in 200ml <span class="text-danger">[350ml] </span>boiled water and stir in the Marmite – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1668074742742-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once the beef is browned, add the tomato stock to the pan and bring to the bo
 
 Season with a grind of pepper and cook for 4-5 min or until slightly thickened – this is your beef mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1668074755896-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ While the beef mixture thickens, return the drained potatoes and sprouts to a l
 
 Mash until smooth – this is your sprout mash
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1668074764915-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Top with the sprout mash and sprinkle over the grated cheddar
 
 Put the dish in the oven for 15-20 min or until golden brown and bubbling – this is your festive cottage pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1668074777663-x200.jpg)
 
 ### Step 7
 

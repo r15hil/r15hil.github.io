@@ -26,7 +26,6 @@ Bulgur is an ancient Middle Eastern grain that’s packed with nutty, smoky arom
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684768005009-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your bulgur wheat to a pot with plenty of boiled water and a pinch of salt, 
 
 Once cooked, drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684768019106-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Roll the lemon[s] with your hand on a hard surface (to release more juice) and c
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684768023620-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Combine the chopped garlic, honey, wholegrain mustard, dried oregano and 1 tbsp 
 
 Season with a generous pinch of salt – this is your honey mustard marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684768090475-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add your chicken breast portion[s] to a baking tray (or two!) (use tin foil to a
 
 Put the tray[s] in the oven for 18-20 min or until cooked through (no pink meat!) – there are your baked honey mustard chicken breast[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684768034426-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Peel and slice your shallot[s] finely
 
 Chop your parsley finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684768039665-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the chopped cucumber, chopped tomatoes, sliced shallot and the lemon zest to
 
 Add a drizzle of olive oil with a generous pinch of salt and pepper and toss – this is your Mediterranean-style salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684768043953-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ Get this Chinese takeaway classic on the table in just 10 minutes! You'll toss n
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623403598181-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600445350441-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Tip: Slice into rings for speedy chopping!
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a very high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600445354859-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Transfer the beef strips to a plate and reserve the pan
 
 Tip: Don't worry if the beef strips aren't fully cooked through yet, they'll go back in the pan later!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600445364505-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600445369193-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Return the reserved pan to a medium-high heat and add the chopped pepper and man
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600445377954-x200.jpg)
 
 ### Step 6
 
 Add the soy sauce, hoisin sauce and toasted sesame oil to the pan and cook for 1 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600445385830-x200.jpg)
 
 ### Step 7
 

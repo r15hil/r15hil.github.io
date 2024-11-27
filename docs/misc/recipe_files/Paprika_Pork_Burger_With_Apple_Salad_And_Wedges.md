@@ -24,7 +24,6 @@ For this smoky pork burger, you'll sizzle juicy pork with smoked paprika, then s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/588_step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the potato wedges to a baking tray (or two!), drizzle them with vegetable o
 
 Give everything a good mix up and put the tray[s] in the oven for 25 min until crisp – these are your paprika wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/588_step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Combine your pork mince (remove the paper if required!) with the remaining groun
 
 Divide and shape into equal-sized patties (1 per person!) and refrigerate (this helps them hold their shape whilst cooking) – these are your paprika pork patty[ies]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/588_step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Tip: Cooking for 3 or more? You may need to do this in batches!
 
 Once golden, transfer to a plate and set aside for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/588_step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add the red onion rings and cook for 4-5 min or until the onion rings
 
 Once caramelised, set aside until serving and reserve the pan – these are your caramelised onion rings
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/588_step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Meanwhile, combine your red wine vinegar, mayo, remaining sliced spring onion, 
 
 Slice your apple[s]<span class="text-danger"> </span>(skin on) thinly, discard the core then add to the salad dressing and give everything a good mix up – this is your dressed apple
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/588_step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip each paprika pork patty and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/588_step-7-x200.jpg)
 
 ### Step 7
 

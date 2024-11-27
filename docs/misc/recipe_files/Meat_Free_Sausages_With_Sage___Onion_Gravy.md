@@ -20,7 +20,6 @@ Indulge in these juicy meat-free sausages smothered in sweet, sticky sage & onio
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1637675833547-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Boil a kettle
 
 Add the meat-free sausages to a tin foil-lined baking tray and put the tray in the oven for 25-30 min or until the sausages are cooked through and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1637675847390-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the sliced onion and cook for 7-8 min or until soft and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1637675864461-x200.jpg)
 
 ### Step 3
 
@@ -50,13 +47,11 @@ Drizzle over 1 tbsp <span class="text-danger">[2 tbsp]</span> vegetable oil and 
 
 Put the tray in the oven for 10-15 min until crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1637675892239-x200.jpg)
 
 ### Step 4
 
 Chop the potatoes (skins on) into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1637675902914-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Once the potatoes are cooked, drain and return them to the pot
 
 Dissolve the vegetable stock mix in 300ml <span class="text-danger">[600ml] </span>boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1637675917028-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add the vegetable stock, onion marmalade, dried sage and a grind of pepper
 
 Whisk until combined and cook for 5-6 min or until the sauce has thickened – this is your sage & onion gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1637675969296-x200.jpg)
 
 ### Step 7
 

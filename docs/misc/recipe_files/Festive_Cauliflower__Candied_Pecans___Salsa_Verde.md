@@ -23,7 +23,6 @@ To make this delicious and elegant plant-based dish, you'll roast cauliflower un
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1836.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -47,7 +46,6 @@ Once boiling, add the whole cauliflower<span class="text-danger">[s]</span><spa
 
 <span style="font-family:Lato;font-size:15px;white-space:pre-wrap;"> </span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1836.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -59,7 +57,6 @@ Once ready, remove the cauliflower<span class="text-danger">[s]</span> from the 
 
 Leave the cauliflower<span class="text-danger">[s] </span>to steam-dry for 5 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1836.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Meanwhile, add the chopped potatoes to the reserved cauliflower water and bring 
 
 Cook for 15-20 min or until the potatoes are very soft
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1836.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Put the baking tray in the oven and cook for 20 min, removing the pecans after 
 
 Once removed, leave the agave nectar to set on the pecans – these are your candied pecans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1836.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -101,7 +96,6 @@ Combine the chopped garlic, capers, parsley, red wine vinegar, soy sauce and 50
 
 Tip: alternatively, you can use a blender to blitz everything!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1836.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -116,7 +110,6 @@ Season generously with salt
 
 <span style="font-family:Lato;font-size:15px;white-space:pre-wrap;"> </span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1836.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ This one-pot warmer shows you how to make your own lean meatballs at home. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646139102355-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your parsley finely, including the stalks
 
 Add your lean beef mince to a bowl with half your chopped parsley, half your grated Italian hard cheese (save the rest for garnish!), a drizzle of olive oil and a very generous pinch of salt and pepper and mix thoroughly to combine (clean hands is the best way!), then divide the mixture and shape them into 5 meatballs per person
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646139106108-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once done, transfer the browned meatballs to a plate and set aside
 
 Reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646139110517-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Return the reserved pan to a medium heat with a knob of butter and add the chopp
 
 Cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646139114406-x200.jpg)
 
 ### Step 4
 
@@ -70,13 +66,11 @@ Top, tail and chop your courgette[s] into quarters lengthways, then into bite-si
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646139117181-x200.jpg)
 
 ### Step 5
 
 Dissolve your beef stock mix in 400ml <span class="text-purple">[520ml]</span> <span class="text-danger">[700ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646139120796-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the shallot has softened, add the chopped garlic, courgette, pepper and orz
 
 Add the beef stock with your chopped tomatoes, balsamic vinegar and a generous grind of pepper and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646139124791-x200.jpg)
 
 ### Step 7
 

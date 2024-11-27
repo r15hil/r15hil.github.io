@@ -29,7 +29,6 @@ Get your grill on with this Nepalese-style chicken choila. Once you’ve shredde
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1709020608543-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709020717149-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709020720902-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel and finely dice your red onion[s]
 
 Chop your tomato[es] into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1709020724713-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add your free range chicken thighs with a pinch of salt and pepper and
 
 Add the browned chicken to a tin foil-lined baking tray (reserving the pan!) and put under the grill for 8-10 min or until charred, caramelised and cooked through (no pink meat!) – this is your grilled chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1709020728168-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once hot, add the chopped garlic & ginger, diced onion, chopped chilli and half 
 
 Once softened, add your ground turmeric, chicken stock mix and toasted mustard & coriander seeds with 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml]</span> cold water and cook for a further 1-2 min or until the sauce has thickened – this is your choila sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709020732040-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Cut your lime[s] in half
 
 Once cooked, transfer the grilled chicken to a clean board and shred it apart, using two forks - this technique is known as ‘pulling'
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709020735749-x200.jpg)
 
 ### Step 7
 

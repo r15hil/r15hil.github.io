@@ -24,7 +24,6 @@ This Chinese-style chicken fried rice is a real winner! You’ll add shredded ho
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2307-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the basmati rice and 300ml <span class="text-danger">[600ml]</span> cold wat
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2307-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the chicken thighs with the hoisin sauce and a generous pinch of salt and cook for 8-10 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2307-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely dice the brown onion<span class="text-danger">[s]</span>
 
 Drain the sweetcorn
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2307-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the chicken thighs are cooked, transfer to a clean board and shred them a
 
 Reserve the pan for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2307-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once the pan is hot, add the chopped onion, carrot and green beans and cook for 
 
 Once softened, add the ginger &amp; garlic paste with the drained sweetcorn and cook for 5-6 min further or until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2307-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Crack the egg<span class="text-danger">[s]</span> into the well, break the yolk<
 
 Add the basmati rice with the shredded chicken and cook for 3-4 min further or until starting to crisp up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2307-Step-7-x200.jpg)
 
 ### Step 7
 

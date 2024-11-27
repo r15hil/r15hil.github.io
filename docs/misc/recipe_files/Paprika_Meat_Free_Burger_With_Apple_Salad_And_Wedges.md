@@ -24,7 +24,6 @@ For this smoky burger, you'll sizzle juicy meat-free patties with smoked paprika
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1620230263704-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the wedges to a baking tray, drizzle them with vegetable oil, then season w
 
 Give everything a good mix up and put the tray in the oven for 25 min until they're crisp – these are your paprika wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1620230270372-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Combine the meat-free burger patties with the remaining smoked paprika and half 
 
 Divide and shape the meat-free burger mixture into 2 <span class="text-danger">[4]</span> patties and refrigerate until step 6 – these are your paprika meat-free patties
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1620230278144-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once toasted, set aside until serving and reserve the pan
 
 Tip: Cooking for 4? You may need to do this in batches!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1620230285437-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add the onion rings and cook for 4-5 min or until the onions have sta
 
 Once caramelised, set aside until serving and reserve the pan – these are your caramelised onion rings
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1620230292093-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Meanwhile, combine the red wine vinegar, mayo, remaining sliced spring onion, 2
 
 Thinly slice the apple<span class="text-danger">[s] </span>(skin on), then add to the salad dressing and give everything a good mix up – this is your dressed apple
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1620230300874-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Return the reserved pan to a medium heat
 
 Once hot, add the paprika meat-free patties and cook, covered, for 3-4 min on each side or until cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1620230315102-x200.jpg)
 
 ### Step 7
 

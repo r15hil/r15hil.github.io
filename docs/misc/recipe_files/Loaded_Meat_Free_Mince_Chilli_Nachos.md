@@ -28,7 +28,6 @@ Looking for a veggie option? Add these nachos to your list. Dip homemade tortill
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623407593467-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580808075441-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your meat-free mince (remove the paper if required!) and cook for 3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580808079724-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Toss everything together then spread them out and put the tray[s] in the oven fo
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580808083881-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once the mince has browned, add your soy sauce, chilli flakes (can't handle the 
 
 Meanwhile, drain and rinse your kidney beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580808088998-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Cook for 2-3 min or until the sauce has thickened to a bolognese-like consisten
 
 Tip: Add an extra splash of water if it's looking a little dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580808093999-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Roughly dice your tomato[es]
 
 Chop your coriander, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580808097918-x200.jpg)
 
 ### Step 7
 

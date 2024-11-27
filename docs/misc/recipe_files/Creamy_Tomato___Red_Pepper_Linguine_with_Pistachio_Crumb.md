@@ -28,7 +28,6 @@ This isn’t just a creamy plant-based linguine, it’s a veg-packed hack to boo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664189445642-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Crush your garlic open by squashing them with the side of a knife and discard th
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664189450955-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add a drizzle of olive oil and give everything a good mix up
 
 Put the tray[s] in the oven for 15-20 min or until the vegetables have softened – this is your softened veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664189455645-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the chopped pistachio nuts and cook for an initial 1-2 min or unti
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664189459729-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cook for 3-4 min or until the breadcrumbs are golden
 
 Once golden, add your dried basil, stir it all together and remove from the heat – this is your pistachio crumb
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664189463986-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once boiling, add the linguine with a drizzle of olive oil and cook for 6-8 min 
 
 Tip: It doesn't need to be fully cooked, as it will finish cooking in the sauce later!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664189466986-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the softened veg to a food processor with your creamy single soy, balsamic s
 
 Blitz until smooth – this is your creamy tomato & red pepper sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664189470897-x200.jpg)
 
 ### Step 7
 

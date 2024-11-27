@@ -23,7 +23,6 @@ You'll cook chicken thighs over a creamy red pesto and cherry tomato sauce till 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1593.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a kettle
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1593.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Dissolve your chicken stock mix in 100ml<span class="text-purple"> [150ml] </spa
 
 Add your soft cheese and sun-dried tomato pesto and mix to combine – this is your creamy pesto stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1593.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,19 +48,16 @@ Top the sauce with your chicken thighs
 
 Drizzle the chicken thighs with olive oil and season with a pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1593.-step-4-x200.jpg)
 
 ### Step 4
 
 Put the dish in the oven and cook for 30-35 min until the chicken thighs are golden and cooked through (no pink meat!) – this is your creamy sun-dried tomato chicken thigh bake
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1593.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your potatoes (skins on) into large bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1593.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Add your dried oregano, drizzle with olive oil, season with a pinch of salt and 
 
 Put the tray in the oven and cook for 20-25 min or until golden and crisp – these are your herby potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1593.-step-7-x200.jpg)
 
 ### Step 7
 

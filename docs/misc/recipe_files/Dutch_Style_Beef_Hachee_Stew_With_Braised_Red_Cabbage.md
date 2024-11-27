@@ -26,7 +26,6 @@ Take it easy, this stew is a doozy. You’ll simmer beef chuck, onion and cloves
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1693825231058-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Boil a kettle
 
 Season your diced beef with a generous pinch of salt and pepper and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and give everything a good mix up until fully coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693825233223-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have o
 
 Once hot, add the coated diced beef to the dish and cook for 3-4 min or until browned all over, then remove from the dish and set aside, reserve the dish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693825236656-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Grate your apple[s] (skin on) and discard the core
 
 Dissolve your beef stock mix in 400ml <span class="text-purple">[550ml]</span> <span class="text-danger">[700ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693825239246-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Return the dish to a medium-high heat and once hot, add the chopped onion with a
 
 Once softened, add the cracked black pepper, bay leaf[ves], studded onion and half your red wine vinegar (save the rest for later!) with the beef stock and browned beef and bring to the boil over a high heat, then once boiling, put the dish in oven for 55 min or until the sauce has thickened and the beef is cooked through – this is your Dutch-style beef hachee stew
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693825242147-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add your shredded red cabbage, grated apple and remaining red wine vin
 
 Add 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[175ml]</span> boiled water and cook, covered, for 30 min, stirring occasionally – this is your braised red cabbage
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693825244860-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693825247497-x200.jpg)
 
 ### Step 7
 

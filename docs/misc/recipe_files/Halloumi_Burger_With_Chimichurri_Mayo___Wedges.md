@@ -24,7 +24,6 @@ We've paired our tangy, herb-packed chimichurri with mayo to create the perfect 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2072-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the wedges to a large baking tray (or two!) with a drizzle of vegetable oil 
 
 Put the tray[s] in the oven for 25-30 min or until the wedges are tender and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2072-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped herbs, garlic, shallot, dried oregano, chilli flakes (can’t ha
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2072-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Slice your tomato[es] as thinly as you can
 
 Slice your halloumi in half lengthways (where the natural crease forms)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2072-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Heat a large, dry, wide-based pan (preferably non-stick with a matching lid) ove
 
 Once hot, add the halloumi half[ves] to the pan and cook, covered, for 2-3 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2072-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ While the halloumi is cooking, slice your brioche bun[s] horizontally through 
 
 Put the tray in the oven for 2-3 min or until toasted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2072-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once softened, remove the halloumi from the pan and place onto a clean board
 
 While they are still hot, use a rolling pin to flatten and roll out your halloumi half[ves] into a slightly larger size than the brioche bun – this is your halloumi steak
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2072-Step-7-x200.jpg)
 
 ### Step 7
 

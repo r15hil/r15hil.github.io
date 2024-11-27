@@ -24,7 +24,6 @@ Mu Shu, Moo Shu or Mu Xu, is a northern Chinese dish! Here we've enhanced the fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/551.-step1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add your basmati rice and 250ml <span class="text-purple">[320ml]</span> <span c
 
 Meanwhile, combine your pork mince (remove the paper if required!) and harissa paste (can't handle the heat? Go easy!) with a pinch of salt and pepper – this is your harissa pork mixture
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/551.-step2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once hot, add the harissa pork mixture and cook for 4 min or until it's beginnin
 
 Cook for a further 4 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/551.-step3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Top, tail and grate your courgette[s]
 
 Trim, then slice your spring onion[s] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/551.-step4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once cooked, transfer the harissa pork to a clean mixing bowl, reserve the pan
 
 Add your soy sauce and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and mix to combine
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/551.-step5-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Return the reserved pan to a high heat and once hot, add the grated carrot and g
 
 Add the harissa pork back to the pan, reduce the heat to low and cook for a further 2 min, then remove from the heat and cover to keep warm until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/551.-step6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Separate the outer leaves and arrange them on a plate
 
 Shred the inner core[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/551.-step7-x200.jpg)
 
 ### Step 7
 

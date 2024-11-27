@@ -26,7 +26,6 @@ Tuck into a tasty bowl of sweet, sticky hoisin lean pork mince with mushrooms an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1674550186605-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674550083058-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lean pork mince (remove the paper if required!) with a pinch of salt and cook for 3-4 min until starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674550090920-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Meanwhile, wash then remove the outer leaves from your lettuce and set aside, th
 
 Slice your red chilli[es] into rounds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674550095346-x200.jpg)
 
 ### Step 4
 
 Once the lean pork mince has started to brown, add your ginger & garlic paste to the pan and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674550101645-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once fragrant, roughly tear your chestnut mushrooms into the pan
 
 Add your hoisin sauce and soy sauce and cook for 3-4 min further until everything is combined and the mushrooms have started to soften and the pork is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674550105088-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min 
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674550110682-x200.jpg)
 
 ### Step 7
 

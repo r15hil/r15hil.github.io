@@ -24,7 +24,6 @@ Fajitas? Delicious. Fajita burgers? Even better. You'll bake cheesy chicken thig
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1712069826983-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your potatoes (skin on) into fries
 
 Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper and put the tray[s] in the oven for 25-30 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1712069831464-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot, add your free range chicken thighs with a pinch of salt and pepper and
 
 Transfer the browned chicken to one side of a baking tray and put the tray in the oven for an initial 10 min, reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1712069835456-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ While the chicken is cooking, deseed your pepper[s] (scrape the seeds and pith o
 
 Peel and finely slice your red onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1712069839379-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once hot, add the sliced pepper, sliced onion, ground cumin and half your ground
 
 Once softened, remove from the heat and set aside – this is your fajita spiced onion & pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1712069844270-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Roll your lime[s] with your hand on a hard surface (to release more juice) and c
 
 Cut half the lime[s] into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1712069848132-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Slice your brioche style bun[s] in half, then add the brioche halves to the othe
 
 Tip: Cooking for 4? Use two trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1712069851997-x200.jpg)
 
 ### Step 7
 

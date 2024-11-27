@@ -30,7 +30,6 @@ For these tasty tacos, you'll coat tender fish fillets in spices before crisping
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1588079901790-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1588079867725-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the sliced onion and pepper strips to a baking tray, drizzle with olive oil 
 
 Put the tray in the oven for 10-15 min or until soft and golden – this is your roasted onion & pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1557.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ While the vegetables are cooking, cut your basa fillet[s] into 6 strips per pers
 
 Add the basa strips to a bowl, drizzle with your soy sauce and give everything a good mix up – these are your coated basa strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1557.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add your cornflour, ground smoked paprika, cayenne pepper (can't handle the he
 
 Add the coated basa strips to the bowl with the spice mix and gently turn them until they're fully coated – these are your spiced basa strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1557.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Once hot, add the spiced basa strips and cook for 3-4 min on each side or until 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1711457356403-x200.jpg)
 
 ### Step 6
 
 While the basa strips are cooking, add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1557.-step-7-x200.jpg)
 
 ### Step 7
 

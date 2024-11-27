@@ -21,7 +21,6 @@ Cook up our twist on the Scottish soup 'Cullen Skink'. In this version, you'll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1160.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your roast potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1160.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ While the potatoes are cooking, slice your leek[s] finely into rounds, then wash
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1160.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Boil a kettle
 
 Once melted, add the sliced leek with a pinch of salt and cook for 5-6 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1160.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Put the tray in the oven for 15-20 min or until the breadcrumbs are golden and t
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1160.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add 200m<span class="text-purple">l [260ml]</span> <span class="text-danger">[34
 
 Once thickened, stir through your Dijon mustard and set aside – these are your creamed leeks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652685413283-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Meanwhile, trim your green beans and add them to a pot with plenty of boiled wat
 
 Once cooked, drain and set aside (save the pot for the next step!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652685422351-x200.jpg)
 
 ### Step 7
 

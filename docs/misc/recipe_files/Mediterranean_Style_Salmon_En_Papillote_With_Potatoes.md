@@ -21,7 +21,6 @@ Salmon and Mediterranean vegetables cooked en papillote (‘in paper’) is a Fr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1747.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Chop the cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1747.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Slice the black olives in half
 
 Cut the lemon<span class="text-danger">[s]</span> into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1747.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Divide the capers, chopped courgette, pepper strips, halved cherry tomatoes and 
 
 Add a generous drizzle of olive oil and season with a generous pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1747.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Lay the salmon, skin-side down, over the vegetables and season with a pinch of s
 
 Add a lemon wedge to each parcel (you'll use the rest later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1747.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Put the tray in the oven for 25-30 min or until the fish is cooked – this is y
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1747.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Meanwhile, chop the waxy potatoes into large bite-sized pieces
 
 Add the chopped potatoes to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 15-20 min or until fork-tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1747.-step-7-x200.jpg)
 
 ### Step 7
 

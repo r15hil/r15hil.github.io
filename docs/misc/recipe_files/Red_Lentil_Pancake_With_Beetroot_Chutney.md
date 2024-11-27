@@ -27,7 +27,6 @@ Have your pancake and eat it too. You’ll whip up a curried red lentil batter b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678462071244-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Rinse the red lentils in a sieve under cold running water
 
 Add the rinsed lentils to a heatproof bowl, cover them boiled water (just enough to cover them) and set aside for 15-20 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678466404859-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop the coriander finely, including the stalks
 
 Strip the mint leaves from their stems and chop them roughly, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678466409925-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Season with a pinch of salt and 2 tsp <span class="text-danger">[4 tsp]</span> s
 
 Once boiling, reduce the heat to low and cook for 10-15 min, stirring frequently, or until thickened to a jam-like consistency – this is your beetroot chutney
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678466415533-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the drained chickpeas to a baking tray with a drizzle of vegetable oil, half
 
 Give everything a good mix up and put the tray in the oven for 10-15 min or until crisp – these are your crispy curried chickpeas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678466419368-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the carrot & cabbage slaw mix to a large bowl with the sliced shallot, cider
 
 Season with a generous pinch of salt and 1/2 tsp <span class="text-danger">[1 tsp]</span> sugar and mix it all together – this is your ginger slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678466423289-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add the drained lentils to a food processor with 150ml <span class="text-danger"
 
 Once smooth, transfer the lentil mixture to a bowl with half the chopped coriander and nigella seeds and mix until fully combined – this is your batter
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678466427876-x200.jpg)
 
 ### Step 7
 

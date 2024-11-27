@@ -25,7 +25,6 @@ Brilliant bulgur is a nutty, chewy little whole grain just waiting to be paired 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-5-1684497311217-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop your cherry tomatoes in half
 
 Peel and roughly chop your red onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-5-1684497315591-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chopped tomatoes and chopped onion to a baking tray with 1/2 tbsp<span 
 
 Put the tray in the oven for 10-15 min or until the onion is cooked and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-5-1684497319002-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Cook, covered for 5-7 min or until almost all the water has absorbed
 
 Once done, remove the pot from the heat, fluff with a fork and set aside until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-5-1684497322945-x200.jpg)
 
 ### Step 4
 
 Meanwhile, cut your halloumi into 3 pieces per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-5-1684497325811-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Give everything a good mix up – this is your herb marinade
 
 Dip the halloumi in the herb marinade (reserve any remaining marinade)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-5-1684497328967-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, add the coated halloumi to the pan and cook for 1-2 min on each side u
 
 Once done, transfer to a chopping board and set aside – this is your lemony halloumi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-5-1684497332633-x200.jpg)
 
 ### Step 7
 

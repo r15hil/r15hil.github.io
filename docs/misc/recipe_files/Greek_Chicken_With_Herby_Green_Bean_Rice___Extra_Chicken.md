@@ -27,7 +27,6 @@ This Greek-style dinner is seasoned to perfection. You’ll coat chicken breast 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729523458983-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely dice your brown onion[s]
 
 Trim, then chop your green beans in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729523463075-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a pot (with a matching lid) over a medium-high heat with a drizzle of olive
 
 Once hot, add the diced onion with a pinch of salt and cook for 1-2 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729523466714-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, add half of your Mediterranean-style seasoning (you'll use the rest l
 
 Add your chicken breast portions and turn the chicken several times until it is fully coated in the seasoning
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729523470570-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Bring to the boil over a high heat
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729523473704-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!) – this is your Greek chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729523477298-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Put the lid back on and set aside for 3 min or until the spinach has started to 
 
 Once wilted, give everything a good mix up – this is your herby green bean rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729523480954-x200.jpg)
 
 ### Step 7
 

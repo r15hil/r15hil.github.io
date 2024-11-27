@@ -28,7 +28,6 @@ In this recipe, we've taken inspiration from the famous Pakistani dish 'haleem',
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602081884031-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a medium wide-based pan (preferably non-stick with a matching lid) with 2 t
 
 Once hot, add the sliced onion with 1 tsp <span class="text-danger">[2 tsp]</span> salt and 1 tsp <span class="text-danger">[2 tsp] </span>sugar and cook for 8-10 min or until caramelised
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602081925586-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Chop the green chilli<span class="text-danger">[es] </span>finely<span class="text-danger"> </span>(can't handle the heat? Deseed the chillies!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602081953103-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Return the pan to a medium heat and add the chopped ginger, chopped garlic and c
 
 Tip: Add a splash more vegetable oil if the pan is looking dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602081991404-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Turn the heat down to medium and cook, covered, for 20-25 min, stirring occasion
 
 Tip: Add a splash of boiled water if the pan is looking dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602082080200-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Let them cool slightly, before chopping roughly
 
 Tip: Watch them like a hawk so they don't burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602082112998-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Chop the mint leaves and coriander roughly, including the stalks
 
 Chop half the lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602082165865-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ We've made a Sri Lankan classic: Crab Curry. While commonly a whole crab sits in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/828.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/828.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Cut the stalk off of the red&nbsp;chilli<span class="text-danger">[es]</span>
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/828.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the shallot, garlic, ginger, coriander stalks, chilli (can't handle the heat
 
 If you don't have a food processor, just chop everything together finely&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/828.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -86,7 +82,6 @@ Cook for 3-4 min or until fragrant and softened
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/828.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,7 +93,6 @@ Separate the white crabmeat from the brown crabmeat, you'll use the white meat l
 
 Add the coconut stock, 1/2 tsp <span class="text-danger">[1 tsp]</span> sugar and the brown crabmeat to the pan and cook for 5 min or until it's reached a loose consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/828.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -113,7 +107,6 @@ Peel and finely chop the remaining&nbsp;shallot<span class="text-danger">[s]&nbs
 
 Halve the lime<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/828.-step-7-x200.jpg)
 
 ### Step 7
 

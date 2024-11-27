@@ -22,7 +22,6 @@ Get this takeaway classic on the table in 10 minutes. You'll toss noodles with m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1621608130828-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600444876723-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon), then chop roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600444882394-x200.jpg)
 
 ### Step 3
 
 Once the pan is hot, add your meat-free chick'n and chopped pepper and cook for 4-5 min or until the meat-free chick'n is starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600444890221-x200.jpg)
 
 ### Step 4
 
@@ -62,19 +58,16 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600444895324-x200.jpg)
 
 ### Step 5
 
 Once the meat-free chick'n has browned, add your mangetout and cook for 2-3 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600444901386-x200.jpg)
 
 ### Step 6
 
 Add your soy sauce, hoisin sauce and toasted sesame oil to the pan and cook for 30 secs or until everything is warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600444907288-x200.jpg)
 
 ### Step 7
 

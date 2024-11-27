@@ -25,7 +25,6 @@ This simple, rustic, Spanish-inspired fish stew is the perfect weeknight meal. I
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1779.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Chop the carrot<span class="text-danger">[s]</span> finely (no need to peel!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1779.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with a 
 
 Once hot, add the chopped onion and carrot with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1779.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, peel and chop the garlic finely
 
 Dissolve 1/2 <span class="text-danger">[1]</span> vegetable stock cube and <span class="text-highlight">the</span> tomato paste in 300ml <span class="text-danger">[550ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1779.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the vegetables have softened, add the smoked paprika and chopped garlic and
 
 Meanwhile, drain and rinse the butter beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1779.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once fragrant, add the Shaoxing wine and cook for 1 min or until evaporated
 
 Add the drained butter beans, chilli flakes (Can't handle the heat? Go easy!), tomato stock and star anise and cook for 7-8 min or until the sauce has thickened to a stew-like consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1779.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Meanwhile, add the focaccia to a baking tray
 
 Put the tray in the oven and cook for 5 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1779.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Our take on alfredo sauce blends the decadent flavours of Italian hard cheese, s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663689973918-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your broccoli[s] into small florets
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663689971162-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up and put the tray in the oven for 15 min or until b
 
 Meanwhile, dissolve your chicken stock mix in 150ml <span class="text-purple">[195ml]</span><span class="text-danger"> [250ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663689956556-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your bacon lardons and cook for an initial 5-6 min, stirring frequently, or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663689966037-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once boiling, cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once cooked, drain the linguine, reserving a little of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663689979267-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once fragrant, add the chicken stock with your soft cheese and cornflour and a g
 
 Cook for 2-3 min further or until thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663689985256-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ While the sauce is thickening, chop your basil finely, including the stalks
 
 Once thickened, remove from heat and stir in half of your grated Italian hard cheese (save the rest for garnish!) until melted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663689988616-x200.jpg)
 
 ### Step 7
 

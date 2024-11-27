@@ -26,7 +26,6 @@ This family favourite pie is a winner. You’ll simmer leek and potato with thre
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1709040831381-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably with a matching lid), with a small driz
 
 Once hot, add the chopped onion and garlic and cook for 7-8 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1709040835548-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Cut the peeled potatoes into small bite-sized pieces
 
 Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then top, tail and chop into large chunks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1709040839278-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Grate the cheddar cheese and Italian hard cheese finely
 
 Once the onion has softened, add the chopped potatoes and leek to the pan with a generous pinch of salt and pepper and mix everything together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1709040842815-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add 250ml <span class="text-purple">[350ml]</span><span class="text-danger"> [45
 
 Add your Chinese rice wine and mix it all together and cook for 6-7 min – this is your creamy leek & potato mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1709040848029-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Cut the pastry into triangles, roughly the size of your palm
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1709040852129-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Top the mixture with the pastry triangles, leaving some gaps in between and brus
 
 Sprinkle over the remaining grated Italian hard cheese and put the dish in the oven for 20-25 min or until golden and bubbling – this is your cheesy leek, potato & mustard pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1709040857245-x200.jpg)
 
 ### Step 7
 

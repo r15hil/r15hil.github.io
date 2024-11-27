@@ -28,7 +28,6 @@ For this Indonesian-inspired plant-based dish you'll simmer meat-free chick'n an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1654591031444-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chopped creamed coconut in 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml]</span> boiled water – this is your coconut stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1654591034387-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your coconut rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1654591037870-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Chop your red chilli[es]<span class="text-danger"> </span>roughly
 
 Chop your lime leaves roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1654591039493-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Blitz into a paste – this is your fiery sambal
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1654591044002-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the fiery sambal and cook for 2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1654591046168-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Whilst the fiery sambal is cooking, dissolve your tamarind paste in 300ml <span 
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and your soy sauce and stir it all together – this is your tamarind stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654591048960-x200.jpg)
 
 ### Step 7
 

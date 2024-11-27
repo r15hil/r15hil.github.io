@@ -22,7 +22,6 @@ These meatballs are cooked, rolled and then glazed in a sticky, fruity hoisin sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/407.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Once boiling, reduce the heat to low and cook for 15-20 min or until tender with
 
 Once cooked, drain and return to the pot and cover until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/407.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Combine the garlic, beef mince, egg, breadcrumbs and 1<span class="text-danger">
 
 Season generously with salt and pepper and mix well (use clean hands)&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/407.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Shape each portion into a ball (use wet hands for easy shaping)
 
 Transfer the balls onto your plate and refrigerate until step 6
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/407.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Heat a large, wide-based pan (with a matching lid) over a high heat with 1 tbsp 
 
 Once hot, add the shredded cabbage and cook on a high heat for 2 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/407.-step-_5-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once cooked, remove from the heat
 
 Add the remaining soy sauce, sesame oil and 1 tbsp <span class="text-danger">(2 tbsp)</span> sugar to the cabbage and mix through, then cover and set aside until serving&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/407.-step-_6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Add a lid and cook for a further 5-10 min or until cooked through
 
 Set the table or do a little washing up while your meatballs are cooking!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/407.-step-_7-x200.jpg)
 
 ### Step 7
 

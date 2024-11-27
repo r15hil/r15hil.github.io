@@ -25,7 +25,6 @@ In this recipe, you'll be making a creamy coconut stock to cook your king prawns
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2356-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724232610214-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Tip: Cut the strips in half if they're really long!
 
 Pat the sliced spring greens dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724232606306-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once tender, transfer to a bowl and reserve the pan for later
 
 Drain your jumbo king prawns
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724232613748-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Chop your creamed coconut roughly if required
 
 Dissolve your soy sauce and the chopped creamed coconut in 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[200ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724232618414-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once fragrant, add the coconut stock and the jumbo king prawns and bring to the 
 
 Once boiling, reduce the heat to medium and cook for 6-7 min or until the prawns are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724232624748-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Meanwhile, add the cooked spring greens to the drained brown rice
 
 Return the pot to a medium-low heat and cook for 1-2 min, gently stirring it together, or until the rice and spring greens are piping hot – this is your brown rice & greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724232628023-x200.jpg)
 
 ### Step 7
 

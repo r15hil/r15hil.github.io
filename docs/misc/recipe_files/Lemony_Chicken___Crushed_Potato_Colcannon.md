@@ -21,7 +21,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1614618682814-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Boil a full kettle
 
 Chop the waxy potatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1614618688262-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Once done, drain and set aside, reserve the pot for later
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1614618701169-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add 300ml<span class="text-danger"> [400ml]</span> boiled water to the pan with 
 
 Reduce the heat to low and cook, covered, for 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1614618714271-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Meanwhile, rip the leaves off the spring greens, discard the tough stalks, then 
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1614618722245-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once the spring greens are tender, add the cooked potatoes and a large splash of
 
 Season with a pinch of salt and crush the potatoes gently with a potato masher – this is your crushed potato colcannon
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1614618739131-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Chop the basil finely, including the stalks
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1614618752420-x200.jpg)
 
 ### Step 7
 

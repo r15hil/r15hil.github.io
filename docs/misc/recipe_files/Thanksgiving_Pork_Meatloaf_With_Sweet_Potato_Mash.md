@@ -27,7 +27,6 @@ This Thanksgiving, head stateside for dinner with our succulent pork meatloaf, g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1635261767574-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the sliced ciabatta to a baking tray lined with tin foil with a drizzle of o
 
 Put the tray in the oven for 5-6 min or until lightly toasted
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635261770301-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Dissolve half the chicken stock mix (you'll use the rest later!) in 120ml <span 
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635261772837-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add half the chopped shallot and half the chopped garlic to the pan an
 
 Remove the toasted ciabatta from the oven (reserve the tray!), roughly tear it (careful it will be hot!) and add it to an oven-proof dish, then pour over the stock and set aside, reserving the pan – this is your herby bread stuffing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635261775791-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Using clean hands, combine the remaining chopped shallot and garlic, pork mince 
 
 Add the pork mixture to the reserved baking tray and shape into 1 <span class="text-danger">[2] </span>loaf<span class="text-danger">[ves]</span>, spread half the cranberry sauce over the top of the meatloaf<span class="text-danger">[ves]</span>, then put the tray and the herby bread stuffing in the oven for 30-35 min or until the meatloaf<span class="text-danger">[ves] </span>are cooked through and the stuffing is golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635261778355-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635261781275-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Scrunch the edges of the foil around the beans to form a sealed parcel and put 
 
 Return the reserved pan to a medium heat with a knob of butter and once melted, add 2 tsp<span class="text-danger"> [4 tsp]</span> flour and cook for 30 secs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635261785489-x200.jpg)
 
 ### Step 7
 

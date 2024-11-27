@@ -30,7 +30,6 @@ Inspired by the Malaysian classic, ayam percik, this pescatarian take on the fra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627025439990-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Chop your basa fillet[s] into large, bite-sized pieces
 
 Add the chopped basa to a bowl, sprinkle over half your ground turmeric (you'll use the rest later!) and a pinch of salt and pepper, then give everything a good mix up and set aside until later – this is your marinated basa
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627025008534-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the sliced cucumber to a bowl with your rice vinegar, 1 tsp <span class="tex
 
 Stir it all together and set aside until serving – this is your quick-pickled cucumber
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627025029216-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627025046214-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Put everything into a food processor
 
 Chop half your red chilli[es] roughly and add to the food processor (can't handle the heat? Go easy!), then finely slice the rest into rounds (save these for garnish!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627025063106-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add your soy sauce, ginger & garlic paste and a pinch of sugar
 
 Pulse until you're left with a slightly chunky paste – this is your Malaysian-style spice paste
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1627025581572-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the Malaysian-style spice paste to the pan and cook for 4-5 min or until fr
 
 Once fragrant, add your tamarind paste with 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml]</span> boiled water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-2-1627025606691-x200.jpg)
 
 ### Step 7
 

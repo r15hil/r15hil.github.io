@@ -22,7 +22,6 @@ This flaky salmon is as delicious as it is easy. Bake your paprika-coated fish w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1725448327284-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1725448330350-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Put the tray in the oven for an initial 15 min
 
 Cooking for 3 or more? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1725448334017-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine your roasted garlic paste and honey with the juice of your lemon[s], a drizzle of olive oil and a pinch of salt and pepper – this is your honey garlic & lemon sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1725448337744-x200.jpg)
 
 ### Step 4
 
@@ -56,13 +52,11 @@ Pat your salmon fillet[s] dry with kitchen paper
 
 Sprinkle your ground paprika over the salmon and rub it into all sides until evenly coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1725448343460-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1725448348732-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Season with a generous pinch of salt and a drizzle of olive oil
 
 Put the tray[s] in the oven for a further 10 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1725448352616-x200.jpg)
 
 ### Step 7
 

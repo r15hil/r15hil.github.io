@@ -24,7 +24,6 @@ This speedy spag bol is a plant-based spin on a classic. Rustle up deeply-rich r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1650385359115-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650385246659-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the meat-free mince and cook for 2-3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650385258682-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Peel and chop (or grate!) the garlic
 
 Chop the tomato<span class="text-danger">[es]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650385263346-x200.jpg)
 
 ### Step 4
 
 Once the meat-free mince has browned, add the diced shallot, chopped garlic, chopped tomato and a pinch of salt and cook for 2 min further or until the shallot is slightly softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650385269946-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Cook the spaghetti for 3-4 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650385274548-x200.jpg)
 
 ### Step 6
 
 Dissolve the vegetable stock mix, Marmite, tomato paste and Henderson's Relish in 200ml <span class="text-danger">[350ml]</span> boiled water – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650385278816-x200.jpg)
 
 ### Step 7
 

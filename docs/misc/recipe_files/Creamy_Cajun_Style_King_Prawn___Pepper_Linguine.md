@@ -29,7 +29,6 @@ Punchy Cajun-inspired seasoning brings the heat to this fiery fusion dish. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1646764528339-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1646764533830-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion, chopped garlic and pepper strips and cook for 8-10 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1646764538876-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ While the onion and pepper are softening, add your ground smoked paprika, cayenn
 
 Give everything a good mix up – this is your Cajun-style spice mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1646764549678-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Cook the linguine for 8-10 min or until cooked with a slight bite, then drain it
 
 Reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1646764559747-x200.jpg)
 
 ### Step 5
 
 Meanwhile, drain your king prawns, then combine with the with the Cajun-style spice mix in a bowl and give everything a good mix up – these are your Cajun-style spiced king prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1646764565296-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Dissolve your vegetable stock mix and soft cheese in 200ml <span class="text-pur
 
 Once the veg has softened, add your Chinese rice wine and cook for 30 secs or until evaporated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1646764571193-x200.jpg)
 
 ### Step 7
 

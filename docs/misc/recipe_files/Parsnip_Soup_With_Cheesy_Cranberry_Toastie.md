@@ -25,7 +25,6 @@ Take your favourite trimmings to the next level with this creamy parsnip, apple 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2380Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Top, tail, peel then chop your parsnip[s] into bite-sized pieces
 
 Crush your garlic (skins on) open by squashing them with the side of a knife
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2380Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,13 +45,11 @@ Peel and chop half your apple[s] into small cubes (save the rest for later!)
 
 Strip your thyme leaves from their stems, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2380Step-3-x200.jpg)
 
 ### Step 3
 
 Add the onion wedges, chopped parsnip and crushed garlic to one side of a baking tray (or two!) with a generous drizzle of olive oil and a pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2380Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Put the tray[s] in the oven for 25 min or until everything is tender but not col
 
 Meanwhile, drain your mozzarella, then pat and squeeze as much liquid out as you can with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2380Step5V2-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the sliced ciabatta to a separate baking tray and spread one side with butt
 
 Top with the torn mozzarella and grated cheese and set aside for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2380Step-6.v2jpg-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Remove the skins and roots from your onion and garlic and discard, then add them
 
 Add 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[250ml] </span>milk and whizz until smooth – this is your parsnip soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2380Step-7-x200.jpg)
 
 ### Step 7
 

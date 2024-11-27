@@ -30,7 +30,6 @@ Tuck into mushroom noodles and crisp greens in a sticky sauce. You'll sizzle gar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618828034338-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop all of these together as finely as you can (can't handle the heat? Save so
 
 Trim, then slice your spring onion[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1618828044426-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the chopped garlic, ginger & chilli and cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618828051337-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once fragrant, crumble your chestnut mushrooms roughly into the pan with your ha
 
 Add your five-spice mix and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618828064074-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ While the mushrooms are cooking, combine your cornflour with 75ml <span class=
 
 Add your hoisin sauce, rice vinegar, soy sauce and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar – this is your sticky stir-fry sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618828073062-x200.jpg)
 
 ### Step 5
 
 Chop your Tenderstem broccoli in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1618828079293-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Bring to the boil and cook over a high heat for 5-6 min or until the noodles are
 
 Once done, drain the noodles & broccoli, reserving a cup of the starchy noodle water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618828088240-x200.jpg)
 
 ### Step 7
 

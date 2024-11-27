@@ -24,7 +24,6 @@ For this fish pie, you'll flake salmon into a creamy saffron sauce and top it wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1857RC2602v2Step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt ove
 
 Once cooked, drain and return them to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1857RC2602v2Step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Dissolve 1/2 <span class="text-danger">[1]</span> Knorr vegetable stock cube i
 
 Add the saffron and set aside to infuse – this is your saffron stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1857RC2602v2Step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once hot, add the salmon fillets with a pinch of salt and cook for 2-3 min o
 
 Once browned, transfer to a plate and reserve the pan (and oil)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1857RC2602v2Step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Add the saffron stock with 50ml <span class="text-danger">[100ml]</span> milk�
 
 Add the Chinese rice wine and clotted cream and cook for 1 min further – this is your saffron sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1857RC2602v2Step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,7 +91,6 @@ Mash until smooth
 
 Add the chopped chives with a generous pinch of salt and give everything a good mix up – this is your chive mash
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1857RC2602v2Step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,7 +102,6 @@ Pour the saffron sauce all over and top with the chive mash
 
 Sprinkle the grated Italian hard cheese over the top and put the dishes in the oven for 20-25 min or until golden and bubbling - these are your salmon &amp; saffron pies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1857RC2602v2Step-7-x200.jpg)
 
 ### Step 7
 

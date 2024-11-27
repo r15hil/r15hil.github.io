@@ -27,7 +27,6 @@ This seasonal tart is filled with cheesy Brussels sprouts, mango chutney and fra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1607611849414-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your waxy potatoes to a pot of plenty of boiled water with a pinch of salt a
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and allow to steam
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1607611854115-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1607611872640-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion, chopped garlic, and half the chopped chilli (can't handle the heat? Go easy!) with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1607611885352-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the onion has softened, add your ground turmeric, garam masala and a splash
 
 Add the sliced Brussels sprouts to the pan with a knob of butter and cook for 7-8 min further or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1607611894838-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once softened, add your mango chutney, grated cheese and half the chopped corian
 
 Season with a pinch of salt and a grind of black pepper and give everything a good mix up – this is your Brussels sprout & garam masala tart filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1607611900588-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Transfer the pastry square[s] to a baking tray lined with non-stick baking paper
 
 Top the centre of pastry square[s] with the Brussels sprout & garam masala tart filling
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1607611917351-x200.jpg)
 
 ### Step 7
 

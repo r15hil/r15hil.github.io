@@ -27,7 +27,6 @@ For a sticky stir-fry served over rice, you'll sizzle pork mince with crisp pepp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1549.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1549.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, dry, wide-based pan (preferably non-stick), over a medium-high hea
 
 Once hot, add the pork mince and cook for 4-5 min, breaking it into large bite-sized pieces, until browned and starting to crisp and caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1549.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Chop the mangetout in half
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1549.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Dissolve the chicken stock mix and the tomato paste in 150ml <span class="text-d
 
 Add the soy sauce, rice vinegar, cornflour and 1 tbsp <span class="text-danger">[2 tbsp]</span> sugar and whisk to combine – this is your stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1549.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Once the pork mince is done, add the chopped pepper and halved mangetout and coo
 
 Once starting to soften, add the chopped ginger and five-spice mix to the pan and cook for a further 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1549.-step-6-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add the stock and cook for 2-5 min or until the sauce is glossy and thickened – this is your Chinese-style sweet & sticky pork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1549.-step-7-x200.jpg)
 
 ### Step 7
 

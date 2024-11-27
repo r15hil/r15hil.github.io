@@ -25,7 +25,6 @@ For these tantalising wraps, you'll fill tortillas with Thai red curry free rang
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690285406623-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a m
 
 Once hot, add your free range chicken breast portion[s] and cook for 3 min on each side or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690285425668-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Dissolve the chopped creamed coconut in 200ml <span class="text-purple">[260ml]<
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690285430389-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once the chicken is browned, add your red Thai curry paste and chopped ginger an
 
 Once fragrant add the coconut stock with a pinch of sugar and cook, covered, for a further 10-15 min or until the chicken is cooked through (no pink meat!) and the stock has thickened – this is your Thai-style coconut sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690285612904-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the grated carrot and cucumber matchsticks to a large bowl
 
 Add the juice of half your lime[s], your rice vinegar and a pinch of salt to the bowl and give everything a gentle mix up – this is your cucumber & carrot salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690285616705-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Meanwhile, cut your red chilli[es] in half lengthways, deseed (scrape the seeds 
 
 Chop your roasted peanuts coarsely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690285621671-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Squeeze the remaining lime into the Thai-style coconut sauce
 
 Return the pulled chicken to the Thai-style coconut sauce and mix until the chicken is fully coated in sauce – this is your Thai-style coconut chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690285630878-x200.jpg)
 
 ### Step 7
 

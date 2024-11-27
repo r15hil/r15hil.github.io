@@ -27,7 +27,6 @@ This twist on a takeaway classic packs a flavour punch. You’ll stuff your pitt
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1691744783499-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut your potatoes (skins on) into chips, then add them to a baking tray (or two
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1691744785847-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the sliced red onion to a bowl, cover with boiled water and set aside
 
 Peel and finely grate your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1691744794118-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add a drizzle of olive oil with a generous pinch of salt and pepper and give 
 
 Put the tray in the oven and cook for 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1691744801504-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Return them to the bowl and add your white wine vinegar with a pinch of salt and
 
 Stir to combine and set aside for later – this is your quick-pickled pink onion
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1691744810780-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Wash your lettuce, then pat dry with kitchen paper and shred finely
 
 Chop your tomato[es] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1691744820254-x200.jpg)
 
 ### Step 6
 
 Add the shredded lettuce and chopped tomato to the bowl with the quick-pickled pink onion, add a drizzle of olive oil and a pinch of salt, then give everything a good mix up – this is your quick-pickled onion salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1691744823365-x200.jpg)
 
 ### Step 7
 

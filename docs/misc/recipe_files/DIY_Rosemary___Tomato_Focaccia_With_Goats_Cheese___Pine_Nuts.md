@@ -23,7 +23,6 @@ Raise your baking game with this veg-packed focaccia. You’ll stud your dough w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1699349610788-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add your dried yeast to the bowl with the warmed milk and 1 tsp <span class="te
 
 Mix it all together and set aside for 10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1699349615314-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1699349620780-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Give everything a good mix up with a plastic spatula until a very sticky dough h
 
 Drizzle olive oil over the the dough and set aside for 10 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1699349626807-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add your pine nuts and cook for 2-3 min or until toasted and lightly g
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1699349630557-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Tip: It will be very soft and sticky – slightly oiled hands is the best way!
 
 Spread the rested dough out into rough circle[s] approx. 2cm thick and press your fingertips into the dough to make dimples
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1699349635337-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Top with a generous drizzle of olive oil and season with a generous pinch of sal
 
 Put the tray[s] in the oven and cook for 20-25 min or until the dough is puffed up and golden brown – this is your rosemary & tomato focaccia
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1-1699349639666-x200.jpg)
 
 ### Step 7
 

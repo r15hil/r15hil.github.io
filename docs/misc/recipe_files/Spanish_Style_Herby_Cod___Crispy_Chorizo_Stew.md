@@ -27,7 +27,6 @@ Spice up the delicate flavour of cod in this Spanish-inspired stew. You'll simme
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/799-v2-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once hot, add your diced chorizo and cook for 3-4 min or until golden and cri
 
 While the chorizo is cooking, boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/799-v2-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop your waxy potatoes (skins on) into small, bite-sized pieces
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/799-v2-step-3--x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Cook for 3-4 min or until the potatoes are starting to brown
 
 When the potatoes have browned, add the chopped garlic and cook for 1 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/799-v2-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Dissolve your vegetable stock mix in 400ml <span class="text-purple">[520ml]<
 
 Stir in your tomato paste and 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/799-v2-step-5-x200.jpg)
 
 ### Step 5
 
 Add the tomato stock to the pan and cook, covered, for 12-15 min or until the potatoes are fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/799-v2-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Put the tray[s] in the oven for 12 min or until the cod is cooked through – th
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/799-v2-step-7-x200.jpg)
 
 ### Step 7
 

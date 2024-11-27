@@ -27,7 +27,6 @@ Pork Pibil is a traditional Mexican slow-roasted pork dish flavoured with citrus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1199.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Score the fatty side of the pork belly&nbsp;in a criss-cross pattern, deep enoug
 
 Heat a large, wide-based pan (preferably non-stick) over a medium heat &amp; once very hot, add the&nbsp;pork belly, fat-side down &amp; cook for 3-5 min or until nicely coloured
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1199.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Once cool enough to handle, add the pork belly to the plate and rub it with the 
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1199.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -78,7 +75,6 @@ Use the next 20 min to clear up, set the table, have a cup of tea or simply chil
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1199.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -93,7 +89,6 @@ Peel and finely chop the brown&nbsp;onion<span class="text-danger">[s]</span>
 
 Return the pan to a medium-low heat with a drizzle of vegetable oil&nbsp;<span class="text-highlight">and once hot,</span> add the chopped onion with a pinch of salt &amp; cook for 5-6 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1199.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -108,7 +103,6 @@ Drain and rinse the&nbsp;black beans
 
 Once softened, add the smoked paprika to the pan and cook for 1 min further, then add the drained black beans and chicken stock and cook, covered, for 6-7 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1199.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -126,7 +120,6 @@ Put them in the oven for 2 min or until they're warmed through
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1199.-step-7-x200.jpg)
 
 ### Step 7
 

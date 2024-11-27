@@ -27,7 +27,6 @@ After minimal chopping and a bit of stirring, you'll serve up a golden, cheesy r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/593.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Drizzle them with olive oil, then season with a pinch of both salt and sugar
 
 Put the tray in the oven to roast for 30 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/593.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit
 
 Top, tail and slice finely, discarding the root end[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/593.-step-3-x200.jpg)
 
 ### Step 3
 
 Dissolve your vegetable stock mix in 600ml <span class="text-purple">[900ml] </span><span class="text-danger">[1.2L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/593.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once hot, add the sliced leek and cook for 4 min until softened
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/593.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once softened, add your arborio rice, chopped garlic and your ground turmeric 
 
 Add your Chinese rice wine and your wholegrain mustard, then cook for a further 1 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/593.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add 1/3 of the vegetable stock and stir continuously with a wooden spoon until i
 
 Continue to add the remaining vegetable stock, a ladle at a time, stirring continuously for 15-20 min, until all the stock is absorbed and the rice is cooked – this is your risotto
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/593.-step-7-x200.jpg)
 
 ### Step 7
 

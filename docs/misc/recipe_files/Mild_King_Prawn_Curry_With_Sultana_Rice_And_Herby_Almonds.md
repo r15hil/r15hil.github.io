@@ -33,7 +33,6 @@ Time for a curry. You’ll simmer king prawns in a rich tomato sauce with garam 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708529926079-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Chop your tomato[es] roughly
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708529932641-x200.jpg)
 
 ### Step 2
 
@@ -53,13 +51,11 @@ Peel and finely chop (or grate) your garlic
 
 Chop your parsley roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708529936849-x200.jpg)
 
 ### Step 3
 
 Dissolve your vegetable stock mix and tomato paste in 175ml <span class="text-purple">[230ml] </span><span class="text-danger">[300ml] </span>boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708529952845-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once toasted, transfer the toasted almonds to a bowl (reserve the pan!) with the chopped parsley and give everything a good mix up – these are your herby almonds
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708529959069-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat, mix through your sultanas and keep covered until serving – this is your sultana rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708529965083-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once softened, add the chopped garlic with your ginger paste, garam masala and g
 
 Cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708529969930-x200.jpg)
 
 ### Step 7
 

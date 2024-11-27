@@ -23,7 +23,6 @@ Korean comfort cooking meets mid-week simplicity. You’ll pack fiery pan-fried 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1730477295489-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1-chicken-breast-in-pan-1730824588509-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1730477491847-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of v
 
 Once hot, crumble your chestnut mushrooms roughly into the pan with your hands along with a grind of black pepper and cook for 6-7 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1730477503504-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add half your ginger paste (you'll use the rest later!) to a large bowl with 1 t
 
 Add the salad and give everything a gentle mix up – this is your ginger salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1730477318929-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add a large knob of butter and your gochujang paste (can't handle the heat? Go e
 
 Cook for 1 min or until the butter has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1730477323777-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once the butter has melted, add your udon noodles to the pan along with 50ml <sp
 
 Tip: Gently separate the noodles with a fork!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1730477328660-x200.jpg)
 
 ### Step 7
 

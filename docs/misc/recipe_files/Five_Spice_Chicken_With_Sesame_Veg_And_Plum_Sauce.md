@@ -28,7 +28,6 @@ This easy twist on Peking-style chicken is an oven-roasted dream. You’ll marin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646746886069-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Combine your soy sauce, five-spice mix, rice vinegar and 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp] </span>[2 tbsp]</span> vegetable oil in a medium bowl with a pinch of salt and pepper – this is your five-spice marinade
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646746898741-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the chicken thighs to a large bowl with half your five-spice marinade (you'l
 
 Add the marinated chicken to a tin foil-lined baking tray, and put the tray in the oven for 18-22 min or until the chicken is cooked through (no pink meat!) – this is your five-spice roasted chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646746910252-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Cut your pak choi in half lengthways
 
 Top, tail and slice your carrots into strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646746921691-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Scrunch the foil around the vegetables to form a tightly sealed parcel and add t
 
 Put the tray in the oven for an initial 15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646746935956-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646746946244-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add your sesame oil and sprinkle over your sesame seeds
 
 Return the tray to the oven and cook for a further 5-6 mins or until the vegetables are tender – this is your sesame roasted veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646746954294-x200.jpg)
 
 ### Step 7
 

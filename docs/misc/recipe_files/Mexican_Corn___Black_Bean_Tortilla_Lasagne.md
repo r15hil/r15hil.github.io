@@ -25,7 +25,6 @@ For this easy, veg-packed Mexican twist on lasagne, you'll combine smoky black b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1427.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,13 +39,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of&nbsp;olive
 
 Once hot, add the chopped onion and cook for 3-4 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1427.-step-2-x200.jpg)
 
 ### Step 2
 
 Once softened, add the ground&nbsp;cumin and smoked&nbsp;paprika and cook for 1 min further
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1427.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the drained sweetcorn and black beans to the pan&nbsp;with the chopped tomat
 
 Crumble in the&nbsp;vegetable stock cube<span class="text-danger">[s]</span><span class="text-danger">&nbsp;</span>and cook for a further 5 min, stirring until everything's combined <span class="text-highlight">&ndash;</span> these are your Mexican beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1427.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, lightly grease an <span class="text-highlight">oven-proof dish</span>
 
 Once the Mexican beans are&nbsp;done, add&nbsp;<span class="text-highlight">1/3</span> of them to&nbsp;the <span class="text-highlight">oven-proof dish</span> and top<span class="text-highlight"> the beans</span> with 2<span class="text-danger"> [4]</span> tortillas&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1427.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Grate the cheddar cheese over the top
 
 Put the dish in the oven for 20-25 min, or until bubbling and crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1427.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Put the dish in the oven for 20-25 min, or until bubbling and crispy
 
 <span class="text-highlight">Combine the natural&nbsp;yoghurt with the chopped coriander&nbsp;&ndash; this is your coriander yoghurt</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1427.-step-7-x200.jpg)
 
 ### Step 7
 

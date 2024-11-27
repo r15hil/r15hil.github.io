@@ -26,7 +26,6 @@ Bánh mì is the Vietnamese word for bread, and the name of a very popular sandw
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1634748172258-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Slice your cucumber into discs, then slice each individual cucumber disc into ma
 
 Top, tail and peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634748179634-x200.jpg)
 
 ### Step 2
 
 Add your hoisin sauce, rice vinegar, soy sauce, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil to a large bowl with a pinch of salt and stir it all together – this is your hoisin dressing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634748184417-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the torn ciabatta to a baking tray with your toasted sesame oil, black sesa
 
 Put the tray in the oven for 5 min or until golden and crisp – these are your sesame croutons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1634748189058-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add your meat-free chick'n and cook for 6-7 min or until warmed through and starting to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634718293541-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ While the meat-free chick'n is cooking, strip your mint leaves from their stems 
 
 Chop your coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634718299064-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the carrot ribbons, cucumber matchsticks, sliced shallot, salad, sesame croutons and most of the chopped mint and chopped coriander (save the rest for garnish!) to the hoisin dressing and give it a gentle mix up – this is your bánh mì-style salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634718305277-x200.jpg)
 
 ### Step 7
 

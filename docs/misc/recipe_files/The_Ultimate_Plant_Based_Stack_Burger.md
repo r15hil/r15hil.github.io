@@ -24,7 +24,6 @@ Hold on to your napkins, because a new burger revolution has started! To make th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2536Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to one side of the baking tray with a drizzle of vegetable oil and
 
 Give everything a good mix up and put the tray in the oven for 30-35 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2536Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Twist the ball and squeeze out as much of the liquid as you can
 
 Add the squeezed potato to a bowl with your smoked paprika and a pinch of salt and pepper and give everything a good mix up – this is your paprika potato mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2536Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once the chips have had an initial 15 minutes, remove the tray from the oven and
 
 Drizzle half of your balsamic vinegar (you'll use the rest later!) over the red onion rounds with a little olive oil and return to the oven until caramelised and crispy – these are your balsamic onions
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2536Step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the paprika potato mixture with a pinch of salt and cook for 8-10 
 
 Tip: Don't worry how they look, you're just after the crunch!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2536Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add your ultimate vegan burger patties to the lined tray and put the tray in the
 
 Combine your mayo and tomato ketchup in a bowl – this is your ketchup mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2536Step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Slice your brioche buns in half and add them to the other side of the tray
 
 Return the tray to the oven for 3-4 min or until the mature cheddar style slice has melted and the brioche is warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2536Step-7-x200.jpg)
 
 ### Step 7
 

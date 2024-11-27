@@ -28,7 +28,6 @@ Take a bite of Ukrainian summer with this veg-packed ragout. You’ll sizzle pot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678381066986-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and finely slice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678381075949-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Give everything a good mix up and put the tray in the oven for 25-30 min or unti
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678381086989-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Cook for 20 min or until tender (it will still have a slight bite when cooked)
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678381119017-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can then chop it roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678381135723-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once hot, add the sliced onion and cook for 3-4 min or until softened
 
 Once softened, add the chopped garlic and tomato paste to the pan and cook for a further 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678381147752-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Chop your dill finely, including the stalks
 
 Once the vegetables are ready, add the cooked veg (careful, they will be hot!) to the ragout sauce and mix it all together until fully coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678381160320-x200.jpg)
 
 ### Step 7
 

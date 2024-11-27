@@ -29,7 +29,6 @@ Pulusu is a fragrant and aromatic South Indian curry, flavoured with tamarind. F
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1657542981788-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666697018014-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Peel and chop your brown onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666697021759-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the onion wedges, curry powder and ground turmeric to the dish with your gin
 
 Give everything a good mix up and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666697025634-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Add your white long grain rice, finely chopped tomatoes, vegetable stock mix and
 
 Bring to the boil over a high heat, put the dish in the oven and cook for 20-25 min, covered, or until the rice is almost cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666697029337-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666697034032-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Chop any larger pieces of haddock into bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666697038255-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ If you like piña coladas, you're bound to enjoy this fiery twist on a Caribbean
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1148.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1148.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick with a matching li
 
 Once hot, add your chicken thighs with a pinch of salt and cook for 2-3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1148.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!
 
 Add your soy sauce and a couple of splashes of water and cook, covered, for a further 10-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-10-1731495481944-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Season with a pinch of salt and pepper – this is your pineapple mayo
 
 Tip: Keep the remaining pineapple juice for your smoothies, cakes or marinades!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-6-1731494821896-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Chop the inner core[s] into quarters lengthways
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1148.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Top the pineapple slices with the grated cheddar cheese
 
 Add your ciabatta[s] to the tray and put in the oven for 5 min or until the cheese is melted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1148.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Hot, sticky Marmite-glazed meat-free chick'n? Yes please! Prepare your taste bud
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619783217343-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut your potatoes (skins on) into chips
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619783221399-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Add a drizzle of vegetable oil and a pinch of salt and pepper to the chips and g
 
 Put the tray[s] in the oven for 30 min or until the chips are golden and the pepper has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619783741962-x200.jpg)
 
 ### Step 3
 
 While the chips and pepper are cooking, combine your maple syrup with your Marmite, cayenne pepper (can't handle the heat? Go easy!) and 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water in a bowl and give everything a good mix up – this is your fiery Marmite glaze
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619783755656-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add your cornflour to a separate bowl with a pinch of salt and pepper
 
 Add your meat-free chick'n and give everything a good mix up until they’re nicely coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619783775888-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Tip: Cooking for 3 or more? You may need to do this in batches!
 
 Once golden, transfer to a plate and set aside for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619783789032-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Tip: Add more oil to the pan if it is looking a little dry
 
 Meanwhile, slice your red chilli[es] finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1619783818233-x200.jpg)
 
 ### Step 7
 

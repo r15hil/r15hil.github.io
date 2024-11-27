@@ -18,7 +18,6 @@ To make this tasty, super easy tray bake you'll simply pan-fry chicken till gold
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1606.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1606.-step-2.a-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the chicken thighs and cook for 3 min on each side or until lightl
 
 Once browned, set aside on a plate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1606.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Meanwhile, boil a kettle
 
 Wash the leeks carefully to remove any grit from between the leaves, then top, tail and slice finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1606.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Dissolve the chicken stock cube<span class="text-danger">[s]</span> in 200ml <sp
 
 Add the soft cheese to the stock and give it a good mix up <span class="text-highlight">–</span> this is your creamy chicken stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1606.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the sliced leek and creamy stock to an <span class="text-highlight">oven-proof dish</span> and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1606.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add the browned chicken to the dish 
 
 Put the dish in the oven for 20 min or until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1606.-step-7-x200.jpg)
 
 ### Step 7
 

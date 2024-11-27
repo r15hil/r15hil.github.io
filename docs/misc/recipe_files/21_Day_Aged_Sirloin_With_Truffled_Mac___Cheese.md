@@ -23,7 +23,6 @@ This steak dinner is indulgence done right. Before serving, let your 21-day aged
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2360Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add your macaroni to a pot of boiled water with a large pinch of salt and bring 
 
 Cook the macaroni for 7-8 min or until cooked with a slight bite
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2360Step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Once cooked, drain the cooked macaroni and save a cup of the starchy pasta water
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2360Step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Once the pasta is cooked, stir your crème fraîche and grated cheddar cheese (s
 
 Add a generous splash of starchy pasta water and season with a pinch of salt and pepper – this is your cheesy macaroni
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2360Step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Transfer the cheesy macaroni to an oven-proof dish (use individual ones for fa
 
 Put the dish in the oven and cook for 15 min or until bubbling and golden – this is your truffled mac & cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2360Step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Combine your balsamic vinegar with a drizzle of olive oil and a pinch of salt in
 
 Heat a large, wide-based pan (preferably non-stick) over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2360Step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min
 
 Once the steaks are cooked, transfer them to a clean plate to rest
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2360Step-7-x200.jpg)
 
 ### Step 7
 

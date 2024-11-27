@@ -27,7 +27,6 @@ Skip the spaghetti for this twist on an Italian-American classic. You’ll pan-f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688729676596-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chips to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Put the tray[s] in the oven for 20-25 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688729680637-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and dice your shallot[s] finely
 
 Grate your Italian hard cheese finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688729685912-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can and chop roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688729690098-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Divide equally into 4 per person and shape into meatballs, then heat a large, wi
 
 Once hot, add the meatballs to the pan and cook for 2 min on each side or until lightly browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688729695736-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Return the pan to a medium-high heat and once hot, add the remaining diced shall
 
 Once slightly softened, add your tomato paste, dried oregano, remaining chicken stock mix and 190ml <span class="text-purple">[250ml] </span><span class="text-danger">[320ml] </span>boiled water and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688729699702-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Cook, covered, for an initial 9-11 min, then remove the lid and reduce the heat 
 
 Once everything is cooked, stir through the wilted spinach – these are your tomatoey pork meatballs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688729703389-x200.jpg)
 
 ### Step 7
 

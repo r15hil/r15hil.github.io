@@ -22,7 +22,6 @@ This pan-fried gnocchi is crispy, speedy and super easy. You’ll rustle up a ta
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680079294414-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Once hot, add your gnocchi and cook for 8-10 min or until beginning to crisp, th
 
 Tip: Don’t stir too often as this will prevent the gnocchi from crisping!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680079300757-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ While the gnocchi is cooking, peel and finely slice your red onion[s]
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680079304128-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Once hot, add the sliced onion and chopped tomatoes to the pan with a pinch of s
 
 Cook for 2-3 min or until the onion is starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680079307201-x200.jpg)
 
 ### Step 4
 
@@ -60,19 +56,16 @@ Once fragrant, add your vegetable stock mix with 150ml <span class="text-purple"
 
 Cook for 4-5 min or until the sauce begins to thicken to a gravy-like consistency – this is your sun-dried tomato sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680079311080-x200.jpg)
 
 ### Step 5
 
 Meanwhile, grate your Italian hard cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1-1680079314771-x200.jpg)
 
 ### Step 6
 
 Wash your salad, then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680079317951-x200.jpg)
 
 ### Step 7
 

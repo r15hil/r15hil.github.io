@@ -25,7 +25,6 @@ Creamy, smoky and deliciously effortless. With just 5 mins prep, this Scandi-ins
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-4-1682417990409-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ This recipe takes around 5-<span class="text-danger"> </span>10 min to prep, so 
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1682417946219-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Crush your garlic open by squashing them with the side of a knife and discard th
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-6-1682417950200-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Add the chopped onion and crushed garlic to the dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-5-1682417953718-x200.jpg)
 
 ### Step 4
 
 Meanwhile, chop your smoked basa into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-5-1682417956648-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp]<span class="text-danger"> </span
 
 Nestle the pasta into the water as much as you can, then stir everything together and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-6-1682417961383-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Tip: Give everything a stir halfway through for evenly cooked pasta!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-7-1682417965444-x200.jpg)
 
 ### Step 7
 

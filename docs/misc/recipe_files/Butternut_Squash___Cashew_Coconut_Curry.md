@@ -26,7 +26,6 @@ Dine in on this creamy Thai-style curry. You’ll simmer sweet potato and green 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674556295253-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once hot, add your cashew nuts and cook for 2-3 min or until toasted and lightly
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674556307927-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Trim, then chop your green beans in half
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674556315995-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674556320525-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add your butternut squash cubes and onion wedges with a generous pinch of salt and pepper and cook for 4-5 min or until starting to caramelise
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674556325565-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your vegetable stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[400ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674556331370-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once starting to caramelise, add the chopped garlic, ginger paste and red Thai c
 
 Once fragrant add the vegetable stock and cook, covered, for 7-8 min or until starting to soften
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674556338378-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ A veggie parmigiana that's sure to please. You'll smother cauliflower in a rich,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612430392902-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603708370903-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop your cauliflower into wedges, lengthways, then cut each wedge in half, disc
 
 Add the choppped cauliflower to a large oven-proof dish (or two) with a drizzle of olive oil and a pinch of salt and pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603708450202-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Put the dish[es]<span class="text-danger"> </span>in the oven for an initial 30 
 
 Meanwhile, boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603708456664-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Dissolve your vegetable stock mix in 100ml <span class="text-purple">[130ml]</sp
 
 Add half of your balsamic vinegar (save the rest for later!) – this is your tomato sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603708470744-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603708485251-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Top with the torn mozzarella and sprinkle over your grated Italian hard cheese
 
 Return the dish[es] to the oven for 20 min further or until the cheese has melted and everything's bubbling and tender – this is your baked cheesy cauliflower parmigiana
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1597070015308-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ You won't miss the meat in these banging meatballs! Shape Meatless Farm mince in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2469Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Using clean hands, give everything a good mix up until fully combined
 
 Divide the mince mixture into 10 <span class="text-danger">[20]</span> and shape into meatballs – these are your meat-free mince meatballs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2469Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2469Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once hot, add the meat-free mince meatballs and cook for 3 min, turning occasi
 
 Once browned, transfer the browned meat-free mince meatballs to a plate and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2469Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2469Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cook the wholewheat spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked wholewheat spaghetti and return it to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2469Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add the chopped tomatoes, tomato paste, vegetable stock, balsamic vinegar and
 
 Add the browned meat-free mince meatballs and cook, covered, for 7-8 min or until cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2469Step-7-x200.jpg)
 
 ### Step 7
 

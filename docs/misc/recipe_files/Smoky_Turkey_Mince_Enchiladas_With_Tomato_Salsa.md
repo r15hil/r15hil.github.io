@@ -25,7 +25,6 @@ These smoky enchiladas are packed with Mexican flavours. You'll wrap spiced turk
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1601312033610-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Boil half a kettle
 
 Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601312062388-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601312074517-x200.jpg)
 
 ### Step 3
 
 While the onions are cooking, dissolve the chicken stock mix<span class="text-danger"> </span>and tomato paste in 200ml <span class="text-danger">[400ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601312083117-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once the onion has softened, add the turkey mince, ground cumin, smoked paprika 
 
 Meanwhile, grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601312091638-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Increase the heat to high, add the tomato stock to the pan and cook for 2-3 min 
 
 Grease an oven-proof dish with a little olive oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601312100908-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Top with the grated cheese and a drizzle of olive oil
 
 Put the dish in the oven for 8-10 min or until the tortillas are beginning to crisp and the cheese has melted – these are your smoky turkey enchiladas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601312112854-x200.jpg)
 
 ### Step 7
 

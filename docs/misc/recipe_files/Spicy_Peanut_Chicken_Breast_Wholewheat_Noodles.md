@@ -29,7 +29,6 @@ These noodles are so easy, it's nuts. You'll get chicken sizzling, before throwi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1681830939369-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681830931214-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Trim, then slice your spring onion[s] roughly and trim, then chop your green bea
 
 Once the pan is hot, add your diced chicken breast and ginger & garlic paste and cook for 7 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681830943649-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ While the chicken cooks, add your wholewheat noodles to a large bowl, cover them
 
 Set aside to soak for 4 min, then drain the soaked noodles
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681830955895-x200.jpg)
 
 ### Step 4
 
 Once the chicken is starting to brown, add the halved green beans and cook for a further 3 min or until starting to soften and the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681830960501-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, add your peanut butter, sriracha, chilli flakes (can't handle the hea
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> water and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>vegetable oil and give everything a good mix up – this is your spicy peanut sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681830966132-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the chicken is cooked, add the spicy peanut sauce and drained noodles to t
 
 Tip: Add a splash of the reserved starchy noodle water if it's looking a little dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681830970910-x200.jpg)
 
 ### Step 7
 

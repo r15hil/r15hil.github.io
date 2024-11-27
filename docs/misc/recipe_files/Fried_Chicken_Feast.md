@@ -27,7 +27,6 @@ A feast of crispy, golden chicken strips and black pepper popcorn chicken with g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655205687997-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut the sweet potato<span class="text-danger">[es]</span> (skin on) into chips a
 
 Add the sweetcorn cobettes to a large piece of tin foil with a pinch of salt and a knob of butter then scrunch the foil around the corn until tightly sealed and add to the tray
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655205689419-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Combine 30ml <span class="text-danger">[60ml]</span> milk with half the red wine
 
 Tip: Don't worry if the mixture looks a little lumpy, it's meant to be!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655205708028-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Combine the panko breadcrumbs and half the smoked paprika in a medium bowl with 
 
 Add the diced chicken breast to the black pepper crumb gradually (reserving the bowl with any remaining marinade) and press down evenly until fully coated – this is your black pepper crumbed chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655205726396-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Transfer the black pepper crumbed chicken to a baking paper-lined tray and seaso
 
 Add a generous drizzle of vegetable oil and put the tray in the oven for 15-18 min or until the chicken is golden and cooked through (no pink meat!) – this is your black pepper popcorn chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655205765693-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add 100ml <span class="text-danger">[200ml]</span> milk and the remaining red wi
 
 Whisk everything together then add the coated chicken and mix well – these are your battered chicken strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655205797527-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, reduce the heat to medium-high and add each battered chicken strip to 
 
 Tip: Cooking for 4? Use 2 pans!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655205808848-x200.jpg)
 
 ### Step 7
 

@@ -20,7 +20,6 @@ Get this Chinese classic on the table in just 10 minutes. You'll toss noodles wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1616500770770-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1600445062750-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Deseed the pepper<span class="text-danger">[s] </span>(scrape the seeds and pith out with a teaspoon), then chop roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1600445068220-x200.jpg)
 
 ### Step 3
 
 Once the pan is hot, add the chopped pepper and cook for 3-4 min or until the pepper is beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600445073386-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1600445090368-x200.jpg)
 
 ### Step 5
 
 Once the pepper is beginning to soften, drain the king prawns, then add them to the pan with the mangetout and cook for 3-4 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1600445119018-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Add the soy sauce, hoisin sauce and toasted sesame oil to the pan and cook for 1
 
 Note: Please make sure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1600445125974-x200.jpg)
 
 ### Step 7
 

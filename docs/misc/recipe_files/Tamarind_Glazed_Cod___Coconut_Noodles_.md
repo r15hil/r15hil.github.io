@@ -23,7 +23,6 @@ Cod is a delicate, mild yet firm fish that needs to be treated with respect. We'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/495.step1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop the spring onion<span class="text-danger">(s)</span> finely, discarding the
 
 Chop the coriander finely (stalks too)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/495.step2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the tamarind paste and mix well until smooth - this is your glaze
 
 Place the coconut cream sachet<span class="text-danger">(s)</span> in a mug and cover with boiled water until fully submerged (this softens the naturally hard cream)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/495.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Cook for 1 min, then add 800ml <span class="text-danger">(1.6L)</span> salted bo
 
 Cover and cook for 6 min or until the noodles are tender with a slight bite
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/495.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Meanwhile, add the cod fillets to a baking tray (use tin foil to avoid mess)
 
 Drizzle with vegetable oil and season generously with salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/495.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Put them in&nbsp;the oven and cook for 8 min&nbsp;or until cooked through
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/495.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Once the noodles are done, add the softened coconut cream,&nbsp;sugar snap peas,
 
 Cover and cook for a further 2 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/495.-step-7-x200.jpg)
 
 ### Step 7
 

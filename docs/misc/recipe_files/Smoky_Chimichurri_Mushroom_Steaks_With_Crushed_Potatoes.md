@@ -25,7 +25,6 @@ Indulge in all the elements of a decadent steak night. You'll serve up juicy fla
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1633508456931-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633508474975-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and cut the shallot<span class="text-danger">[s]</span> in half, lengthways
 
 Sprinkle the cut-sides of the shallot halves with 1 tsp <span class="text-danger">[2 tsp]</span> sugar
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633508489062-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add 50ml <span class="text-danger">[90ml]</span> cold water and cook, covered, f
 
 After 5-6 min, remove the lid and cook for 1 min further or until all the water has evaporated, the mushrooms are tender and the shallots are caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633508516234-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, add the waxy potatoes to a heatproof bowl, then cover the bowl with 
 
 Put the bowl in the microwave for 4-5 min <span class="text-danger">[6-8 min]</span> or until the potatoes are fork-tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633508525714-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the chopped parsley and garlic (not a fan of raw garlic? Just add a little!)
 
 Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and give everything a good mix up – this is your smoky chimichurri
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633508543243-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add half the smoky chimichurri to the bowl with the mushrooms and give everythin
 
 Mix the remaining smoky chimichurri with the mayo – this is your smoky chimichurri mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633508566416-x200.jpg)
 
 ### Step 7
 

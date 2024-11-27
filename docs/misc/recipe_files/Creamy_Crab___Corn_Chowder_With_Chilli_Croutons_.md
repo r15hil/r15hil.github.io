@@ -24,13 +24,11 @@ This chowder is the perfect way to end your day. You’ll simmer leek, potatoes 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Sliced-leek-on-board-1715340510199-x200.jpg)
 
 ### Step 1
 
 Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then top, tail and chop into large chunks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Leek-frying-in-pan-1715340516657-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Once hot, add the chopped leek with a small pinch of salt and cook for 3-4 min o
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681827822751-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Drain your sweetcorn
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681827826559-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Cook for 2-3 min or until the garlic has slightly softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681827831502-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Stir everything together and bring to the boil over a high heat
 
 Once boiling reduce the heat to medium and cook, covered, for 10-12 min or until the potatoes are fork tender – this is your chowder base
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681827836184-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add a drizzle of olive oil and a pinch of salt and put the tray in the oven for 
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681827841369-x200.jpg)
 
 ### Step 7
 

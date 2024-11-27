@@ -29,7 +29,6 @@ Persian inspired crispy hake pieces with sumac, served with roasted pepper and t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-17-1703000305613-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop your tomato[es] into wedges
 
 Add the pepper strips, tomato wedges and garlic (skin on) to a tin foil-lined baking tray with your ground coriander, a drizzle of vegetable oil and a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-18-1703000312560-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Whilst the vegetables are cooking, peel and slice your shallot[s]<span class="te
 
 Wash your lettuce, then pat it dry with kitchen paper, remove 3 outer leaves for per person and set aside, then shred the inner core
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-22-1703000317990-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-17-1703000323986-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Chop your hake fillet[s] into large, bite-sized pieces
 
 Pat the chopped hake dry with kitchen paper, then add to the bowl and give everything a good mix up until the chopped hake is fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-18-1703000331724-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once hot, add the coated hake and cook for 3-4 min on each side, or until crispy
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-18-1703000338616-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Whilst the hake is cooking, add the chopped dill to a small bowl with your mayo 
 
 Season with a grind of black pepper and mix everything together – this is your dill mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-17-1703000349836-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ There’s nothing heartier than this spicy Korean noodle soup. Pack your garlick
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682099742094-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the softened noodles and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682099748424-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the torn tofu and half your gluten free soy sauce (save the rest for later!)
 
 Once fully combined, add your cornflour to the bowl and give everything a good mix up until the tofu is fully coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682099753003-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add half your gochujang paste (save the rest for later!) and rice vinegar to a s
 
 Give everything a good mix up – this is your spicy Korean-style sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682099757975-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add the coated tofu to the pan and cook for 4-5 min on each side or un
 
 Once crispy, transfer it to kitchen paper, reserving the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682099760954-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add the grated garlic and remaining gochujang paste (not a fan of spic
 
 Once fragrant, add the remaining gluten free soy sauce, pho broth paste, vegetable stock mix and 700ml <span class="text-purple">[900ml]</span> <span class="text-danger">[1.2L]</span> boiled water and give everything a good mix up – this is your spicy broth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682099765613-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add your carrot & cabbage slaw mix to the pot and cook for 1-2 min or until the 
 
 Once the veg has softened, add the softened noodles to the pot and give everything a good mix up – this is your spicy rice noodle soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682099771503-x200.jpg)
 
 ### Step 7
 

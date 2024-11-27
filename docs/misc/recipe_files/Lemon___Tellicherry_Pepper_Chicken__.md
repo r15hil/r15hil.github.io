@@ -22,7 +22,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/511.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Crush the black peppercorns finely in a pestle and mortar
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/511.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add them to a pot of salted boiling water over a high heat and cook for 10-15 mi
 
 Meanwhile, lay a sheet of foil onto a baking tray
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/511.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Slice in half as if you were cutting a burger bun, so you are left with two thin
 
 Add the chicken to the foil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/511.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Scrunch up the foil over the chicken, leaving the parcel open
 
 Place the tray in the oven for an initial 10-15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/511.-step--5-x200.jpg)
 
 ### Step 5
 
 <span class="text-highlight">Meanwhile, strip the rosemary leaves from the stalks and chop them finely</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/511.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once the butter has melted, add the potatoes with the rosemary and a big pinch of salt and cook for 3-5 min or until just starting to crisp
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/511.-step--7-x200.jpg)
 
 ### Step 7
 

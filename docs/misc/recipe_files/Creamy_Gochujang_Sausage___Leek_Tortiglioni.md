@@ -23,7 +23,6 @@ Spice up your pasta with this fusion favourite. You’ll pan-fry sausage and lee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678989128433-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Trim, then finely slice your spring onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678989135015-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Watch the garlic like a hawk to make sure it doesn't burn!
 
 Once golden, transfer the garlic to kitchen paper, set aside and reserve the pan for later – this is your crispy garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678989140271-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Cook for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water and set aside until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678989145739-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ While the tortiglioni is cooking, return the reserved pan to a high heat with a 
 
 Once hot, add your sausage meat (remove the paper if required!) to the pan and cook for 3-4 min or until the sausage is starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678989150611-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Meanwhile, wash your spinach, then pat it dry with kitchen paper
 
 Once the sausage meat has browned, reduce the heat to medium-high, then add the sliced leek and a small pinch of salt to the pan and cook for 4-5 min further or until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678989155725-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once fragrant, add your soft cheese and chicken stock mix to the pan with the sp
 
 Cook for 2-3 min or until the spinach has wilted and the sausage meat is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678989160907-x200.jpg)
 
 ### Step 7
 

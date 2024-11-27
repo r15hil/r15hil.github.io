@@ -29,7 +29,6 @@ For an easy twist on a Chinese ‘Bang Bang’ recipe, you'll pull meat-free chi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1634028559080-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your white long grain rice to a pot with a lid with 175ml<span class="text-p
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634028563097-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Trim, then slice your spring onion[s] finely
 
 Add the shredded lettuce, grated carrot and sliced spring onion to a large mixing bowl
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634028567385-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Cut half of your red chilli[es]<span class="text-danger"> </span>into rounds (sa
 
 Add the cucumber matchsticks and chilli rounds (can't handle the heat? Go easy!) to the bowl with the lettuce, carrot and spring onion – this is your crunchy salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634028571344-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free chick'n with a pinch of salt and pepper and cook for 3-4 min on each side, or until warmed through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634028580292-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Combine your peanut butter and 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</sp
 
 Add your soy sauce, toasted sesame oil, rice vinegar, chopped chilli (not a fan of spice? Just add a little!) and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and mix well to combine – this is your peanut dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634028584240-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once warmed through, reduce the heat to medium-low and sprinkle your five-spice
 
 Give everything a good mix up until the meat-free chick'n is evenly coated in the spice and cook for 1 min further or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634028588633-x200.jpg)
 
 ### Step 7
 

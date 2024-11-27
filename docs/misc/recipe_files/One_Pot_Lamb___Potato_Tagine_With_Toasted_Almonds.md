@@ -25,7 +25,6 @@ This simple, one-pot lamb tagine requires only simple prep and delivers Moroccan
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1469.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,13 +39,11 @@ Once hot, add the&nbsp;blanched almonds&nbsp;and cook for 3 min or until they've
 
 Once toasted, set them aside to cool and reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1469.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel and chop the&nbsp;brown onion<span class="text-danger">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1469.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Once hot, add the&nbsp;chopped onion&nbsp;with a pinch of salt and cook for 3-5 
 
 Meanwhile, chop the potatoes (skins on) into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1469.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add&nbsp;the&nbsp;ground&nbsp;cumin,&nbsp;ground coriander, ground&nbsp;turmeric&nbsp;and ground&nbsp;cinnamon&nbsp;with 1 tsp&nbsp;<span class="text-danger">[2 tsp]&nbsp;</span>sugar&nbsp;and cook for 1&nbsp;min or until fragrant&nbsp;&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1469.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once fragrant, add 1 tbsp&nbsp;<span class="text-danger">[2 tbsp]&nbsp;</span>fl
 
 Increase the heat to medium-high, add the&nbsp;lamb mince&nbsp;and cook for 3-5 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1469.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once the lamb is browned, add the&nbsp;beef stock,&nbsp;chickpeas,&nbsp;chopped 
 
 Once boiling,&nbsp;reduce the heat to low and cook, covered, for 15 min or until the potatoes are almost tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1469.-step-7-x200.jpg)
 
 ### Step 7
 

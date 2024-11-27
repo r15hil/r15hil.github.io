@@ -21,7 +21,6 @@ This creamy risotto is a comforting classic. You’ll cook arborio rice with pan
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674486129882-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Chop half your leek[s] in half lengthways (you'll use the rest later!), wash tho
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674486136841-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced leek with a generous pinch of salt and cook for 4-6 min or until the leek has slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674486143470-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Meanwhile, top, tail and slice the remaining leek into rounds and wash thoroughl
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L] </span>boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674486147486-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once the sliced leek has slightly softened, add the chopped garlic to the pan an
 
 Once fragrant, add your arborio rice and a pinch of salt and cook for 1 min, stirring to coat the grains in the oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674486152384-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Add the vegetable stock a ladle at a time, stirring continuously, for 25-30 min 
 
 Tip: Add a splash of water if the risotto is looking a little dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714466542461-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Once the risotto has been cooking for 5-8 min, add the leek rounds to a baking t
 
 Put the tray in the oven for 15-18 min or until slightly charred and tender – these are your roasted leek rounds
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674486161727-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This vibrant burger gets its Asian flavours from chicken simmered in soy sauce, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1713885799086-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your potatoes (skins on) into thin fries, then toss them in a bowl with a d
 
 Transfer the fries to a baking tray (or two!) and put the tray[s] in the oven for 20-30 min or until they're cooked through and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1713885849576-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add your free range chicken breast portion[s] and cook for 3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1713885875649-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Add your soy sauce and the chopped garlic to the pan with a couple of splashes of water and cook, covered for a further 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1713885953206-x200.jpg)
 
 ### Step 4
 
@@ -62,13 +58,11 @@ Slice your cucumber into discs
 
 Slice each individual cucumber disc into matchsticks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1713885961928-x200.jpg)
 
 ### Step 5
 
 Combine your mayo and red chilli relish in a bowl – this is your chilli mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1713885967012-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the brioche halves, cut-side down, and cook for 3 min or until toa
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1713885976396-x200.jpg)
 
 ### Step 7
 

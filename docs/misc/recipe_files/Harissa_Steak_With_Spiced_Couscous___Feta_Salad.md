@@ -24,7 +24,6 @@ Succulent steak, sizzled up in 10 minutes. You’ll drizzle these juicy cuts wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-5-1702368574421-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary, and if you like your steak well-done, it may take you a little longer than 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1698168964090-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a dry, large, wide-based pan (preferably non-stick) over a high heat
 
 Pat your rump steak[s] dry with kitchen paper, add a drizzle of vegetable oil and season with a generous pinch of salt and pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1698168973318-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once done, transfer the steak[s] to a clean plate and set aside to rest
 
 Reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1698168977839-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your couscous to a large heatproof bowl with your diced apricots, ras el han
 
 Add the beef stock, then cover and set aside – this is your fruity spiced couscous
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1698168982046-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Crumble your feta into rough bite-sized pieces
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1698168986256-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Return the reserved pan to a medium heat with a generous knob of butter
 
 Once melted, add your harissa paste (can't handle the heat? Go easy!) and cook for 30 secs or until fragrant – this is your harissa butter
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1698168990848-x200.jpg)
 
 ### Step 7
 

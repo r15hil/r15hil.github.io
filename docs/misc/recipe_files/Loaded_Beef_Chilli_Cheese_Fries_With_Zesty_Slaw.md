@@ -28,7 +28,6 @@ Smoky beef chilli cheese fries are a Tex-Mex classic. You'll top homemade oven c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/953.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your potatoes (skins on) into thin chips, then add them to a large baking tr
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/953.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced shallot and ground cumin and cook for 1-2 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/953.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add your beef mince to the pan and cook for 3-4 min, breaking it up with a woode
 
 Meanwhile, dissolve the beef stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water, then add your tomato paste, chipotle paste (can't handle the heat? Go easy!) and a pinch of sugar and mix to combine – this is your spicy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/953.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Reduce the heat to medium-low and cook for 6-8 min or until the sauce has thicke
 
 Once done, remove the pan from the heat and set aside for later – this is your beef chilli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/953.-step-5.new2-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ While the chilli is cooking, combine your mayo with the zest and juice of half 
 
 Finely grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/953.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Top each pile with your beef chilli and then the grated cheddar cheese and retu
 
 Once done, set aside for a few minutes to cool slightly – these are your loaded beef chilli cheese fries
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/953.-step-7.n-x200.jpg)
 
 ### Step 7
 

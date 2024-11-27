@@ -21,7 +21,6 @@ This is a simple but flavourful warm baby chorizo and lentil salad, comprising r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/417.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Rinse the lentils in a sieve under cold running water, then add them to a pot wi
 
 Bring to the boil on a high heat and once boiling, reduce to a medium heat and cook for 20-25 min or until tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/417.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Place them on a baking tray and drizzle with olive oil and a pinch of salt, suga
 
 Put the tray in the oven for 20-25 min until softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/417.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely chop (or grate) the garlic
 
 Slice each mini chorizo in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/417.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Season generously with salt and pepper and set aside
 
 Reserve the remaining lemon for steps 7 and 8
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/417.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ When hot, add the chorizo, reduce the heat to medium and cook for 5 min until th
 
 Once cooked, remove from the heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/417.-step-6-x200.jpg)
 
 ### Step 6
 
 Once cooled slightly, remove the chorizo from the pan and add the cooking oil to the garlic mayonnaise (this should make it a nice golden colour)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/417.-step-7-x200.jpg)
 
 ### Step 7
 

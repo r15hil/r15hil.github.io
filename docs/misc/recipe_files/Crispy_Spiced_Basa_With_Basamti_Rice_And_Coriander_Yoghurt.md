@@ -28,7 +28,6 @@ This basa is banging. You’ll marinate your fish in a fragrant mix of ginger, s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1672754896709-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Chop your tomato[es] finely
 
 Chop your coriander finely, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1672754903390-x200.jpg)
 
 ### Step 2
 
 Chop your basa fillet[s] into large, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1672754911986-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Combine the chopped basa and soy sauce in a bowl with your ginger & garlic paste
 
 Add your gram flour to a separate bowl with your ground cumin and most of your cayenne pepper (can't handle the heat? Go easy!) and a pinch of salt and mix it all together – this is your spiced gram flour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1672754920485-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1672754926114-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Combine the chopped cucumber and chopped tomato in a small bowl with a drizzle o
 
 Add the marinated basa to the bowl with the spiced gram flour and give everything a good mix up – this is your coated basa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1672755047932-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until crispy 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1672755055468-x200.jpg)
 
 ### Step 7
 

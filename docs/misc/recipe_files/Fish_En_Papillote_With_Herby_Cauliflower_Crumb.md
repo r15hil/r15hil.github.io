@@ -19,7 +19,6 @@ A clever homemade cauliflower crumb makes this dish low-carb as well as tasty. Y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1863.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Cut the sweet potato<span class="text-danger">[es] </span>(skin on) into wedge
 
 Cut the cauliflower<span class="text-danger">[s]</span> <span class="text-highlight">into small florets</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1863.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and season with 
 
 Put the tray in the oven for 20 min or until the florets start to brown and crisp and the wedges are soft
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1863.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, <span class="text-highlight">trim then</span> slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1863.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Top the basa with the spring onions, capers, 1 tsp <span class="text-danger">[2 
 
 Add a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1863.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Put the baking tray in the oven for 15 min or until the basa is cooked
 
 Tip: your basa is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1863.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop the parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1863.-step-7-x200.jpg)
 
 ### Step 7
 

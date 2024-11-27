@@ -25,7 +25,6 @@ This juicy breakfast sarnie has Dad’s name all over it. You’ll layer lashing
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1716201313074-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to a large heat-proof bowl covered with cling film
 
 Put the bowl in the microwave for 6-8 min or until slightly tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1716201316834-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop the remaining tomato[es] in half
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1716201320158-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the tomato halves (seed-side up!) with a pinch of sugar, a small pinch of sa
 
 Put the tray[s] in the oven for 15 min or until the potatoes are crisp – these are your hash potatoes & roasted tomatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1716201324288-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add your smoked streaky bacon to the pan and cook for 3 min on each si
 
 Once crisp, transfer the bacon to kitchen paper and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1716201327746-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Slice your ciabatta[s] in half
 
 Top the ciabatta base with the sliced tomato, bacon and grated cheese – this is your loaded base
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1716201331231-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the potatoes are nearly ready, remove the tray[s] from the oven and add a s
 
 Add the loaded base[s] and ciabatta lid[s] to the tray[s] and return the tray[s] to the oven for a final 4-5 min or until the cheese has melted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1716201334986-x200.jpg)
 
 ### Step 7
 

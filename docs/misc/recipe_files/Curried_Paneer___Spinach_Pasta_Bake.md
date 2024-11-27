@@ -29,7 +29,6 @@ Curry or pasta? Tuck into the best of both worlds with this tasty flavour fusion
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1729158931398-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Once done, drain the farfalle and set aside
 
 Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729158933863-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Once hot, add the cubed paneer and cook for 3-5 min until golden, turning occasi
 
 Once cooked, transfer the golden paneer to a plate, reserving the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729158940636-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Slice half your green chilli[es] into rounds, then deseed (scrape the seeds out 
 
 Chop your coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729158955316-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once hot, add the diced onion with a pinch of salt and cook for 5-6 min or until
 
 Once softened, add the chopped garlic, chopped ginger and chopped chilli (can't handle the heat? Go easy!) and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729158961000-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once fragrant, add your curry powder and 15g <span class="text-purple">[20g] </
 
 Gradually add 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> milk, a little at a time, stirring frequently and cook for 2-3 min or until a smooth, thick sauce remains – this is your creamy curry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729158965970-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Wash your spinach and pat it dry with kitchen paper
 
 Once smooth, add the tomato stock and spinach and cook for a further 2-3 min or until the sauce has slightly thickened and the spinach has wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729158977384-x200.jpg)
 
 ### Step 7
 

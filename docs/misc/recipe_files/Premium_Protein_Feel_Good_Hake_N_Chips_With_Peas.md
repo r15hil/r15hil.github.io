@@ -22,7 +22,6 @@ Fish and chips aren’t just for Friday – you’ll want to eat this version al
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1724163984159-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut your potatoes (skins on) into thin chips, then add them to a baking tray (o
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1724163987389-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Combine the chopped chives with your panko breadcrumbs and a generous pinch of s
 
 Add a generous drizzle of olive oil and stir it together until all of the breadcrumbs are coated in the oil – this is your chive crumb
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1724163991991-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Put the tray[s] in the oven for 12-15 min or until golden and cooked through –
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1724163995407-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ While the hake is cooking, combine a squeeze of<span class="text-danger"> </span
 
 Season with a pinch of salt and pepper – this is your lemony mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1724163999650-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Add the carrot batons to a pot with a lid, with plenty of boiling water over a h
 
 Once boiling, cook for 3 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1724164004391-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once done, drain the vegetables and return them to the pot with a knob of butter
 
 Keep covered until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1724164007779-x200.jpg)
 
 ### Step 7
 

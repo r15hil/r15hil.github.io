@@ -26,7 +26,6 @@ For a taste of Thai cooking, rustle up crispy basa fillets with a sweet chilli s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650990982240-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water, your creamed coconut and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650991006830-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once the rice is cooked, remove the pot from the heat, add your blanched peas an
 
 Keep covered for a further 10 min before serving – this is your sticky coconut rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650991010370-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the your cornflour to a plate with a generous pinch of salt and pepper
 
 Add the basa fillet[s] to the plate and press them into the seasoned cornflour until fully coated, then tap off the excess
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650991014217-x200.jpg)
 
 ### Step 4
 
@@ -64,19 +60,16 @@ Once hot, add the coated basa fillets and cook for 3-4 min on each side or until
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650991018221-x200.jpg)
 
 ### Step 5
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650991022626-x200.jpg)
 
 ### Step 6
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650991028177-x200.jpg)
 
 ### Step 7
 

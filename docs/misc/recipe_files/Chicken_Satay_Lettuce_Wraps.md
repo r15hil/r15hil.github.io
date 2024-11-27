@@ -26,7 +26,6 @@ Get the summer season rolling with nutty, zingy satay chicken, stuffed in crunch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1886.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Add your wholewheat noodles to a pot, cover them with boiled water and stir for 
 
 Set aside to soak for 4 min, then drain the soaked noodles
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1886.-step-2-x200.jpg)
 
 ### Step 2
 
 While the noodles are soaking, peel and finely slice your red onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1886.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 
 
 Once hot, add the sliced onion and a pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1886.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once starting to soften, push the sliced onion to one side of the pan and incre
 
 Cook for 10-12 min or until browned and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1886.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Grate your carrot[s]<span class="text-danger"> </span>and cut your lime[s] in ha
 
 Cut half the lime[s] into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1886.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Combine your creamy peanut butter, chilli relish, 1 tsp <span class="text-purp
 
 Add your soy sauce and the juice of half the remaining lime and stir it all together – this is your satay sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1886.-step-7-x200.jpg)
 
 ### Step 7
 

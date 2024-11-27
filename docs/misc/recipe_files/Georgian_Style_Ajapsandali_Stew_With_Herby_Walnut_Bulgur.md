@@ -30,7 +30,6 @@ Walnuts are the key to this Georgian-style winner. You’ll whip up a veg-packed
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1700569705209-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and finely chop your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1700569709958-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Give everything a good mix up and put the tray[s] in the oven for 18-20 min or u
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700569714805-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Cut your red chilli[es]<span class="text-danger"> </span>in half lengthways, des
 
 Dissolve your vegetable stock mix and tomato paste in 175ml <span class="text-purple">[230ml] </span><span class="text-danger">[300ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700569719514-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once softened, add the chopped garlic and chopped chilli (can't handle the heat?
 
 Cook for 2-3 min or until the tomato is beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1700569725145-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1700569730141-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once the tomato has softened, add the tomato stock to the pan with 1/2 tsp <span
 
 Once boiling, reduce the heat to medium-high and cook for 6-8 min or until thickened – this is your Georgian-style ajapsandali stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1700569734497-x200.jpg)
 
 ### Step 7
 

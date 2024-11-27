@@ -30,7 +30,6 @@ Delicious and picture-perfect, bento boxes are a joyful Japanese treat. To make 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2254-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Combine your mayo with a splash of your rice vinegar and a pinch of salt – th
 
 Add the remaining rice vinegar to the sliced cucumber with a pinch of salt and sugar and set aside to pickle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2254-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2254-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get perfectly fluffy rice!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2254-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your diced chicken thigh to a bowl with the chopped garlic and ginger, soy s
 
 Add your cornflour and give everything a good mix up until the chicken is fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2254-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Heat a large, wide-based pan (preferably non-stick) with 3 tbsp <span class="te
 
 Once hot, add the coated chicken and cook for 5-6 min on each side or until golden, crispy and cooked through (no pink meat!) – this is your fried chicken karaage
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2254-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Meanwhile, wash your salad, then pat it dry with kitchen paper
 
 Add the salad to the quick-pickled cucumber and give everything a good mix up – this is your quick-pickled cucumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2254-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Take off to Naples with this rich puttanesca orzo. You’ll simmer your pasta in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688044631931-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your tomato[es] roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688044634468-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop your black olives in half
 
 Dissolve your vegetable stock mix and tomato paste in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[1L] </span>boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688044637603-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced shallot and cook for 2-3 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688044640662-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once softened, add half the chopped garlic (you'll use the rest later!) with you
 
 Give everything a good mix up and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688044643915-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once boiling, reduce the heat to medium-low and cook, covered, for an initial 10
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688044647191-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Meanwhile, chop your parsley finely, including the stalks
 
 Combine the chopped parsley and remaining chopped garlic in a bowl with your white wine vinegar, a pinch of salt and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil – this is your gremolata
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688044651215-x200.jpg)
 
 ### Step 7
 

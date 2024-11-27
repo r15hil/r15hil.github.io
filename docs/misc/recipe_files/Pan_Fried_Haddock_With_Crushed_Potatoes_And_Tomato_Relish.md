@@ -22,7 +22,6 @@ A simple, elegant dish that looks impressive yet is so easy to make. You'll pair
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1259-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the chopped waxy potatoes to a pot of plenty of boiled water with a pinch of
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1730135739100-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Peel, and finely dice your shallot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1259-v2-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once hot, add the chopped garlic and shallot and cook for 30 secs
 
 Remove the pan from the heat and let the garlic infuse the olive oil – this is your garlic & shallot oil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1259.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Dice the deseeded tomato finely
 
 Chop your parsley finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1259-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Squeeze in the juice of half your lemon[s] and season with a generous pinch of s
 
 Give everything a good mix up – this is your tomato relish
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1259-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Pat your haddock bites dry with kitchen paper and season generously with salt a
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1259-v2-Step-7-x200.jpg)
 
 ### Step 7
 

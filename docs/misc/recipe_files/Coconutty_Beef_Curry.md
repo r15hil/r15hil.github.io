@@ -25,7 +25,6 @@ For beef curry in a hurry, you'll pan fry beef strips and red pepper with fragra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1679677619712-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600178279005-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600178298296-x200.jpg)
 
 ### Step 3
 
@@ -61,19 +58,16 @@ Dissolve your beef stock mix and chopped creamed coconut in 100ml <span class="t
 
 Add your star anise and a pinch of sugar – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1679678253663-x200.jpg)
 
 ### Step 4
 
 Once the pepper has softened, add your curry powder, garam masala, turmeric and ginger & garlic paste and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1679678294631-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add your beef strips and cook for 1-2 min or until starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Microwave-rice-1679678301991-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600178316961-x200.jpg)
 
 ### Step 7
 

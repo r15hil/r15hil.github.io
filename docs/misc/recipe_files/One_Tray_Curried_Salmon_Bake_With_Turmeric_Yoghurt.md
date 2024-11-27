@@ -24,7 +24,6 @@ This Indian-inspired bake is the perfect low-effort supper. You'll top lightly c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627383702033-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 12-15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627383707534-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Sprinkle 2/3 of your curry powder (save the rest for later!) over the salmon and
 
 Season with a pinch of salt and pepper and set aside – this is your curried salmon
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1627383713646-x200.jpg)
 
 ### Step 3
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627383722177-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once the potatoes have had an initial 12-15 min, add the pepper strips and cherr
 
 Sprinkle over the remaining curry powder and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627383727984-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Return the tray[s] to the oven for a further 14-15 min or until the fish is cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641395592044-x200.jpg)
 
 ### Step 6
 
 Whilst everything is cooking, combine your natural yoghurt with your ground turmeric in a small bowl with a small splash of cold water and a pinch of salt – this is your turmeric yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1627393624593-x200.jpg)
 
 ### Step 7
 

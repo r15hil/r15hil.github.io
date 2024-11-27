@@ -21,7 +21,6 @@ Cooked in a parcel for extra tenderness, the chicken in this simple and satisfyi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/713.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and chop (or grate) the garlic
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/713.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add them to a pot of salted boiled water, bring to the boil&nbsp;over a high hea
 
 Meanwhile, lay a sheet of tin&nbsp;foil onto a baking tray&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/713.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Slice in half as if you were cutting a burger bun, so you are left with 2 <span 
 
 Add the sliced chicken to the foil&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/713.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,13 +71,11 @@ Spoon the lemon marinade over the chicken and scrunch the edges of the foil arou
 
 Put the tray in the oven for 15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/713.-step-5-x200.jpg)
 
 ### Step 5
 
 Drain the parboiled potatoes and leave them to steam-dry&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/713.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp<span class="text
 
 Once the butter has melted, add the potatoes with the chopped&nbsp;rosemary and a big pinch of salt and cook for 3-5 min or until they're just starting to crisp &ndash; these are your&nbsp;saut&eacute;ed potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/713.-step-7-x200.jpg)
 
 ### Step 7
 

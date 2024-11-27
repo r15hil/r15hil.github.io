@@ -24,7 +24,6 @@ This Thai staple is deliciously fragrant and super easy. You’ll simmer chicken
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678302184791-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your diced chicken thigh and cook for 4-5 min on each side or until lightly browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678302191849-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Peel and chop your sweet potato[es] into small bite-sized pieces
 
 Trim, then chop your spring onion[s] into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678302196644-x200.jpg)
 
 ### Step 3
 
@@ -54,19 +51,16 @@ Add the diced onion with a pinch of salt and cook for 3-4 min or until slightly 
 
 Meanwhile, dissolve your chicken stock mix, creamed coconut and red Thai curry paste in 300ml<span class="text-purple"> [390ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your red Thai-style stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678302202911-x200.jpg)
 
 ### Step 4
 
 Once the onion has slightly softened, add the chopped sweet potato to the pan with 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span><span class="text-danger"> [1 tbsp] </span>flour and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678302208769-x200.jpg)
 
 ### Step 5
 
 Add the red Thai-style stock with a pinch of sugar and a pinch of salt and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678302214090-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ After the initial 15-20 min, remove the lid and add the chopped spring onion
 
 Cook for a further 3-4 min, or until the sauce has started to thicken – this is your red Thai-style chicken & sweet potato curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678302220687-x200.jpg)
 
 ### Step 7
 

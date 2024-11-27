@@ -25,7 +25,6 @@ This all-in-one traybake is easy peasy. You’ll flavour chicken, sweet potato a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1672853653394-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and chop your sweet potato[es] into bite-sized pieces
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672853656147-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely grate (don't chop!) your garlic
 
 Add the sliced onion to a bowl, cover with boiled water and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672853659881-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your ras el hanout and a drizzle of olive oil to the tray[s] with a generous
 
 Put the tray[s] in the oven for 20-25 min or until the chicken is golden and cooked through (no pink meat!) and the veg is tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672853663249-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ While the chicken is cooking, combine your natural yoghurt with the remaining gr
 
 Season with a pinch of salt and pepper – this your garlic yoghurt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672853667095-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add your couscous and chicken stock mix to a heatproof bowl with 130ml <span cla
 
 Fluff with a fork before serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672853670175-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Stir it all together and set aside for later – this is your quick-pickled onio
 
 Chop your parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672853673793-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Try our tofu twist on this beach holiday favourite, and bring a bit of seaside f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663854389427-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel the potatoes and chop them into chunky chips, then add them to a pot with p
 
 Once boiling, reduce the heat to medium and cook for 6-8 min or until slightly softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663854394337-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Cut the lemon<span class="text-danger">[s] </span>into wedges
 
 Combine the chopped shallot and vegan mayo in a small bowl with the juice of 1/2 <span class="text-danger">[1]</span> lemon and a pinch of salt, then give everything a good mix up – this is your lemon mayo
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663854400936-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Season them with a generous pinch of salt and turn them a few times until they'r
 
 Put the tray in the oven for 30 min or until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663854405602-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add 60g <span class="text-danger">[120g]</span> flour and the seaweed flakes to 
 
 Stir everything together thoroughly until there are no lumps, then set aside for later – this is your seaweed batter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663854410794-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Pat the tofu pieces dry with kitchen paper
 
 Sprinkle both sides of the tofu pieces with flour until fully coated, then tap off any excess
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663854415207-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the pan is hot, dip the floured tofu into the seaweed batter and turn it se
 
 Add the coated tofu to the pan and cook for 3-4 min on each side until golden and crispy – this is your seaweed battered tofu
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663854419149-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Spice up your supper with our fiery version of a traditional lamb hotpot. You'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580807020375-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice your potatoes (skins on) into discs and add them to a baking tray (or two!
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580807026343-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and carrot with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580807031642-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Dissolve your beef stock mix in 250ml <span class="text-purple">[325ml] </span><
 
 Stir in your harissa paste (can't handle the heat? Go easy!), tomato paste and chopped dates – this is your spicy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580807036071-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cook for 4-5 min or until browned, breaking it up with a wooden spoon as you go
 
 Add the spicy stock, bring to the boil over a high heat and cook for 3-4 min further or until thickened to a bolognese-like consistency and the lamb is cooked through (no pink meat!) – this is your spicy lamb mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580807040338-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Carefully top with the softened potato discs (beware, they will be hot!)
 
 Put the dish in the oven for 15-20 min or until everything is bubbling and the potatoes are golden and cooked through – this is your harissa lamb hotpot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580807049139-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Add your green beans to a pot over a medium-high heat and cover them with boiled
 
 Bring to the boil over a high heat and cook for 3-4 min or until tender with a bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580807053263-x200.jpg)
 
 ### Step 7
 

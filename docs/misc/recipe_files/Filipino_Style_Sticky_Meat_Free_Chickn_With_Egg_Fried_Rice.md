@@ -25,7 +25,6 @@ Try our twist on this Filipino favourite. You’ll pan-fry meat-free chick'n unt
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1717144033339-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the rice to a plate and spread it out flat to help it cool down
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1717144038855-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Dice the remaining brown onion
 
 Peel and finely slice (don't chop) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1717144043549-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Trim, then slice your spring onion[s]
 
 Combine your cornflour, tamari soy sauce and rice vinegar in a small bowl with 1 tbsp<span class="text-purple"> [1 1/2 tbsp] </span><span class="text-danger">[2 tbsp] </span>sugar and 50ml <span class="text-purple">[65ml] </span><span class="text-danger">[85ml]</span> cold water – this is your Filipino-style tocino sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1717144047532-x200.jpg)
 
 ### Step 4
 
@@ -61,13 +57,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free chick'n and sliced onion to the pan and cook for 4-5 min or until the meat-free chick'n has lightly browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1717144051865-x200.jpg)
 
 ### Step 5
 
 Once the meat-free chick'n has lightly browned, turn the heat down to<span class="text-danger"> </span>medium-low, add the Filipino-style tocino sauce to the pan and cook for<span class="text-danger"> </span>3-4 min<span class="text-danger"> </span>or until the sauce has thickened to a syrup-like consistency – this is your Filipino-style sticky meat-free chick'n
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1717144055428-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once starting to soften, add the chopped garlic to the pan with the cooled rice,
 
 Stir it all together and cook for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1717144058845-x200.jpg)
 
 ### Step 7
 

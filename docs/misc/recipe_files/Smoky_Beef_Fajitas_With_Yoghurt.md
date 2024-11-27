@@ -21,7 +21,6 @@ Everything's sliced and ready to sizzle! You'll pan-fry beef strips with onion, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614101556572-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped pepper & red onion with a pinch of salt and cook for 3-4 min until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614101587657-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Meanwhile, add the seeded tortillas to 1 <span class="text-danger">[2] </span>ba
 
 Put the tray in the oven for 2-3 min or until they're warmed through (alternatively, add the tortillas to a plate and microwave for 1-2 min!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614101697046-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Once the veg has softened, add the smoked paprika, ground cumin, beef strips and
 
 Add a grind of black pepper and sear for 1-2 min, this will prevent the beef strips from overcooking – this is your smoky beef fajita filling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614101729983-x200.jpg)
 
 ### Step 4
 

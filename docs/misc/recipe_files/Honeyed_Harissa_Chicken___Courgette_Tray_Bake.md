@@ -25,7 +25,6 @@ For this aromatic traybake, you'll smother chicken in a sweet and spicy harissa 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1612276756492-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Top, tail and slice the courgette<span class="text-danger">[s]</span> on a diago
 
 Cut the red onion<span class="text-danger">[s]</span> into wedges, removing the skins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1612276890649-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Drizzle over a little olive oil and season with a pinch of salt and pepper
 
 Add the chicken thighs to the other side
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1612276901773-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Coat the chicken thighs in half the marinade and season with a pinch of salt
 
 Put the tray in the oven for an initial 15 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1612276906656-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ While the chicken is in the oven, drain and rinse the chickpeas
 
 Combine the drained chickpeas, chopped garlic and ras el hanout in a bowl with a drizzle of olive oil and give everything a good mix up until the chickpeas are fully coated – these are your spiced chickpeas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1612276918144-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Strip the mint leaves from their stems and chop them finely, discard the stems
 
 Combine most of the chopped mint (save some for garnish!) and natural yoghurt in a bowl with a pinch of salt and a generous crack of black pepper – this is your mint yoghurt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1612277048760-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Remove the tray from the oven after 15 min and coat the chicken in the remaining
 
 Sprinkle the spiced chickpeas over the tray and return it to the oven for a final 10 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1612277054316-x200.jpg)
 
 ### Step 7
 

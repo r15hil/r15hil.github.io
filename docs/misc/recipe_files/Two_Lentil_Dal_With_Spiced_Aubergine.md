@@ -27,7 +27,6 @@ Dal is enjoyed across the whole of India. Simple-yet-tasty version is a warmly s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/345.step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Trim the green stalk[s] off your aubergine[s] and cut into quarters lengthways,
 
 Rub the chopped aubergine with a drizzle of olive oil and your ground cumin, then season with salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/345.step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the seasoned aubergine and cook for 1 min on each side or until br
 
 Transfer the browned aubergine to a baking tray and put it in the oven for 20-25 min or until cooked through (reserve the pan for later!) – this is your spiced aubergine
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/345.step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and dice your red onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/345.step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Cook for 5 min or until softened
 
 Add the chopped ginger, chopped garlic and your garam masala and cook for a further 3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/345.step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,13 +78,11 @@ Dissolve your vegetable stock mix in 350ml <span class="text-purple">[455ml]</sp
 
 Add the vegetable stock to the lentils and cook for 15-20 min, stirring occasionally, until all the water is absorbed and the lentils are tender and porridge-like in consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/345.step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/345.step-7-x200.jpg)
 
 ### Step 7
 

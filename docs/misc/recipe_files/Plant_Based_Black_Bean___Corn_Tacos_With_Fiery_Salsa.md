@@ -28,7 +28,6 @@ Put a plant-based twist on taco night with this smoky black bean and sweetcorn c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684831011057-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and chop half your red onion[s] into wedges
 
 Dice the remaining onion finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684831014668-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the onion wedges with a pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684831018201-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Dissolve your vegetable stock mix in 100ml <span class="text-purple">[130ml] </s
 
 Once the onion has started to soften, increase the heat to medium-high and add the drained black beans & sweetcorn to the pan and cook for 6-7 min or until the corn is charred
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684831022453-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your coriander finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684831026251-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the juice of half your lime[s], 1 tbsp <span class="text-purple">[1 1/2 tbsp
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684831029764-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the corn is charred, add your tomato paste and chipotle paste (can't handle
 
 Once done, crush some of the beans with a masher and give everything a good mix up until fully combined – this is your plant-based black bean & corn
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684831034228-x200.jpg)
 
 ### Step 7
 

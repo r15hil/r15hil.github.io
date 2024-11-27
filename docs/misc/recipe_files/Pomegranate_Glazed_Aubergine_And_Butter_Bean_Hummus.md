@@ -28,7 +28,6 @@ For this nourishing bowl, you'll glaze aubergine halves with sweet 'n' tangy pom
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637144295796-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel your garlic
 
 Drain and rinse your butter beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637144299894-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Wrap the peeled garlic and a add splash of cold water to a tin foil parcel then 
 
 Put the tray[s] in the oven for an initial 15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637144304066-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Chop your coriander finely, including the stalks
 
 Chop your dates roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637144307458-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Add your tahini to the food processor with the drained butter beans, ground cumi
 
 Blitz until smooth – this is your butter bean hummus
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637144340800-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Cook the giant couscous for 8 min or until tender with a slight bite, then drain
 
 Fluff with a fork before serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637144345184-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Return the tray[s] to the oven for a final 3 min or until the pumpkin seeds are 
 
 Tip: Watch the seeds like a hawk to make sure they don’t burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637144349639-x200.jpg)
 
 ### Step 7
 

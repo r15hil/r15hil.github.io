@@ -29,7 +29,6 @@ Here’s how to give the Tex Mex classic a plant-based spin. This filling chilli
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1612277908460-x200.jpg)
 
 ### Step 1
 
@@ -41,13 +40,11 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 5-7 min or until the butternut squash cubes are fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1612277912705-x200.jpg)
 
 ### Step 2
 
 While the butternut squash is in the microwave, peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1612277917478-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the tortilla triangles to a baking tray (or two!) with a drizzle of olive oi
 
 Give everything a good mix up, then spread them out and put the tray<span class="text-danger">[s]</span> in the oven for 3-4 min or until lightly browned and beginning to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1612277921395-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the ground coriander and smoked paprika to the pan and cook for 30
 
 Add the chopped garlic and softened butternut squash and cook for 1-2 min or until the garlic has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1612277929645-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, drain and rinse the black beans and kidney beans
 
 Add the drained beans and the juice of 1/2 <span class="text-danger">[1]</span> lime and cook for a further 2 min – this is your double bean & butternut squash chilli
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1612277938850-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Tip: Make sure some of them are spiking up for extra crunch, the bottom bits wil
 
 Put the tortilla-topped double bean & butternut squash chilli in the oven for 5-6 min or until the tortilla triangles are nice and crispy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1612277946266-x200.jpg)
 
 ### Step 7
 

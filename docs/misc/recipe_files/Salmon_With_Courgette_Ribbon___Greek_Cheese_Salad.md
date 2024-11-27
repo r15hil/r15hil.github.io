@@ -23,7 +23,6 @@ Salmon isn't just a super source of omega-3 and healthy fats, it's also deliciou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2216-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil a kettle
 
 Add your bulgur wheat to a pot with plenty of boiled water and a pinch of salt (the same as you would for pasta) and cook over a high heat for an initial 4 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2216-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once golden, transfer to a plate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2216-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Cook for 9-10 min turning once halfway until golden and cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2216-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the bulgur wheat has had an initial 4 min, add your blanched peas to the 
 
 Once done, drain everything and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2216-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Crumble your Greek cheese into rough bite-sized pieces
 
 Strip your mint leaves from their stems and chop them finely, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2216-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Cut the remaining lemon into 1 wedge per person
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2216-Step-7-x200.jpg)
 
 ### Step 7
 

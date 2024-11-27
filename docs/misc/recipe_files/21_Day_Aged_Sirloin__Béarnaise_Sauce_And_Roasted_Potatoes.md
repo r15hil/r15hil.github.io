@@ -25,7 +25,6 @@ Enhance the juicy, succulent flavours of your prime British steak with our versi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2441tep-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut your waxy potatoes into quarters
 
 Peel and slice your red onion[s] into thick rings
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2441tep-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Cut a piece (or two!) of baking paper (or tin foil) approx. the size of an A3 sh
 
 Lay the chopped potatoes, onion rings and garlic clove[s] (skin on) in the middle of the baking paper piece[s], then transfer to a baking tray (or two!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2441tep-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Scrunch the edges of the baking paper together around the potatoes to form a<spa
 
 Put the baking tray[s] in the oven for 40 min or until the potatoes are golden and cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2441tep-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Transfer the yolk from one shell half to the other several times, until all th
 
 Tip: Hold on to those egg whites! They’re perfect for meringues or a protein-rich omelette (they freeze well too)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2441tep-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the egg yolk[s] and cook for 1-2 min further, stirring constantly, or until 
 
 Stir through the chopped parsley and season with a pinch of salt – this is your béarnaise sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2441tep-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Pat your sirloin steak[s] dry with kitchen paper, drizzle with vegetable oil an
 
 For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min on each side; for medium, cook for 4-5 min on each side then once the steak is cooked, transfer to a plate to rest, reserve the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612348647732-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ A mighty, meat-free bowl of spaghetti and meatballs should be an essential part 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1689673779610-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop the basil finely, including the stalks (save some leaves for garnish!)
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689673782770-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the diced onion with a pinch of salt and cook for 7-8 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689673785958-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Combine the meat-free mince, chopped basil and cheddar in a large mixing bowl w
 
 Mix well with clean hands to fully combine
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1689673789300-x200.jpg)
 
 ### Step 4
 
 Divide the meat-free mince mixture into 10 <span class="text-danger">[20]</span> and shape into meatballs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689673794643-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add the meat-free meatballs on an oiled baking tray
 
 Put the tray in the oven for 8-10 min or until the cheese has started to melt and the meatballs are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1689673797309-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Meanwhile, add the linguine to a pot of boiled water with a large pinch of salt
 
 Bring to the boil over a high heat and cook for 8-10 min or until cooked with a slight bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1689673800477-x200.jpg)
 
 ### Step 7
 

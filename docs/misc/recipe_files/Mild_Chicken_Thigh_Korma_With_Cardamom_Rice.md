@@ -28,7 +28,6 @@ Tuck into one of Britain's favourite curries. You'll infuse your creamy sauce wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/937.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a pot (with a matching lid) with a large knob of butter over a medium heat
 
 Once hot, add the split cardamom pod[s] and cook for 30 secs or until fragrant
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/937.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/937.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/937.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the diced onion and a generous pinch of salt and cook for 3-5 min
 
 Once softened, add your garam masala, ground turmeric, chopped garlic and ginger and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1675176942901-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Meanwhile, chop your chicken thighs into bite-sized pieces
 
 Dissolve your<span class="text-danger"> </span>chicken stock mix in150ml <span class="text-danger">[195ml] </span><span class="text-purple">[255ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/937.-step-6-x200.jpg)
 
 ### Step 6
 
 Increase the heat to high and add the chopped chicken to the pan and cook for 7-8 min or until it's browned
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/937.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ This simple risotto is all about zero waste cooking. You'll make the most of you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1709645476873-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely chop your brown onion[s]
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat, once hot, add the chopped onion with a pinch of salt and cook for 3-4 min, or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709645480133-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Meanwhile, chop your free range chicken breast portion[s] into large bite-sized 
 
 Once the onion has started to soften, turn the heat up to high, then add the chopped chicken to the pan and cook for 3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709645484407-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 750ml<span class="text-purple"> [975ml]</span> <span class="text-danger">[1.4L] </span>boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1709645487507-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add your Chinese rice wine and cook for 30 secs further
 
 Add the chicken stock a ladle at a time, stirring continuously for 20 min or until most of the stock is absorbed and the rice is almost cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1709645491218-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Roughly chop the asparagus stalks
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709645495100-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Put the tray in the oven for 5-6 min or until bright green and tender with a bit
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709645497997-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ This gnocchi suits all taste buds - big or small. You’ll simmer sausage and co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720539631098-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and finely chop (or grate) your garlic
 
 Top, tail and grate your courgette[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720539634306-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your sausage meat (remove the paper if required!) to the pan and cook for 5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720539637797-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Put the tray in the oven for 5-6 min or until golden
 
 Once golden, set aside to cool – this is your black pepper cheese crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720539641116-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Cook for 5-6 min or until the veg has softened
 
 Once softened, add the chopped garlic with 1 tbsp <span class="text-purple">[1 1/2tbsp]</span> <span class="text-danger">[2 tbsp] </span>flour and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720539644332-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
 Reboil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720539647986-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Break the black pepper cheese crisp into shards – these are your peppery chees
 
 Add your blanched peas to a colander and pour boiled water all over them to refresh them
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720539652886-x200.jpg)
 
 ### Step 7
 

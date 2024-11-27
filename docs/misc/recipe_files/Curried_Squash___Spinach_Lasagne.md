@@ -30,7 +30,6 @@ Love curry? Love lasagne? Either way, you need to try this twist. You'll bake lu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641914074770-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and finely slice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641914081502-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Dissolve your vegetable stock mix in 100ml <span class="text-purple">[150ml] </s
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641914092360-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once fragrant add the vegetable stock and spinach and cook, covered, for 7-8 min
 
 Grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641914135781-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once fragrant, add 20g <span class="text-purple">[30g]</span> <span class="text
 
 Add 250ml<span class="text-purple"> [375ml]</span> <span class="text-danger">[500ml] </span>milk gradually and whisk for 4-5 min or until a smooth, thick sauce remains, then remove from the heat, stir through half the grated cheese (you'll use the rest later!) and season with a pinch of salt and pepper – this is your curried béchamel
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641914182294-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Layer some of the spiced spinach & butternut squash mix over the bottom of an ov
 
 Repeat this process until you end up with a final layer of lasagne sheets (you may need to layer differently depending on the size of your dish)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641914200626-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Top the lasagne sheets with the curried béchamel
 
 Sprinkle over your nigella seeds and the remaining grated cheese and put the dish in the oven for 30-35 min or until the pasta is cooked through and everything's golden – this is your curried squash & spinach lasagne
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641914207384-x200.jpg)
 
 ### Step 7
 

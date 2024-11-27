@@ -30,7 +30,6 @@ Get a load of this plant-based twist. You'll layer potato with cherry tomatoes, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-7-1657536152099-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the potato discs to a baking tray (or two!) with a drizzle of vegetable oi
 
 Put the tray[s] in the oven for 15-20 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-7-1657536171323-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion with a pinch of salt and sugar and cook for 4-5 min or until beginning to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-6-1657536186857-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Cook for 2-3 min or until the garlic has softened, then transfer to a plate and 
 
 Reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685457671949-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ While the mixture is cooking, slice your tomatoes into rounds
 
 Preheat the grill to very high
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-6-1657536213131-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once fragrant, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span cl
 
 Add your creamy single soy gradually to the roux with your vegetable stock mix and cook for 2-3 min or until slightly thickened – this is your spiced cream
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685457684156-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Pour the spiced cream all over and top with the tomato rounds
 
 Add a pinch of salt and put the dish under the grill for 8-10 min or until bubbling – this is your plant-based Indian spiced tomato & potato gratin
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-6-1657536435656-x200.jpg)
 
 ### Step 7
 

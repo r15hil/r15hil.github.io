@@ -31,7 +31,6 @@ Here’s an all-American meat feast for the whole family. You’ll top pizzas wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665487735687-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Cut your potato[es] (skin on) into wedges, then peel and finely slice your red o
 
 Slice your chestnut mushrooms finely and chop your smoked streaky bacon roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665487741560-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add your panko breadcrumbs and half your ground paprika (you'll use the rest lat
 
 Season your chicken breast strips with a generous pinch of salt, coat them in flour, tap off any excess, then add them to the milk and finally press them into the breadcrumbs firmly to coat evenly – these are your breaded chicken dippers
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690536190189-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the potato wedges to one side of a baking tray with the remaining ground pap
 
 Add the breaded chicken dippers to the other side of the baking tray (cooking for 3 or more? Use a separate tray!) and put the tray[s] in the oven for 20-25 min or until the chicken is cooked through (no pink meat!) and the wedges are golden – these are your chicken dippers & wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665487753240-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Drain your mozzarella, then pat it dry with kitchen paper (squeeze as much li
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665487758318-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ Top the pizza base[s] with the tomato sauce and spread it evenly all over with t
 
 Top with your sliced pepperoni, sliced onion, sliced mushrooms, chopped bacon and torn mozzarella and season with a pinch of pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665487771566-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the base[s] is crisp – this is your meaty pizza[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1665487799568-x200.jpg)
 
 ### Step 7
 

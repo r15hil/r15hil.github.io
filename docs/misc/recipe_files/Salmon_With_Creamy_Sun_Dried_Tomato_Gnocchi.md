@@ -22,7 +22,6 @@ This speedy salmon supper is on the table in 10. You’ll simmer gnocchi in a cr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1645544158520-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1638873851589-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot, add your gnocchi and cook for 8-10 min or until beginning to crisp
 
 Tip: Don't stir too often as this will prevent the gnocchi from crisping!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1638873854213-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add your salmon fillet[s], season with a pinch of salt and pepper and 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720783450253-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Boil a kettle
 
 Peel and roughly chop your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spinach-wilting-in-colander-1720793456690-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720783513294-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml]</sp
 
 Add the chopped garlic and your balsamic sun-dried tomato paste and stir it all together – this is your sun-dried tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729768969160-x200.jpg)
 
 ### Step 7
 

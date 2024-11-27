@@ -23,7 +23,6 @@ Give weeknights the Sunday treatment with this one hour roast. You’ll bake suc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1726064867616-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil a kettle, then take you
 
 Peel the potatoes and chop them into quarters, then add to a pot with plenty of boiled water and a pinch of salt and bring to the boil over a high heat, then once boiling, reduce the heat to medium and cook for 10-12 min, then drain (save the pot!) and shake them around the colander to fluff up the edges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1726064873612-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Top, tail, peel and chop your carrot[s] into bite-sized pieces, then add them to
 
 Once boiling, reduce the heat to medium and cook for 22-25 min, then drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1726064883366-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Fill 2<span class="text-danger"> </span>holes per person of a muffin tray with a
 
 Tip: No muffin tray? Fill a small oven-proof dish with a generous drizzle of vegetable oil to make one giant Yorkshire!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1726064887488-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Return the tray to the oven for 20 min until puffed up and golden – these are 
 
 Meanwhile, return the carrot[s] to a low heat with a knob of butter, season with a pinch of salt and pepper and mash until smooth – this is your carrot mash
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1726064900388-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the potatoes have had an initial 15 min, remove the tray from the oven and 
 
 While the chicken is cooking, crush your garlic open by squashing them with the side of a knife and discard the skin[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1726064912655-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add your chicken stock mix and red wine paste to the pan with the crushed garlic
 
 Bring to the boil over a high heat and cook for 4-5 min or until thickened – this is your thyme gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1726064917279-x200.jpg)
 
 ### Step 7
 

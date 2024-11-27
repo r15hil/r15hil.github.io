@@ -27,7 +27,6 @@ These Turkish-inspired kebabs are hold-me-back good. You'll marinate chicken in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1709.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Slice the chicken breast portions into thin strips, then add them to a bowl with
 
 Season with a generous pinch of salt and pepper and give everything a good mix up and put in the fridge to marinate until later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1709.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion and cook for 6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1709.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking!
 
 Dissolve the chicken stock mix and tomato paste in 400ml <span class="text-danger">[750ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1709.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the tomato stock to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook, covered, for 15 min or until the water has absorbed and the bulgur is cooked – this is your tomato bulgur pilaf
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1709.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ While the bulgur wheat is cooking, preheat the grill to high
 
 Thread the marinated chicken strips evenly onto 4 <span class="text-danger">[8]</span> soaked skewers, leaving a small gap between each piece – these are your chicken shish kebabs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1709.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Put the tray under the grill for 12-14 min, turning once halfway, or until the c
 
 While the chicken is cooking, add the natural yoghurt to a bowl with a pinch of salt and a small squeeze of lemon juice (save the rest for later!) – this is your lemon yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1709.-step-7-x200.jpg)
 
 ### Step 7
 

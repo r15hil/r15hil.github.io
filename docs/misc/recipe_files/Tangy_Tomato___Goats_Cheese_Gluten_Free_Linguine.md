@@ -26,7 +26,6 @@ You'll use our mild goats' cheese two ways for this deliciously indulgent yet fa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697643914023-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697643917290-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the chopped garlic and chilli flakes (can't handle the heat? Go ea
 
 Allow them to sizzle in the oil for 30 secs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697643922094-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add your chopped tomatoes and vegetable stock mix, then increase the heat to med
 
 Cook for 10-15 min until the tomatoes have reduced to the consistency of a thick sauce – this is your tomato sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697643925672-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Meanwhile, add your gluten free linguine to a large pot of boiled water with a b
 
 Bring to the boil and cook for 8-10 min, or until cooked with a slight bite
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697643929582-x200.jpg)
 
 ### Step 5
 
 Meanwhile, wash your spinach, then pat it dry with kitchen paper and chop roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697643933720-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Cook for 30 secs until the spinach has wilted, then drain the lot and return to 
 
 Once the tomato sauce has thickened, add your red wine vinegar, 1 tsp [1 1/2 tsp] [2 tsp] sugar and a generous pinch of salt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697643937395-x200.jpg)
 
 ### Step 7
 

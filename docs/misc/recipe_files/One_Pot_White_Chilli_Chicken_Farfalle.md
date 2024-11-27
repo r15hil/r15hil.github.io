@@ -30,7 +30,6 @@ You’ve had classic chilli, now try its creamier cousin – white chilli. You�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723822532739-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a pot (with a matching lid) over a high heat with a drizzle of vegetable oi
 
 Once hot, add your diced chicken breast and cook for 3-4 min or until starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723822542063-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Slice half your green chilli[es] into rounds
 
 Finely dice the remaining green chilli[es]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723822572522-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once the chicken is starting to brown, reduce the heat to medium-low
 
 Add the diced onion and cook for 2 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723822587915-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the onion is starting to soften, add a generous knob of butter with the cho
 
 Cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723822628760-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once boiling, reduce the heat to medium-high and cook, covered, for 14-16 min, o
 
 Tip: Stir occasionally to stop it from sticking!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723822640510-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, drain your sweetcorn
 
 Grate your cheddar cheese finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723822696351-x200.jpg)
 
 ### Step 7
 

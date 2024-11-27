@@ -29,7 +29,6 @@ This one-pot chowder brings the zing with flaky fish and creamy coconut, plus a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1633427191856-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633427201869-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Boil a full kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633427427510-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel and chop your shallot[s] into wedges
 
 Add the sliced leek and shallot wedges to the dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633427436354-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Roughly chop your creamed coconut (if required!)
 
 Add the chopped sweet potato and chopped creamed coconut to the dish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633427665220-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add your cornflour, ground turmeric, curry powder, fish sauce and chilli flakes 
 
 Add 450ml <span class="text-purple">[590ml] </span><span class="text-danger">[760ml] </span>boiled water and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633427743753-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cover with a lid and put the dish in the oven for 30 min or until the fish is co
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633427752620-x200.jpg)
 
 ### Step 7
 

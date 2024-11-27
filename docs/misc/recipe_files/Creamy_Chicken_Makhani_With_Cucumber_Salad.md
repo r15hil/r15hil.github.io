@@ -31,7 +31,6 @@ Decadent butter chicken is a takeaway favourite hailing from New Delhi. For this
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1710244042130-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add your cashew nuts to a bowl, cover with 200ml <span class="text-purple">[26
 
 Chop your chicken breast strips into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1710244045759-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1710244049656-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Transfer the marinated chicken to a baking paper-lined baking tray (or two!) and
 
 Once done, set aside – this is your chicken tikka
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1710244052409-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Peel and chop (or grate) your garlic
 
 Dice your cucumber finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1710244056044-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once hot, add most of the diced onion (you'll use the rest later!) and a pinch o
 
 Once softened, add the chopped ginger, chopped garlic and your tomato paste to the pan and cook for a further 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1710244059543-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add the creamy cashew paste and remaining soaking liquid to the pan with your ch
 
 Turn the heat up to high and cook for 7-8 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened to a curry-like consistency – this is your creamy chicken makhani
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1710244062664-x200.jpg)
 
 ### Step 7
 

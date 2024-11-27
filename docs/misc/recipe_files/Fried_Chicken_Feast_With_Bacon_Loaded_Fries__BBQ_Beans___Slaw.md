@@ -31,7 +31,6 @@ Get your fried chicken fix with this flavour-packed fakeaway. You’ll crisp up 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699376192112-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut your potatoes (skins on) into chips and add them to a non-stick baking paper
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699376198412-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Combine 30ml <span class="text-purple">[45ml]</span> <span class="text-danger">[
 
 Tip: Don't worry if the mixture looks a little lumpy, it's meant to be!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699376201826-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Combine the chopped chives and half your soured cream in a small bowl with half 
 
 Add your carrot & cabbage slaw mix to a bowl with the remaining soured cream and remaining cider vinegar – this is your slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699376205642-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add your smoked streaky bacon to a separate tin foil-lined baking tray (or two!)
 
 Put the tray[s] in the oven for 12-15 min further or until golden and crispy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699376210286-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add your cornflour to a large bowl with 40g <span class="text-purple">[60g]</spa
 
 Add the marinated chicken to the spice mix and mix well until evenly coated – this is your coated chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699376213880-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once very hot, reduce the heat to medium-high and add the coated chicken to the 
 
 Cook for 7-8 min on each side or until golden and crispy and cooked through (no pink meat!) – this is your fried chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699376217575-x200.jpg)
 
 ### Step 7
 

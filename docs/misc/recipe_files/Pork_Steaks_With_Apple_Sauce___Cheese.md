@@ -19,7 +19,6 @@ You'll bash these pork steaks flat, a technique known as 'escaloping'. You'll le
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/350.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Put&nbsp;them in the oven for 25 min or until golden &amp; crisp
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/350.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, peel the apple<span style="color: #e86754;">[s]</span>
 
 Cut them into rough pieces, discarding the core<span style="color: #e86754;">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/350.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Cover with a lid and cook for 10-15 min until the apple is softened
 
 Once softened, remove from the heat and mash them thoroughly with a potato masher - this is your apple sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/350.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Using a rolling pin (or another heavy implement) bash the steaks so that are 0.5
 
 Rub the steaks either side with 1 tsp [<span class="text-danger">2 tsp]</span>&nbsp;vegetable oil and season with salt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/350.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Transfer&nbsp;the steaks to a plate and set aside&nbsp;
 
 Meanwhile, boil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/350.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,7 +97,6 @@ Cook&nbsp;for 7 min or until tender
 
 Once cooked, drain and return the beans to the cooking pot, drizzle with a little olive oil and stir through the wholegrain mustard
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/350.-step-7-x200.jpg)
 
 ### Step 7
 

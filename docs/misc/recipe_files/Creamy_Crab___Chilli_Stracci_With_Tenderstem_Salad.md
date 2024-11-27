@@ -29,7 +29,6 @@ The Italian for ‘rags’, stracci are torn, loosely cut or broken pasta. You�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676911914076-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop your cherry tomatoes roughly
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676911924662-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a little drizzle of oli
 
 Once hot, add the sliced leek and a knob of butter and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676911928942-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel half your Italian hard cheese until you end up with a pile of cheese shavin
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676911933002-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the leek has softened, add the chopped tomatoes to the pan with the chopped
 
 Cook for 5-6 min or until the tomatoes have softened, then remove from the heat and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676911937489-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ After the initial 8 min, remove the tray[s] from the oven and top with your flak
 
 Return the tray[s] to the oven for a final 3-4 min or until the almonds are golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676911943128-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Break your lasagne sheets into medium-sized pieces and add them to the boiling w
 
 Cook for 7-9 min, stirring from time to time to prevent the pasta from sticking, then drain the cooked pasta stracci, reserving a little starchy pasta water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676911949292-x200.jpg)
 
 ### Step 7
 

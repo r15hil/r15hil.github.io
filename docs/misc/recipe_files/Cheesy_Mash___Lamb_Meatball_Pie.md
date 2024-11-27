@@ -25,7 +25,6 @@ Pie, oh pie this mash is creamy. For the perfect comfort dish, you’ll coat jui
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663095695020-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt over a hi
 
 Once cooked, drain and return them to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682411261482-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Top, tail, peel and cut your carrot[s] in half lengthways, then slice finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682411264419-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add your lamb mince to a bowl with the chopped garlic, dried oregano and a pinch
 
 Divide and shape the lamb mince into 3 meatballs per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682411126725-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the sliced carrot and diced onion to an oven-proof dish with 1 tbsp <span cl
 
 Top with the lamb meatballs, then put the dish in the oven for 10 min or until the meatballs are starting to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663095724233-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Return the potatoes to a low heat with a knob of butter and a splash of milk
 
 Season with a pinch of salt and pepper and mash until smooth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682411184591-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the meatballs are browned, remove the dish from the oven
 
 Add your chopped tomatoes and beef stock mix to the dish and gently stir everything together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682411208262-x200.jpg)
 
 ### Step 7
 

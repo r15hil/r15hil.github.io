@@ -24,7 +24,6 @@ Beep beep, pizza delivery. Get the kids cooking up a storm with herby tomato sau
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708529235689-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708529239722-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add your tomato paste to a bowl with the grated garlic, dried oregano and a pinc
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708529244468-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Cut your cucumber into batons
 
 Combine your balsamic vinegar with a drizzle of olive oil in a bowl – this is your balsamic dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708529249941-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Spread the tomato base evenly with the back of a spoon over the pizza bases[s]
 
 Top with the torn mozzarella
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708529255070-x200.jpg)
 
 ### Step 5
 
 Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your extra easy margherita
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708529262706-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add your chilli flakes (can't handle the heat? Go easy!) to a small heatproof bo
 
 Carefully pour the heated oil into the bowl, give it a good mix up and set aside for later – this is your chilli oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708529267901-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Bibimbap is a Korean favourite and literally translates to "mixed rice"; our ver
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/796.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Add the carrot ribbons to your vinegar mixture and give it all a good mix up and set aside – this is your quick-pickled carrot salad
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/796.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/796.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick with a matching li
 
 Once hot, add your pork mince (remove the paper if required!) and cook for 4-5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-6-1730887876945-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Wash, then chop your pak choi in half, separating the white base[s] and green to
 
 Cut the white base[s] into bite-size pieces and shred the green tops
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-5-1730887736109-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once the pork has browned, add your soy sauce, toasted sesame oil, sliced spri
 
 Once everything has softened and the pork is cooked through (no pink meat!), transfer to a bowl and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/796.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once hot, add the chopped pak choi white base (keep the shredded green tops for 
 
 Cover with a lid and cook for 2-3 min, then add the shredded green pak choi tops, cover and cook for 1-2 min further or until wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/796.-step-7-x200.jpg)
 
 ### Step 7
 

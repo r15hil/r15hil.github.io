@@ -28,7 +28,6 @@ For this creamy, comforting curry, you'll combine smoky fish and sweetcorn in a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/936.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/936.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Once hot, add the sliced onion and cook for 8-10 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/936.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and finely chop (or grate) you garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/936.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the onion has softened, add the chopped ginger, chopped garlic and most of
 
 Increase the heat to medium and cook for 3 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/936.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and vegetable stock mix in 375ml <span class="text-purple">[560 ml]</span> <span class="text-danger">[700ml]</span> boiled water – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/936.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, cut the smoked basa fillets into bite-sized pieces
 
 Wash the spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/936.-step-7-x200.jpg)
 
 ### Step 7
 

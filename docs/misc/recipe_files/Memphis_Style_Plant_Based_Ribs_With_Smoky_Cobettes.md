@@ -26,7 +26,6 @@ In Elvis’s hometown, more is always more. So whip up your spiced vinegar, mop 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650985668784-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 15-16 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650985673567-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine 1/2 tsp <span class="text-danger">[1 tsp] </span>cayenne pepper (can't h
 
 Tip: In Southern BBQ a mop sauce is used to baste barbecued meats to infuse the meat (or meat-free!) with flavour while it cooks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650985684607-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Shape the meat-free portions into rib shapes, then thread 3 meat-free ribs onto 
 
 Follow the same process with the remaining meat-free ribs and remaining skewers until you end up with 2 <span class="text-danger">[4]</span> meat-free rib racks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650985741464-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the sweetcorn cobettes to the side of the baking tray with a drizzle of oliv
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650985753381-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Combine the remaining cider vinegar, mustard ketchup and mayo in a large bowl wi
 
 Add the remaining smoked paprika to the warmed butter alternative and mix together – this is your smoky butter alternative
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650985771861-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ After an initial 15 min, remove the meat-free ribs from the oven and pour the sm
 
 Add half the smoky butter (you'll use the rest later!) to the cobettes and return the tray to the oven for a final 5-6 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650985782658-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Pack your night with these Mexican-style chilli cheese peppers. You’ll stuff s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684231568433-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Chop the stem off your sweet pointed pepper[s] and deseed (scrape the seeds and 
 
 Add the cut pepper[s] to a baking tray (or two!), cut-side down, with a little drizzle of olive oil and give everything a good mix up, then put the tray[s] in the oven and cook for an initial 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684231811866-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once hot, add the chopped garlic, tomato paste and ground cumin and cook for 2-3
 
 Once fragrant, add your white long grain rice and give everything a good mix up until the rice is fully coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684232003549-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684232033639-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Drain your sweetcorn, then crumble your Greek cheese into small bite-sized piece
 
 Add the chopped green chilli (can't handle the heat? Go easy!), half the drained sweetcorn (save the rest for later!) to the bowl with the cornflour and chipotle paste (not a fan of spice? Just add a little!) and give everything a good mix up – this is your Greek cheese filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684232039714-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Flip the pepper[s] over and stuff with the Greek cheese filling (be careful, it 
 
 Return the tray[s] to the oven for 10 min further or until the filling is slightly charred and the pepper is completely softened – this is your chilli cheese-stuffed pepper[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684232044510-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ While the pepper is cooking, save some coriander leaves for garnish, then chop t
 
 Combine the chopped coriander and natural yoghurt in a small bowl with a small pinch of salt and give everything a good mix up – this is your coriander yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684232050637-x200.jpg)
 
 ### Step 7
 

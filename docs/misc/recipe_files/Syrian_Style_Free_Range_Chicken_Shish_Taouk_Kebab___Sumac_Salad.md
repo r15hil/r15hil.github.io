@@ -26,7 +26,6 @@ This Syrian-style shish taouk is charred to perfection. You’ll skewer smoky pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695646294203-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Peel and finely chop (or grate) your garlic
 
 Soak your skewer[s] in cold water (this prevents them from burning whilst cooking)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695646297814-x200.jpg)
 
 ### Step 2
 
 Chop your free range chicken thighs into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695646302524-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add a very generous pinch of salt, and a pinch of sugar and pepper
 
 Give everything a good mix up – this is your shish taouk marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695646315180-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add the chopped chicken and onion petals to the marinade
 
 Give everything a good mix up until everything is well coated, then thread the coated chicken and onion petals onto the skewers
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695646318504-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once slightly charred, reduce the heat to medium and cook, covered, for a further 8-10 min, turning half way, or until charred and cooked through (no pink meat!) – this is your Syrian-style free range chicken shish taouk kebab
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695646322783-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the shredded lettuce to a large bowl with the diced tomato, remaining ground
 
 Toss everything together – this is your sumac salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695646332673-x200.jpg)
 
 ### Step 7
 

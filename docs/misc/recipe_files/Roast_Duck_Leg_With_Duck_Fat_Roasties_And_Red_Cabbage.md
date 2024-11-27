@@ -26,7 +26,6 @@ Fast forward to the weekend with this one-hour roast. You’ll bake duck legs ti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681826507254-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel your potatoes and chop them into quarters, then add to a pot with plenty of
 
 Once boiling, reduce the heat to medium and cook for 10-12 min, then drain (save the pot!) and shake them around the colander to fluff up the edges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681826513608-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Combine your egg[s] with 35g<span class="text-purple"> [50g]</span> <span class=
 
 Put the batter in the fridge to rest
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681826519217-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once melted, add your shredded red cabbage, sultanas and red wine vinegar to the
 
 Add 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water and cook, covered, for 30 min, stirring occasionally – this is your red cabbage
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681826524910-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the duck leg[s] to one side of a baking paper-lined baking tray (or two!) wi
 
 Add the drained potatoes to the other side of the tray[s] with half the white duck fat (you'll use the rest later!) and season with a pinch of salt and pepper, then put the tray[s] in the oven for 30 min or until everything is golden and crispy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681826530741-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Tip: No muffin tray? Fill a small oven-proof dish with the duck fat to make one 
 
 After 8 min, carefully remove the muffin tray from the oven and evenly drizzle the rested batter into the hot fat, then return the tray to the oven for 20 min or until puffed up and golden – these are your herby Yorkshires
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681826534723-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once hot, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="
 
 Add your beef stock mix and red wine stock paste to the pan with the reserved duck jelly, crushed garlic and 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[550ml]</span> boiled water, then bring to the boil over a high heat and cook for 4-5 min or until thickened – this is your garlic-infused gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681826539864-x200.jpg)
 
 ### Step 7
 

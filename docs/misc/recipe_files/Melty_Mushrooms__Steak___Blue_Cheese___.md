@@ -20,7 +20,6 @@ To be recognised as the best butcher in the UK is a tribute to all the hard work
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/504.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add them to a pot of salted boiled water over a high heat
 
 Bring to the boil and cook for 10-15 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/504.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Rub them with a little vegetable oil and season generously with salt
 
 Heat a dry, wide-based pan (preferably non-stick) over a medium-high heat for 1 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/504.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel and slice the onion<span class="text-danger">(s)</span> finely
 
 Cut the mushrooms into thick slices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/504.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Add the onion and mushrooms with a big pinch of salt (to draw out the moisture)
 
 Cook for 8 min over a medium heat until both have softened and caramelised
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/504.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Add the parsley to the drained potatoes with a splash of milk, a knob of butter 
 
 Mash thoroughly, then set aside, covered, until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/504.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Add 1 tbsp <span class="text-danger">(1.5 tbsp)</span> butter and 1 tbsp <span c
 
 Cook for a further 2 min, then add 200ml <span class="text-danger">(400ml)</span> milk and stir again
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/504.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -32,7 +32,6 @@ Saag Masala is a spinach-based curry, flavoured with garam masala, ground fenugr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2393-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel and finely slice your brown onion[s] and garlic
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium heat and once hot, add the chopped paneer and cook for 2-3 min until it's browned on all sides
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2393-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Melt a knob of butter in a pot with a matching lid over a medium heat
 
 Once melted, add the crushed cardamom pods and star anise to the pot and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2393-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your pilau rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2393-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once the onion has softened, add the sliced garlic, ground fenugreek, garam m
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2393-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ While the spices are cooking, dissolve your vegetable stock mix, tomato paste 
 
 Add the tomato stock to the pan, reduce the heat to medium-low and cook for 3-4 min or until the sauce has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2393-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Rinse the wilted spinach under cold running water until it's cool enough to
 
 Squeeze as much water out of the spinach as you can, then chop it roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2393-Step-7-x200.jpg)
 
 ### Step 7
 

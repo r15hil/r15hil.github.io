@@ -26,7 +26,6 @@ Knock up a dish that's full of fresh veg. You'll pan-fry courgette with cherry t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730483488570-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1730483510518-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid), over a
 
 Once hot, add your chicken breast portion and cook for 3 min on each side or until golden, then add a couple of splashes of water to the pan and cover with a lid, then cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1730483520006-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Chop your cherry tomatoes in half
 
 Once the courgette has slightly softened, add your roasted garlic paste, dried oregano and the halved tomatoes and cook for a further 2-3 min or until the tomatoes have started to break down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1730483529705-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi and reserve a cup of the starchy cooking water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1730483537785-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once the tomatoes have started to break down, add your chopped tomatoes and blac
 
 Cook for 1-2 min or until the olives are warmed through – these are your Mediterranean-style vegetables
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1730483548152-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Grate your cheddar cheese
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1730483557587-x200.jpg)
 
 ### Step 7
 

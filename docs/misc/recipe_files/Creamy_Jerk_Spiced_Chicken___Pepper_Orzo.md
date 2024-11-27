@@ -25,7 +25,6 @@ Inspired by Jamaican rasta pasta, this spicy orzotto packs a real flavour punch.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1706026671854-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1706026678791-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh and cook for 6 min or until beginning to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1706026685482-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ While the chicken is browning, add your orzo to a pot of boiled water and bring 
 
 Cook the orzo for 6-8 min or until cooked with a slight bite
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1706026693690-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once done, drain the orzo
 
 Reserve 50m<span class="text-purple">l [65ml]</span><span class="text-danger"> [85ml]</span> starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1706026700793-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Peel and grate your garlic
 
 Trim, then slice your spring onion[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1706026708564-x200.jpg)
 
 ### Step 6
 
 Once the chicken has slightly browned, add the chopped pepper and grated garlic and cook for 4 min or until softened and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1706026716636-x200.jpg)
 
 ### Step 7
 
@@ -91,7 +84,6 @@ Once softened, stir through the drained orzo, double cream and chicken stock mix
 
 Add your jerk paste with the reserved starchy pasta water and a generous pinch of salt and give everything a good mix up – this is your creamy jerk spiced chicken & pepper orzo
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-8-1706026724363-x200.jpg)
 
 ### Step 8
 

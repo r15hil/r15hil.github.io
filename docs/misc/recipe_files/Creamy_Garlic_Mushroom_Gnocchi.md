@@ -24,7 +24,6 @@ While the gnocchi is cooking, you'll caramelise mushrooms with roasted garlic, b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1620658697881-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2385tep-2-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Tear your chestnut mushrooms into rough bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2385tep-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the torn mushrooms and your roasted garlic paste to the pan and cook for 2-3 min or until starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2385tep-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2385tep-5-x200.jpg)
 
 ### Step 5
 
@@ -72,13 +67,11 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Once the mushrooms have started to caramelise, add the spinach and your soy sauce to the pan and cook for 2-3 min or until starting to wilt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2385tep-6-x200.jpg)
 
 ### Step 6
 
 Once done, add your crème fraîche and Dijon mustard and stir everything together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2385tep-7-x200.jpg)
 
 ### Step 7
 

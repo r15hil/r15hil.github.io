@@ -30,7 +30,6 @@ Black beans, smoky chipotle paste and cumin are the star ingredients in this del
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679908623204-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679908625923-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a pot with a drizzle of vegetable oil and a knob of butter over a medium h
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679908628462-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix and chipotle paste (can't handle the heat? Go easy!) in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your chipotle stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679908631347-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Drain and rinse your black beans
 
 Once fragrant, add the drained black beans and chipotle stock and cook, covered for 5-7 min or until the beans are soft enough to mash
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679908634411-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Trim, then slice your spring onion[s] finely
 
 Once the beans have softened, remove from the heat and add a generous knob of butter, then mash them until smooth – these are your Brazilian-style black beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679908638655-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once hot, add the chopped basa to the pan and cook for 4-5 min on each side or u
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679908641919-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Fiery 'Nduja pork stars in this creamy, fresh and speedy tomato sauce. Tossed th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674120509083-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your cherry tomatoes in half, then peel and finely slice (don't chop) your 
 
 Add your fennel seeds to a pestle & mortar and grind (or chop if you don't have a pestle and mortar!) to a fine powder
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674120512969-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the halved cherry tomatoes with a pinch of salt and cook for 2-3 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spaghetti-draining-1730302079087-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti and return to the pot, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674120550660-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once the tomatoes are beginning to soften, add the sliced garlic and crushed fen
 
 Add your Chinese rice wine and cook for a further 30 secs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674120598624-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Wash your spinach, then add to the pan along with your 'Nduja (can't handle the 
 
 Season with a generous pinch of salt and pepper and cook for a further 3-4 min or until a sauce has formed
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674120607470-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Grate the remaining Italian hard cheese
 
 Chop your basil finely, including the stalks, keeping the stalks and leaves separate
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674120613746-x200.jpg)
 
 ### Step 7
 

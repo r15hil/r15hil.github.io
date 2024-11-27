@@ -27,7 +27,6 @@ Give old school mac ‘n’ cheese a Moroccan makeover. You’ll whip up a spicy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680078452959-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your butternut squash cubes to a baking tray with a drizzle of olive oil and
 
 Put the tray in the oven for 15-20 min or until the squash is tender – this is your roasted butternut squash
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680078458744-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cook the macaroni for 6-7 min or until cooked with a bite
 
 Once done, drain the macaroni reserving 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[200ml] </span>starchy pasta water and set aside until later, reserve the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680078463897-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Grate your cheddar cheese
 
 Combine your panko breadcrumbs with your ground sumac, 1/3 of your grated cheese and a drizzle of olive oil – this your sumac crumb
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680078468797-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the chopped onion and garlic to the pot and cook for 3-4 min or un
 
 Once softened, add 20g <span class="text-purple">[30g]</span><span class="text-danger"> [40g] </span>flour and stir with a wooden spoon for 1-2 min or until a sandy paste coats the onion – this is your roux
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680078474415-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Gradually whisk in 200ml <span class="text-purple">[260ml]</span> <span class="t
 
 Once done, add the remaining grated cheese, vegetable stock mix and harissa paste (can't handle the heat? Go easy!) – this is your harissa béchamel sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680078480242-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Transfer the mac 'n' cheese mixture to an oven-proof dish
 
 Sprinkle over the sumac crumb and put the dish in the oven for 10 min or until golden and bubbling – this is your harissa mac 'n' cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680078485009-x200.jpg)
 
 ### Step 7
 

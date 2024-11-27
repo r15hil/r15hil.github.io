@@ -22,7 +22,6 @@ Pay homage to simple pleasures with this splendid combination of smoked fish, a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1639999946853-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Boil a full kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1639999876475-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1639999878868-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once cool, squeeze the water out of the spinach as much as you can
 
 Boil the kettle again (last time, we promise!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1639999885427-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Grate your cheddar flavour block
 
 Trim, then slice your spring onion[s] finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1639999885902-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Put the tray in the oven for 12-15 min or until the fish is cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1639999887569-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Crack your egg[s] gently into the water and leave them for 3 min
 
 Once done, gently transfer the eggs with a slotted spoon to kitchen paper or a clean tea-towel and season them with salt and pepper – this is your poached egg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1639999890211-x200.jpg)
 
 ### Step 7
 

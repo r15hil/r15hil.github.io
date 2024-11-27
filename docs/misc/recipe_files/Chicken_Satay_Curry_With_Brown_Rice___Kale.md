@@ -30,7 +30,6 @@ You won’t be able to stay away from this creamy chicken satay. You’ll simmer
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1222.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 20-25 min or until it's tender with a slight bite
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1222.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1222.-step-3.v2-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion and curry powder and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1592930967254-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Meanwhile, dissolve half your chicken stock mix (save the rest for later!), chop
 
 Chop your chicken breast strips into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1222.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the onion is softened,, increase the heat to high and add the chopped chicken and chopped garlic to the pan and cook for 3-4 min or until starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1222.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once lightly browned, add the peanut stock, soy sauce, lime leaf[ves] and 1 tsp 
 
 Cook, covered, for 8-10 min or until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1222.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ For these Indian-inspired burritos, you'll stuff tortillas with curried chicken,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1730996188920-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your white long grain rice, sultanas, ground turmeric, chicken stock mix and
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed, then remove from the heat and keep covered until serving – this is your pilau rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1730995990634-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Slice your chicken breast portion[s] into 4 strips per person
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1730996010399-x200.jpg)
 
 ### Step 3
 
@@ -58,19 +55,16 @@ Once hot, add the sliced onion with a pinch of salt and cook for 2-3 min until s
 
 Once softened, add the chicken breast strips and cook for 5-6 min further until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1730996017498-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add your mango chutney, nigella seeds and natural yoghurt to a small bowl and give it a good mix up – this is your mango yoghurt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1730996024381-x200.jpg)
 
 ### Step 5
 
 Once the chicken has browned, add your curry powder, ground smoked paprika and a splash of cold water and cook for 5-6 min further or until the chicken is cooked through (no pink meat!) – this is your curried chicken & onions
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1730996031729-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Wash, then shred your lettuce and pat it dry with kitchen paper
 
 Slice your tomato[es] into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1730996038538-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This wholesome, woodland-inspired salad combines roasted mushrooms, lentils and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1386.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add all the mushrooms to a large baking tray (or two!) with a generous drizzle o
 
 Put the tray in the oven for 15-20 min or until they're caramelised and golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1386.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Meanwhile, trim your green beans and chop them in half
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1386.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Wash your salad, then pat it dry with kitchen paper
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1386.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Combine the chopped garlic, Dijon mustard and the juice of half your lemon[s] wi
 
 Season with a pinch of salt and pepper – this is your lemon-mustard dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1386.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Chop your basil finely, including the stalks
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1386.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the beans are cooked, drain and run under cold water until cooled slightly
 
 Add the drained green lentils and cooked beans to a large bowl
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1386.-step-7-x200.jpg)
 
 ### Step 7
 

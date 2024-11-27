@@ -26,13 +26,11 @@ In this plant-based recipe, we'll show you how to make two Kenyan-inspired dishe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602085608662-x200.jpg)
 
 ### Step 1
 
 Peel and finely slice 1 <span class="text-danger">[2] </span>red onion<span class="text-danger">[s]</span> and finely chop the rest
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602085621516-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Dice 2 <span class="text-danger">[4]</span> tomatoes chop the rest into wedges
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602085638428-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once softened, add the tomato wedges with the chopped garlic and tomato paste
 
 Cook for a further 5-6 min or until the tomatoes have broken down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602085654720-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once hot, add the chopped red onions and cook for 3-4 min or until starting to s
 
 Cook for a further 2-3 min or until the kale has wilted
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602085671813-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Give it a good mix up, then bring up to the boil
 
 Once boiling, reduce to a low heat and cook for 5-6 min further or until the kidney beans are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602085818062-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tear the top corner of the pouch<span class="text-danger">[es] </span>(just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602085843913-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Persian inspired haddock pieces with sumac, served with roasted pepper and courg
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1646136873813-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop your tomato[es] into wedges
 
 Add the pepper strips, tomato wedges and garlic (skin on) to a tin foil-lined baking tray (or two!) with your ground coriander, a drizzle of vegetable oil and a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1646136878651-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Whilst the vegetables are cooking, peel and slice your shallot[s] finely, then a
 
 Wash your lettuce, then pat it dry with kitchen paper, remove 3 outer leaves per person and set aside, then shred the inner core
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1646136881959-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1646136885890-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Pat your haddock bites dry with kitchen paper, then add to the bowl and give eve
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1646136889003-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once hot, add the coated haddock bites and cook for 5-6 min, turning once half w
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1646136893230-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Whilst the haddock is cooking, add the chopped dill to a bowl with your mayo and
 
 Season with a grind of black pepper and mix everything together – this is your dill mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1646136897856-x200.jpg)
 
 ### Step 7
 

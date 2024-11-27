@@ -28,7 +28,6 @@ Pack in two of your 5-a-day with this tasty twist on an Italian classic. You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721048429523-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Grate your Italian hard cheese finely
 
 Crush your garlic open by squashing it with the side of a knife and discard the skin
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721048432896-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721048436748-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721048440789-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721048443846-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Reduce the heat to medium-high and add your orzo to the pan and mix everything t
 
 Add the chicken stock and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721048464746-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once boiling, reduce the heat to medium and cook for an initial 12-15 min, stirr
 
 While the orzo is cooking, combine your chilli flakes (can't handle the heat? Go easy!) with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt in a small bowl – this is your chilli oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721048460807-x200.jpg)
 
 ### Step 7
 
@@ -98,7 +91,6 @@ Once the orzo and chicken are cooked, add the pea & basil pesto and remaining bl
 
 Stir it all together and cook for a final 1-2 min until everything is warmed through – this is your chicken & pea pesto orzo
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/6105-Final-Photo-1715862404542-x200.jpg)
 
 ### Step 8
 

@@ -24,7 +24,6 @@ Bite into a blast from the past like never before because we’ve given burgers 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665139010447-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the potato discs to a baking tray with a drizzle of vegetable oil and a pinc
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665139020813-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Chop your chives finely
 
 Slice your cheddar cheese into 3 slices per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665139018385-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Line a separate baking tray with tin foil
 
 Add your ultimate vegan burger patties to one side of the lined tray and put in the oven for 10-12 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665139025450-x200.jpg)
 
 ### Step 4
 
 Combine your mayo, chopped chives and half your white wine vinegar (you'll use the rest later!) in a small bowl – this is your chive mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665139029107-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Slice your ciabatta[s] in half and add them to the other side of the tray
 
 Return the tray[s] to the oven for 3-4 min or until the cheese has melted and the ciabattas are toasted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665139033337-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Combine your baked beans and BBQ sauce in a small heat-proof bowl
 
 Cook the beans in the microwave for 1 min, then stir them and return them to the microwave for a further 1 min, or until piping hot – these are your BBQ beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665139037281-x200.jpg)
 
 ### Step 7
 

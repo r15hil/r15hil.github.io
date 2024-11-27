@@ -27,7 +27,6 @@ Delicate haddock is the perfect match for punchy North African harissa. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629285545835-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Trim, then chop your green beans in half
 
 Roughly chop your cherry tomatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629285548907-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the halved green beans and cook for 2-3 min or until starting to colour
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629285552628-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Whilst the green beans are cooking, add your couscous to a heatproof bowl
 
 Add half your vegetable stock mix (you'll use the rest later!) and 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water, give everything a good mix up then cover and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629285556405-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Dissolve the remaining vegetable stock mix in 150ml <span class="text-purple">[2
 
 Stir in your tomato paste and harissa paste (can't handle the heat? Go easy!) – this is your harissa stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629285560016-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Once the beans are starting to colour, add the chopped cherry tomatoes and haris
 
 Cover with the lid and cook for 4-5 min or until the tomatoes have broken down and the sauce has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629285563507-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Top the sauce with the haddock bites and cook, covered, for 4-5 min further or u
 
 Season with a generous grind of black pepper – this is your harissa & tomato haddock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629285566680-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ For this easy twist on a takeaway classic, you'll flavour succulent chicken with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728467305512-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add your diced chicken breast and sliced onion to the pan with a generous pinch of salt and sugar
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1728467310671-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Meanwhile, heat a pot (with a matching lid) with a drizzle of vegetable oil and
 
 Once the butter has melted, add your nigella seeds and basmati rice and stir to fully coat the grains in oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728467314523-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once cooked, remove from the heat and keep covered until serving – this is you
 
 Reboil the kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1728467318007-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut your tomatoes into wedges
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1728467332296-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once the onion has started to caramelise, add the sliced pepper to the pan and 
 
 Dissolve your chicken stock mix in 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728467340933-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ After 5-8 min, add the chopped ginger, chopped garlic, chilli flakes (can't ha
 
 Stir your tomato paste into the pan, then add the tomato wedges and chicken stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728467346276-x200.jpg)
 
 ### Step 7
 

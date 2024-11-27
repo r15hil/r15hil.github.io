@@ -27,7 +27,6 @@ Fire up the barbie (or the oven) for an irresistible spread of cheeseburgers, ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1626187440533-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add each sweetcorn cobette to a piece of tin foil with a small knob of butter an
 
 Put the sweetcorn cobettes in the oven for 25 min or until tender and cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1626187445295-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the chopped waxy potatoes to a pot with plenty of boiled water and a pinch o
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until tender, then drain and set aside to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1626187453058-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Cut each chicken breast into 4 even strips
 
 Add the chicken strips to the tikka marinade and stir it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1626187462238-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Mix thoroughly with your hands until fully combined
 
 Divide the beef mince mixture into 2 <span class="text-danger">[4]</span> and shape into patties
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1626187486231-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Trim, then slice the spring onions finely
 
 Combine the sliced spring onion with the juice of 1/4 <span class="text-danger">[1/2]</span> lemon and the remaining yoghurt in a large bowl – this is your potato salad dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1626187506186-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Put the tray in the oven for an initial 10 min
 
 Add the cooked potatoes to the potato salad dressing and season with a pinch of salt and a good grind of black pepper – this is your potato salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1626187522027-x200.jpg)
 
 ### Step 7
 

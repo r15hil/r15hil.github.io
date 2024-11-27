@@ -27,7 +27,6 @@ This Laksa is comfort with a kick. You'll make punchy curried broth flavoured wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692968758195-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your butternut squash cubes to a baking tray with half your curry powder (yo
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until tender and golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692968762141-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a medium sized pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692968766224-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Combine the chopped creamed coconut, soy sauce and fish sauce with 700ml <span class="text-purple">[1050ml]</span> <span class="text-danger">[1.4L]</span> boiled water – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692968770170-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once fragrant, add the coconut stock and lime leaf[ves] and bring to the boil ov
 
 Once boiling, reduce the heat to medium, season with a generous pinch of salt and cook for 4-5 min – this is your curried laksa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692968774590-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Reboil a full kettle
 
 Strip your coriander leaves from their stalks and chop the stalks finely (save the leaves for garnish!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692968778624-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add your fine egg noodles to a large bowl, cover them with boiled water and stir
 
 Set aside to soak for 4 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692968782515-x200.jpg)
 
 ### Step 7
 

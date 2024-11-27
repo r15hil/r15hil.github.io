@@ -25,7 +25,6 @@ Celebrate Bonfire Night with a show-stopping veggie pasty. You'll level up the f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597675467981-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and slice your shallot[s] finely
 
 Strip your sage from their stems and chop them finely, discard the stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597675472038-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced shallot, chopped garlic and chopped sage and cook for 1-2 min or until slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597675476290-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Meanwhile, dice your chestnut mushrooms roughly
 
 Add the diced mushrooms to the pan with a pinch of salt and a splash of water to the pan, then cook for 3-4 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597675480405-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Slice the remaining sweet potato and your potato[es] (skins on) into thin disc s
 
 Wash your kale, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597675484758-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once the mushrooms have softened, add your soft cheese to the pan and mix everyt
 
 Season with black pepper and cook for 1-2 min further until the sauce has thickened – this is your pasty filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597675488598-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Line a baking tray (or two!) with tin foil and add the pastry
 
 Divide the pasty filling into 2 <span class="text-purple">[3]</span> <span class="text-danger">[4] </span>and add the mixture to one corner of each, then fold the corner over to make a triangle shape and crimp the edges with a fork to seal each pasty
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597675492652-x200.jpg)
 
 ### Step 7
 

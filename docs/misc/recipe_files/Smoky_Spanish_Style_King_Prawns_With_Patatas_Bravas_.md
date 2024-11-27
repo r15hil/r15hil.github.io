@@ -31,7 +31,6 @@ These perfectly crisp patatas topped with spicy tomato sauce and garlic aioli ar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636392606605-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Add the potato cubes to a baking tray (or two!) with a drizzle of vegetable oil 
 
 Put the tray[s] in the oven for 25-30 min or until the potatoes are golden and crispy – these are your crispy potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636392611101-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Add the pepper strips and sliced onion to a separate baking tray with a drizzle 
 
 Put the tray in the oven for 20 min or until the veg is soft and tender – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636392615656-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your tomato paste in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water and add your chilli flakes (can't handle the heat? Go easy!) – this is your spicy tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636392625784-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once hot, add the diced tomato with a pinch of salt and sugar and cook for 3-4 m
 
 Add the spicy tomato stock to the pan and cook for 3-4 min further or until thickened – this is your bravas sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636392631928-x200.jpg)
 
 ### Step 5
 
@@ -85,13 +80,11 @@ While the sauce thickens, heat a separate large, wide-based pan (preferably non-
 
 Add your ground coriander, ground smoked paprika, 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp] </span>[2 tsp] </span>sugar and a generous pinch of salt to the pan and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636392637050-x200.jpg)
 
 ### Step 6
 
 Once fragrant, drain your king prawns, then add them to the pan and cook for 4-5 min or until the prawns are cooked through – these are your smoky Spanish-style king prawns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657011600685-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ This hearty, comforting family favourite delivers wonderful flavour with just mi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1577.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Slice the potatoes (skins on) into thick discs
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1577.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Dissolve 1/2 <span class="text-danger">[1]</span> chicken stock cube in 100ml <s
 
 Add the clotted cream, Dijon mustard&nbsp;with 50ml<span class="text-danger"> [75ml]</span> milk&nbsp;and a generous grind of black pepper&nbsp;&ndash; this is your creamy stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1577.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Pour over the creamy&nbsp;stock and cover the dish tightly with tin foil&nbsp;
 
 Add the dish to one side of the lined baking tray&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1577.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Put the tray in the oven for an initial 25-35 min or until the potatoes are almo
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1577.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Meanwhile, grate the cheddar cheese
 
 Use the rest of this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1577.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Return to the oven, uncovered, for a further 5-10 min until everything is cooked
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1577.-step-7-x200.jpg)
 
 ### Step 7
 

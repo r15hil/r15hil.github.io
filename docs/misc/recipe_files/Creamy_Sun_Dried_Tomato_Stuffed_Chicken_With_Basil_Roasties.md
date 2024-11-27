@@ -24,7 +24,6 @@ Treat chicken to a flavour-packed summer makeover. You’ll stuff succulent fill
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649497693511-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a baking tray with your dried basil, a drizzle of ol
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp – these are your basil roasties
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649497698517-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Combine your sun-dried tomatoes and the peeled garlic in a food processor with y
 
 Tip: Don't have a food processor? Chop the sun-dried tomatoes and garlic finely and mix with the soft cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649497703638-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Use a sharp knife to cut a deep cross along the top of the chicken breast portio
 
 Fill the pockets with the creamy sun-dried tomato filling and press it down with the back of a spoon
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649497709009-x200.jpg)
 
 ### Step 4
 
@@ -62,13 +58,11 @@ Add your panko breadcrumbs to a plate with a pinch of salt and pepper – this i
 
 Add a generous drizzle of olive oil to a separate plate
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649497714658-x200.jpg)
 
 ### Step 5
 
 Coat the stuffed chicken breasts in the oil, then press them into the crumb firmly to evenly coat all over – this is your breaded chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649497720420-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Transfer the breaded chicken, filling-side up, to a baking paper-lined baking tr
 
 Put the tray in oven for 20-22 min or until golden and cooked through (no pink meat!) – this is your creamy sun-dried tomato stuffed chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649497725166-x200.jpg)
 
 ### Step 7
 

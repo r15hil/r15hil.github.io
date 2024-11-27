@@ -23,7 +23,6 @@ This crowd-pleaser is a tasty addition to your weekly rotation. You’ll sizzle 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688738557674-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 10-12 min or until fork-tender, then drain and set aside to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688738560477-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Cut your green chilli[es]<span class="text-danger"> </span>in half lengthways, d
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688738563338-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688738566494-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Squeeze your sausage meat from the skins into the pan (clean hands is the best w
 
 Break the sausage meat up into bite-sized pieces with a wooden spoon, add the sliced onion and cook for 5-7 min or until the sausage meat has browned and the onion has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688738569740-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Meanwhile, combine the chopped parsley and chopped green chilli (can't handle th
 
 Give everything a good mix up – this is your herby chilli dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688738573003-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the sausage meat has browned, add the diced pepper to the pan and cook for 
 
 Once softened, add the drained potatoes and cook, stirring occasionally, for 5-6 min or until golden and the sausage meat has cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688738576310-x200.jpg)
 
 ### Step 7
 

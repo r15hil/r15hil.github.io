@@ -22,7 +22,6 @@ If you're familiar with spinach and ricotta lasagne, you'll be sure to love this
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/970.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely chop the onion<span class="text-danger">[s]&nbsp;</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/970.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot, add the chopped onion and cook for 4 min or until it's softened and&nb
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/970.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, add the&nbsp;lasagne verdi sheets,&nbsp;one at a time,&nbsp;with a
 
 Cook for 12 min or until they have softened and cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/970.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Whisk constantly for 3-5min or until a smooth, thick sauce remains, then add the
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/970.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,7 +89,6 @@ Grate the cheddar cheese and set aside&nbsp;
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/970.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -112,7 +106,6 @@ Give everything a gentle mix up - this is your tomato &amp; basil salad
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/970.-step-7-x200.jpg)
 
 ### Step 7
 

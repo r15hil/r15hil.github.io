@@ -27,7 +27,6 @@ Prep this oven braise in just 5 minutes. You’ll sizzle Fable mushrooms and aro
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1728911768035-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1722422528679-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add your Fable pulled mushrooms and cook for 2-3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722422535146-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Chop your Tenderstem broccoli roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1722422547706-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add 400ml <span class="text-purple">[520ml]</span> <span class="text-danger">[68
 
 Bring to the boil over a high heat and put the dish in the oven, uncovered, and cook for 20-25 min or until the sauce has thickened – this is your Chinese-style Fable mushroom
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1722422558732-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Cover tightly with tin foil and put the dish in the oven for 25-30 min or until 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1722422569816-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Tip: Bash the cucumber in the bag to avoid mess. By bruising the cucumber, the
 
 Combine the bashed cucumber and remaining tamari soy sauce in a small bowl with a drizzle of olive oil and a pinch of sugar – this is your bashed cucumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1722422575613-x200.jpg)
 
 ### Step 7
 

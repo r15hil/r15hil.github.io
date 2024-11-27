@@ -24,7 +24,6 @@ A sweet, sticky tray bake that's packed with umami flavour – and saves on wash
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595947889252-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut your sweet potato[es] (skin on) into bite-sized pieces
 
 Cut your red onion[s] into wedges, leaving the skin on (this helps them cook quicker!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595947894013-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the chopped sweet potato and onion wedges to a tray (or two!) with a drizzle
 
 Put the tray[s] in the oven for an initial 15-20 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595947902822-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add your agave, soy sauce and cornflour mixture to the pot and cook, uncovered, 
 
 Once thickened, transfer the sauce to a bowl and set aside for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595947911309-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595947949975-x200.jpg)
 
 ### Step 5
 
 Trim, then chop your green beans in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595947956387-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once the vegetables have softened, push them to one side of the tray[s] and add 
 
 Add your meat-free chick'n to the other side of the tray[s] and return the tray[s] to the oven for 10-13 min or until the beans are tender and the meat-free chick'n is brown and has warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595947992409-x200.jpg)
 
 ### Step 7
 

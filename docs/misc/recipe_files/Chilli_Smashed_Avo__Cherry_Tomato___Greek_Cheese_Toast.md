@@ -20,7 +20,6 @@ Start your day right with breakfast that won’t take up your whole morning. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073515458-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cover and store in the fridge overnight and enjoy within 24 hours
 
 Skim through these steps and get all your equipment ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727102477211-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Now let's get started!
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727102477514-x200.jpg)
 
 ### Step 3
 
 Combine the chopped cherry tomatoes with your smashed avocado
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727102491614-x200.jpg)
 
 ### Step 4
 
@@ -58,19 +54,16 @@ Give everything a good mix up – this is your chilli smashed avo & cherry tomat
 
 Tip: Busy morning ahead? Prep tonight, cover and store in the fridge!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1727102498904-x200.jpg)
 
 ### Step 5
 
 Crumble your Greek cheese into small, bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727102502879-x200.jpg)
 
 ### Step 6
 
 Slice your ciabatta[s] in half and place in the toaster for 2-3 min or until golden and toasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727102506818-x200.jpg)
 
 ### Step 7
 

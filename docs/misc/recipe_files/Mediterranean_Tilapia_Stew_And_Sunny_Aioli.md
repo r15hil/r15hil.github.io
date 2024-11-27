@@ -27,7 +27,6 @@ Head to the Med for this sumptuous stew, with perfectly-poached tilapia in a tom
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650383390466-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds a
 
 Top, tail, peel and dice the carrot<span class="text-danger">[s]</span> and peel and finely chop the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650383408931-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the star anise and cook for 8-10 min, or until the onion has started to soft
 
 Meanwhile, boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650383444316-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once the vegetables have softened, add the tomato paste and cook for 1 min, sti
 
 Add the turmeric stock and bring to the boil over a high heat, once boiling, reduce the heat to low and cook for 5-6 min or until reduced by half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650383457282-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Add the mayo, remaining chopped garlic and white wine vinegar
 
 Whisk in a drizzle of olive oil with a pinch of black pepper – this is your sunny aioli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650383476992-x200.jpg)
 
 ### Step 5
 
 Add the ciabattas to a baking tray, drizzle them with a little olive oil and put the tray in the oven for 8-10 min, or until they're hot and crusty
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650383501732-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Gently add the tilapia to the pan and cook, covered, for 3-4 min or until the ti
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650383514640-x200.jpg)
 
 ### Step 7
 

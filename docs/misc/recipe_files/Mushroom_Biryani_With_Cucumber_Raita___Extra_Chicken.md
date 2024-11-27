@@ -30,7 +30,6 @@ Fancy a biryani, fast? Try this tasty, mushroom-packed twist. You'll whip it up 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1730477878476-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1-chicken-breast-in-pan-1730824473908-x200.jpg)
 
 ### Step 2
 
@@ -58,7 +56,6 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1730477896902-x200.jpg)
 
 ### Step 3
 
@@ -70,7 +67,6 @@ Tip: If you're cooking two or more pouches, pop them in together but increase th
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1730477909218-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Once hot, tear your flat white mushrooms into large pieces, add them to the pan 
 
 Meanwhile, combine your vegetable stock mix, tomato paste, mango chutney and sultanas with 200ml <span class="text-purple">[260ml]</span><span class="text-danger"> [350ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1730477930853-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Crumble your chestnut mushrooms into the pan and add your curry powder and ro
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1730477945208-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Add the cooked rice to the pan with the tomato stock and increase the heat to hi
 
 Give everything a good mix up and cook for 2 min or until the mushrooms have softened – this is your mushroom biryani
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1730477953526-x200.jpg)
 
 ### Step 7
 

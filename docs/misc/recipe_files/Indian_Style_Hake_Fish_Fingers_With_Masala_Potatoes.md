@@ -28,7 +28,6 @@ Shake up a childhood classic with this adventurous twist. You'll coat fish in cu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1732115712668-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice each half into 3 pieces (roughly the size and shape of fish fingers) so th
 
 Add your curry powder and a pinch of salt to a plate with the fish fingers and coat them in the spices
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1732115720266-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Coat the fish fingers in the flour, tap off any excess, then add them to the bea
 
 Add the breaded fish fingers to a plate and pop them in the fridge until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1732115723893-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt, bring to
 
 Once done, drain, set aside and reserve the pot for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1732115728177-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Combine your mayo with your mango chutney in a small bowl – this is your mango mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1732115731855-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Once softened, add the sliced garlic, drained potatoes, ground turmeric, garam 
 
 Reboil half a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1732115738046-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Put the tray in the oven and cook for 8-10 min or until the fish is golden, cris
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1732115741255-x200.jpg)
 
 ### Step 7
 

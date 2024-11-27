@@ -26,7 +26,6 @@ Roast your cauliflower and protein-packed chickpeas in turmeric to make the most
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1596536431909-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once cooked, drain, rinse under cold water and give it a good shake to remove an
 
 Give the pot a quick rinse then return the rice to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595951149635-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ While the rice is cooking, chop the cauliflower into florets
 
 Drain and rinse the chickpeas
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595951167512-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Give everything a good mix up
 
 Tip: Add a drizzle more oil if the spices aren't sticking!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595951186532-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the flaked almonds to the tray for the final 3-4 min until lightly toasted
 
 Tip: Watch the flaked almonds like a hawk to make sure they don't burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595951204197-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Chop the coriander finely, including the stalks
 
 Wash the rocket, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595951218319-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Tip: If you don't have a pestle and mortar, chop everything very finely!
 
 Add the juice of the lemon<span class="text-danger">[s]</span> and 2 tbsp<span class="text-danger"> [4 tbsp] </span>olive oil and give it a good mix up – this is your lemon & coriander dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595951243454-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ This hearty chicken pasta doesn't just have a rich tomato sauce, it's layered wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Finely-chopped-garlic-1659688814623-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1633426362707-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once cooked, drain the wholewheat tortiglioni and set aside until later
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1633426375098-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced courgette and your diced chicken thigh with a pinch of salt and cook for 7-8 min or until the chicken has browned and the courgette is beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1633426380994-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Meanwhile, dissolve your vegetable stock mix, dried basil, balsamic vinegar, tom
 
 Chop your tomato[es]<span class="text-danger"> </span>roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1633426396024-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the stock with the chopped tomato and your finely chopped tomatoes and bring
 
 Season with a generous grind of black pepper and cook for 4-5 min further – this is your sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1633426400974-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Chop your parsley finely, including the stalks
 
 Grate your Italian hard cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1633426429668-x200.jpg)
 
 ### Step 7
 

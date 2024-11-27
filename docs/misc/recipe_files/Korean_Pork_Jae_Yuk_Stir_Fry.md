@@ -28,7 +28,6 @@ Brighten your table with a vibrant Korean stir-fry. You'll flavour the pork with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1617035250885-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617035262922-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617035272255-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once browned, transfer it to a plate, set aside for later and reserve the pan
 
 Tip: You'll finish cooking this later!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617035276868-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Top, tail, peel and finely slice your carrot[s] on a diagonal
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617035285006-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the sliced onion, carrot rounds, courgette batons and chopped garlic to the 
 
 Add your toasted sesame oil, gochujang paste, chilli flakes (can't handle the heat? Go easy!), soy sauce, a drizzle of vegetable oil and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617035297364-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Tip: Add a splash of cold water if it's starting to stick to your pan
 
 While the vegetables are softening, add your cornflour to a bowl with 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> cold water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617035308094-x200.jpg)
 
 ### Step 7
 

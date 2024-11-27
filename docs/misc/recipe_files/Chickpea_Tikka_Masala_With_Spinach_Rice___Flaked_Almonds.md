@@ -32,7 +32,6 @@ Veggie or not, this plant-based tikka masala is a must-try. Serve the mild, yet 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1718379504888-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1718379509620-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 While the the almonds are toasting, peel and finely chop your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728570208738-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Drain and rinse your chickpeas
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1718379487963-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once the onion has softened, add the chopped garlic to the pan and cook for 1-2 
 
 Dissolve your vegetable stock mix and tomato paste in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1728570214773-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once fragrant, add your ground paprika to the pan with your curry powder, garam 
 
 Give everything a good mix up and cook for 1-2 min or until the spices are coating the chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668514586539-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Wash your spinach then add to a colander and pour boiled water all over it so th
 
 Rinse the wilted spinach under cold water until it's cool, then squeeze as much water out of the spinach as you can and chop it roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1718379471183-x200.jpg)
 
 ### Step 7
 
@@ -104,7 +97,6 @@ Stir the chopped spinach through the cooked rice – this is your spinach rice
 
 Once the curry has thickened, add half your cultured coconut (you'll use the rest later!) and stir it all together – this is your chickpea tikka masala
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R-5025-2-Step-8-SP-1718379461811-x200.jpeg)
 
 ### Step 8
 

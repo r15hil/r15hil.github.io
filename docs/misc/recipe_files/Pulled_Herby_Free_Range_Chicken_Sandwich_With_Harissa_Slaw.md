@@ -25,7 +25,6 @@ Like your sarnies with spice? You’re in for a treat. You'll load ciabatta roll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723099754897-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut your potato[es] (skins on) into chips, then add them to a baking tray (or t
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until crisp – these are your spiced chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723099758037-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ While the chips are cooking, heat a large, wide-based pan (preferably non-stick 
 
 Once hot, add your free range chicken breast portion[s] and cook for 3 min on each side or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723099761484-x200.jpg)
 
 ### Step 3
 
@@ -51,13 +48,11 @@ Once browned, add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723099765343-x200.jpg)
 
 ### Step 4
 
 Meanwhile, roll your lemon[s] with your hand on a hard surface (to release more juice) and cut into 1 wedge per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723099769457-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Combine your mayo and a squeeze of lemon juice<span class="text-danger"> </span>
 
 Add your carrot & cabbage slaw mix to the bowl along with a pinch of salt and give everything a good mix up – this is your harissa slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723099772459-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Put your ciabatta[s] in the oven for 5 min or until they're warm and crusty, then carefully slice them in half before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723099775499-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Fire up the grill and dig into The Buffalo Rookie. This sizzling meat-free sensa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1698317410782-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1698317414468-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, add your meat-free hot dog sausage[s] to one side of a baking tray (o
 
 Put the tray[s] in the oven for an initial 20 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1698317418170-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add half your cider vinegar (you'll use the rest later!) to a bowl with a small 
 
 Add the sliced cucumber to the bowl and set aside to pickle – this is your quick-pickled cucumber
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1698317421773-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once melted, remove the pot from the heat and add your sriracha (can’t handle 
 
 Stir everything together until it combines and becomes a sauce-like consistency – this is your buffalo sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1698317425469-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Chop your chives finely
 
 Cut your lettuce into quarters lengthways – these are your lettuce wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1716209022291-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once the meat-free sausage[s] have had 20 min remove the tray[s] from the oven
 
 Add your cut hot dog buns to the other side of the tray[s] and return the tray[s] to the oven for 2-3 min or until the hot dog buns are warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1716209025241-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ This melty meat-free twist on lasagne is layered with spinach, peas and crisp co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2056.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the sliced leeks with a pinch of salt and cook, covered, for 7 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2056.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add 400ml <span class="text-danger">[800ml] </span>milk gradually and whisk f
 
 Remove from the heat and season with pepper – this is your béchamel
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2056.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Chop the courgette<span class="text-danger">[s]</span> finely
 
 Once the leek has softened, increase the heat to medium-high and add the courgette to the pan and cook for 4-5 min further or until cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2056.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,19 +58,16 @@ While the courgette is cooking, grate the cheddar cheese
 
 Crumble the feta cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2056.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the courgette is cooked, wash and add the baby leaf spinach to the pan and cook, covered, for 2 min further or until wilted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2056.-step-6-x200.jpg)
 
 ### Step 6
 
 Once wilted, remove the pan from the heat and stir through the blanched peas and crumbled feta – this is your feta vegetable mix
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2056.-step-7-x200.jpg)
 
 ### Step 7
 

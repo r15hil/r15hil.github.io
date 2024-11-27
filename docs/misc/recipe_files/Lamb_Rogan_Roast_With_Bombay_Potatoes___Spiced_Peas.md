@@ -31,7 +31,6 @@ Whip up this extra special rogan josh with a juicy lamb leg. You’ll pack your 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687528752702-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687528756870-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Add the chopped potatoes to a baking tray (or two!) with your ground turmeric, b
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your Bombay potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687528760986-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the seasoned lamb to the pan and cook for 3-4 min or until browned on all sides, then set aside and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687528765294-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Crush your cardamom pods open by squashing them with the side of a knife
 
 Combine half your curry powder (you'll use the rest later!) with the knob of butter and a pinch of salt – this is your curried butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687528770176-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once fragrant, add your chopped tomatoes, beef stock mix and 1 tsp <span class="
 
 Once boiling, remove from the heat and stir through your natural yoghurt, then transfer the sauce to an oven-proof dish and top with the browned lamb
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687528774309-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once the lamb is cooked, transfer it to a clean chopping board to rest for 3 min
 
 Give the sauce a good mix up – this is your rogan josh sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687528778150-x200.jpg)
 
 ### Step 7
 

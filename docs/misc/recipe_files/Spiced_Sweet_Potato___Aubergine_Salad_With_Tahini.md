@@ -23,7 +23,6 @@ For this Middle Eastern-style salad, you'll top spinach with a combo of roasted 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1499.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and 
 
 Cut the sweet potatoes (skins on) into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1499.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Sprinkle over the ground cumin, drizzle everything with olive oil and season wit
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until everything is golden and softened – this is your roasted spiced veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1499.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Chop the lemon<span class="text-danger">[s]</span> in half
 
 Chop the parsley finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1499.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add the tahini, chopped garlic (don’t like raw garlic? Go easy!), chopped pars
 
 Give everything a good mix up – this is your tahini
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1499.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once hot, add the pine nut & seed mix and cook for 3-5 min or until they're toas
 
 Tip: Watch them like a hawk so they don’t burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1499.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Cut the remaining lemon into quarters
 
 Strip the mint leaves from their stems and chop them roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1499.-step-7-x200.jpg)
 
 ### Step 7
 

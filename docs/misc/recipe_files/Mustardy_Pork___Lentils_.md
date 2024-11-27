@@ -24,7 +24,6 @@ Allowing you to plate up a fancy French bistro meal without any of the pageantry
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/327.-step1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the pork steaks and mix well to coat them fully
 
 Season to your taste with salt and pepper and set aside until step 5
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/327.-step2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely chop the onion<span class="text-danger">(s)</span>
 
 Finely chop the celery
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/327.-step3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once the oil is hot, add the carrot, onion and celery and cook for 5 min with a 
 
 Peel and finely chop the garlic clove<span class="text-danger">(s)</span> in the meantime
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/327.-step4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the bay leaf<span class="text-danger">(ves)</span> &amp; garlic to the pot -
 
 Simmer with the lid on over a high heat and cook the lentils for 15-20 min before step 5 (add more water if necessary)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/327.-step5-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ Shake the excess honey mustard mix off the steaks (but reserve the excess for st
 
 Add the steaks to the hot pan and cook for 5 min on each side, or until slightly charred on the outside and cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/327.-step6-x200.jpg)
 
 ### Step 6
 
 Set the steaks aside on a plate and cover with a clean teatowel to rest for 5 min before slicing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/327.-step7-x200.jpg)
 
 ### Step 7
 

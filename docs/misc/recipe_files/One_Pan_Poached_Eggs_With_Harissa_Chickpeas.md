@@ -32,7 +32,6 @@ Give your eggs a smoky upgrade. You’ll whip up harissa spiced chickpeas in a f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676975224680-x200.jpg)
 
 ### Step 1
 
@@ -46,7 +45,6 @@ Peel and finely chop (or grate) your garlic
 
 Drain and rinse your chickpeas
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676975228250-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Once hot, add the diced onion and pepper strips and cook for 5-6 min or until so
 
 Once softened, add half your ground cumin and half the chopped garlic (you'll use the rest later!) and cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676975232332-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once fragrant, add your harissa paste (can't handle the heat? Go easy!) and drai
 
 Once boiling, reduce the heat to medium-high and cook for 8-9 min or until thickened and slightly reduced
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676975236063-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Cut your green chilli[es]<span class="text-danger"> </span>in half lengthways, d
 
 Crush your cardamom pod[s] open by squashing them with the side of a knife and discard the outer green pods
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676975239707-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ Add the cardamom seeds to a food processor with the chopped chilli (not a fan of
 
 Add half the remaining chopped garlic (you'll use the rest later!), season with a pinch of pepper and blitz until smooth – this is your chilli zhoug
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676975242920-x200.jpg)
 
 ### Step 6
 
 Once the sauce has thickened, crack your egg[s] over the tomato sauce and cook, covered, for 4-5 min or until the eggs are cooked through – these are your one-pan poached eggs with harissa chickpeas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676975246146-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ Pack your plate with the fragrant flavours of Sri Lanka. You'll simmer charred a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1727172864634-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727172870896-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add 50ml<span class="text-purple"> [65ml]</span> <span class="text-danger">[85ml
 
 Once dissolved, add your chicken thighs to the marinade and give everything a good mix up until fully coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727172877678-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ Once hot, add the coated chicken to the pan and cook for 3-5 min on each side or
 
 While the chicken is cooking, trim the green stalk[s] off your aubergine[s] and chop, lengthways into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727172883761-x200.jpg)
 
 ### Step 4
 
 Once the chicken has lightly browned, transfer it to a baking paper-lined baking tray (save the pan!) and put the tray in the oven for 18-20 min or until cooked through (no pink meat!) – this is your coconut chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727172896769-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Crush your cardamom pods open by squashing them with the side of a knife
 
 Discard the outer green pods
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727172900810-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once the aubergine is charred, add your ginger & garlic paste with your tomato p
 
 Once fragrant, add your black mustard seeds, cardamom seeds, chilli flakes (can't handle the heat? Go easy!), remaining curry powder and turmeric to the pan, mix it all together and cook for 30 secs until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727172904963-x200.jpg)
 
 ### Step 7
 

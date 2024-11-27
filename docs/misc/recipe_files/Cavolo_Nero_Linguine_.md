@@ -19,7 +19,6 @@ Cavelo nero is a lovely dark Italian cabbage leaf, which is rich in antioxidants
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/319.-step1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Separate the leaves of the cavolo nero and discard the stalks
 
 Chop any large leaves into bite-size pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/319.-step2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Crush the garlic with the side of a knife, peel and chop finely
 
 Strip the thyme leaves and discard the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/319.-step3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: The cavolo nero will be further cooked in step 7, so aim for al-dente at th
 
 Remove from the pot (keeping the water boiling for step 5) with a slotted spoon and into a strainer
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/319.-step4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Gently squeeze out the excess water and set aside in a bowl until step 7
 
 Reserve the strainer for step 5
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/319.-step5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the pasta to the pot of boiling water from step 3 with a pinch of salt (opti
 
 Cook the pasta for 8-10 min or until cooked to your taste, stirring occasionally, then drain and retain a cup of pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/319.-step6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Add the onion and cook for 5-7 min, or until carmelized, stirring constantly
 
 Add the garlic and cook for 1 min, or until fragrant and browned slightly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/319.-step7-x200.jpg)
 
 ### Step 7
 

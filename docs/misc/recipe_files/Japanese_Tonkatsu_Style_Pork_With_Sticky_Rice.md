@@ -26,7 +26,6 @@ Rustle up a Japanese feast at home. For this signature dish, you’ll coat succu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728052679054-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728052690549-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728052696514-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add a generous splash of<span class="text-danger"> </span>milk to a shallow bowl
 
 Add the panko breadcrumbs to a separate plate
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728052702975-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Coat the flattened steak[s] in the flour, tap off the excess, then add them to t
 
 Tip: Make sure the steak[s] is fully coated in the breadcrumbs!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728052717525-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add the coated pork steak[s] and cook for 6-7 min on each side or unti
 
 Once done, transfer the pork Tonkatsu to a clean chopping board to rest for 2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728052722285-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add a drizzle of olive oil, a generous pinch of sugar and a pinch of salt and pe
 
 Give everything a good mix up – this is your dressed slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728052726987-x200.jpg)
 
 ### Step 7
 

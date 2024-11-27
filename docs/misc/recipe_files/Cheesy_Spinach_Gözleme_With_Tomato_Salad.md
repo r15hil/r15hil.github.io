@@ -27,7 +27,6 @@ Gözleme are delicious stuffed Turkish flatbreads and a streetfood favourite. Yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1667302408514-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Put a large baking paper-lined baking tray (or two) in the oven to heat up (this
 
 Combine the pizza base mix, yeast and 1 tsp <span class="text-danger">[2 tsp]</span> sugar in a bowl, then add 100ml <span class="text-danger">[200ml]</span> milk, 50ml<span class="text-danger"> [100ml] </span>warm water and a small drizzle of olive oil and give everything a good mix up with clean hands until a dough forms
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1667302434745-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Trim, then finely slice the spring onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1667302477114-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Chop the coriander roughly, including the stems
 
 Cut the lemon<span class="text-danger">[s]</span> into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1667302483879-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the chopped garlic, chopped shallot, baharat, ground cumin, most of the chop
 
 Give everything a good mix up until fully combined – this is your cheesy spinach filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1667302491375-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Divide the cheesy spinach filling between the dough rectangles, covering only ha
 
 Fold the other half of the dough over the filling and press down to seal, pushing as much air out as possible before pinching the edges of the dough closed – these are your cheesy spinach gözleme
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1667302494966-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ While the gözleme are cooking, cut the cucumber into quarters lengthways, then 
 
 Chop the cherry tomatoes in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1667302498967-x200.jpg)
 
 ### Step 7
 

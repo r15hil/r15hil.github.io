@@ -30,7 +30,6 @@ Switch up your chicken dinner with this Southeast Asian twist. You’ll coat jui
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716564778396-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716564925568-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Strip a few coriander leaves from their stalks and save for garnish
 
 Chop the remaining coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716564939515-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add your carrot, mooli slaw mix and chopped coriander (reserve the leaves for ga
 
 Give everything a good mix up – this is your ginger salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716564974615-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Mix until fully combined
 
 Cover your chicken breast portion[s] in cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1716564993616-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Add the chicken breast portion[s] to the bowl with 4 tsp<span class="text-purple
 
 Give everything a good mix up and, using your hands, scrunch the flour onto the chicken so that it is well coated – this is your coated chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1716565032702-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once hot, add your coated chicken to the pan and cook for 5-6 min on each side o
 
 Tip: Cooking for 5? You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716565115311-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Bring on the BBQ. You’ll coat chicken in a sticky tomato paste, Henderson’s 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708528740077-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your potatoes into small bite-sized pieces, then deseed your pepper[s] (scr
 
 Trim, then slice your spring onion[s] and drain your sweetcorn
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708528744564-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Combine your tomato ketchup, tomato paste, Henderson's Relish, most of your grou
 
 Add 140ml<span class="text-purple"> [180ml]</span> <span class="text-danger">[220ml]</span> cold water and a pinch of salt and give everything a good mix up – this is your BBQ sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708528748452-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708528753331-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your chicken breast portion[s] and cook for 3 min on each side or until golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708528760242-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Once the chicken is golden, remove the pan from the heat and add the BBQ sauce
 
 Return the pan to a medium-high heat, cover with a lid and cook for a further 10-12 min, stirring occasionally, until the chicken is cooked through (no pink meat!) – this is your smoky BBQ chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708528767754-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once hot, add the diced pepper with a pinch of salt and cook for 6-7 min or unti
 
 Once softened, add the drained sweetcorn to the pot and cook for a further 1-2 min or until the sweetcorn is warmed through – this is your pepper & corn salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708528771167-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Our Cookstarter finalist, La Pantera, is bringing the best of Mexican flavours w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617206863685-x200.jpg)
 
 ### Step 1
 
@@ -36,19 +35,16 @@ Add the cubed potatoes to a baking tray with a pinch of salt and pepper and a dr
 
 Put the tray in the oven for 20-25 min or until golden and cooked through – these are your parmentier potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617206895727-x200.jpg)
 
 ### Step 2
 
 Meanwhile, grate the carrot<span class="text-danger">[s]</span> (no need to peel)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617206922157-x200.jpg)
 
 ### Step 3
 
 Add the grated carrot to a bowl with the pickled red cabbage and a drizzle of olive oil, then give everything a good mix up and set aside for later – this is your cabbage slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617206935257-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Combine the mayo and chipotle paste in a small bowl – this is your chipotle m
 
 Strip the rosemary and thyme leaves from their stems, discard the stems
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617206979798-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Heat a large, dry, wide-based pan over a medium heat
 
 Once hot, add the diced chorizo and cook for 4-5 min or until golden and crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617206988797-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Cut the feta into small cubes
 
 Trim, then finely slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617207146260-x200.jpg)
 
 ### Step 7
 

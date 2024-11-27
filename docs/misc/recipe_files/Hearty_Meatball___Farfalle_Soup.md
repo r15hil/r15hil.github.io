@@ -26,7 +26,6 @@ Warm up with tender meatballs and pasta, simmered in a luscious tomato soup with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614004043952-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice 1/2 <span class="text-danger">[1]</span> brown onion
 
 Grate the remaining onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1614004052515-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up (clean hands is the best way!)
 
 Divide the mixture into 6 <span class="text-danger">[12]</span> and shape them into meatballs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614004063498-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, peel and chop (or grate) the garlic
 
 Top, tail and dice the carrot<span class="text-danger">[s]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1614004090700-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the sliced onion, chopped garlic and diced carrot to the pan and cook for 5-6 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614004101388-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the farfalle to a pot of boiled water with a large pinch of salt and bring t
 
 Cook the farfalle for 8-10 min or until cooked with a slight bite, then drain and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1614004132861-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Wash the spinach, then pat it dry with kitchen paper
 
 Once the veg has softened, add the tomato stock, spinach, 1/2 tsp <span class="text-danger">[1tsp]</span> sugar to the pan and cook, covered, for 8-10 min or until thickened – this is your soup base
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1614004181224-x200.jpg)
 
 ### Step 7
 

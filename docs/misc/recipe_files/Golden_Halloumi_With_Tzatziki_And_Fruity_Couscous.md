@@ -25,7 +25,6 @@ Bring some sunshine to your table in 10 minutes with couscous tossed with almond
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611657897524-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2271.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Strip the mint leaves from their stems and chop them roughly, discard the stem
 
 Cut your lemon[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2271.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your vegetable stock mix to a heatproof bowl with your sultanas, diced ap
 
 Add 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water, give everything a good mix up, cover and set aside for later – this is your fruity couscous
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2271.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add your natural yoghurt to a bowl with the grated cucumber and the chopped m
 
 Add a drizzle of olive oil and the juice of half your lemon wedges and stir it all together – this is your tzatziki
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2271.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut your halloumi into 3 slices per person
 
 Once hot, add the halloumi slices and cook for 1-2 min on each side or until golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2271.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Whilst the halloumi is cooking, dice your tomato[es]<span class="text-danger"> 
 
 Chop your dill roughly, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2271.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Settle in for a hearty dinner with this creamy stroganoff. You’ll stew mushroo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674831324089-x200.jpg)
 
 ### Step 1
 
@@ -35,13 +34,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674831332637-x200.jpg)
 
 ### Step 2
 
 While the rice is cooking, cut half your brown onion[s]<span class="text-danger"> </span>into wedges and dice the remaining onion finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674831347995-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and your ground paprika with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674831356815-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Slice your flat white mushrooms and chestnut mushrooms thickly
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674831363663-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Increase the heat to high and add all the chopped mushrooms to the pan with a ge
 
 Cook for 5-6 min or until the mushrooms have softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674831372134-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the mushrooms have softened, add 2 tsp <span class="text-purple">[3 tsp]</s
 
 Add the stock to the pan and cook for 4-5 min or until slightly thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674831380151-x200.jpg)
 
 ### Step 7
 

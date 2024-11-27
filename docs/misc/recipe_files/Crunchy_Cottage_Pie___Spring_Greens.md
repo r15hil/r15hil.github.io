@@ -25,7 +25,6 @@ This is a flavour-packed Mediterranean twist on the classic beef and vegetable c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/447_step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Chop the celery finely
 
 Peel and chop the&nbsp;<span class="text-highlight">brown</span> onion<span class="text-danger">[s]</span>&nbsp;finely&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/447_step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) with a matching lid ove
 
 Once hot, add the beef mince, breaking it up as you go and cook for 2-3 min, until starting to brown&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/447_step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Dissolve the beef stock cube<span class="text-danger">[s]</span>&nbsp;in 200ml <span class="text-danger">[400ml]</span>&nbsp;boiled water<span class="text-highlight">,&nbsp;add</span> the tomato ketchup, dried dill, Henderson's <span class="text-highlight">R</span>elish&nbsp;&amp; half of the dried oregano&nbsp;<span class="text-highlight">&ndash;</span> this is your stock mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/447_step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Add the stock mixture, mix well and season with plenty of pepper
 
 Bring to the boil over a high heat, then reduce the heat to medium-low and cook for 10 min, until most of the liquid has absorbed <span class="text-highlight">&ndash;</span> this is your beef mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/447_step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Add the croutons to a mixing bowl with the remaining oregano, 1 tbsp <span class
 
 Mix well
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/447_step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Put&nbsp;the dish in the oven for 15-20 min or until the topping is golden and t
 
 Meanwhile,&nbsp;cut the leaves off the spring greens, discard the tough stalks, then bunch&nbsp;up the leaves &amp; slice into thin strips
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/447_step-7-x200.jpg)
 
 ### Step 7
 

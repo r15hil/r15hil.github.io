@@ -27,7 +27,6 @@ Tuck into a vegetarian twist on this favourite. For an irresistible meat-free ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1648566700739-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a pot, with a matching lid, with a large knob of butter over a medium heat
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1648566704381-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1648566708273-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648566857310-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the diced onion and a pinch of salt and cook for 3-5 min or until
 
 Once softened, add your garam masala, ground turmeric, chopped garlic and chopped ginger and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1648566717535-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, chop any larger pieces of your meat-free chick'n into bite-sized piec
 
 Dissolve your vegetable stock mix in 250ml <span class="text-purple">[325ml]</span><span class="text-danger"> [450ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1648566797799-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the chopped meat-free chick'n to the pan and cook for 5-6 min or until it's
 
 Tip: Add an extra knob of butter if the meat-free chick'n is looking a little dry!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1648566783192-x200.jpg)
 
 ### Step 7
 

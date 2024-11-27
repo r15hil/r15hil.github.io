@@ -27,7 +27,6 @@ Take pasta bake up a level with a cheesy pasta bake. You’ll whip up an aromati
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688482964760-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688482968884-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Grate your cheddar cheese finely
 
 Drain and rinse your black beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688482972306-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add your sausage meat (remove the paper if required!) to the pan and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688482976583-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once done, drain the farfalle, reserving 100ml <span class="text-purple">[130ml]
 
 Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688482980221-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Cook for 4-5 min or until beginning to soften
 
 Once slightly softened, add your ground cumin, ground paprika and ground coriander with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>flour and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688482984068-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, add the drained farfalle to the pan with the reserved starchy pasta water and stir it all together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688482987653-x200.jpg)
 
 ### Step 7
 

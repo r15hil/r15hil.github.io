@@ -23,7 +23,6 @@ This golden bowlful is inspired by paella, but instead of rice you'll simmer orz
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2208.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the red pepper strips with a pinch of salt and cook for 5-6 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2208.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Peel and finely slice (don't chop!) the garlic
 
 Dissolve 1/2 <span class="text-danger">[1]</span> Knorr vegetable stock cube in 500ml<span class="text-danger"> [900ml] </span>boiled water and add the saffron – this is your saffron stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2208.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,13 +50,11 @@ Add the saffron stock, reduce the heat to medium-low and cook, covered, for 15 m
 
 Tip: Stir the orzo occasionally to stop it from sticking!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2208.-step-4-x200.jpg)
 
 ### Step 4
 
 While the orzo is cooking, chop the parsley finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2208.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once the orzo is almost cooked, heat a separate, large, wide-based pan (preferab
 
 Once hot, add the king prawns and cook for 4-5 min or until cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2208.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Season the orzo with a generous grind of pepper and squeeze in the juice of 1/2 
 
 Taste for seasoning, adding more salt if needed – this is your red pepper & saffron orzo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2208.-step-7-x200.jpg)
 
 ### Step 7
 

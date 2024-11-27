@@ -26,7 +26,6 @@ This Swiss stew is the cream of the crop. You’ll simmer chicken thighs, carrot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1732007995654-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688741377678-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Boil half a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688741394090-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Once the dish is hot, add your chicken thighs with a generous pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688741385397-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add 200ml<span class="text-purple"> [250ml] </span><span class="text-danger">[35
 
 Crumble in your chestnut mushrooms and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688741397458-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once boiling, add your dried thyme
 
 Cover with a lid and put the dish in the oven for 40-45 min or until the chicken is cooked through (no pink meat!) and the vegetables are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688741400852-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add a drizzle of olive oil and put the tray[s] in the oven for 40-45 min or unti
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688741404729-x200.jpg)
 
 ### Step 7
 

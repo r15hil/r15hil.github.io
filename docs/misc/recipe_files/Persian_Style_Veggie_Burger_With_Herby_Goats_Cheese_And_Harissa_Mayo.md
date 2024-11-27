@@ -25,7 +25,6 @@ To add a Middle Eastern twist to these meat-free burgers, you'll top cumin-spice
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629199831623-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629199834271-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Line a baking tray with non-stick baking paper
 
 Add the coated meat-free patty[ies]  to the tray and put the tray in the oven for 10-12 min or until cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629199846395-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Chop your coriander roughly, including the stalks
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629199842717-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add your chopped coriander to a bowl and crumble in your goats' cheese
 
 Add a drizzle of olive oil and a generous pinch of pepper and stir it all together – this is your herby goats' cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629199850437-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add both to a separate bowl with your red wine vinegar and a pinch of salt
 
 Give everything a good mix up – this is your zingy carrot & sultana slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629199854408-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat
 
 Once hot, add the ciabatta halves, cut side down, and cook for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629199858859-x200.jpg)
 
 ### Step 7
 

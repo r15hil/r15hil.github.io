@@ -27,7 +27,6 @@ This pizza is made with tortillas, and it’s a share-worthy feast. To make this
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2309-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2309-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 4 tbsp<span class="text-danger"> <span class="text-purple">[6 tbsp] </span>[8 tbsp] </span>cold water and give everything a good mix up – this is your tomato sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2309-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Slice your black olives in half
 
 Peel and finely slice your red onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2309-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2309-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add your tortillas to a baking tray (or two!) and spread the tomato sauce even
 
 Top the tortillas with the torn mozzarella
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2309-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Drizzle everything with 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><sp
 
 Put the tray[s] in the oven for 8-10 min or until the cheese has melted and the tortillas are crispy – this is your tortilla pizza
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2309-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ For this hearty salad, you'll layer meat-free sausages over crisp apple, sweet r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599208934735-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut the red onions into wedges, leaving the skins on (this helps them cook quicker!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1583502533161-x200.jpg)
 
 ### Step 2
 
@@ -41,13 +39,11 @@ Drizzle the onion wedges with olive oil
 
 Put the tray in the oven for 25-30 min or until the sausages are cooked through and the onions are tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1583502537233-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine the wholegrain mustard, honey and cider vinegar with 3 tbsp <span class="text-danger">[6 tbsp]</span> olive oil and a pinch of salt and pepper in a small bowl – this is your honey mustard dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583502540888-x200.jpg)
 
 ### Step 4
 
@@ -57,13 +53,11 @@ Drizzle them very generously with olive oil and season with a pinch of salt an
 
 Put the tray in the oven for 6-8 min or until golden and crispy – these are your croutons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1583502545088-x200.jpg)
 
 ### Step 5
 
 While the croutons are in the oven, cut the apple<span class="text-danger">[s]</span> (skins on) into matchsticks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583502549816-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Add the lettuce, apple matchsticks, croutons, roasted red onion and most of the 
 
 Stir it all together – this is your honey mustard & apple salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583502574538-x200.jpg)
 
 ### Step 7
 

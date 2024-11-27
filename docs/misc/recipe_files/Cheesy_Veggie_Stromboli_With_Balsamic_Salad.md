@@ -27,7 +27,6 @@ Say yes to stromboli with this American twist on traditional pizza. You’ll lay
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678802263677-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Drain your mozzarella, then pat and squeeze as much liquid out as you can with kitchen paper and tear into rough, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678802267952-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a pot with a drizzle of olive oil over a medium heat, then add the sliced g
 
 Once fragrant, add your chopped tomatoes, dried basil, a pinch of sugar and your vegetable stock mix, then reduce the heat to low and cook for 5-6 min or until thickened – this is your tomato sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678802271998-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or unti
 
 Whilst the onion is cooking, add your dried yeast to a large bowl with 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>warm water and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar, give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678802275788-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, add your pizza base mix to the bowl with the yeast
 
 Gradually add up to 60ml <span class="text-purple">[90ml]</span> <span class="text-danger">[120ml]</span> warm water (you may not need all of it), a little at a time, and gently mix with a plastic spatula until a sticky dough ball has formed
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678802281420-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Roll out the dough to approx. 0.5cm thickness with a rolling pin (no need to kne
 
 Add the rolled dough to a baking paper-lined baking tray (or two), then spread half the tomato sauce (save the rest for later!) and the stromboli filling all over the dough and top with the torn mozzarella
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678802285575-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Brush with a little milk and sprinkle over your dried oregano – this is your 
 
 Put the tray[s] in the oven for 22-25 min or until golden and cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678878438446-x200.jpg)
 
 ### Step 7
 

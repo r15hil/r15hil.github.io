@@ -28,7 +28,6 @@ Butter up your crispy basa with a mouthwatering honey, lime and sesame sauce. Se
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1731664023690-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Add the sweet potato wedges to a baking tray (or two) with a drizzle of vegetable oil and a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657546085430-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add 20g <span class="text-purple">[30g]</span> <span class="text-danger">[40g]</
 
 Add your toasted sesame seeds, honey and half your soy sauce (save the rest for later!) to the bowl and mix everything together – this is your sesame butter mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657546094456-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Trim, then slice your spring onion[s]
 
 Cut your lime[s] into 2 wedges per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657546098638-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Return the tray[s] to the oven and cook for a further 10-15 min or until the swe
 
 Add the chopped ginger, chopped garlic and a tiny splash of cold water to the remaining sesame butter mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1657546104815-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Sprinkle your cornflour all over and rub it into both sides of the fish until fu
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657546111002-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once hot, add the coated basa with a pinch of salt and cook for 3-4 min on each 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657546115769-x200.jpg)
 
 ### Step 7
 

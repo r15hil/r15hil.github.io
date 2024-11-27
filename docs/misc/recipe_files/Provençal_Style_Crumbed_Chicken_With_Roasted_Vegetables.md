@@ -26,7 +26,6 @@ For a taste of the Mediterranean, you'll sprinkle chicken with cheesy breadcrumb
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675790561837-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Chop your waxy potatoes (skins on) into bite-sized pieces, then add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil and a pinch of salt, put the tray[s] in the oven for an initial 10 min or until beginning to turn golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675790572970-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the diced courgette to a bowl with your dried oregano, a generous pinch of
 
 Cut your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675790581405-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once the potatoes have had 10 min, remove the tray[s] from the oven and add the 
 
 Give everything a good mix up and return the tray[s] to the oven for a further 5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675790592001-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ While the vegetables are in the oven, grate your cheddar cheese
 
 Combine the grated cheese and panko breadcrumbs in a small bowl – these are your cheesy breadcrumbs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675790601734-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Transfer the flattened chicken to a plate and drizzle with olive oil
 
 Then press the cheesy breadcrumbs firmly into the chicken to evenly coat all over – this is your crumbed chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675790610963-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ After the courgette and tomatoes have had 5 min, remove the tray[s] from the ove
 
 Return the tray[s] to the oven for 20 min further or until the breadcrumbs are crisp and golden and the chicken is cooked through (no pink meat!) – this is your Provençal-style crumbed chicken and roasted vegetables
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675790620137-x200.jpg)
 
 ### Step 7
 

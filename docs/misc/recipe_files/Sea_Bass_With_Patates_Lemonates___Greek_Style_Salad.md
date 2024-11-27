@@ -25,7 +25,6 @@ Taste the Aegean with this sunshine-filled supper. Pan-fry sea bass before servi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1715248270896-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop 2/3 of the red onion[s] into wedges, reserve the remaining red onion
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1715248274067-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add a drizzle of vegetable oil and season with a pinch of salt
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20 min or until the potatoes have slightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715248277310-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Slice the remaining red onion finely
 
 Cut your cucumber into quarters lengthways, then slice roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1715248280776-x200.jpg)
 
 ### Step 4
 
 Add the juice from half the peeled lemon[s] (you'll use the rest later!) to a bowl with 2 tbsp<span class="text-purple"> [2 1/2 tbsp]<span class="text-danger"> </span>[3 tbsp] </span>olive oil and a pinch of salt and sugar and give everything a good mix up – this is your lemon dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1715248285743-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add the chopped cucumber, sliced onion, your black olives and chopped cherry tom
 
 Crumble your feta in roughly, add your remaining dried oregano and toss – this is your Greek-style salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1715248289306-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Return the tray[s] to the oven for 10 min or until golden and slightly caramelis
 
 Cut the squeezed lemon half[ves] into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715248292262-x200.jpg)
 
 ### Step 7
 

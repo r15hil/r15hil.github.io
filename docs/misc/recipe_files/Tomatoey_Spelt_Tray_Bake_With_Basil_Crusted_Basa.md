@@ -25,7 +25,6 @@ Treat your taste buds to the flavours of Italy with this mouthwatering tray bake
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649176273394-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds a
 
 Crush 2 <span class="text-danger">[4]</span> garlic cloves open by squashing with the side of a knife and remove the skins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649176281985-x200.jpg)
 
 ### Step 2
 
 Dissolve the vegetable stock mix, tomato paste, smoked paprika, dried oregano and a pinch of sugar in 300ml <span class="text-danger">[600ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649176290679-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Pour over the tomato stock, add a generous grind of pepper and cover with tin fo
 
 Put the dish in the oven for an initial 30 min – this is your tomatoey spelt tray bake
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649176300851-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and mix well – 
 
 Tip: If you don't have a pestle and mortar, chop everything very finely and mix with the oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649176312488-x200.jpg)
 
 ### Step 5
 
 Combine the basil oil with the panko breadcrumbs in a small bowl – these are your basil breadcrumbs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649176321084-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Return the dish to the oven for 12-15 min or until the fish is cooked through an
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649176333665-x200.jpg)
 
 ### Step 7
 

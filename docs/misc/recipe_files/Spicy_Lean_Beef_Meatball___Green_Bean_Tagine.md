@@ -27,7 +27,6 @@ For this Moroccan-style stew, you'll roll homemade meatballs with British lean b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646764989210-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely slice 1/2 <span class="text-danger">[1] </span>brown onion, the
 
 Dissolve half the chicken stock mix (save the rest for later!) in 200ml <span class="text-danger">[350ml] </span>boiled water and add the sultanas – this is your sultana stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1646764997364-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Combine the lean beef mince in a large bowl with the grated onion, panko breadcr
 
 Divide the mixture into 10 <span class="text-danger">[20]</span> and shape into meatballs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1646764999256-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the lean beef meatballs to the pan and cook for 4-5 min until bro
 
 Once browned, transfer the browned meatballs to a plate and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646765005269-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil an
 
 Once hot, add the sliced onion and chopped garlic and cook for 3-4 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646765009224-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once the onion has softened, add the ground coriander and the remaining ground c
 
 Add the chopped tomatoes and sultana stock, give everything a good mix up and cook for 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646765012026-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add the bulgur wheat and chickpeas to the pot and reduce the heat to very low
 
 Cook, covered, for 15 min or until all of the water has been absorbed and the bulgur is cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646765016441-x200.jpg)
 
 ### Step 7
 

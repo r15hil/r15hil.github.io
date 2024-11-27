@@ -25,7 +25,6 @@ Flavoured with miso paste – a traditional Japanese seasoning made from soy bea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/420_step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/420_step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Combine the miso paste with 1 tbsp <span class="text-danger">[2 tbsp]</span> bo
 
 Chop the coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/420_step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Bring to the boil and cook over a high heat for 4-7 min until the noodles are co
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/420_step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Meanwhile, heat a large, dry wide-based pan (preferably non-stick) over a high h
 
 Once hot, add the sliced red pepper and cook for 3-5 min until starting to blacken slightly and char (this adds a smoky flavour)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/420_step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, slice the chicken breast<span class="text-danger">[s]</span> into eq
 
 Once the peppers are charred, transfer them to a plate and return the pan to a medium-high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/420_step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Cook for 2 min, or until the chicken starts to turn golden, then add the chopped
 
 Cook for a further 2 min, or until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/420_step-7-x200.jpg)
 
 ### Step 7
 

@@ -32,7 +32,6 @@ Make veg the main event with this twist on an Indian classic. You’ll roast squ
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1668518416991-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Tip: Drizzle the knife with a little vegetable oil for easier chopping
 
 Scoop out the seeds with a spoon and discard, then slice, lengthways, into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668518422046-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Put the tray in the oven for 20-25 min or until the butternut squash is cooked t
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668518425276-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once hot, add your pine nut & seed mix and cook for 2-3 min or until toasted and
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668518429000-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once hot, add the crushed cardamom pods, dried lime leaves, ginger & garlic past
 
 Once fragrant, add your chopped tomatoes and cook for 1-2 min or until slightly thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1668518432592-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once slightly thickened, add the vegetable stock and creamy single soy to the pa
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until the sauce has thickened to a curry-like consistency – this is your makhani sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668518437514-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ While the sauce is thickening, chop your coriander finely, including the stalks
 
 Combine the chopped coriander with the toasted pine nut & seeds – this is your seed crumble
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1668518441169-x200.jpg)
 
 ### Step 7
 

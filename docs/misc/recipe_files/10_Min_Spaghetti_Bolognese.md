@@ -24,7 +24,6 @@ A classic, ready in 10 minutes. While you pack the beef bolognese with flavour, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1633.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Trim, then chop the spring onions roughly (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1633.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the beef mince to the pan and cook for 3-4 min, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1633.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cook the quick cook spaghetti for 3-4 min or until cooked with a slight bite
 
 Once done, drain the quick cook spaghetti and return it to the pot with a drizzle of olive oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1633.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tear the chestnut mushrooms into the pan
 
 Add the chopped spring onion, roasted garlic paste and dried oregano and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1633.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the tomato frito with 100ml <span class="text-danger">[200ml]</span> water 
 
 Once boiling, cook for 2-3 min or until the sauce has thickened and the beef mince is cooked through (no pink meat!) – this is your beef bolognese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1633.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -19,7 +19,6 @@ Hartington sausages are speciality blue cheese sausages from a village in the Pe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/558.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Hartington sausages are speciality blue cheese sausages from a village in the Pe
 
 <span class="text-highlight">Slice the spring onion[s] finely, discarding the root ends</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/558.-step-2-x200.jpg)
 
 ### Step 2
 
 <span class="text-highlight">Add the potatoes to a pot of salted boiling water over a high heat and cook for 15-20 min or until fork tender&nbsp;</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/558.-step3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Hartington sausages are speciality blue cheese sausages from a village in the Pe
 
 <span style="background-color: #ffff00;">Layer the leaves over each other then roll them up and slice them into thin strips&nbsp;</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/558.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Hartington sausages are speciality blue cheese sausages from a village in the Pe
 
 <span class="text-highlight">Cook for 4-5 min, then add a splash of water, cover and cook for a further 2 min</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/558.-step5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Hartington sausages are speciality blue cheese sausages from a village in the Pe
 
 <span class="text-highlight">Mash thoroughly until smooth - this is your colcannon</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/558.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Hartington sausages are speciality blue cheese sausages from a village in the Pe
 
 <span class="text-highlight">Cover and cook for 4-5 min or until the apples are soft&nbsp;</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/558.-step7-x200.jpg)
 
 ### Step 7
 

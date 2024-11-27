@@ -25,7 +25,6 @@ Say yes to veg with this creamy plant-based spaghetti. You’ll whip up a speedy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1664291826055-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664291769432-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664291774542-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664291780126-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add your creamy single soy and wilted spinach to a large bowl with your roasted 
 
 Season with a generous pinch of salt and pepper – this is your plant-based creamy spinach & basil sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664291784038-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ Once hot, add your pine nut & seed mix and cook for 2-3 min or until toasted and
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664291788114-x200.jpg)
 
 ### Step 6
 
 Once the spaghetti has cooked, add the plant-based creamy spinach & basil sauce and blanched peas to the pot and cook for 1-2 min or until heated through – this is your plant-based creamy spinach & basil spaghetti
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664291792400-x200.jpg)
 
 ### Step 7
 

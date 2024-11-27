@@ -30,7 +30,6 @@ Nothing beats sticky, smoky bacon jam in a burger. You'll smother it on top of c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602249046856-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely chop your red onion[s]<span class="text-danger"> </span>and<span
 
 Chop your smoked streaky bacon roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1602249054038-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the chopped bacon and cook for 4-5 min or until starting to crisp
 
 Once crisp, reduce the heat to low, add the chopped onion and chopped garlic and cook for 10-15 min or until everything is beginning to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602249149551-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil, half y
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and cooked through – these are your sweet potato fries
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1602249777053-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your panko breadcrumbs to a plate
 
 Coat your chicken breast portion[s] in the beaten egg, then press firmly into the panko breadcrumbs until evenly coated – this is your breaded chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2731---step-5-copy-2-1607526328384-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Put the tray in the oven for 20-25 min or until the chicken is golden and cooked
 
 Meanwhile, boil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602249192736-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Tip: Watch the jam like a hawk to make sure it doesn't burn!
 
 Cut your brioche bun[s] in half, then add to a baking tray (cut-side up) and put the tray in the oven for 4-5 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602249233020-x200.jpg)
 
 ### Step 7
 

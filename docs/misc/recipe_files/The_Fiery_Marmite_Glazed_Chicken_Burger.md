@@ -25,7 +25,6 @@ Hot, sticky Marmite glazed chicken? Yes please! Prepare your taste buds for doub
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619784858882-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut your potatoes (skins on) into chips
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619784866069-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Add a drizzle of vegetable oil and a pinch of salt and pepper to the chips and g
 
 Put the tray[s] in the oven for 30 min or until the chips are golden and the pepper has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619784873537-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine your honey with your Marmite, cayenne pepper (can't handle the heat? Go easy!) and 1 tbsp <span class="text-purple">[1 1/2 tbsp</span>] <span class="text-danger">[2 tbsp]</span> cold water in a bowl and give everything a good mix up – this is your fiery Marmite glaze
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619784882625-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add your cornflour to a separate bowl with a pinch of salt and pepper
 
 Add the chicken strips and give everything a good mix up – this is your coated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619784892600-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Tip: Cooking for 3 or more? You may need to do this in batches!
 
 Once golden, transfer to a plate and set aside for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1-1619784903549-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Tip: Add more oil to the pan if it is looking a little dry
 
 Meanwhile, slice your red chilli[es] finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1619784920214-x200.jpg)
 
 ### Step 7
 

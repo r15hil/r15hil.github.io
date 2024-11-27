@@ -26,7 +26,6 @@ Comforting, tasty and easy to make, this one's like a classic biryani – but wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1367.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Drizzle the&nbsp;cauliflower&nbsp;with&nbsp;vegetable oil,&nbsp;season generousl
 
 Put the tray in the oven for 20 min or until the cauliflower is golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1367.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -59,7 +57,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1367.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with a 
 
 Once&nbsp;hot, add the&nbsp;diced shallot&nbsp;and cook for 3 min until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1367.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Dissolve the chopped coconut cream&nbsp;and&nbsp;vegetable stock cube<span class
 
 Once the&nbsp;shallot has softened, add the curry powder, garam masala,&nbsp;turmeric and chopped ginger and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1367.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Tip: if the quinoa is looking a little dry, add a splash of water to loosen the 
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1367.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Once the quinoa&nbsp;is done, add the shredded kale to the pan and cook, covered
 
 Taste for seasoning, adding&nbsp;salt&nbsp;and pepper if needed &ndash; this is your&nbsp;curried coconut quinoa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1367.-step-7-x200.jpg)
 
 ### Step 7
 

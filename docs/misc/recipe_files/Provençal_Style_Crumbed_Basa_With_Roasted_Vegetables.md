@@ -25,7 +25,6 @@ For a taste of the Mediterranean, you'll sprinkle fish fillets with cheesy bread
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1683.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil 
 
 Put the tray[s] in the oven for an initial 15 min or until beginning to turn golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1683.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the diced courgette to a bowl with your dried oregano, a generous pinch o
 
 Cut your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1683.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once the potatoes have had 15 min, remove the tray[s] from the oven and add the
 
 Give everything a good mix up and return the tray[s] to the oven for a further 10 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1683.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ While the vegetables are in the oven, grate your cheddar cheese
 
 Combine the grated cheese and panko breadcrumbs in a small bowl – these are your cheesy breadcrumbs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1683.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Return the tray[s] to the oven for 12-15 min further or until the breadcrumbs a
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1683.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ While the fish is cooking, chop your parsley finely, including the stalks
 
 Peel and finely chop (or grate) your garlic
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1683.-step-7-x200.jpg)
 
 ### Step 7
 

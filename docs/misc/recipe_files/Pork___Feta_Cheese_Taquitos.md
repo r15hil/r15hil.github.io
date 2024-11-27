@@ -30,7 +30,6 @@ Lighten up this signature Mexican dish with a twist on classic deep-fried tacos.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1681201061335-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1681201066156-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until
 
 Once starting to soften, increase the heat to high, then add your pork mince (remove the paper if required!) and cook for a further 5-6 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1681201071602-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Chop your cherry tomatoes into quarters
 
 Chop your coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1681201075791-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the chopped cherry tomatoes to a bowl with the chopped coriander, a pinch of
 
 Stir it all together – this is your tomato salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1681201079261-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once the pork mixture is cooked through, divide it evenly between your tortillas
 
 Roll the tortillas tightly to form a cigar shape – these are your pork taquitos
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1681201083241-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the pork taquitos to a baking tray (or two!) with the seam facing down
 
 Put the tray[s] in the oven for 8-10 min or until they're starting to brown around the edges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1721728981190-x200.jpg)
 
 ### Step 7
 

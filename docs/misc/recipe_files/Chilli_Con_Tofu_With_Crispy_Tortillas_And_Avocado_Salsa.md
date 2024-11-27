@@ -26,7 +26,6 @@ Looking for a protein-rich chilli? Give this a go. Tofu's mild flavour is great 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1610451498219-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Remove the stone<span class="text-danger">[s]</span> using a spoon, then scoop o
 
 Chop the coriander finely, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1610451527232-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Drain the tofu and pat it dry with kitchen paper
 
 Crumble the tofu into a separate bowl, add the soy sauce and give everything a good mix up – this is your soy tofu
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1610451536317-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the soy tofu to the pan with the ground smoked paprika, ground cumin and chilli flakes (can't handle the heat? Go easy!) and cook for 3-4 min or until starting to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1610451578585-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the tortilla triangles to a baking tray (or two!), drizzle them with olive o
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 6-7 min or until starting to turn golden and crisp – these are your crispy tortillas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1610451599391-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Drain and rinse the black beans
 
 Dissolve the vegetable stock mix in 100ml <span class="text-danger">[200ml] </span>boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1610451730579-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the drained black beans to the pan with the chopped tomatoes, vegetable stoc
 
 Add 1 tsp <span class="text-danger">[2 tsp] </span>sugar and a pinch of salt, bring to the boil over a high heat and cook for 3-4 min or until thickened to a chilli-like consistency – this is your chilli con tofu
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1610451743222-x200.jpg)
 
 ### Step 7
 

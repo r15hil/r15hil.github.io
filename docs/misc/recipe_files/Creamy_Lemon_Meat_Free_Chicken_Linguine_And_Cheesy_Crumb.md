@@ -23,7 +23,6 @@ This zesty yet indulgent pasta ticks all the boxes. You'll coat linguine with a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632824661020-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the meat-free chicken and cook for 5-6 min or until brown all over, then transfer to a plate and set aside for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632824669192-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Return the pan to a medium-low heat with a knob of butter
 
 Once hot, add the sliced leek with a pinch of salt and pepper and cook for 8-9 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632824673751-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Add the linguine to a pot of boiled water with a large pinch of salt and bring t
 
 Cook the linguine for 8-10 min or until cooked with a slight bite, then drain, reserving a cup of starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632824677418-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Zest the lemon<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632824681614-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Add the panko breadcrumbs to a baking tray with half the chopped garlic, half th
 
 Give everything a good mix up, then and put the tray in the oven for 4-5 min or until golden – this is your cheesy crumb
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632824687187-x200.jpg)
 
 ### Step 6
 
 Transfer the cooked meat-free chicken to the softened leek along with the remaining chopped garlic and the vegetable stock mix and cook for 1 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632824691533-x200.jpg)
 
 ### Step 7
 

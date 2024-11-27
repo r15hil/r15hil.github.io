@@ -25,7 +25,6 @@ Our finger food is perfect for adding the wow-factor to your festive celebration
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1866.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Our finger food is perfect for adding the wow-factor to your festive celebration
 
 <span class="text-highlight">Soak your skewers in cold water (this prevents them from burning whilst cooking)</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1866.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Peel (scrape the skin off with a teaspoon) and grate the ginger 
 
 Peel and grate the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1866.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the toasted sesame oil, mirin, soy sauce, r<span class="text-highlight">ice vinegar</span>, grated ginger, grated garlic and honey to a bowl – this is your yakitori sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1866.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Cut the chicken breast<span class="text-danger">[s]</span> into bite-sized piece
 
 Add the chopped chicken to a separate bowl with <span class="text-highlight">3/4</span> of the yakitori sauce (save the rest for dipping <span class="text-highlight">later)</span> stir well – this is your marinated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1866.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Thread the marinated chicken equally across the soaked skewers and add them to a
 
 Tip: use baking paper to avoid mess!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1866.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Pour any remaining chicken marinade over the skewers
 
 Put the tray in the oven for 12-15 min or until the sauce has caramelised and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1866.-step-7-x200.jpg)
 
 ### Step 7
 

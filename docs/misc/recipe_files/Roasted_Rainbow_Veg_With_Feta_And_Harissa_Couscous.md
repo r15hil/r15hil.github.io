@@ -28,7 +28,6 @@ For a taste of the Middle East, you'll serve caramelised roasted vegetables over
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/601.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Boil half a kettle
 
 Remove your cooked beetroot from its packaging and reserve the juice in a small mixing bowl for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/601.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Cut each beetroot into wedges
 
 Top, tail, peel and chop your carrot[s] into quarters lengthways, then into batons
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/601.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Sprinkle with your ground smoked paprika, add a generous drizzle of olive oil a
 
 Put the tray[s] in the oven for an initial 15 min or until the carrot batons are almost tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/601.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Meanwhile, dissolve your vegetable stock mix in 200ml <span class="text-purple"
 
 Add your couscous to the harissa stock, cover and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/601.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, set the toasted pumpkin seeds aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/601.-step-7-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the carrot and beetroot have had their initial 15 min, crumble over your fe
 
 Return the tray[s] to the oven for another 5 min – this is your roasted rainbow veg with feta
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/601.-step-6-x200.jpg)
 
 ### Step 7
 

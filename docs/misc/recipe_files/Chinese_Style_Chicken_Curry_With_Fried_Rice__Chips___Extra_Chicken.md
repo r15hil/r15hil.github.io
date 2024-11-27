@@ -32,7 +32,6 @@ Time for a cheeky Chinese. You’ll whip up a quick chicken curry packed with sw
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1730469803309-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once done, transfer the rice to a plate and spread it out flat to help it cool down, reserve the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1730469810520-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Cut your potato[es] (skins on) into chips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730469957378-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the chips to a baking tray (or two!) with your five-spice mix, a drizzle of
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your salt & pepper chips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1730469962834-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped chicken (cooking for 4 or more? Use two pans!) and onion petals with a pinch of salt and cook for 4-5 min or until the chicken has started to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1730469857961-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once the chicken has browned, add 25g <span class="text-purple">[40g]</span> <sp
 
 Once the butter has melted, add the grated carrot, curry powder and ginger & garlic paste to the pan and cook for 4 min further until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1730469864154-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Meanwhile, dissolve your cornflour in 100ml <span class="text-purple">[150ml]</s
 
 Add the cornflour mixture to the pan and cook for 2-3 min further until the sauce has thickened – this is your Chinese-style chicken curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730469971240-x200.jpg)
 
 ### Step 7
 

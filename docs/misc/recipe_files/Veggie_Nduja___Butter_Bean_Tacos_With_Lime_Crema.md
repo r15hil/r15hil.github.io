@@ -26,7 +26,6 @@ Take taco night to new heights with spicy meat-free ‘nduja-baked butter beans,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1704803289271-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Drain and rinse your butter beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1704803291939-x200.jpg)
 
 ### Step 2
 
@@ -48,25 +46,21 @@ Add a drizzle of olive oil and a pinch of salt, then give everything a good mix 
 
 Put the dish in the oven for an initial 20 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1704803295115-x200.jpg)
 
 ### Step 3
 
 Grate your cheddar cheese finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1704803298369-x200.jpg)
 
 ### Step 4
 
 Chop your coriander finely, including the stalks (save some leaves for garnish!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1704803301808-x200.jpg)
 
 ### Step 5
 
 Combine the juice of half your lime[s], the chopped coriander and your soured cream in a small bowl with a pinch of salt and pepper – this is your coriander lime crema
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1704803305532-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Wash your lettuce, then pat dry with kitchen paper and shred finely
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1704803308529-x200.jpg)
 
 ### Step 7
 

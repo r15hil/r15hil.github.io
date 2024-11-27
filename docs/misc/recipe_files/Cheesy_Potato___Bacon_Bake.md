@@ -20,7 +20,6 @@ Is there a tastier duo than cheese and bacon? You’ll rustle up a creamy bacon 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681204612247-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the potato discs to a baking paper-lined baking tray (or two!) with a drizz
 
 Put the tray[s] in the oven for 15-20 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681204615966-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the chopped bacon and cook for 4-5 min or until beginning to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681204619972-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once the bacon is beginning to crisp, reduce the heat to medium and add the slic
 
 Cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681204623387-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ While the onion is cooking, boil half a kettle
 
 Grate your cheddar cheese finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681204627070-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Dissolve your soft cheese with 200ml <span class="text-purple">[260ml]</span><sp
 
 Wash your salad and pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681204630123-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once melted, add 1 1/2 tbsp <span class="text-purple">[2 1/4 tbsp]</span><span c
 
 Add the stock to the pan with a generous grind of black pepper and half the grated cheese (you'll use the rest later!), give everything a good mix up and cook for 2-3 min or until slightly thickened – this is your cheesy bacon sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681204633386-x200.jpg)
 
 ### Step 7
 

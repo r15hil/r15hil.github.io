@@ -26,7 +26,6 @@ Time for some proper pub grub with a hint of spice. You’ll take scotch eggs up
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721295968569-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your egg[s] to a pot of boiled water and bring to the boil over a high heat
 
 Once boiling, cook for exactly 5 min, then fill a bowl of very cold water and add the cooked egg[s] to the bowl to cool down quickly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721296057005-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the chips to a baking tray (use baking paper to avoid mess!) with a drizzle 
 
 Give everything a good mix up and set the tray aside until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721296060295-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add a sheet of baking paper to your chopping board and sprinkle over a generous 
 
 Remove your sausages from their skins and combine to form 1 giant meatball per person, then flatten the meatball[s] into a circle (big enough to coat an egg) onto the floured baking paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721296067200-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the peeled egg[s] to the centre of your sausage meat circle[s]
 
 Wrap the sausage meat around the egg and seal it tightly on all sides so that there aren't any gaps – this is your sausage-coated egg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721296071334-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add a generous drizzle of olive oil to a separate plate
 
 Turn the sausage-coated egg[s] in the olive oil, shake off the excess, then add to the spiced breadcrumbs and press firmly until evenly coated all over – this is your breaded egg
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721296075260-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the breaded egg[s] to a baking paper-lined baking tray and put the tray in t
 
 Meanwhile, combine your tomato ketchup and sriracha in a bowl – this is your spicy ketchup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721296080968-x200.jpg)
 
 ### Step 7
 

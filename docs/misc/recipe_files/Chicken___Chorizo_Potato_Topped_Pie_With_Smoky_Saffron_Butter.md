@@ -28,7 +28,6 @@ This Spanish-style dinner is easy as pie. You’ll simmer chicken and chorizo in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715959330439-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your waxy potatoes in half, add them to a pot of plenty of boiled water and
 
 Once fork-tender, drain and return to the pot with a drizzle of olive oil and a pinch of salt and pepper, then crush the seasoned potatoes lightly with a fork – these are your crushed potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715959333544-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Trim your green beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715959337219-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Chop your parsley finely, including the stalks
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> boiled water and 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> milk – this is your creamy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715959341278-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chicken breast and diced chorizo and cook for 4-5 min or until golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715959345443-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once golden, add the diced onion and pepper and cook for 4-5 min or until soften
 
 Once softened, add half your ground smoked paprika and 2/3 of the chopped garlic (save the rest for later!) with 1/2 tbsp <span class="text-purple">[1 tbsp]</span> <span class="text-danger">[1 1/2 tbsp]</span> flour and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715959348918-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Transfer the chicken & chorizo pie filling to an oven-proof dish and top with th
 
 Put the dish in the oven for 15-18 min or until golden – this is your chicken & chorizo potato-topped pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715959352878-x200.jpg)
 
 ### Step 7
 

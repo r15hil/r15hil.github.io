@@ -29,7 +29,6 @@ With this recipe, you'll get that Friday feeling any day of the week! You'll mak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690884530449-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Slice your free range chicken breast portion[s] into thin strips
 
 Cut your pepper[s] in half (scrape the seeds out with a teaspoon) and slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690884532596-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Cook for 10-12 min or until the chicken is cooked through (no pink meat!) – this is your tandoori-style chicken & peppers
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690884535276-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Meanwhile, add most of the chopped garlic (save the rest for later!) to a bowl w
 
 Add 5<span class="text-danger"> </span>tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> water and give it a good mix up – this is your pizza sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690884537440-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690884540625-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Remove the heated tray[s] from the oven and add your pizza base[s]
 
 Spread the pizza sauce evenly over the pizza base[s], then top with the tandoori-style chicken & peppers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690884543764-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Top the pizza with the torn mozzarella and then put the tray[s] into the oven fo
 
 Tip: Make sure the pizzas don't overlap on the tray to avoid raw dough!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690884546308-x200.jpg)
 
 ### Step 7
 

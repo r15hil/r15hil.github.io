@@ -27,7 +27,6 @@ Enter a new age of deliciousness, with the genius combo of melty cheese sauce an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662453433154-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the macaroni to a pot of boiled water, bring to the boil over a high heat
 
 Once done, drain the cooked macaroni reserving a cup of starchy pasta water and set aside until later, reserve the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662453437799-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Cooking for 2? Save the remaining natural yoghurt for another recipe!
 
 Give everything a good mix up, then set aside – this is your chicken tikka
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662453443437-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662453448812-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once softened, add 2 tbsp<span class="text-danger"> [4 tbsp]</span> flour and st
 
 Grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662453454179-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once thickened, add the drained macaroni to the curried béchamel sauce along wi
 
 Tip: Add a splash of starchy pasta water if it's looking a little dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662453459261-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Transfer the mac 'n' cheese mixture to an oven-proof dish and top with the chick
 
 Put the dish in the oven for 15-20 min or until the chicken is cooked through (no pink meat!) and the top is golden and bubbling – this is your chicken tikka x mac 'n' cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662453464056-x200.jpg)
 
 ### Step 7
 

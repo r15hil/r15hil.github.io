@@ -25,7 +25,6 @@ We've lightened up our lamb meatballs, and they're just as easy to make. Your la
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686055741274-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Slice your potato[es] (skins on) into discs, approx. 1cm thick
 
 Chop your tomato[es] into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686055743673-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Massage thoroughly, with clean hands, until fully combined
 
 Tip: Massage the meat longer for more tender meatballs!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686055748643-x200.jpg)
 
 ### Step 3
 
 Divide the lamb mixture into 5 per person and roll into meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1686055752150-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Sprinkle over your dried oregano
 
 Season with a pinch of salt and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686055755498-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the lamb meatballs to the tray[s]
 
 Put the tray[s] in the oven for 20-25 min or until everything is golden and the lamb is cooked through (no pink meat!) – this is your lighter Greek-style lamb meatball tray bake
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686055757959-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Meanwhile, strip your mint leaves from their stems and chop them finely, discard
 
 Peel and finely chop (or grate) your garlic
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686055760556-x200.jpg)
 
 ### Step 7
 

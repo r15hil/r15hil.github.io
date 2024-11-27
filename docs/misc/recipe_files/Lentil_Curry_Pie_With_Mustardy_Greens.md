@@ -25,7 +25,6 @@ This curry pie's a million times tastier than one you'll find at a football grou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1631006960197-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and roughly chop your potato[es]
 
 Top, tail, peel and dice your carrot[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1631006965305-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1631006971956-x200.jpg)
 
 ### Step 3
 
@@ -59,19 +56,16 @@ Transfer the pastry to a baking tray (or two!) lined with non-stick baking paper
 
 Sprinkle over your nigella seeds and put the tray[s] in the oven for 15-20 min or until golden and cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1631006977790-x200.jpg)
 
 ### Step 4
 
 Once the onion has started to caramelise, add your beluga lentils, chopped potato, diced carrot and curry powder and cook for 2-3 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1631006986605-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your tomato paste and vegetable stock mix in 250ml <span class="text-purple">[350ml]</span> <span class="text-danger">[450ml]</span> boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1631006993393-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once fragrant, add the tomato stock to the pan and cook, covered, for 15 min or 
 
 Whilst everything’s cooking, wash then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1631007005139-x200.jpg)
 
 ### Step 7
 

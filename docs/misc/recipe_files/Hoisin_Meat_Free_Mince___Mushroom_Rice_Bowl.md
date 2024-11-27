@@ -25,7 +25,6 @@ Tuck into a tasty bowl of sweet, sticky hoisin meat-free mince with mushrooms an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1644494583723-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632745239099-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free mince (remove the paper if required!) to the pan and cook for 4-5 min or until starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632745243734-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Remove the outer leaves from the lettuce and set aside, then shred the inner cor
 
 Slice your red chilli[es] into rounds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632745247454-x200.jpg)
 
 ### Step 4
 
 Once the meat-free mince has started to brown, add your ginger & garlic paste to the pan and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632745250593-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once fragrant, roughly tear your chestnut mushrooms into the pan
 
 Add your hoisin sauce, soy sauce and 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp] </span>water and cook for 2-3 min further or until everything is combined and the mushrooms have started to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632745254023-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632745258206-x200.jpg)
 
 ### Step 7
 

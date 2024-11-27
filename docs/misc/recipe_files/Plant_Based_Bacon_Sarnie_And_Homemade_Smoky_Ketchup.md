@@ -23,7 +23,6 @@ No such thing as brilliant plant-based bacon? We disagree. To try it yourself, p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618244435507-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Season with a generous grind of black pepper and give everything a good mix up
 
 Put the tray in the oven for 30 min or until golden and crisp – these are your black pepper chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618244467373-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a pot with a drizzle of olive oil over a medium heat
 
 Once hot, add the chopped tomatoes with the smoked paprika and a pinch of salt and cook for 2-3 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618244524124-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Cook for 4-5 min or until the tomatoes have broken down and the sauce is the con
 
 Once thickened, remove from the heat – this is your homemade smoky ketchup
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vinaigrette-1619512228256-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Chop the remaining lettuce into wedges
 
 Combine the cider vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil – this is your dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618244575500-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once hot, add the meat-free bacon rashers and cook for 3 min on each side or unt
 
 Once done, transfer to a plate and reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618244611202-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Return the reserved pan to a low heat with a large knob of butter alternative
 
 Once melted, add the sliced ciabattas cut-side down and press into the melted butter alternative for 30 secs or until the butter alternative absorbs into the bread
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618244675186-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This recipe takes its inspiration from the famous 'Kiwiburger' which was introdu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1603373015104-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the sweet potato fries to a baking tray with a drizzle of vegetable oil and 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1603373026194-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Shape the mixture into 2<span class="text-danger"> [4]</span> burger patties and
 
 Put the tray into the oven for 12-15 min or until cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1603373048593-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Slice half of the cooked beetroot
 
 Dice the remaining beetroot and add to a bowl
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1603373057454-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add a drizzle of olive oil and the red wine vinegar and give everything a good m
 
 Keep aside for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1603373074051-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Cook, covered for 2-3 min or until done to your liking
 
 Meanwhile, slice the remaining onion
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1603373115580-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Slice the brioche buns in half
 
 Once hot, add the brioche halves, cut-side down, and cook for 2-3 min or until toasted, then set them aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1603373143275-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Brighten up dinnertime with a simple Mediterranean-inspired tray bake. You'll cr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1600174841540-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to a baking tray (or two!), drizzle them with olive oil
 
 Put the tray[s] in the oven and cook for an initial 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600174860036-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) over medium-high heat with a
 
 Once hot, add the seasoned chicken thighs, skin-side down, and cook for 10 min or until the skins have browned and crisped
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1600174876384-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel and finely chop (or grate) your garlic
 
 Top, tail and chop your courgette[s] in half lengthways, then chop into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600174883318-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Squeeze the juice of the lemon wedges into a large bowl (not sure about citrus? 
 
 Add the juiced wedges to the bowl
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1600174898065-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Give everything a good mix up – this is your chicken mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1600174908863-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Tip: Place the chicken thighs skin-side up for extra crispiness!
 
 Return the tray to the oven for 10 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600174921610-x200.jpg)
 
 ### Step 7
 

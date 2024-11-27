@@ -27,7 +27,6 @@ Fire up a spicy stir-fry in no time. You'll sizzle juicy king prawns with a punc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586955051859-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586955058192-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Wash your spring greens, then pat dry with kitchen paper
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586955069452-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586955079104-x200.jpg)
 
 ### Step 4
 
@@ -63,19 +59,16 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add your shredded spring greens and chopped pepper and cook for 3-4 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586955082739-x200.jpg)
 
 ### Step 5
 
 Once the veg is starting to soften, drain, then add your king prawns to the pan with the chopped ginger and chopped garlic and cook for a further 2-3 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586955087820-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your red chilli relish, chilli flakes (can't handle the heat? Go easy!), rice vinegar and soy sauce in a small bowl – this is your stir-fry sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586955094611-x200.jpg)
 
 ### Step 7
 

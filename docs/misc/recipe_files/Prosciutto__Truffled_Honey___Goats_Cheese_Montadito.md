@@ -27,7 +27,6 @@ Tuck into tapas with a taste of Spain’s classic open-faced sarnie - the montad
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702388409704-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potatoes (skins on) into small cubes
 
 Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702388413097-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Combine half your dried thyme (you'll use the rest later!) and your ground smoke
 
 Transfer the marinated potatoes to a baking paper-lined baking tray (or two!) and put the tray[s] in the oven for 25 min or until golden and crisp – these are your smoky, lemon & thyme potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702388416670-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the halved ciabatta to a separate baking tray (or two!) with a generous driz
 
 Put the tray[s] in the oven for 10 min or until the ciabatta is golden and crisp – these are your crisp breads
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702388420786-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Wash your baby leaf salad and pat it dry with kitchen paper
 
 Add the baby leaf salad and chopped tomato to the bowl and toss – this is your dressed salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702388425500-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Crumble your goats' cheese into small pieces
 
 Peel and chop your garlic in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702388429502-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Top with the crumbled goats' cheese, drizzle over the remaining honey, your truf
 
 Season with a pinch of pepper – these are your goats' cheese montaditos
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702388432640-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ For a lighter take on hoisin tofu, swap our burger for a brown rice salad – pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1700038472113-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and rinse under cold water to cool slightly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1700038499449-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Wash your spinach and pat dry with kitchen paper
 
 Drain your tofu and pat dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700038502889-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Combine your Chinese rice wine and half your soy sauce in a large bowl with your
 
 Dip the tofu slices into the marinade, then add to a baking paper-lined baking tray (cooking for 3 or more? Use 2 trays!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700038489884-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Drizzle a little vegetable oil on the tofu and sprinkle over your toasted sesame
 
 Put the tray[s] in the oven for 15 min or until the tofu is slightly crisp – this is your lighter hoisin tofu
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1700038506905-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Add the remaining lime juice to the reserved bowl with your vegan mayo, plum chu
 
 Give it a good mix up until fully combined – this is your plum dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1700038510922-x200.jpg)
 
 ### Step 6
 
 Add your shredded red cabbage to the plum dressing with the grated carrot and spinach – this is your red cabbage slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1700038524388-x200.jpg)
 
 ### Step 7
 

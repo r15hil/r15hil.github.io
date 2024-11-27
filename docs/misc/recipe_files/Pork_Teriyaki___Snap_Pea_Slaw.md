@@ -24,7 +24,6 @@ Teriyaki is a salty-sweet Japanese sauce made with fresh ginger, sesame oil, lim
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/720.step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/720.step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Zest the lime<span class="text-danger">[s]</span> lightly with a micro-plane or 
 
 Roll the&nbsp;zested lime<span class="text-danger">[s]</span>&nbsp;with your hand on a hard surface (to release more juice!) and cut in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/720.step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Combine&nbsp;the chopped&nbsp;ginger, lime zest, juice of 1/2 <span class="text-
 
 Mix everything together thoroughly - this is your teriyaki sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/720.step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Slice the sugar snap peas and the spring onion<span class="text-danger">[s]</spa
 
 Mix the grated carrot, snap peas and spring onion together in a bowl with the rice wine vinegar and a pinch of salt&nbsp;- this is your snap pea slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/720.step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Heat a&nbsp;large pan (preferably non-stick) with a drizzle of vegetable oil ove
 
 Once&nbsp;hot, add the pork&nbsp;strips with a pinch of salt and pepper and cook for 3-5 min or until it's starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/720.step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Cook for 1-2 min or until the sauce has reduced to a sticky consistency - this i
 
 Meanwhile, slice the remaining lime into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/720.step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This is proper low-carb comfort food. Grab your juicy flat white mushrooms and s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1606826098889-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your flat white mushrooms to a baking tray, stems facing up (use tin foil to
 
 Place the tray under the grill for 10 min or until the flat white mushrooms have softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1606826103811-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ While the flat white mushrooms are softening, peel and finely slice your shallot
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1606826108495-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped garlic and sliced shallot with a pinch of salt and cook for 1-2 min or until slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1606826117417-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Meanwhile, drain and rinse your green lentils
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1606826240396-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Give everything a good mix up and cook for 1-2 min or until the mixture has slig
 
 Season with a generous grind of black pepper and a pinch of salt – this is your creamy lentil & tomato filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1606826256444-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the creamy lentil & tomato filling to the mushrooms and sprinkle the grated 
 
 Return the stuffed flat white mushrooms to the grill for 3-4 min or until the cheese has melted – these are your cheesy lentil & tomato stuffed flat white mushrooms
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1606826262763-x200.jpg)
 
 ### Step 7
 

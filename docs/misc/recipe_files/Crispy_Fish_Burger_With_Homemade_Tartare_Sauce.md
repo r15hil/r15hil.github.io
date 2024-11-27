@@ -23,7 +23,6 @@ When a burger craving strikes, this crisp, tender fish one with tartare sauce is
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1606823492274-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add them to a baking tray, drizzle with vegetable oil and season with salt a
 
 Put the tray in the oven for 25-30 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606823512436-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the cornflour to a plate and season with a generous pinch of salt and pepp
 
 Coat the fish in cornflour, pressing firmly to coat them evenly and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606823536696-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the butter brioche buns, cut-side down, and cook for 3 min or un
 
 Once charred, remove and set aside until serving and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606823718703-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Chop the capers roughly
 
 Combine the chopped capers, sliced shallot,<span class="text-danger"> </span>mayonnaise, white wine vinegar and 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil – this is your homemade tatare sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606823742831-x200.jpg)
 
 ### Step 5
 
 Slice the cheddar cheese in quarters lengthways
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606823757924-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the wedges are nearly cooked, return the reserved pan to a high heat with 3
 
 Once very hot, add the coated fish and cook for 3-4 min each side or until golden
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606823781338-x200.jpg)
 
 ### Step 7
 

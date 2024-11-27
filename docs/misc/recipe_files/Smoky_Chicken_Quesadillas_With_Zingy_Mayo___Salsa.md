@@ -29,7 +29,6 @@ These classic quesadillas are quick and easy. You’ll combine smoky pulled chic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724716427159-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken thighs and cook for 3 min on each side or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724716433124-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Dice the remaining red onion
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724716438675-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Season with a generous pinch of salt and pepper and cook for for 30 secs or unti
 
 Once aromatic, add the tomato stock, reduce the heat to medium, and cook, covered, for 10 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724716444911-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Once the chicken is ready, transfer it to a clean board and shred it apart, usin
 
 Return the the pulled chicken to the pan with the grated cheese and give everything a good mix up – this is your cheesy chicken mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724716450146-x200.jpg)
 
 ### Step 5
 
 Divide the cheesy chicken mix between your tortillas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724716457411-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Place another baking tray on top of the filled tortillas to weigh them down
 
 Put the stacked baking trays in the oven and cook for 15 min or until the tortillas are slightly browned – these are your smoky chicken quesadillas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724716464402-x200.jpg)
 
 ### Step 7
 

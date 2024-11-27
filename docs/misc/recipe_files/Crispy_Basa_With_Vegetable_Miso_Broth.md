@@ -32,7 +32,6 @@ Fragrant with ginger, garlic and miso paste and topped with crispy basa, this li
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1617.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Top, tail and peel your carrot[s], then continue to peel lengths until you end u
 
 Set the carrot ribbons aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1617.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add your wholewheat noodles to a pot and cover them with boiled water until full
 
 Bring to the boil over a high heat and cook for 5-7 min or until tender with a slight bite, then drain and return them to the pot until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1617.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, reboil a kettle
 
 Wash your spinach and pat it dry with kitchen paper, then roughly chop
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1617.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1617.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add 500ml <span class="text-purple">[750ml]</span> <span class="text-danger">[1L
 
 Reduce the heat to low – this is your miso broth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1617.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1617.-step-7-x200.jpg)
 
 ### Step 7
 

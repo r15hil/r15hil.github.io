@@ -30,7 +30,6 @@ This meaty pasta is packed with hidden veg. Pan-fry pork and lentil meatballs, t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720000105018-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Top, tail and chop your courgette into quarters lengthways, then chop into small
 
 Drain and rinse your green lentils
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720000174600-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide and shape into meatballs (6 per person!) – these are your pork & lentil meatballs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720000179133-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based pan (or two, preferably non-stick with a matching lid) 
 
 Add the chopped courgette and remaining chopped onion to the reserved pan[s] over a medium-high heat with a splash of cold water, and cook for 2-3 min or until starting to soften (be careful when adding the water to the pan, it may sizzle from the heat of the oil!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720000183963-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once fragrant, add your chopped tomatoes with your chicken stock mix, a pinch of
 
 Return the browned pork & lentil meatballs to the pan and cook, covered for 12-15 min, or until the sauce has thickened and the meatballs are cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720000188172-x200.jpg)
 
 ### Step 5
 
@@ -82,13 +77,11 @@ Cook the wholewheat tortiglioni for 10-12 min or until cooked with a slight bite
 
 Once done, drain the wholewheat tortiglioni, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720000202420-x200.jpg)
 
 ### Step 6
 
 Wash your salad and pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720000215630-x200.jpg)
 
 ### Step 7
 

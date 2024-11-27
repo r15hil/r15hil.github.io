@@ -23,7 +23,6 @@ This wholesome warm lentil salad combines mineral-rich puy style lentils, protei
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/341.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Rinse the lentils in a sieve under the cold tap and place them in a large pot th
 
 Bring to the boil on a high heat, when boiling, add the lid and cook for 20-25 min&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/341.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Roughly seperate the leaves of the remaining wedges and place them on a non-stic
 
 Drizzle them with 1-2 tbsp of olive oil and season generously with salt - put them in the oven for 12-15 min or until cooked and starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/341.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add it to a small bowl and pour the balsamic vinegar over
 
 Leave the onion to marinade in the vinegar until step 8
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/341.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Cut the cherry tomatoes in half
 
 Chop the black olives roughly&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/341.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Drain and rinse the cannellini beans&nbsp;
 
 Once the lentils are nearly tender drain them for the next step
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/341.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Add a lid to the pan and cook for a further 5 min or until the beans are tender
 
 Remove the lid, and add the cannellini beans, stirring to warm through for 3-4 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/341.-step-7-x200.jpg)
 
 ### Step 7
 

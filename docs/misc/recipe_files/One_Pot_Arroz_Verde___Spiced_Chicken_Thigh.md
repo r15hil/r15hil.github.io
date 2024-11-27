@@ -29,7 +29,6 @@ This one-pot wonder is homestyle Mexican cooking at its best. You’ll blitz spi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1681912048665-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a very generous pinch of salt and cook for 5-7 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1681912054053-x200.jpg)
 
 ### Step 2
 
@@ -55,13 +53,11 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Dissolve your chicken stock mix in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml] </span>boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-3-1681912058628-x200.jpg)
 
 ### Step 3
 
 Once the onion has slightly softened, add your chicken thighs to the pan and cook for 3 min on each side or or until lightly browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681912062495-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Blitz until very finely chopped – this is your arroz verde base
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681912067357-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Stir it all together and cook for 1 min or until fragrant
 
 Once fragrant, add the arroz verde base and chicken stock, give everything a good mix up and bring to the boil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1681912071097-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Meanwhile, add your mayo to a bowl with the remaining chopped chilli, a drizzle 
 
 Mix until fully combined – this is your green chilli mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-4-1681912074934-x200.jpg)
 
 ### Step 7
 

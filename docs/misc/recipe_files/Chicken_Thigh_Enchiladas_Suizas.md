@@ -28,7 +28,6 @@ Inspired by the Swiss’ love of dairy, this 1950’s recipe took Mexico by stor
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1721056193359-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick), with a drizzle of olive oil
 
 Once hot, add your diced chicken thigh with a pinch of salt and cook for 6-7 min or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1721056201755-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Slice half your green chilli[es] into rounds and finely chop the remaining
 
 Crush your garlic open by squashing it with the side of a knife and discard the skins
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1721056213035-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once browned, add the sliced onion with a pinch of salt and pepper and cook for 
 
 Drain your sweetcorn
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1721056227641-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once the onion has softened, add your ground smoked paprika, ground cumin, tomat
 
 Cook for 2-3 min further, or until the chicken is cooked through (no pink meat!) and the sauce has slightly thickened – this is your chicken & sweetcorn filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1721056265771-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Stir the coriander paste through your soured cream – this is your enchiladas 
 
 Tip: If you don't have a pestle & mortar, chop the coriander very finely and mix with the salt and sour cream in a bowl!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1721056283609-x200.jpg)
 
 ### Step 6
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1721056291762-x200.jpg)
 
 ### Step 7
 

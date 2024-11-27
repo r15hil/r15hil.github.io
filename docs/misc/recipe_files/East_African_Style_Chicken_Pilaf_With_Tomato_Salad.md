@@ -25,7 +25,6 @@ A little spice goes a long way in this East African-style pilaf. You’ll simmer
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1685114269233-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop the creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and chicken stock mix in 225ml <span class="text-danger">[450ml</span>] boiled water – this is your coconut stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1685114275058-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Cut the green chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1685114279443-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once done, remove from the heat and set aside (lid on) to steam – this is your
 
 Meanwhile, chop the tomatoes finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1685114284456-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chicken breast portions with a pinch of salt and cook for 3 min on each side or until lightly browned, then transfer to a clean plate and set aside for later, reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1685114289264-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once the onion has softened, add the chopped garlic, ginger and half the chopped
 
 Once fragrant, add half the chopped tomato (save the rest for later!) with the bay leaf<span class="text-danger">[ves]</span> and cook for 4-5 min or until the tomato has begun to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1685114293488-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cover with a lid and cook for a further 10-12 min or until the chicken is cooked
 
 Once cooked, stir through the coconut rice and cook for 1 min further or until piping hot – this is your East African-style chicken pilaf
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1685114299375-x200.jpg)
 
 ### Step 7
 

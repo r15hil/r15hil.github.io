@@ -22,7 +22,6 @@ Try Christmas the Italian way with a cacio e pepe that’s packed with crispy br
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1730806034788-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696947262622-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Trim the ends from your Brussels sprouts, then cut them in half, lengthways
 
 Peel and slice your shallot[s] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696947271394-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Once hot, add the halved sprouts and sliced shallot with a pinch of salt and coo
 
 Once golden, add a splash of boiled water and cook, covered, for a further 1-2 min or until the sprouts are tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696947284053-x200.jpg)
 
 ### Step 4
 
 Whilst the sprouts are cooking, dissolve your vegetable stock mix and soft cheese in 125ml <span class="text-purple">[165ml]</span> <span class="text-danger">[215ml]</span> boiled water – this is your creamy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696947289307-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the cooked orecchiette, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696947293927-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once the sprouts are tender, reduce the heat to medium, add your cracked black p
 
 Once fragrant, add the creamy stock and cook for a further 1 min or until the sauce has thickened slightly – this is your Brussels sprouts cacio e pepe sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696947297879-x200.jpg)
 
 ### Step 7
 

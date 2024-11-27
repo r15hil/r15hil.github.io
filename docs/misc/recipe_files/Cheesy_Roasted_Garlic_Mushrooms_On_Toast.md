@@ -20,7 +20,6 @@ This breakfast fave is the big cheese. You’ll pan fry mushrooms with roasted g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073362223-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in or wrap up ready for your day!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727088851351-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Boil a kettle
 
 Slice your chestnut mushrooms finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727088870749-x200.jpg)
 
 ### Step 3
 
@@ -48,13 +45,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced mushrooms with a pinch of salt and pepper and cook for 4-5 min or until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727088891687-x200.jpg)
 
 ### Step 4
 
 Meanwhile, slice your ciabatta[s] in half and place in the toaster for 1-2 min or until toasted
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727088905094-x200.jpg)
 
 ### Step 5
 
@@ -64,13 +59,11 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727088915357-x200.jpg)
 
 ### Step 6
 
 Once the mushrooms have browned, add your roasted garlic paste and cook for 30 secs or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727088923945-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Tuck into this comforting bowlful of Italian flavours. You’ll whip up a creamy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684496060286-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and slice your shallot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684496064088-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cook for 8-10 min or until cooked with a slight bite
 
 Once done, drain the fusilloni, reserving 125ml <span class="text-purple">[165ml]</span><span class="text-danger"> [225ml]</span> of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684496068000-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once toasted, transfer the pine nuts to a plate and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684496072122-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Meanwhile, trim the woody ends off your asparagus and discard
 
 Chop the asparagus tips away from the stalks, then roughly chop the asparagus stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684496075421-x200.jpg)
 
 ### Step 5
 
 Once softened, add the chopped garlic and chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684496078732-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Season with a pinch of salt and pepper
 
 Cook for 2-3 min or until the asparagus is tender and the sauce has thickened – this is your garlic, chilli & cream sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684496082006-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Houston, we’ve got dinner sorted. This Tex-Mex-style seared pork loin is smoth
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690987586173-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690987591998-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the sliced shallot and sliced green chilli (can't handle the heat? Go easy!)
 
 Give everything a good mix up – this is your quick-pickled shallot & chilli
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690987597962-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Chop your tomato[es] roughly
 
 Drain your sweetcorn
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690987603919-x200.jpg)
 
 ### Step 4
 
 Season both sides of your pork loin steak[s] with a pinch of salt and pepper and a sprinkling of flour
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690987612719-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add the coated pork and cook for 5-6 min on each side or until golden 
 
 Once cooked through, transfer the cooked pork to a plate to rest and reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690987618139-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cook for 1-2 min or until fragrant
 
 Add 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> boiled water and chicken stock mix and and cook for a further 2-3 min or until thickened - this is your Tex-Mex style spiced tomato sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690987624170-x200.jpg)
 
 ### Step 7
 

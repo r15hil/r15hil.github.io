@@ -30,7 +30,6 @@ Keema is an Indian street food made with mince and curry spices. For this sensat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1615544181513-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once the onion has started to soften, increase the heat to high, then add your beef mince and cook for a further 3 min, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/527_step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,25 +48,21 @@ Peel (scrape the skin off with a teaspoon) and grate (or finely chop) your ginge
 
 Peel and grate (or finely chop) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/527_step-3-x200.jpg)
 
 ### Step 3
 
 Add the chopped carrot, grated ginger and grated garlic to the pan and cook for 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/527_step-4-x200.jpg)
 
 ### Step 4
 
 Add your beef stock mix, tomato paste and curry powder and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/527_step-5-x200.jpg)
 
 ### Step 5
 
 Stir your basmati rice into the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/527_step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Check and stir occasionally to prevent the rice from sticking to the bottom
 
 Tip: Add a splash of water if the rice looks a little dry!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/527_step-7-x200.jpg)
 
 ### Step 7
 

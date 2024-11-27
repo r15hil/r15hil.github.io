@@ -29,7 +29,6 @@ This easy lean pork and bean chilli is packed with flavour. Herby brown rice add
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1677167548164-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1677167551688-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced red onion with a pinch of salt and cook for 10 min or until slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1677167556190-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Drizzle them with olive oil and season with a pinch of salt and pepper
 
 Put the tray in the oven for 20-25 min or until the skins have burst and are crispy – these are your popped beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677167560503-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ While the kidney beans are in the oven, dissolve your beef stock mix in 350ml <s
 
 Add your ground cinnamon to the red onion and cook for 1 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1677167564138-x200.jpg)
 
 ### Step 5
 
 Increase the heat to high, add the your lean pork mince (remove the paper if required!) to the pan and cook for 5-6 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677167567611-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cook for 10 min or until slightly thickened in consistency
 
 Add the remaining kidney beans with the reserved kidney bean liquid and cook for a further 5 min or until the sauce has thickened to a chilli-like consistency and the meat is cooked through (no pink meat!)– this is your smoky lean pork chilli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1719232516315-x200.jpg)
 
 ### Step 7
 

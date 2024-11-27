@@ -27,7 +27,6 @@ It doesn’t get butter than this crispy basa. You’ll pan-fry your fish till d
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1710843548653-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil and a pinch of salt and pepper, give everything a good mix up and put the tray[s] in the oven for an initial 12-15 min or until starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1710843555700-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop your tomato[es] roughly
 
 Dissolve your vegetable stock mix and tomato paste in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1710843565470-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add the chopped shallot and cook for 2-3 min or until softened
 
 Once softened, add half the grated garlic (save the rest for later!) with your chilli flakes (can't handle the heat? Go easy!) and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1710843572253-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once boiling, reduce the heat to medium and cook for 4-5 min or until thickened,
 
 Whilst the sauce is cooking, combine your softened butter in a bowl with the remaining grated garlic and your fennel seeds (not a fan of aniseed? Only add a little!) – this is your fennel butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1710843579047-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once the potatoes have had an initial 12 min, remove the tray[s] from the oven a
 
 Return the tray[s] to the oven for a further 10-12 min or until the potatoes are crisp and the veg is tender – these are your roast potatoes & steamed veg
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1710843584106-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Pat your basa fillet[s] dry with kitchen paper
 
 Add the basa fillet[s] to the plate and turn several times until fully coated – this is your coated basa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710843588726-x200.jpg)
 
 ### Step 7
 

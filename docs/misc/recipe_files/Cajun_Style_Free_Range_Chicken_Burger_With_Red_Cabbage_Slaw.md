@@ -26,7 +26,6 @@ What's the o-cajun? You won't need one for this delicious Cajun burger, flavoure
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715605139976-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your potatoes (skins on) into chips, then add them to a large baking tray (o
 
 Put the tray[s] in the oven for 25-30 min or until the chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715605144406-x200.jpg)
 
 ### Step 2
 
@@ -44,19 +42,16 @@ Meanwhile, top, tail and grate your carrot[s] (no need to peel!)
 
 Trim, then slice your spring onion[s] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715605148389-x200.jpg)
 
 ### Step 3
 
 Combine your ground cumin, ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!) with 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> black pepper and a very large pinch of salt on a plate – this is your Cajun-style seasoning
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715605152534-x200.jpg)
 
 ### Step 4
 
 Add your free range chicken breast portion[s] to the plate with the Cajun-style seasoning and press into the spices to coat evenly – this is your coated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715605156166-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the coated chicken and cook for 9 min on each side pressing down firmly with a spatula until the outside is golden and the chicken is cooked through (no pink meat!) – this is your Cajun-style free range chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715605160630-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Add your shredded red cabbage, grated carrot and half the sliced spring onion 
 
 Combine your mayo and red chilli relish in a bowl – this is your chilli mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715605164679-x200.jpg)
 
 ### Step 7
 

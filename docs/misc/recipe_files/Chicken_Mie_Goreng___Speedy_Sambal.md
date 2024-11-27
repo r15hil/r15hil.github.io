@@ -23,7 +23,6 @@ These Indonesian-style noodles are packed with chicken and vegetables. To serve,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581614357989-1637328905499-x200.jpeg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Trim, then chop your red chilli[es] roughly
 
 Tip: Deseed the chilli first if you're not a fan of spice!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581614362257-1637328934402-x200.jpeg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Blitz until smooth – this is your speedy sambal
 
 Tip: If you don't have a food processor, use a pestle and mortar
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/24-11-21_11h55m20s-APIC-1637756880319-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a
 
 Once hot, add your diced chicken thigh and cook for 2-3 min or until starting to brown slightly, then reduce the heat to low and cook, covered, for 10 min or until the chicken is almost cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581614366203-1637756885998-x200.jpeg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Top, tail, peel and chop your carrot[s] into quarters lengthways, then chop fine
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and chop them into large, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/24-11-21_12h21m36s-APIC-1-1637758024844-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the chicken is almost cooked through, add the carrot strips and cook for 2
 
 Add the chopped spring greens and cook for 1 min further, then add a very small splash of cold water and cook for a further 3-4 min or until tender with a bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581614375610-1637757963311-x200.jpeg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Meanwhile, add your medium egg noodles to a pot and cover them with boiled water
 
 Bring to the boil over a high heat and cook for 5-6 min or until cooked with a slight bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1732620311852-x200.jpg)
 
 ### Step 7
 

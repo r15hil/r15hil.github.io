@@ -26,7 +26,6 @@ Can't choose between pizza or pasta? Here's your answer. For this warming dish, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678174264681-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678174267412-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and pepper strips with a pinch of salt and cook for 5-6 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678174271276-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once done, drain the cooked wholewheat tortiglioni and set it aside until later
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678174275236-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Slice your cherry tomatoes in half
 
 Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purple">[275ml] </span><span class="text-danger">[350ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678174284210-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the onion and peppers are starting to soften, add the tomato stock to the p
 
 Once thickened, stir the cooked wholewheat tortiglioni through the tomato sauce and season generously with black pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678174296878-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Drain your mozzarella, then pat it dry with kitchen paper (squeeze as much liqui
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678174300573-x200.jpg)
 
 ### Step 7
 

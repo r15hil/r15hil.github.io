@@ -23,7 +23,6 @@ Calabria is known for its love of fiery chillies, so it’s no surprise their po
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2080.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Put a large baking tray (or two) in the oven to heat up (this will stop the pizz
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2080.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add your tomato paste to a bowl with the chopped garlic, dried oregano and a 
 
 Add 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp]</span> cold water and a drizzle of olive oil and give everything a good mix up – this is your pizza sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2080.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2080.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspo
 
 Slice your red chilli[es] finely (can't handle the heat? Take the seeds out!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2080.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Tear your ‘Nduja into small bite-sized pieces
 
 Top with the torn mozzarella, torn 'Nduja, sliced chilli (not a fan of spice? Just add a little!) and the pepper strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2080.-step-6-x200.jpg)
 
 ### Step 6
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for 15 min or until the cheese has melted and the pizza base is crispy – this is your Calabrese pizza with 'Nduja
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2080.-step-7-x200.jpg)
 
 ### Step 7
 

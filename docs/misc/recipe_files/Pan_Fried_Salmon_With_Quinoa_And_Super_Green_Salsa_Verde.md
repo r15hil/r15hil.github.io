@@ -22,7 +22,6 @@ Our salsa verde is fuelled with parsley-packed goodness, providing a tasty sourc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1648829794968-x200.jpg)
 
 ### Step 1
 
@@ -32,13 +31,11 @@ Add the quinoa to a pot with a matching lid with 250ml <span class="text-danger"
 
 Once boiling, reduce the heat to low and cook, covered, for 15 min or until the quinoa is almost cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1648829808209-x200.jpg)
 
 ### Step 2
 
 While the quinoa is cooking, chop the parsley roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1648829817132-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Blitz into a smooth, thick paste – this is your super green salsa verde
 
 Tip: Cooking for 2? Save the remaining wholegrain mustard for another recipe!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597823492971-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Once hot, add the salmon fillets, season with a pinch of salt and pepper and coo
 
 Tip: Your fish is cooked through once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1648829830705-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Trim and chop the green beans in half
 
 Once the quinoa has had 15 min, add the halved green beans to the pot and cook for 3-4 min or until tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1648829846158-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Once tender, add the blanched peas
 
 Cook for 1 min then drain and return everything to the pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597823528360-x200.jpg)
 
 ### Step 7
 

@@ -20,7 +20,6 @@ To cook up this lemony spaghetti, you'll add flavour to chicken and courgette wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1656426711892-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the chopped chicken with a pinch of salt and cook for 4 min or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1656426716631-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Peel and finely slice (don't chop!) the garlic
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1656426721146-x200.jpg)
 
 ### Step 3
 
 Once the chicken is browned, add the sliced garlic and courgette matchsticks with a pinch of salt and cook for 5-7 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656426726540-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Cook the pasta for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked spaghetti, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656426731205-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Cut 1/2 <span class="text-danger">[1]</span> lemon into 2 <span class="text-dang
 
 Chop the chives finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656426735455-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked through (no pink meat!) and the courgette has softened, add the drained spaghetti and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656426738486-x200.jpg)
 
 ### Step 7
 

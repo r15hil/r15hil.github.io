@@ -24,7 +24,6 @@ This roast vegetable salad is a hybrid of Greek salad and Fattoush salad, which 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/967.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Drizzle them with olive oil and season them with a generous pinch of salt and pe
 
 Put the tray in the oven for 10-15 min or until they're golden and crispy - these are your crispy tortillas
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/967.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Top, tail and slice the courgette<span class="text-danger">[s]</span>
 
 Cut the tomatoes into wedges&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/967.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Sprinkle the tomato wedges and feta with the&nbsp;dried oregano and drizzle them
 
 Put the tray in the oven for 8-10 min or until the tomato wedges&nbsp;and the feta&nbsp;are hot to touch
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/967.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,13 +68,11 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Once hot, add the&nbsp;red onion petals&nbsp;with a pinch of&nbsp;salt&nbsp;and a small splash of&nbsp;water, cover with a lid and cook for 3-4 min or until they're beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/967.-step-5-x200.jpg)
 
 ### Step 5
 
 Once done, add the sliced courgette to the red&nbsp;onion and cook for 3 min, stirring occasionally or until lightly browned and cooked but retaining a slight bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/967.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the red wine vinegar and 2 tbsp <span class="text-danger">[4 tbsp]</span> ol
 
 Pick the dill leaves from their stalks and tear them apart&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/967.-step-7-x200.jpg)
 
 ### Step 7
 

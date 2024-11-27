@@ -29,7 +29,6 @@ This tasty dish is a celebration of Thai flavours. First, your sweet and sour ma
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1553.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut your chicken breast strips into thinner strips
 
 Combine your honey, 2 tsp <span class="text-purple">[3 tsp] </span><span class="text-danger">[4 tsp]</span> of sugar, tamarind paste and soy sauce in a mixing bowl, then divide the marinade into 2 separate bowls, add the chicken strips to one bowl of the marinade and give everything a good mix up
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1553.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once softened, drain the noodles and set aside
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1553.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Trim, then slice your spring onion[s]
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and finely chop
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1553.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Add the marinated chicken strips to the cornflour and give everything a good mix
 
 Tip: You may need to do this in batches!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1553.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once done, transfer the chicken to a plate and set aside – this is your sweet 
 
 Reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1553.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Return the reserved pan to a medium heat with your toasted sesame oil
 
 Once hot, add the sliced spring greens, chopped coriander stalks, grated ginger, chopped garlic and chopped chilli (can't handle the heat? Go easy!) and cook for 1 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1553.-step-7-x200.jpg)
 
 ### Step 7
 

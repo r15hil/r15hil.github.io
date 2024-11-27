@@ -28,7 +28,6 @@ Creamy Indian curry meets the humble Mexican enchilada. You’ll fill tortillas 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1668516830415-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken breast portion[s] and cook for 3 min on each side or until lightly browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668516836590-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Grate your cheddar cheese finely
 
 Dissolve your chicken stock mix and creamed coconut in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml] </span>boiled water – this is your coconut stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668516840537-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once the chicken is browned, add the sliced onion, curry powder, ginger & garlic
 
 Once fragrant, add your coconut stock and cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668516847640-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the chicken is cooked, transfer it to a clean board and shred apart using t
 
 Return the pulled chicken back to the pan and give everything a good mix up so the chicken is evenly coated in the curry sauce – this is your curried chicken breast enchilada filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1668516851268-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Roll up the tortillas tightly – these are your enchiladas
 
 Place the enchiladas in an oven-proof dish, with the seam side down
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668520604410-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Put the dish in the oven for 15-18 min or until bubbling and golden around the e
 
 Once cooked, top with sliced chilli (can't handle the heat? Go easy!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1668516904453-x200.jpg)
 
 ### Step 7
 

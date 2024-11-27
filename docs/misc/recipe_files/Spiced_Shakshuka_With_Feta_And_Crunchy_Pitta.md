@@ -27,7 +27,6 @@ Turn up the heat with the spicy tomato-and-egg-dish known as shakshuka. You'll c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1998.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1998.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 t
 
 Once hot, add the sliced onion and pepper strips with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1998.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[125ml] </span><span class="text-danger">[150ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1998.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Cook for 1-2 min or until fragrant
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1998.-step-5.2-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once boiling, reduce the heat to medium and cook for 6-8 min or until thickened
 
 Once the sauce has thickened, add your spinach and cook until wilted – this is your tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1998.-step-6.2-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Put the tray in the oven and cook for 8-10 min or until the pitta is crunchy and
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1998.-step-7.2-x200.jpg)
 
 ### Step 7
 

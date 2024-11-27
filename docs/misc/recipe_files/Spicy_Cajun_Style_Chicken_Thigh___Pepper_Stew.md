@@ -30,7 +30,6 @@ Give your stew a Cajun-style kick. You'll simmer chicken thigh and pepper in a r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688483926277-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced chicken thigh with a generous pinch of salt and cook for 4-5 min or until beginning to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688483929447-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely chop (or grate) your garlic
 
 Once the chicken has begun to brown, add the diced onion and garlic to the pan and cook for 3-4 min or until the onion has slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688483933728-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688483937742-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Once softened, add the halved cherry tomatoes to the pan with your chilli flakes
 
 Season with a pinch of salt and cook for 3-4 min or until the tomatoes have begun to break down
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688483944770-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your vegetable stock mix and tomato paste in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[400ml] </span>boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688483948707-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688483952694-x200.jpg)
 
 ### Step 7
 

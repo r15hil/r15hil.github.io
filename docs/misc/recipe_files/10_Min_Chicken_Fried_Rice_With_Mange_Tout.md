@@ -22,7 +22,6 @@ This tasty stir-fry is packed with veg and ready in 10 minutes. How? Less fuss a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1495.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1495.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Meanwhile, slice the spring onions roughly (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1495.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the diced chicken to the pan and cook for 2 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1495.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, microwave the steamed pure basmati rice according to packet instru
 
 Tip: if you're cooking two packets, pop them in together but increase the microwave cook time accordingly!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1495.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Slice the red chilli<span class="text-danger">[es]</span>
 
 Add the spring onion, red chilli (Can't handle the heat? Go easy!) and garlic paste to the pan and cook for 1 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1495.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the baby leaf spinach and cook, covered, for 1 min until beginning to wilt,
 
 Add the mange tout and cook, uncovered, for 30 sec
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1495.-step-7-x200.jpg)
 
 ### Step 7
 

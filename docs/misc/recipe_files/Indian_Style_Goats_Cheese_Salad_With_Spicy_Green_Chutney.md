@@ -24,7 +24,6 @@ Make our Indian twist on a bistro classic. You'll toss salad in a zingy dressing
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1109.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop your sweet potato[es] (skins on) into large bite-sized pieces
 
 Cut your red onion[s] into quarters, leaving the skins and roots on (this stops them drying out and falling apart when roasting)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1109.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Drizzle with vegetable oil and season with a generous pinch of salt and pepper
 
 Put the tray[s] in the oven for 20-30 min or until the onion is tender and the sweet potato is cooked and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1109.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1109.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Season with a generous pinch of salt and a pinch of sugar – this is your spicy green chutney
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1109.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Combine the juice of the remaining lime with 2 tbsp <span class="text-purple">[3
 
 Wash your salad and pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1109.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Spread your nigella seeds over a chopping board
 
 Roll your goats' cheese into the nigella seeds until evenly coated – this is your nigella goats' cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1109.-step-7-x200.jpg)
 
 ### Step 7
 

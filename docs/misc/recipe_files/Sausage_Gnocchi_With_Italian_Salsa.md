@@ -21,7 +21,6 @@ We've got a technique for cooking sausages that guarantees speed and succulence.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/553.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid over med
 
 Add the sausages and cook for 6 min turning once midway through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/553.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop the black olives roughly
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/553.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cook for 4 min or until they all float to the top
 
 Once cooked, drain the gnocchi and return to the pot and keep covered until step 7
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/553.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, transfer&nbsp;the sausages to a chopping board and slice in half leng
 
 Tip: you can hold them with tongs if they're too hot to handle!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/553.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add 50ml<span class="text-danger">&nbsp;(75ml)</span> water, cover and cook for 
 
 Once done, remove from the heat and keep covered until serving&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/553.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Mix together the tomatoes, chopped basil leaves, olives, capers, balsamic and 1 
 
 Season with salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/553.-step-7-x200.jpg)
 
 ### Step 7
 

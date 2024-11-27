@@ -29,7 +29,6 @@ Coating chicken in cornflour creates a crispy light skin and adds a peppery kick
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715258686701-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Chop the softer inner core finely
 
 Trim your green beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715258729723-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel and slice your shallot[s] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715258745981-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715258758069-x200.jpg)
 
 ### Step 4
 
@@ -75,13 +71,11 @@ Add a splash of cold water and a drizzle of olive oil, season with a pinch of sa
 
 Put the tray in the oven for 12-15 min or until the green beans are tender with a slight bite
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715258784739-x200.jpg)
 
 ### Step 5
 
 Meanwhile, pat your diced chicken thigh dry and add to a bowl with most of your cornflour (you'll use the rest later!) and a very generous grind of black pepper, then toss to coat evenly – this is your pepper chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715258792048-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once hot, add the pepper chicken and cook for 10-12 min or until crispy, golden 
 
 Transfer the cooked chicken to kitchen paper, season with salt and set aside until serving – this is your crispy pepper chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715258811331-x200.jpg)
 
 ### Step 7
 

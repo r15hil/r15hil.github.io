@@ -27,7 +27,6 @@ Homestyle Ethiopian cooking, with a Gousto twist. Fill your kitchen with the ent
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1677669891481-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your oven-proof dish and all y
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover with tin foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1677669901413-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Boil half a kettle
 
 Peel and slice your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1677669911427-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based hob safe oven-proof casserole dish with 1 tbsp <span cl
 
 Once the pan is hot add the sliced onion, chicken thighs and a pinch of salt and cook for 3-4 min or until the chicken is lightly golden and the onion is starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677669920273-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Meanwhile chop your sweet potato[es] (skins on) into small bite-sized chunks
 
 Dissolve your chicken stock mix in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1677669925483-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Season with a pinch of salt and pepper and give everything a good mix up
 
 Tip: Nestle the potato into the stock as much as you can!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677669934513-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Tip: Give everything a stir halfway through for evenly cooked potatoes!
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1677669941930-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Curry sauce, you’ve got another thing coming. Bold, beguiling and sweet-spicy-
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661873720727-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a ge
 
 Put the tray in the oven for 20-25 min or until the chips are golden and cooked through – these are your chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661873726812-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add half the chopped creamed coconut and your red Thai curry paste to a pot with
 
 Once boiling, cook for 4-5 min or until the sauce has reduced to a thick curry-like consistency, then cover with a lid and set aside for later – this is your Thai red curry sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661873744767-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add your cornflour and 30g <span class="text-purple">[45g] </span><span class="t
 
 Add half the chopped coriander and 80ml <span class="text-purple">[120ml]</span> <span class="text-danger">[160ml]</span> very cold water and give everything a good mix up – this is your batter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661873872002-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Sprinkle both sides of the basa fillet[s] with flour until fully coated, then ta
 
 Dip the floured basa fillet[s] into the batter and turn it several times until fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661873877408-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once hot, add the coated basa fillet[s] to the pan and cook for 4-5 min on each 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661873778550-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add your blanched peas, remaining chopped creamed coconut and a splash of cold w
 
 Once warm, mash the peas roughly until you have a mix of mushed and whole peas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661873784748-x200.jpg)
 
 ### Step 7
 

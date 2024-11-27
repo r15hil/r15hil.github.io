@@ -26,7 +26,6 @@ Smoky chicken, zingy lemon juice and the crispiest green beans – it's all the 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1635255700001-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635255706818-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Trim, then chop your green beans in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635255715920-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Chop your tomato[es]
 
 Once the chicken has had 5 min, add half of the grated garlic (you'll use the rest later!) and the chopped tomato and cook for 2-3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635255882589-x200.jpg)
 
 ### Step 4
 
@@ -72,19 +68,16 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635255889923-x200.jpg)
 
 ### Step 5
 
 Dissolve your chicken stock mix in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635255894509-x200.jpg)
 
 ### Step 6
 
 Add your ground smoked paprika, warmed rice and chicken stock to the pan and cook for a further 3 min or until the chicken is cooked through (no pink meat!) – this is your smoky Spanish-style chicken & rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635255899679-x200.jpg)
 
 ### Step 7
 

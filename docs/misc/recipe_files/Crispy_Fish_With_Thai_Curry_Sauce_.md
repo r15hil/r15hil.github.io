@@ -20,7 +20,6 @@ We're on a mission to make cooking times shorter and eating time longer. We love
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/536.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the rice, 375ml <span class="text-danger">(750ml) </span>cold water to a pot
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until the water is absorbed, checking occasionally
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/536.-536.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Meanwhile, place the coconut cream satchet<span class="text-danger">(s)</span> i
 
 Cut the mushrooms into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/536.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the fish to the flour and coat evenly on both sides, shaking off the excess
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/536.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the pan is hot, add the fish and cook on both sides for 3 min
 
 Tip: Your fish is cooked when it flakes easily and is opaque
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/536.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once cooked, transfer the fish to a plate for serving and return the pan to a me
 
 Add the mushrooms and Thai curry paste and cook for 2-4 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/536.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Meanwhile, combine the softened coconut cream with 200ml <span class="text-dange
 
 Add the coconut stock to the mushrooms and cook for a further 2-3 min until thickened into a thin curry sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/536.-step-7-x200.jpg)
 
 ### Step 7
 

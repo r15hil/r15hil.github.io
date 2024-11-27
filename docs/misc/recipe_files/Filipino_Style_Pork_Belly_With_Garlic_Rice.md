@@ -25,7 +25,6 @@ In the Philippines, it’s all about adobo. You’ll flavour crispy pork belly i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1693829651124-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Pat your pork belly dry with kitchen paper, then score the fatty side in a criss
 
 Season with a generous pinch of salt and rub it deep into the criss-cross pattern
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693829655129-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the pork belly, fat-side down and cook for 4 min or until golden and crispy, then flip and cook for 2 min on the other side
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693829660930-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, drain your pineapple, (save the juice, you'll use it later!)
 
 Peel and chop your brown onion[s] into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693829665269-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Lay the onion wedges in the middle of the 2 pieces of foil, (doubling it up pr
 
 Loosely scrunch the edges of the foil around the pork leaving the skin exposed and transfer the parcel[s] to a baking tray
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693829669598-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Pour the stock around the pork
 
 Put the tray in the oven for 1 hour or until the pork skin is crisp and the meat is cooked through and tender (no pink meat!) – this is your Filipino-style pork belly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693829673401-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Combine the diced pineapple and spring onion in a bowl with a drizzle of olive o
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693829676640-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Want a fast dinner that packs a punch? Easy. Just pan-fry tender salmon in zingy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1624293574520-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624293625610-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Set aside to soak for 4 min, then drain the soaked noodles
 
 Meanwhile, cut your lime[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624293630069-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add your salmon fillet[s] with half of your red Thai curry paste (save the rest for later!) and the juice of half your lime[s] to the pan and cook for 6-7 min, turning the salmon once halfway
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624293637743-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Trim, then roughly chop your spring onion[s]
 
 Trim, then chop your green beans in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624293647764-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add your ginger & garlic paste to the pan with the salmon and cook for 30 secs u
 
 Once fragrant, add the chopped spring onion, chopped green beans and half of your chilli flakes (not a fan of spice? Just add a little!) and cook for 30 secs further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624293655909-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Transfer the cooked salmon to a plate and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624293661919-x200.jpg)
 
 ### Step 7
 

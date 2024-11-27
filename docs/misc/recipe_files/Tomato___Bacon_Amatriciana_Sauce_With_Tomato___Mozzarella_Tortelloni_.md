@@ -25,7 +25,6 @@ Famous in Rome for a reason. For our spicy Amatriciana sauce you’ll cook bacon
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1643717124349-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1643717108143-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your bacon lardons and cook for 2-3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1643717114841-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook the tomato & mozzarella tortelloni for 3-4 min or until cooked with a sligh
 
 Once done, drain the cooked tortelloni, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1643717139830-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ While the pasta is cooking, slice your cherry tomatoes in half
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1643717146860-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the bacon lardons have started to brown, add the halved cherry tomatoes, s
 
 Meanwhile, dissolve your chicken stock mix and tomato paste in 75ml <span class="text-purple">[110ml]</span> <span class="text-danger">[150ml]</span> boiled water with a pinch of sugar – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1643717152270-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add tomato stock to the pan and cook for 2-3 min or until the sauce has thickene
 
 Tip: Add a splash of starchy pasta water if your sauce is looking a little dry!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1643717159747-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ For this Louisiana-inspired sandwich you'll coat prawns in a spicy cajun cornflo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2432Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706535830466-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Shred half the lettuce finely
 
 Chop the remaining lettuce into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706535835110-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add your cornflour to the remaining spice mix and give everything a good mix up 
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> flour to a plate and add your soy sauce to a small bowl
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706535839428-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Coat the king prawns in the flour, tap off the excess, then add them into the so
 
 Finally, dip the soy coated king prawns into the spiced cornflour, making sure they are coated all over – these are your coated king prawns
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706535848805-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add the coated king prawns and cook for 4-5 min, turning once halfway,
 
 Once done, transfer the crispy Cajun-style king prawns to kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706535857899-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add your ciabatta[s] to the tray[s] on top of the chips for a final 4-5 min or u
 
 Once hot, carefully slice the warmed ciabatta[s] in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706535863423-x200.jpg)
 
 ### Step 7
 

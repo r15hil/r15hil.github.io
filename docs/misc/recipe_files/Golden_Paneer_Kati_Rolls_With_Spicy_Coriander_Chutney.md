@@ -29,7 +29,6 @@ A kati roll (pronounced 'kar-tee') is an Indian street food classic. For our twi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602059959127-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut your lemon[s] in half
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602059962947-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dang
 
 Stir through the chopped chilli (can't handle the heat? Go easy!) – this is your spicy coriander chutney
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602059967614-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips (as finely as you can!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602059972007-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pepper strips and sliced onion with a pinch of salt and cook for 7-8 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602059975954-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ While the vegetables are softening, dice your tomato[es] finely
 
 Top, tail, peel, then grate your carrots[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602059979841-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[17
 
 Once done, remove the pan from the heat – these are your curried vegetables
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602059987010-x200.jpg)
 
 ### Step 7
 

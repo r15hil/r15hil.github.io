@@ -24,7 +24,6 @@ Ratatouille, a French stew of sweet mixed vegetables, traditionally requires hou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/92-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Quarter the mushrooms
 
 Chop the aubergine<span class="text-danger">(s)</span> into cubes (approx. 2cm)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/92-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Put in the oven for 20 min or until soft and lightly browned
 
 Meanwhile, boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/92-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add the millet and stock to a medium size pot
 
 Bring to a boil with a lid, then reduce to a simmer, and cook for 20 min, or until the water is absorbed and there are holes on the surface
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/92-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Grate the parmesan (used in step 7)
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/92-step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,7 +91,6 @@ Crumble in the remaining stock cube
 
 Add the tomatoes, balsamic vinegar, dried oregano and 100ml <span class="text-danger">(150ml)</span> of boiled water then mix well
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/92-step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,7 +102,6 @@ Lower the heat and simmer for 3 min
 
 Mix well, season to your taste with salt and pepper and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/92-step-7-x200.jpg)
 
 ### Step 7
 

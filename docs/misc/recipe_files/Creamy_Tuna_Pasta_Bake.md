@@ -21,7 +21,6 @@ For a hearty, creamy pasta bake packed with garden veg and juicy chunks of tuna,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1697645655396-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Grate your cheddar cheese
 
 Drain your tuna
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1697645659406-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
 Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1697645664002-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ While the pasta is cooking, melt 20g <span class="text-purple">[30g]</span> <spa
 
 Once melted, add 20g <span class="text-purple">[30g]</span> <span class="text-danger">[40g]</span> flour and chopped garlic and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1697645668009-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Gradually whisk 250ml<span class="text-purple"> [375ml]</span> <span class="text
 
 Add your vegetable stock mix and half the grated cheese (you'll use the rest later!) to the béchamel sauce and give everything a good mix up – this is your cheese sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1697645672066-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Season with a pinch of salt and pepper and give everything a good mix up – thi
 
 Transfer the tuna pasta mix to an oven-proof dish
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1697645675277-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add your panko breadcrumbs and remaining grated cheese to a small bowl with a pi
 
 Give everything a good mix up – this is your cheesy crunchy topping
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1697645679453-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ In this recipe, you'll be coating your steaks in a spicy chipotle marinade, befo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2203.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once the pan is hot, add the red chilli<span class="text-danger">[es]</span> and
 
 Tip: Open a window or turn your extraction on, as this may get smoky!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2203.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, add the chipotle paste, smoked paprika, dried chilli flakes (can't
 
 Add the rump steaks to the plate and give everything a good mix up until fully coated in the spices
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2203.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely slice most of the red onion<span class="text-danger">[s]</span> 
 
 Deseed the green pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2203.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add a drizzle of olive oil and the juice of the lime<span class="text-danger">[s
 
 Season with a generous pinch of salt and pepper and stir it all together – this is your charred chilli salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2203.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Return the pan to a medium-high with a drizzle of vegetable oil
 
 Once hot, add the sliced onion and pepper with a pinch of salt and cook for 6-7 min or until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2203.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ For medium, cook for 3-4 min on each side
 
 Once done, remove them from the pan, finely slice, then add them to the peppers with any juices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2203.-step-7-x200.jpg)
 
 ### Step 7
 

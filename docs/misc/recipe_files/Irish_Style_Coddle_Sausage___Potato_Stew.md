@@ -28,7 +28,6 @@ The classic Irish Coddle is a hearty family favourite from Dublin to Derry. For 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674836864293-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Squeeze your sausage meat from the skins into the pan (clean hands is the best w
 
 Break the sausage meat up into large bite-sized pieces with a wooden spoon and cook for 5 min or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674836879443-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Top, tail, peel and slice your carrot[s] into discs
 
 Once browned, add the onion wedges, carrot discs and chopped leek to the pan and cook for a further 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674836883481-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Peel and finely chop (or grate) your garlic
 
 Once the veg is beginning to soften, add the chopped potato and chopped garlic with your cider vinegar and cook for a further 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674836890316-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Meanwhile, dissolve your chicken stock mix in 300ml <span class="text-purple">[4
 
 Strip your thyme leaves from their stems and discard the stems
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674836897948-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Once fragrant, add the chicken stock to the pot with the thyme leaves, your bay 
 
 Once boiling, reduce the heat to medium-high and cook, covered, for 15-20 min or until the veg is tender and the sausages are cooked through (no pink meat!) – this is your Irish-style coddle sausage & potato stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674836909148-x200.jpg)
 
 ### Step 6
 
 While the stew is cooking, chop your parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674836921628-x200.jpg)
 
 ### Step 7
 

@@ -19,7 +19,6 @@ Vibrant green broccoli and crunchy red pepper form the basis for this seasoned g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/616.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds out with
 
 Cut the broccoli into small florets
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/616.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once hot, add the peppers and broccoli with a pinch of sugar, salt and pepper
 
 Cover and cook for approx 4-6 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/616.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the concentrated stock to the pan with the vegetables with a knob of butter&
 
 Reduce&nbsp;the heat to medium-low and cook, uncovered, for&nbsp;a further 3-4 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/616.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook&nbsp;for 3-4 min&nbsp;
 
 Once cooked, drain the gnocchi and return it to the pot&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/616.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Meanwhile, chop the spring onion finely, discarding the root end<span class="tex
 
 Stir the spring onion into the cr&egrave;me fra&icirc;che&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/616.-step--6-x200.jpg)
 
 ### Step 6
 
 Add the drained gnocchi to the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/616.-step--7-x200.jpg)
 
 ### Step 7
 

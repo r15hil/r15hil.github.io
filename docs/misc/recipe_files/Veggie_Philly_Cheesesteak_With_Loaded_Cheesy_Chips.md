@@ -23,7 +23,6 @@ Tuck into this veggie twist on the classic Philly Cheesesteak. You’ll pack hot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691741583354-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691741589209-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely slice your brown onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691741594644-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced onion and sliced pepper with a pinch of salt and sugar and cook for 10-12 min or until golden and softened – this is your caramelised onion & pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691741600528-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once melted, add 10g <span class="text-purple">[15g]</span> <span class="text-da
 
 Gradually whisk 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> milk and a pinch of salt into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691741604807-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once the meat-free patty[ies] are cooked through, remove the tray from the oven 
 
 Slice the meat-free patty[ies] into strips, then add them to the caramelised onion & pepper and mix it all together – this is your philly 'steak' filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691741609840-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the chips are nearly cooked, remove the tray from the oven and add the cut 
 
 Return the tray to the oven for 4-5 min or until the buns are warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691741613066-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ These wraps are crispy, cheesy and so easy. You'll bake spiced halloumi strips w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1-chicken-breast-on-baking-tray-1731659161811-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Add your chicken breast portion to a baking paper-lined tray with a drizzle of olive oil and a pinch of salt and pepper, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1731659168292-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add a splash of milk to a shallow bowl and grate your cheddar cheese
 
 Add your panko breadcrumbs to another plate with the grated cheese, lots of pepper and a generous drizzle of olive oil and mix it all together – these are your cheesy breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731659172107-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Coat the halloumi strips in the spice mix (make sure to tap off any excess!)
 
 Add the coated halloumi strips to the milk and finally press them into the cheesy breadcrumbs firmly to coat evenly – these are your breaded halloumi strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731659175749-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the breaded halloumi strips to the tray and top them with any remaining chee
 
 Put the tray[s] in the oven for 10-15 min or until golden – these are your crispy halloumi strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1731659200623-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ While the halloumi strips are cooking, slice your tomato[es] finely into rounds
 
 Wash your lettuce, then pat it dry with kitchen paper and shred
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1731659203639-x200.jpg)
 
 ### Step 6
 
 Add your chilli relish to a bowl with your mayo and a drizzle of olive oil and give it a good mix up – this is your chilli mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1731659206525-x200.jpg)
 
 ### Step 7
 

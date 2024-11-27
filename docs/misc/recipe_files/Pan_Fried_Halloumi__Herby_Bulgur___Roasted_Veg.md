@@ -21,7 +21,6 @@ For a flavour-packed veggie salad, you'll top herby bulgur and roasted vegetable
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1796.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Slice the cherry tomatoes in half
 
 Top and tail the courgettes<span class="text-danger">[s]</span> and slice into rounds
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1796.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Drizzle with olive oil and season generously with salt and pepper
 
 Put the baking tray in the oven for 15-20 min or until the vegetables are cooked – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1796.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1796.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Meanwhile, chop the parsley leaves finely, discarding the stalks
 
 Slice the halloumi into 8 <span class="text-danger">[16]</span> strips widthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1796.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the bulgur wheat is cooked, stir through the chopped parsley – this is your herby bulgur wheat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1796.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Heat a wide-based pan (preferably non-stick) over a medium-high heat
 
 Add the halloumi strips and cook for 1-2 min or until crispy and golden brown on both sides – this is your pan-fried halloumi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1796.-step-7-x200.jpg)
 
 ### Step 7
 

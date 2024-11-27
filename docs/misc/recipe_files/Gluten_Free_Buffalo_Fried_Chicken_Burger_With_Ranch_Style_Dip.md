@@ -25,7 +25,6 @@ Take a trip across the pond with an American classic. You'll glaze crispy, tende
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679316308941-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until the fries are golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679316312695-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chicken thighs to the marinade and give everything a good mix up, then s
 
 Tip: This will help to tenderise your chicken!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679316317282-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the cucumber discs and the remaining cider vinegar to a bowl with a pinch of
 
 Stir everything together and set aside – these are your quick-pickled cucumbers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679316385666-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once melted, remove the pot from the heat and add the sriracha (can't handle the
 
 Stir everything together until fully combined with a sauce-like consistency – this is your buffalo sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679316390233-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the mayo to a small bowl with the dried oregano, grated garlic (not a big ga
 
 Give everything a good mix up – this is your ranch-style dip
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679316394787-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add the ground smoked paprika, cornflour and 1 tbsp<span class="text-danger"> [2
 
 Season with a pinch of salt and a generous grind of pepper and give everything a good mix up until the chicken is fully coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679316403773-x200.jpg)
 
 ### Step 7
 

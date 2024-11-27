@@ -24,7 +24,6 @@ This pan-fried basa is ready in no time. You’ll serve your basa with colcannon
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1721994417317-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 10-12 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1721994424706-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ While your potatoes are cooking, trim, then slice your spring onion[s] finely, k
 
 Wash your shredded kale and pat dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721994429169-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Tip: Cooking for 3 or more? Make 2 separate parcels!
 
 Put the tray in the oven for 10-12 min or until the Tenderstem broccoli is tender with a slight bite
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721994434547-x200.jpg)
 
 ### Step 4
 
 While the vegetables are cooking, combine your soft cheese, vegetable stock mix, roasted garlic paste and Chinese rice wine to a jug with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml] </span>boiled water and mix until fully combined – this is your stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721994437608-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Return the pot to a low heat with a knob of butter, a splash of milk and the fin
 
 Mash together until fully combined and season with a generous pinch of salt and pepper, then keep covered until serving – these are your colcannon potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721994441441-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add your basa fillet[s] with a pinch of salt and cook for 3-4 min on e
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721994444745-x200.jpg)
 
 ### Step 7
 

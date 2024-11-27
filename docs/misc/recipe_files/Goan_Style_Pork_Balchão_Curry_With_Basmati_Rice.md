@@ -30,7 +30,6 @@ The word ‘balchão’ in this dish refers to the use of vinegar as a way of pr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655223266769-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut your pork loin steak[s] into large, bite-sized pieces
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a high heat, once hot, add the chopped pork and cook for 4 min, turning occasionally until the pork is browned,  then once done, transfer the browned pork to a plate and reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655223277282-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Return the reserved pan to a medium-high heat with a generous drizzle of vegeta
 
 Once hot, add the diced onion with a pinch of salt and cook for 6-8 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655223294158-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until a
 
 Once done, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655223299662-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Whilst the rice is cooking, peel (scrape the skin off with a teaspoon) and rough
 
 Peel and roughly chop your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655223303543-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add 2 tbsp<span class="text-purple"> [3 tbsp]</span> <span class="text-danger">
 
 Tip: Alternatively, use a food processor!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655223308927-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the onion has softened, add the balchão spice paste and tomato paste to th
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655223312488-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Fancy an Indian takeaway with a twist? Try this one for size. You’ll simmer ju
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1696001453092-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1696001495270-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cover the chicken breast portion[s] in cling film and bash with a rolling pin un
 
 Season the flattened chicken with a pinch of salt and pepper and coat in half your curry powder (you'll use the rest later!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1696002938937-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the coated chicken and cook for 3 min on each side or until browne
 
 Once golden, transfer the browned chicken to a plate and set aside, these will finish cooking in the sauce later (reserve the pan!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1696002942643-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Peel and slice your shallot[s] finely
 
 Slice your tomato[es] into rounds
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696002951821-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add the sliced shallot and cook for 2-3 min or until softened, then ad
 
 Add your ginger & garlic paste and the remaining curry powder to the pan with your chicken stock mix, ground almonds, creamed coconut and 150ml<span class="text-purple"> [200ml]<span class="text-danger"> </span>[250ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696002957890-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Cook for a further 10-12 min or until the chicken is cooked through (no pink mea
 
 Slice your brioche bun[s] in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696002963811-x200.jpg)
 
 ### Step 7
 

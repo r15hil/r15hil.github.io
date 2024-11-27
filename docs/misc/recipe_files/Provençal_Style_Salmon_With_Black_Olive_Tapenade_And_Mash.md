@@ -22,7 +22,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1616676897967-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely dice your red onion[s] and chop your tomato[es] roughly
 
 Peel and chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616676901848-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the diced onion with a generous pinch of salt and cook for 4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616676906005-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once boiling, cook for 12-15 min or until fork-tender
 
 Once done, drain and return to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616676910020-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once the onion has softened, add the chopped pepper, chopped tomatoes and half
 
 Add your tomato paste, 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml] </span>boiled water and a pinch of sugar, salt and pepper to the pan and cook, covered, for 15 min or until reduced to a stew-like consistency – this is your Provençal-style sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1616676923889-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Grind the chopped black olives, remaining chopped garlic and a pinch of salt i
 
 Add a generous drizzle of olive oil and give it a good mix up – this is your black olive tapenade
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1616676933004-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Put the tray[s] in the oven for 14-15 min or until the fish is cooked through �
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1616676937783-x200.jpg)
 
 ### Step 7
 

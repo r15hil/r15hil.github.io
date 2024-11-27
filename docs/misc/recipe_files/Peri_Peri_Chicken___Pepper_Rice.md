@@ -26,7 +26,6 @@ Get this vibrant Portuguese-style dish on the table in no time! Bring on the per
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622806526860-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1673354016635-x200.jpg)
 
 ### Step 2
 
@@ -54,13 +52,11 @@ Meanwhile, deseed your pepper[s] (scrape the seeds out with a teaspoon) and cut 
 
 On a clean board, chop your chicken breast strips into smaller strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1673354020900-x200.jpg)
 
 ### Step 3
 
 Once hot, add your chopped chicken and sliced pepper to the pan with a generous pinch of salt and cook for 6-7 min or until browned and almost cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1673354028101-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tear the top corner of the pouch[es]<span class="text-danger"> </span>(just a li
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1673354033275-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, trim, then slice your spring onion[s]
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[275ml]</span><span class="text-danger"> [350ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1673354040371-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the chicken has browned, add your roasted garlic paste and dried oregano to
 
 <span class="text-danger">Ordered extra halloumi? Slice and cook in a pan with a little oil for 4-6 min or until golden all over</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1673354046009-x200.jpg)
 
 ### Step 7
 

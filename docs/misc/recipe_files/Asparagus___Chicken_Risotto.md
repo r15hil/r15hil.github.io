@@ -25,7 +25,6 @@ This simple risotto is all about zero waste cooking. You'll make the most of you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637670601279-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely chop your brown onion[s]
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat, once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637670604586-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Meanwhile, chop your chicken breast strips into large bite-size pieces
 
 Once the onion has started to soften, turn the heat up to high, then add the chopped chicken to the pan and cook for 3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637670607372-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975L]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637670610625-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add your Chinese rice wine and cook for 30 secs further
 
 Add the vegetable stock a ladle at a time, stirring continuously for 20 min or until most of the stock is absorbed and the rice is almost cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637670613598-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Roughly chop the asparagus stalks
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637670616206-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Put the tray in the oven for 5-6 min or until bright green and tender with a bit
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637670619886-x200.jpg)
 
 ### Step 7
 

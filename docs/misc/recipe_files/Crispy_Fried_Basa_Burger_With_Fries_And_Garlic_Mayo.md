@@ -27,7 +27,6 @@ This pescatarian crowd-pleaser is full of basa goujons, crisped up in a deliciou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632302076956-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Line a baking tray (or two!) with non-stick baking paper
 
 Add the fries to the tray[s] with a drizzle of vegetable oil and a pinch of salt and pepper, give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627030306057-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Add your cornflour, dried oregano and 1 tbsp <span class="text-purple">[1 1/2 t
 
 Tip: For a spicier burger, go heavy on the black pepper!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627030322591-x200.jpg)
 
 ### Step 3
 
 Remove the basa pieces from the bowl and firmly press each one into the herby mixture, making sure to evenly coat them on both sides – these are your coated basa goujons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627030346452-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the coated basa goujons and cook for 3-4 min on each side or until
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632302081667-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Meanwhile, cut your brioche bun[s] in half
 
 Add the brioche halves to a separate baking tray (or two!) and put the tray[s] in the oven for 4-5 min or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632302084799-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Wash your lettuce, then pat it dry with kitchen paper and shred
 
 Dice your tomato[es] finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627030385415-x200.jpg)
 
 ### Step 7
 

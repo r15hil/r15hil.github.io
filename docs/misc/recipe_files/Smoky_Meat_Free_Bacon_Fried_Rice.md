@@ -25,7 +25,6 @@ It sizzles, it sears, it has the same smoky aroma – you won't believe it isn't
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1607967711397-x200.jpg)
 
 ### Step 1
 
@@ -35,13 +34,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690275155676-x200.jpg)
 
 ### Step 2
 
 Meanwhile, slice your chestnut mushrooms finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1690275159949-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add your meat-free bacon lardons and sliced mushrooms and cook for 3-4 min or until the meat-free bacon is golden and crispy all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607967750751-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607967771668-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Trim then finely slice your spring onion[s]
 
 Slice your red chilli[es] into rounds
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690275165723-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Once the meat-free bacon has started to crisp, add the chopped ginger and garlic
 
 Once fragrant, add the cooked rice with your soy sauce and your toasted sesame oil and give everything a good mix up until all the rice is coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1690275169175-x200.jpg)
 
 ### Step 7
 

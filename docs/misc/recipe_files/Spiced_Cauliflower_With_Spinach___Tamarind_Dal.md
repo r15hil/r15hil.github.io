@@ -25,7 +25,6 @@ Combining the heady blend of spices with tamarind is what gives this dish its wa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1458.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Boil a kettle
 
 Cut the cauliflower into small florets, discard the stem and leaves
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1458.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the cauliflower florets to a baking tray with the ground paprika, a drizzle
 
 Give everything a good mix up and put the tray in the oven for 20-30 min or until the cauliflower is golden and crisp – this is your spiced cauliflower
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1458.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1458.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Wash the spinach, then add to a colander and pour boiled water all over until it
 
 Rinse the wilted spinach under cold running water, then squeeze as much water out of the spinach as you can and chop it roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1458.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add the garam masala, ground fenugreek, ground turmeric and chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1458.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Meanwhile, rinse the red lentils in a sieve under cold running water
 
 Once fragrant, add the rinsed lentils, chopped spinach and tamarind stock, then reduce the heat to medium-low and cook for 25-30 min or until the lentils are cooked and the sauce has thickened – this is your spinach & tamarind dal
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1458.-step-7-x200.jpg)
 
 ### Step 7
 

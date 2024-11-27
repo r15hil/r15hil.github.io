@@ -25,7 +25,6 @@ Try this cheat’s lasagne, ready in a flash. You’ll add pasta sheets to your 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1722495151616-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1722495155139-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once hot, add your plant based 'Nduja and the chopped garlic and cook for 1 min 
 
 Tip: Cooking for 4 or more? Use 2 pans!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722495159861-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Once fragrant, add your chopped tomatoes with 150ml <span class="text-purple">[2
 
 Bring to the boil, then cook for 5-6 min or until the sauce has thickened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1722495164077-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Break your lasagne sheets into medium-sized pieces and add them to the boiling w
 
 Cook for 4-5 min, stirring from time to time to prevent the pasta from sticking, then drain the cooked lasagne
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1722495168119-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the sauce has thickened, add the spinach and cook for 1 min or until wilted
 
 Once wilted, add the cooked lasagne with a generous pinch of salt and pepper and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1722495171606-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Drizzle over your double cream, then sprinkle over your grated Italian hard chee
 
 Put the lid on and cook for a final 2 min or until the cheese has melted – this is your torn veggie ‘Nduja lasagne
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1722495175665-x200.jpg)
 
 ### Step 7
 

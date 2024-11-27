@@ -27,7 +27,6 @@ For this spook-tacular pie, you'll sizzle lean beef mince with mushrooms, sprink
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665561780787-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel your potatoes, then slice 1/5 of the potato[es] (you'll use the rest later!
 
 Give everything a good mix up and put the potato discs in the oven for 10-12 min or until beginning to brown – these are your potato tombstones
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665561785193-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665561788252-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion and garlic and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665561791022-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once the onion has softened, add your lean beef mince to the pan with 1 tsp <spa
 
 Increase the heat to high and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665561794358-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ When your mince has browned, add the chopped mushrooms and cook for 30 secs
 
 Add the beef stock, give everything a good mix up, bring to the boil and cook for 4-5 min or until slightly thickened, then transfer the mixture to an oven-proof dish, reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665561797909-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Grate your cheddar cheese over the top of the lean beef & mushroom filling and t
 
 Put the pie in the oven for 15-20 min or until the beef is cooked through (no pink meat!) and the pie is bubbling and golden – this is your Halloween graveyard cheesy lean beef & mushroom pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665561800657-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Give this seaside staple an American twist. You’ll sandwich crispy battered ha
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1672754489182-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672754498755-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Sprinkle both sides of the hake with flour until fully coated
 
 Dip the floured hake into the batter and turn it several times until fully coated – this is your coated hake
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672754506638-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once softened, add the remaining curry powder with 1 tsp <span class="text-purpl
 
 Cook for 1-2 min further or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672754515144-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once boiling, reduce the heat to medium and cook for 4-5 min or until the sauce 
 
 Once thickened, add the sauce to a food processor and blitz until smooth – this is your curry sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672754520554-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once hot, add the coated hake to the pan and cook for 4-5 min on each side or un
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672754531324-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Slice your brioche bun[s] in half
 
 Add the brioche halves to a baking tray (or two!), cut side up, and put the tray[s] in the oven for 4-5 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672754538680-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ For this delicious crowd pleaser, you'll prep then bake succulent mozzarella-top
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1677584010210-x200.jpeg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop half your brown onion[s]
 
 Grate the remaining onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1677584013828-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Combine your meat-free mince (remove the paper if required!), grated onion, pank
 
 Divide the meatball mixture and shape them into 4 meatballs per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1677584017641-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677584021122-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or unt
 
 Add half the chopped garlic (save the rest for later!) and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1677584025299-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Return the browned meatballs to the pan and cook, covered, for 3-4 min or until 
 
 Meanwhile, drain your mozzarella and tear it into rough pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677584028845-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Top with the torn mozzarella and put the dish in the oven for 10-12 min or until
 
 Meanwhile, combine the remaining balsamic vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> olive oil and some pepper – this is your balsamic dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1677584034105-x200.jpeg)
 
 ### Step 7
 

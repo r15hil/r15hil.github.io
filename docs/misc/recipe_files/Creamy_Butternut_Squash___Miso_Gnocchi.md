@@ -23,7 +23,6 @@ Get ready to pack gnocchi with irresistible umami goodness. You'll add spicy roa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1659889654794-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add your butternut squash cubes to a baking tray with a drizzle of vegetable oil
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until tender and golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1659889657964-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Cook for 6-8 min or until golden, stirring frequently, then transfer to a plate 
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1659889661771-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Peel and finely chop (or grate) your garlic
 
 Combine the lemon zest and the golden panko – this is your lemony panko
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659889664935-x200.jpg)
 
 ### Step 4
 
 Combine your miso paste and creamy single soy – this is your creamy miso sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1659889668788-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1659889672419-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Wash your cavolo nero, then pat it dry with kitchen paper
 
 Once fragrant, tear the cavolo nero into the pan (discard any tough stalks) with a splash of cold water, a pinch of salt and cook for 1-2 min further or until starting to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659889676046-x200.jpg)
 
 ### Step 7
 

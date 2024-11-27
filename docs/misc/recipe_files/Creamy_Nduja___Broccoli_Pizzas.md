@@ -21,7 +21,6 @@ This Italian classic is easy pizz-ey. You’ll smother baked pizza bases with ho
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690215657530-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add your tomato paste to a bowl with your dried oregano and a generous pinch of 
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span><span class="text-danger"> [10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690215660664-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add your soft cheese to a separate bowl with 2 tbsp<span class="text-purple"> [3
 
 Mix it all together until smooth – this is your creamy base
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690215664985-x200.jpg)
 
 ### Step 3
 
@@ -49,13 +46,11 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690215668673-x200.jpg)
 
 ### Step 4
 
 Chop your Tenderstem broccoli in half lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690215672732-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Divide the tomato base between the pizza bases and spread it evenly all over the
 
 Dollop the creamy base over the pizza bases and lightly swirl into the tomato base
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690215676554-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Tear over your ‘Nduja (can’t handle the heat? Go easy!)
 
 Top with the chopped Tenderstem broccoli and add a small drizzle of olive oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690215681314-x200.jpg)
 
 ### Step 7
 

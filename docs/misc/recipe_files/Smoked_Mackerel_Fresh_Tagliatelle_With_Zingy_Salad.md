@@ -21,7 +21,6 @@ The smoky, savoury flavour of mackerel pairs perfectly with this creamy fresh ta
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1692024534394-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Boil a kettle
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1692024540761-x200.jpg)
 
 ### Step 2
 
@@ -37,7 +35,6 @@ Peel the skin off your smoked mackerel fillet[s]<span class="text-danger"> </spa
 
 Tear the smoked mackerel into rough pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1692024546015-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692024551315-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
 Toss the shredded lettuce in the zingy dressing, then set this aside until serving – this is your zingy salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692024562010-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Once hot, add the sliced garlic and cook for 30 secs or until it starts to sizzl
 
 Add the torn smoked mackerel and cook for 1 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692024616568-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add the soft cheese and cook for 1-2 min, stirring until everything is combin
 
 Tip: Add a splash of starchy pasta water if the sauce is looking a little dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692024625908-x200.jpg)
 
 ### Step 7
 

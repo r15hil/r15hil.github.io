@@ -28,7 +28,6 @@ This one-pot silky orzotto is packed full of flavour! You'll fry smoky chorizo u
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641915084131-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) over a med
 
 Once hot, add your diced chorizo and cook for 4-5 min or until beginning to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641915090425-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your sun-dried tomatoes finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641915107682-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Once softened, add the chopped garlic and cook for 30 secs or until fragrant
 
 Once fragrant, add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>flour and cook for 30 secs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641915122682-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your chicken stock mix, tomato paste and half your balsamic vinegar (you'll use the rest later!) in 500ml <span class="text-purple">[750ml]</span><span class="text-danger"> [1L]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641915131905-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tip: Stir the orzo occasionally to prevent it from sticking!
 
 Once the orzo is cooked, add your blanched peas to the pan and cook for 1 min or until they're warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641915140503-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Combine the remaining balsamic vinegar with a drizzle of olive oil in a large b
 
 Add the salad to the bowl with the balsamic dressing and give everything a good mix – this is your balsamic salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641915168826-x200.jpg)
 
 ### Step 7
 

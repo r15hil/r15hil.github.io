@@ -26,7 +26,6 @@ For our version of this Italian classic, you'll top tender aubergine slices with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/816.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the aubergine slices and cook for 3-4 min on each side (you may have to do this in batches!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/816.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Chop your basil finely, including the stalks
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/816.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add 3/4 of the chopped garlic (save the rest for later!) and cook for a furthe
 
 Meanwhile, dissolve your vegetable stock mix in 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/816.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add your chopped tomatoes, vegetable stock and half of the chopped basil (you'
 
 Drain your mozzarella, then pat it dry with kitchen paper (squeeze as much liquid out as you can!) then tear into chunks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/816.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Top with the torn mozzarella and half of your grated Italian hard cheese (you'll
 
 Put the dish in the oven for 15-20 min or until the cheese has browned – this is your aubergine parmigiana
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/816.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Tip: If you don't have a pestle & mortar, chop everything very finely!
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and mix well – this is your basil pesto
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/816.-step-7-x200.jpg)
 
 ### Step 7
 

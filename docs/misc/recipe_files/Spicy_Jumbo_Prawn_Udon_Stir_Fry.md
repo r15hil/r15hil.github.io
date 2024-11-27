@@ -29,7 +29,6 @@ A super tasty and quick noodle recipe that's packed with big juicy king prawns a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580125403560-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until softened and browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580125408160-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Slice half your red chilli[es] into rounds (set these aside for garnish), then cut the remaining chilli in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580125412008-x200.jpg)
 
 ### Step 3
 
 Once the onion has softened, add the chopped chilli (can't handle the heat? Go easy!), garlic and ginger to the pan and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580125414989-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Trim, then chop your spring onions into batons (chop them in one bunch for speed
 
 Top, tail and peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580125418169-x200.jpg)
 
 ### Step 5
 
 Once fragrant, drain your jumbo prawns, then add them to the pan with the spring onion batons and cook for 4-5 min or until the prawns are almost cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580125421660-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Whilst the prawns are cooking, add your soy sauce to a bowl with your mirin, sri
 
 Give it all a good mix up – this is your spicy soy sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580125425183-x200.jpg)
 
 ### Step 7
 

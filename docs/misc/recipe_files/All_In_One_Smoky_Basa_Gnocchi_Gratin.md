@@ -22,7 +22,6 @@ Prep the ingredients for a creamy smoked fish gratin in minutes. The gnocchi and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-2-1728905498248-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728912985614-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Trim your leek[s], wash thoroughly to remove any grit, then top, tail and slice 
 
 Add the sliced leek to a large oven-proof dish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728912992997-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Add the sliced garlic to the oven-proof dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728913002642-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Chop your smoked basa fillet[s] into rough, bite-sized pieces
 
 Add the chopped basa to the oven-proof dish and top with your gnocchi
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728913015879-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add 150ml <span class="text-purple">[225ml]</span><span class="text-danger"> [30
 
 Stir it all together – this is your creamy sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728913024621-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Put the dish in the oven for 25-30 min or until bubbling, golden and cooked thro
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728913032655-x200.jpg)
 
 ### Step 7
 

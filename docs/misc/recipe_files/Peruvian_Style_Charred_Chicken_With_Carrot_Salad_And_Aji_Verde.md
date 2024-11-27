@@ -30,7 +30,6 @@ For our twist on Peruvian chicken, you'll marinate chicken thighs in spices and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585581461293-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Combine your ground cumin, soy sauce, honey and Dijon mustard with the juice of 
 
 Pat the chicken thighs dry with kitchen paper and add them to the bowl
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585581464801-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the coated chicken thighs and any remaining marinade to a tin foil-lined bak
 
 Put the tray in the oven for 25-30 min or until dark brown, crispy and cooked through (no pink meat!) – this is your Peruvian-style charred chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585581468310-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the chunky chips to a separate baking tray (or two!) with a drizzle of veget
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1585581472510-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Trim, then roughly chop half your<span class="text-danger"> </span>spring onion[
 
 Chop your green chilli[es] roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585581477038-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add your mayo and juice of the remaining lime
 
 Season with a pinch of salt and blitz until smooth – this is your aji verde
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1585581480741-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Chop your tomato[es] in half, then slice finely
 
 Trim, then slice the remaining spring onion finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1585581485409-x200.jpg)
 
 ### Step 7
 

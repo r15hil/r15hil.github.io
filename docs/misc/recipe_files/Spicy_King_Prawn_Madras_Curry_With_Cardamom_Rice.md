@@ -31,7 +31,6 @@ Fancy an Indian takeaway? Try this fiery fakeaway. You’ll pan-fry onion with c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681316871346-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Bring to the boil over a high heat, then once boiling, reduce the heat to very l
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681316875055-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the chopped onion with a very generous pinch of salt and cook for 6-7 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681316879045-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Trim, then chop your green beans into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681316882855-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Chop your creamed coconut roughly (if required)
 
 Dissolve the chopped creamed coconut, ginger & garlic paste and a generous pinch of salt in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681316888473-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Stir it all together and cook for 30 secs or until fragrant
 
 Once fragrant, add your tomato paste and cook for 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681316892990-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the coconut stock and cook for 1-2 min or until the sauce is slightly thicke
 
 Once slightly thickened, add the chopped green beans and cook, covered, for 3-4 min or until the beans are almost tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681316896753-x200.jpg)
 
 ### Step 7
 

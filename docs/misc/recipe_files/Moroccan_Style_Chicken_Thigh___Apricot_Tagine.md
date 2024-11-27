@@ -30,7 +30,6 @@ Combining tender chicken thighs with sweet apricots, earthy ras el hanout, and f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1103.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Boil half a kettle
 
 Add your couscous to a heatproof bowl with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> boiled water, cover and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1652344075434-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk so they don't burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1103.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1652344089065-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once hot, add the sliced onion with a pinch of salt to the pan and cook for 4-5 
 
 Reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1652344100062-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml] </spa
 
 Slice your chicken thighs into strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652344110871-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once softened, add the chicken strips and cook for 3-4 min
 
 Add the chopped tomato, pepper rounds, chicken stock and juice of half your lemon and cook, covered, for 8-10 min further or until the chicken is cooked through (no pink meat!) – this is your Moroccan-style chicken & apricot tagine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1652344123904-x200.jpg)
 
 ### Step 7
 

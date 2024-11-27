@@ -23,7 +23,6 @@ To tuck into this classic, you'll dollop your flame-baked pizza bases with garli
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1772.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Put a large baking tray (or two!) in the oven to heat up (this will stop the piz
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1772.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp] </span><span class="text-danger">[10 tbsp] </span>cold water and give everything a good mix up – this is your tomato sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1772.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with 
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1772.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Remove the heated tray[s] from the oven and add your pizza base[s]
 
 Spread the tomato sauce evenly over the pizza base[s] with the back of a spoon
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1772.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,13 +62,11 @@ Sprinkle over your dried oregano
 
 Put the tray in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your pepperoni pizza
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1772.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your balsamic vinegar with 2 tbsp<span class="text-danger"> <span class="text-purple">[3 tbsp]</span> [4 tbsp]</span> olive oil in a small bowl with a pinch of salt and pepper – this is your balsamic dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1772.-step-7-x200.jpg)
 
 ### Step 7
 

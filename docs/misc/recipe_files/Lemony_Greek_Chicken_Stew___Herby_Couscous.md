@@ -24,7 +24,6 @@ This tasty, tangy chicken stew is packed with the classic Greek flavours of lemo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1883.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Chop the chicken thighs into rough bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1883.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) <span class="text-highlight"
 
 Once hot, add the chopped onion and chopped chicken thighs and cook for 5-8 min or until everything is starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1883.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,19 +60,16 @@ Top and tail the courgette<span class="text-danger">[s] </span>
 
 Cut the courgette<span class="text-danger">[s]</span> in half lengthways then chop into half moons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1883.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the chicken and onions have browned, add the chopped garlic, dried oregano and 1 tsp<span class="text-danger"> [2 tsp]</span> flour to the pan and cook for 1 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1883.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the chicken stock, chopped courgette, chopped black olives and capers and cook for 5-6 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1883.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add the couscous to a heatproof bowl with the chicken stock, cover and set aside
 
 Once done, fluff with a fork then stir through the chopped parsley
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1883.-step-7-x200.jpg)
 
 ### Step 7
 

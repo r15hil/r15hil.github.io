@@ -27,7 +27,6 @@ This zesty marinade is a Cuban classic. You’ll coat tender hake in a tangy ble
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688486133790-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Strip your coriander leaves from their stalks and chop the stalks finely, then r
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688486138095-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add a drizzle of olive oil and a very generous pinch of salt and pepper
 
 Mix until fully combined – this is your mojo-style marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688486145715-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspo
 
 Add the sliced red onion and sliced pepper to one side of a baking tray (or two!) with a drizzle of olive oil and a pinch of salt, and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688486150045-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat, and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688486154389-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Pour the mojo-style marinade over the hake fillets, then scrunch the edges of th
 
 Tip: Cooking for 4? Make 2 separate parcels!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688486159428-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Meanwhile, drain and rinse your black beans, then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688486164949-x200.jpg)
 
 ### Step 7
 

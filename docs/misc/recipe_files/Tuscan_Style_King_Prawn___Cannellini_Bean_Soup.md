@@ -29,7 +29,6 @@ For a taste of Tuscany, look no further than this delicious dish. You'll simmer 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-7-1647949462819-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-7-1647949467524-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large pot with a drizzle of olive oil over a medium heat
 
 Once hot, add the chopped shallot, diced carrot and chopped garlic and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-7-1647949506594-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Dissolve your vegetable stock mix in 300ml<span class="text-purple"> [390ml]</sp
 
 Drain and rinse your cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-7-1647949532078-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the carrot and shallot have softened, add your tomato paste, cherry tomatoe
 
 Tip: Squash the cherry tomatoes with the back of a spoon to release their juices!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-7-1647949582527-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the herby stock and drained cannellini beans and bring to the boil over a hi
 
 Once boiling, reduce the heat to medium and cook for a further 3 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-7-1647949582618-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Tear your ciabatta[s] into bite-sized pieces and add to a baking tray with a dr
 
 Give everything a good mix up and put the tray in the oven for 5-6 min or until crisp – these are your salt & pepper croutons
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-7-1647949602385-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Create your own Mexican night with the ultimate feast. You'll load tortillas wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678198551400-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skins on) into bite-sized pieces and add them to a baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper and give everything a good mix up, then put the tray[s] in the oven for 20-25 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678198555432-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678198563551-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), over a 
 
 Once hot, add your diced chorizo and cook for 2 min or until starting to brown, then transfer to a bowl and set aside, reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678198567693-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the chopped garlic, ground cumin and ground smoked paprika with your chipotl
 
 Mix everything together and cook the chicken for 3 min on each side or until lightly browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678198571633-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once cooked, transfer the chicken to a clean board and shred apart using two for
 
 Return the pulled chicken to the pan and give everything a good mix up – this is your smoky pulled chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678198574864-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678198577914-x200.jpg)
 
 ### Step 7
 

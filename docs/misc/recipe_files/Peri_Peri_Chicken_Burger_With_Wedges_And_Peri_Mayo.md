@@ -23,7 +23,6 @@ Get your peri peri fix with this juicy chicken burger. Plate up with a side of p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687507029891-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the wedges to a baking paper-lined baking tray (or two!) with a drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687507033316-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the sliced onion to a small bowl with your red wine vinegar, a pinch of salt
 
 Give everything a good mix up and set aside to pickle – this is your quick-pickled onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687507041322-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Cover your chicken breast portion[s] in cling film and bash with a rolling pin u
 
 Season the flattened chicken with half your peri-peri seasoning (can't handle the heat? Go easy!) and a pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687507043898-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!) – this is your peri peri chicken breast
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687507047941-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Wash your lettuce, then pat it dry with kitchen paper
 
 Remove the outer leaves and set aside, then shred the inner core
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687507052479-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the wedges are nearly done, remove the tray[s] from the oven and add the ha
 
 Return the tray[s] to the oven for 4-5 min further or until toasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687507055963-x200.jpg)
 
 ### Step 7
 

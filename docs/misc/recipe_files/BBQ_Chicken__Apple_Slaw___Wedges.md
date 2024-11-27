@@ -25,7 +25,6 @@ Nothing beats chicken smothered in a dark, sticky barbecue glaze. For the ultima
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/404.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the potatoes (skins on) into wedges
 
 Place on a baking tray, drizzle with vegetable oil and season with salt and pepper, then put them in the oven for 30-40 min until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/404.step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Combine the tomato ketchup, Henderson's Relish, Dijon mustard and honey with 1
 
 Season with a pinch of salt and pepper and stir it all together – this is your BBQ sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/404.step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the chicken to the BBQ sauce and mix to coat thoroughly – this is your BB
 
 Refrigerate until step 5
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/404.step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Grate the apple<span class="text-danger">[s]</span>, then tear or chop the litt
 
 Add the above to a mixing bowl and give it a good mix up – this is your slaw salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/404.step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cook for 3 min on each side or until charred
 
 Tip: Alternatively cook on the BBQ until it's charred and cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/404.step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Transfer the charred chicken to a baking tray (use tin foil to avoid mess!)
 
 Spoon the excess BBQ sauce over the chicken and put the tray in the oven for 5 min, or until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/404.step-7-x200.jpg)
 
 ### Step 7
 

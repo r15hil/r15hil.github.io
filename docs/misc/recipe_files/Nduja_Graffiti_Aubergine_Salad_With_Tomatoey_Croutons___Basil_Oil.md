@@ -26,7 +26,6 @@ Pack a punch with this unforgettable dish. You'll layer your epic salad with 'nd
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655204501107-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Trim the green stalk off your graffiti aubergine[s] and cut lengthways into 3 we
 
 Add the aubergine wedges to one side of a baking paper-lined baking tray (or two) with a drizzle of olive oil and a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655204505599-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ While the aubergine is in the oven, deseed your pepper[s] (scrape the seeds and 
 
 Peel and grate your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655204513468-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tear your ciabatta into bite-size pieces
 
 Add your tomato paste to a bowl with your grated garlic, vegetable stock mix and 100ml <span class="text-purple">[140ml] </span><span class="text-danger">[180ml] </span>boiled water and stir to combine – this is your crouton marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655204527885-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Press the torn ciabatta into the marinade until all the sauce soaks into the bre
 
 Add the tomatoey croutons to a separate baking paper-lined tray with a drizzle of olive oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655204560930-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Push the aubergine closer together and tear your 'Nduja over the top (can’t ha
 
 Return the tray to the oven along with the tomatoey croutons for 18-20 min or until the pepper is charred and the croutons are crispy around the edges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655204575594-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add your red wine vinegar with a pinch of sugar and 2 tbsp <span class="text-pur
 
 Tip: If you don't have a pestle & mortar, chop the basil leaves very finely and mix with salt, olive oil and vinegar
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655204605091-x200.jpg)
 
 ### Step 7
 

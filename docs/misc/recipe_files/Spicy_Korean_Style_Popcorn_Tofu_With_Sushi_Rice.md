@@ -26,7 +26,6 @@ This Korean-style tofu is poppin’. You’ll pan-fry tofu bites till crispy bef
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678299359190-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678299367087-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678299375122-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Give everything a good mix up – this is your spicy sauce
 
 Trim, then slice your spring onion[s] on the diagonal
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678299379384-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Cut the tofu into cubes, then add to a bowl with the remaining gluten free soy s
 
 Once fully coated, add your cornflour to the bowl and mix it all together until fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678299387523-x200.jpg)
 
 ### Step 5
 
@@ -72,13 +67,11 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once the pan is very hot, add the coated tofu and cook for 3-4 min on each side until golden and crispy – this is your crispy tofu
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678299394189-x200.jpg)
 
 ### Step 6
 
 While the tofu is cooking, combine 1/2 tbsp per person of the<span class="text-danger"> </span>spicy sauce and your mayo in a bowl with your mooli slaw mix and give everything a good mix up – this is your spicy slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678299400348-x200.jpg)
 
 ### Step 7
 

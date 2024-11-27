@@ -30,7 +30,6 @@ Our twist on Thai green curry isn't just easy, it's also packed with protein and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583503129553-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop your chicken breast portion[s] into rough bite-sized pieces
 
 Peel and chop your red onion[s] into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583503133461-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 t
 
 Once hot, add the chopped chicken and onion wedges and cook for 3-4 min or until the chicken is browned all over and the onion is starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1583503136923-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1583503140614-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Dissolve the chopped creamed coconut in 250ml <span class="text-purple">[325ml]<
 
 Add your Thai green curry paste and soy sauce – this is your Thai green curry sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1583503144029-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Trim your Tenderstem broccoli
 
 Add the Tenderstem broccoli, sugar snap peas and Thai green curry sauce and cook, covered, for an initial 2-3 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1583503147896-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ After an initial 2-3 min, drain your king prawns, then add them to the pan
 
 Cook for a further 4-5 min or until the chicken is cooked through (no pink meat!), the prawns are cooked through and the vegetables are tender – this is your chicken & king prawn Thai green curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1583503151227-x200.jpg)
 
 ### Step 7
 

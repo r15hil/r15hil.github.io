@@ -23,7 +23,6 @@ This lightning-fast, umami-rich udon is packed full of chicken, and tossed toget
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1642518674096-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637671212077-x200.jpg)
 
 ### Step 2
 
@@ -47,13 +45,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your ginger & garlic paste with your diced chicken breast and cook for 6 min or until the chicken starts to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637671215391-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine your soy sauce, red chilli relish and toasted sesame oil in a bowl – this is your sweet chilli & sesame sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637671217661-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once the chicken starts to brown, add your udon noodles to the pan with a genero
 
 Tip: Gently separate the noodles with a fork!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637671221602-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Add the spinach to the pan with the noodles and cook, covered, for a further 2 min until the spinach has started to wilt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637671224205-x200.jpg)
 
 ### Step 6
 
 Meanwhile, slice your spring onion[s]<span class="text-danger"> </span>finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637671226962-x200.jpg)
 
 ### Step 7
 

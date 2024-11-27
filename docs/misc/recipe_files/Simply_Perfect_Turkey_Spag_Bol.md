@@ -27,7 +27,6 @@ Brilliant for weeknights and slurp-tastic for adults and children alike! Rustle 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586955759563-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Top, tail, peel and finely chop the carrot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1586955805191-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and carrot and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1586955767819-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1586955771335-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Once the onion and carrot are beginning to soften, add the turkey mince to the p
 
 Cook for 3-4 min further or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1586955775350-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite then drain an
 
 Meanwhile, dissolve the Kallo chicken stock cube<span class="text-danger">[s]</span>, Henderson’s Relish and soy sauce in 100ml <span class="text-danger">[200ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1586955779317-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Add the chopped garlic, tomato paste, chicken stock, tomato frito, dried basil a
 
 Season with a grind of black pepper, bring to the boil over a high heat and cook for 3-4 min further or until thickened – this is your turkey bolognese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1586955783181-x200.jpg)
 
 ### Step 7
 

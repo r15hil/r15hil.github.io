@@ -31,7 +31,6 @@ This Indian-inspired dish is like sunshine on a plate! You’ll serve spice-crus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676648255130-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Dissolve your vegetable stock mix in 300ml <span class="text-purple">[450ml]</sp
 
 Heat a pot with a matching lid, with a drizzle of olive oil over a medium heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676648258594-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676648262119-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Chop your coriander finely, including the stalks
 
 Strip your mint leaves from their stems and chop them finely, discarding the stems
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676648279750-x200.jpg)
 
 ### Step 4
 
@@ -75,13 +71,11 @@ Roughly chop your cherry tomatoes
 
 Add the chopped cherry tomatoes, 1/3 of the chopped mint and 1/3 of the chopped coriander (you'll use the rest later!) to a small bowl with a drizzle of olive oil and mix it all together – this is your tomato salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676649005995-x200.jpg)
 
 ### Step 5
 
 Add your hake fillet[s] to a bowl with your curry powder and a pinch of salt and give everything a good mix up until fully coated – this is your coated hake
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676648394130-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once hot, add the coated hake and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676648477087-x200.jpg)
 
 ### Step 7
 

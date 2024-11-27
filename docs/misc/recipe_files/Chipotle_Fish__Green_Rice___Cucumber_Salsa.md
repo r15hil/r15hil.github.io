@@ -20,7 +20,6 @@ In this speedy Mexican dish you'll grind fresh coriander to a paste and stir it 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1346.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1346.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Spread the&nbsp;the chipotle paste (Can't handle the heat? Go easy!) over the ba
 
 Put the tray in the oven for 8-10 min or until cooked through&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1346.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chopped coriander to a pestle and mortar with a pinch of salt and 1 tbsp
 
 Grind the coriander to a fine paste and set aside&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1346.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Cut the cucumber in half and scrape out the inner seeds with a teaspoon, throw t
 
 Grate the cucumber&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1346.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Chop the cherry tomatoes roughly into small pieces&nbsp;
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1346.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the chopped cherry tomatoes and cucumber&nbsp;to a bowl
 
 Add the juice of 1/2 <span class="text-danger">[1]</span> lime and season with a pinch of salt&nbsp;<span class="text-highlight">&ndash;</span> this is your cucumber &amp; tomato salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1346.-step-7-x200.jpg)
 
 ### Step 7
 

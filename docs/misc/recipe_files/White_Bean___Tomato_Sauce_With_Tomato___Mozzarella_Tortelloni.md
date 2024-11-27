@@ -24,7 +24,6 @@ Aprons at the ready for a true taste of Tuscany. Made in minutes from tender can
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1656953610026-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656953618832-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your cherry tomatoes in half
 
 Drain and rinse your cannellini beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1656953621678-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once the pan is hot, add the halved cherry tomatoes and drained cannellini beans
 
 Peel and slice (don't chop!) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1656953624367-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
 Reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1656953627423-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the sliced garlic to the pan and cook for 1-2 min or until fragrant
 
 Once fragrant, add your vegetable stock mix, dried basil and chilli flakes (can't handle the heat? Go easy!) with 100ml <span class="text-purple">[125ml]</span> <span class="text-danger">[150ml] </span>boiled water and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1656953631711-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Wash your shredded kale, then pat it dry with kitchen paper
 
 Add the kale and cook, covered, for 2-3 min or until wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1656953634773-x200.jpg)
 
 ### Step 7
 

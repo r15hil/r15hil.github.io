@@ -24,7 +24,6 @@ This homestyle Turkish kebab will become a family fave in no time. You’ll pan-
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1685091526404-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the aubergine halves to a baking tray
 
 Put the tray in the oven for 30-35 min or until very tender – this is your roasted aubergine
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1685091529696-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pot (with a lid) over a medium heat with a knob of butt
 
 Once hot, add the cumin seeds and cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1685091531992-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685091534761-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the beef mince and cook for 5-7 min or until beginning to brown, b
 
 Once browned, add the diced onion, half the chopped garlic (you'll use the rest later!), season with a pinch of salt and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685091537667-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once fragrant, add the ras el hanout, tomato paste, 1 tsp <span class="text-dang
 
 Season with a pinch of salt and pepper and cook for a further 4-5 min or until thickened and the beef is cooked through (no pink meat!) – this is your Turkish-style ali nazik beef kebab
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685091541060-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Tip: Carefully hold the stalks (they will be hot!) to scrape the flesh out easil
 
 Chop the scooped aubergine flesh finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1685091544173-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Impress the table with a crowd-pleasing meal, filled with juicy spiced meatballs
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1728919431046-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Cut your pepper[s] into bite-sized pieces
 
 Top, tail, peel and chop your parsnip[s] into quarters lengthways, then into batons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728919434532-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Combine your pork mince (remove the paper if required!) with your panko breadcru
 
 Divide the mix and shape into 3 meatballs per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1642504049188-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add a generous drizzle of olive oil and a very generous pinch of salt and pepper
 
 Give everything a good mix up and boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1642504055105-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Put the tray[s] in the oven for an initial 10 min or until starting to soften
 
 After 10 min, add the pork meatballs to the baking tray[s], then return the tray[s] to the oven for 20-25 min further or until the meatballs are browned and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1642504065275-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1642504070755-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced mushrooms and chopped garlic with a pinch of salt and pepper and cook for 3–4 min or until the mushrooms have slightly softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1642504075516-x200.jpg)
 
 ### Step 7
 

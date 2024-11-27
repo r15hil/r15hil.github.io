@@ -24,7 +24,6 @@ Put some zing into your step with an Asian-inspired dish that packs a punch. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-5-1699375949341-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add your white long grain rice to a pot with a lid with 175ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-5-1699375983005-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Cut 30g <span class="text-purple">[45g]</span><span class="text-danger"> [60g]</
 
 Cut long rectangles of tin foil (approx. the size of A3 sheets of paper), overlap the foil and place on a baking tray
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-5-1699375999007-x200.jpg)
 
 ### Step 3
 
@@ -56,19 +53,16 @@ Drizzle your soy sauce, honey and rice vinegar evenly over the chicken thighs
 
 Fold the edges around the foil upwards to enclose the sauce around the chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-5-1699376006245-x200.jpg)
 
 ### Step 4
 
 Put the tray in the oven for 17-18 min or until the chicken is cooked through and golden (no pink meat!) – this is your baked chicken with soy honey butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-5-1699376010252-x200.jpg)
 
 ### Step 5
 
 Whilst the chicken is cooking, wash your pak choi, then pat dry with kitchen paper and slice in half lengthways
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-5-1699376019472-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Season with a pinch of salt
 
 Once brown, add a splash of water and cook, covered, for 4-5 min further or until soft
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-5-1699376032438-x200.jpg)
 
 ### Step 7
 

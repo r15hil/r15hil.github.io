@@ -21,7 +21,6 @@ Take a trip to the Alps with this indulgent raclette. You'll top waxy potatoes w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1604489532530-x200.jpg)
 
 ### Step 1
 
@@ -35,19 +34,16 @@ Add the halved potatoes to a pot with plenty of boiled water and a pinch of salt
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until fork tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604489544998-x200.jpg)
 
 ### Step 2
 
 Meanwhile, trim, then slice the spring onions finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604489549407-x200.jpg)
 
 ### Step 3
 
 Add the sliced spring onions to a large bowl with the pickled cabbage, mayo and a pinch of salt and give everything a really good mix up – this is your creamy winter slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604489556599-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Tip: Too fiddly? Just break both up into smaller pieces!
 
 Tear the Serrano ham into smaller pieces and add to a serving board with the Napoli salami and salami cones – this is your charcuterie
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604489572464-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once the potatoes are fork tender, add them to a baking paper-lined baking tray 
 
 Bash the potatoes with a rolling pin, or crush them with a fork
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604489593115-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Season with a generous pinch of salt and top with the raclette cheese slices
 
 Put the tray in the oven for 10-15 min or until the raclette is melted and starting to bubble around the edges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604489602163-x200.jpg)
 
 ### Step 7
 

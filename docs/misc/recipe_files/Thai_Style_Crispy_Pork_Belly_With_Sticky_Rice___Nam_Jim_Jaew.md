@@ -24,7 +24,6 @@ It’s all about the dip in this Thai showstopper. You’ll whisk up soy, fish s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683034894033-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Season the skin with a pinch of salt and rub it deep into the criss-cross patter
 
 Season the rest of the pork with the five-spice mix
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683034899372-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cut 2 <span class="text-danger">[4]</span> pieces of tin foil approx. the size
 
 Lay the browned pork (skin-side up), in the middle of the 2 pieces of foil (doubling it up prevents any leakages!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683034904851-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Pour 100ml <span class="text-danger">[200ml]</span> cold water around the pork
 
 Put the tray in the oven for 45 min or until the pork skin is crisp and the meat is cooked through and tender (no pink meat!) – this is your Thai-style crispy pork belly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683034916641-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
 Chop the coriander finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683034922710-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the chilli flakes (can't handle the heat? Go easy!) and soy sauce to a small
 
 Toss the carrot ribbons in a bowl with most of the chopped coriander (save some for garnish!) and the juice of the remaining lime – this is your carrot salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683034929839-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ When the pork has 25 min left, rinse the sushi rice in a sieve under cold runnin
 
 Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683034934495-x200.jpg)
 
 ### Step 7
 

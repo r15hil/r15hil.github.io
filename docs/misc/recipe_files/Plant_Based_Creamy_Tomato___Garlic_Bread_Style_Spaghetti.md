@@ -25,7 +25,6 @@ Get ready for a crunchy, garlicky and unbelievably creamy plant-based spaghetti 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1670237832538-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1700484085896-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664902529782-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add your pine nuts, panko breadcrumbs and half the chopped garlic (you
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664902569763-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Chop your parsley finely, including the stalks
 
 Dissolve your vegetable stock mix in 50ml <span class="text-purple">[60ml] </span><span class="text-danger">[75ml]</span> boiled water with a pinch of sugar, then stir in your creamy single soy– this is your creamy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664902576890-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Return the reserved pan to a high heat with a drizzle of olive oil
 
 Once hot, add the halved tomatoes, remaining garlic and a very generous pinch of salt and cook for 2 min or until starting to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664902585185-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Meanwhile, wash your salad, then pat it dry with kitchen paper
 
 Add the creamy stock and cooked spaghetti to the softened tomatoes and cook for 2-3 min, or until thickened to a double cream-like consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664902605151-x200.jpg)
 
 ### Step 7
 

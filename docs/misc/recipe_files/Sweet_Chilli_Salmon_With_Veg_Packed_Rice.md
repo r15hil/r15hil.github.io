@@ -27,13 +27,11 @@ Got the hots for sweet chilli? You’re going to love tasty salmon, smothered in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1630485839347-x200.jpg)
 
 ### Step 1
 
 Top, tail, peel and dice your carrot[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630485843043-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once boiling, add the diced carrot and reduce the heat to very low and cook, cov
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630485845903-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Combine half of your soy sauce (you'll use the rest later!) with your maple syru
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630485849486-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once hot, add your salmon fillet[s], skin-side down, season with a pinch of salt
 
 Meanwhile, peel and finely slice (don't chop!) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630485856173-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cook for a further 6-7 min turning once halfway, or until the salmon is cooked t
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1630485857690-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add your blanched peas to a colander and pour boiled water all over to refresh t
 
 Once the rice is cooked, add the refreshed peas, black sesame seeds and remaining soy sauce and mix everything together – this is your veg-packed rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630485863590-x200.jpg)
 
 ### Step 7
 

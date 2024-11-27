@@ -23,7 +23,6 @@ This seasonal showstopper is the perfect way to enjoy British venison. The rich 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1879.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once hot, add the potatoes & cook for 4-5 minutes or until golden brown
 
 Flip the potatoes and add a knob of butter, thyme and unpeeled garlic and cook for 3-4 minutes or until the other side is golden brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1879.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Tip: Add a splash more water if needed!
 
 Put the dish in the oven for 30-40 minutes or until the potatoes are cooked through – these are your fondant potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1879.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the sliced carrots to a pot of boiled water and cook over a high heat fo
 
 Once cooked, drain and return the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1879.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Season with a generous pinch of salt and blitz until smooth – this is your car
 
 Return the carrot purée to the pot and heat up just before serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1879.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,7 +90,6 @@ Once very hot, add the venison steaks and cook for 2-3 minutes on each side for 
 
 Once done, transfer the venison to a plate and cover until serving, reserving the pan (and oil) for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1879.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -113,7 +107,6 @@ Gradually stir the stock into the roux and return the caramelised shallots to t
 
 Cook for 5-6 minutes or until the sauce has thickened so that it coats the back of a wooden spoon – this is your shallot jus
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1879.-step-7-x200.jpg)
 
 ### Step 7
 

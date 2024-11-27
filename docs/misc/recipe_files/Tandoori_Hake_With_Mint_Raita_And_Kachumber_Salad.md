@@ -25,7 +25,6 @@ For a quick tandoori-style dish, you'll char marinated hake under the grill to i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove the rice from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Preheat the grill to high
 
 Cut your hake fillet[s] in half lengthways, and then chop into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Combine half of your natural yoghurt (you'll use the rest later!) with your curr
 
 Add the chopped hake and mix well until they're completely coated – this is your coated hake
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add the coated hake to the baking tray[s] and place under the grill for 6-7 min 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916_step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Peel and finely chop your shallot[s]
 
 Dice your tomato[es]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Combine the diced cucumber, chopped shallot and diced tomato in a bowl with 1 t
 
 Season with a pinch of salt and give everything a good mix up – this is your kachumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-7-x200.jpg)
 
 ### Step 7
 

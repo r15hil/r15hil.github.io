@@ -27,7 +27,6 @@ Try your go-to comfort stew, Middle Eastern-style. You’ll simmer juicy chicken
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1699031253908-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 225ml <span class="text-purple">[330ml] </span><span class="text-danger">[400ml]</span> boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1699031257723-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast with a generous pinch of salt and cook for 3-4 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1699031261434-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1699031265243-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once softened, reduce the heat to medium-high, then add the chopped garlic with 
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1699031268996-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once fragrant, add the chicken stock to the pan with a pinch of sugar and bring 
 
 Once boiling, reduce the heat to medium and cook for 6-8 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your baharat chicken stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1699031273003-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Tip: This helps prevent mess and makes separating the pith easier!
 
 Separate the pomegranate seeds from the white pith and discard the pith, then drain the pomegranate seeds in a fine sieve and set them aside for garnish
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1699031276065-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Goulash is a traditional Hungarian meat stew seasoned with smoked paprika and ot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/921.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/921.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Deseed the green and red pepper<span class="text-danger">[s]</span> (scrape the 
 
 Peel the shallots and cut them in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/921.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add the diced&nbsp;pork tenderloin&nbsp;and cook for 1-2 min on each side&nbsp;
 
 Transfer the pork&nbsp;to a plate and return the pan to a medium heat&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/921.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the chopped peppers and&nbsp;shallot halves to the pan with a pinch of salt
 
 Cover with a lid and cook over a medium heat for 5-6 min or until the peppers have softened&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/921.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Meanwhile, dissolve the beef stock cube,&nbsp;tomato paste&nbsp;and 2 tsp<span c
 
 Trim, then chop the spring onion<span class="text-danger">[s]</span> finely&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/921.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once the peppers have softened, add the cayenne pepper (Can't handle the heat? G
 
 Add a large knob of butter and 1 tbsp <span class="text-danger">[2 tbsp]</span> flour&nbsp;and cook for a further 1 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/921.-step-7-x200.jpg)
 
 ### Step 7
 

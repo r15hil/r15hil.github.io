@@ -20,7 +20,6 @@ For this crowd pleasing tray bake, you'll roast juicy sausages with a colourful 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1582891217192-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Shred the red cabbage (not too finely), discard the root
 
 Remove some butter from the fridge and set it aside to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582891221795-x200.jpg)
 
 ### Step 2
 
@@ -40,13 +38,11 @@ Layer the Cumberland sausages over the top of the cabbage and put the tray in th
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1582891226294-x200.jpg)
 
 ### Step 3
 
 Whilst everything is in the oven, wash the leek<span class="text-danger">[s]</span> carefully to remove any grit from between the leaves, then top, tail and slice in half lengthways and chop into 8 <span class="text-danger">[16]</span> pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582891231675-x200.jpg)
 
 ### Step 4
 
@@ -54,7 +50,6 @@ Strip the thyme and rosemary leaves from their stems and discard the stems
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582891236520-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Add the chopped leek with a drizzle of olive oil and a crack of black pepper, th
 
 Return the tray to the oven for a further 6-8 min or until everything is beginning to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1582891240341-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Mix everything together so that the croutons are evenly coated – these are you
 
 Dissolve the beef stock mix in 250ml<span class="text-danger"> [450ml] </span>boiled water with the green tomato chutney – this is your stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582891244693-x200.jpg)
 
 ### Step 7
 

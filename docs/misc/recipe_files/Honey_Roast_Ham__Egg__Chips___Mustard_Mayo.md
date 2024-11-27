@@ -20,7 +20,6 @@ Sometimes the most comforting dishes are the best, and this one is a pub classic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/948.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the gammon and cook for 3-4 min or until browned all over
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/948.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the gammon and cook for 3-4 min or until browned all over
 
 Add the chunky chips to a baking tray with a drizzle of vegetable oil and a generous pinch of salt and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/948.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Add the tin foil to the baking tray with the chips
 
 Put the tray in the oven for 25-30 min or until the chips are golden and the gammon is cooked through (you will be glazing it halfway through with the honey)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/948.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine the mayonnaise, wholegrain mustard and 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil in a bowl – this is your mustard mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/948.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the gammon has been cooking for 15 min, drizzle the honey over and return
 
 Once cooked, transfer the gammon to a clean board and leave to rest for 5 min, keep any cooking juices for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/948.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cover with a lid and cook for 2 min or until done to your liking
 
 Tip: Give your eggs a little shake before you crack for perfectly centred yolks!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/948.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Bring back this kids' classic, better than ever. You'll add Tenderstem broccoli 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581614940372-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your tortiglioni to a pot of boiled water with a large pinch of salt and br
 
 Reboil half a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581614944077-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely chop (or grate) your garlic
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581614947876-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ After an initial 4-5 min, add your Tenderstem broccoli to the tortiglioni and co
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581614951547-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the butter has melted, add the sliced leek[s] and cook for 5-6 min or until
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[150ml]</span><span class="text-danger"> [200ml] </span>boiled water and add 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> milk – this is your creamy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581614955380-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Gradually whisk in the creamy stock and cook for 5 min or until a smooth, thick 
 
 Once thick, stir through the grated cheddar cheese, half your grated Italian hard cheese (save the rest for later!) and your Dijon mustard (not a mustard fan? Go easy!) – this is your cheese sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581614959905-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Transfer to an oven-proof dish and top with the cheesy breadcrumbs
 
 Put the dish in the oven for 10-15 min or until golden and bubbling
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581614966312-x200.jpg)
 
 ### Step 7
 

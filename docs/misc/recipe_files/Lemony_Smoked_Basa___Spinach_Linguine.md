@@ -22,7 +22,6 @@ For this elegant pasta dish, you'll pan-fry smoked fish in garlic oil, before st
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1646.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add your linguine to a pot of boiled water with a pinch of salt, then bring to
 
 Once cooked, drain the linguine and reserve a cup of the starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1646.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Once hot, add the sliced garlic and cook for 1 min
 
 Remove the pan from the heat and leave the garlic to infuse the oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1646.-step-3-x200.jpg)
 
 ### Step 3
 
 Chop your smoked basa fillet[s] into small bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1646.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Return the pan with the garlic oil to a medium heat
 
 Once hot, add the chopped basa and cook for 4-5 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1643721705763-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ While the basa is cooking, zest half your lemon[s] (try to grate lightly with a 
 
 Slice the remaining non-zested lemon into wedges and reserve for garnish
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1646.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Season very generously with salt and pepper and cook for 1-2 min further or unti
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1646.-step-7-x200.jpg)
 
 ### Step 7
 

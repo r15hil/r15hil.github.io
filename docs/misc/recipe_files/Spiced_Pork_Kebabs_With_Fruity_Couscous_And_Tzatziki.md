@@ -31,7 +31,6 @@ It’s an island affair with these Greek-style pork kebabs. You’ll add a touch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662459178171-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel and chop your red onion[s] into wedges
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662459183359-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add your pork mince (remove the paper if required!), baharat and a generous pinc
 
 Divide the pork mixture and roll into 2 sausage shapes per person – these are your spiced pork kebabs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662459188164-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add the halved cherry tomatoes and red onion wedges to the other side and sprink
 
 Give the veg a good mix up, then put the tray[s] in the oven for 18-20 min or until the kebabs are cooked through (no pink meat!) and the tomatoes have softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662459192905-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Peel and finely chop (or grate) your garlic and strip your mint leaves from thei
 
 Grate your cucumber
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662459199070-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add your couscous, sultanas and lemon zest to a heatproof bowl, with a generous 
 
 Add your chicken stock to the bowl, then cover with a tea towel and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662459203795-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the chopped garlic (not a big garlic fan? Try using less!), half the chopped
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662459208520-x200.jpg)
 
 ### Step 7
 

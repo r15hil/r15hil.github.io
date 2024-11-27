@@ -28,7 +28,6 @@ In this dish, you'll combine two Italian classics to create a rich risotto bolog
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1692959755033-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Top, tail, peel and dice your carrot[s]<span class="text-danger"> </span>finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1692959758380-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion, chopped carrot and half the chopped garlic (you'll use the rest later!) with a generous pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1692959763635-x200.jpg)
 
 ### Step 3
 
 While the onion and carrot are softening, dissolve your beef stock mix and soy sauce in 400ml<span class="text-danger"> <span class="text-purple">[520ml]</span> [700ml]</span> boiled water - this is your beef stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1692959767699-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Once softened, add your beef mince to the pan and cook for 2-3 min, breaking up 
 
 Once the mince has broken up, add your arborio rice and cook for 1 min further or until toasted and fully coated in the oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1692959772219-x200.jpg)
 
 ### Step 5
 
 Add the chopped tomatoes, dried oregano and beef stock and cook for 25-30 min, stirring frequently, until all of the stock has been absorbed, the rice is cooked and the beef is cooked through (no pink meat!) – this is your risotto bolognese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1692959782844-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the ciabatta cubes to a baking tray with the remaining chopped garlic, most 
 
 Add a drizzle of olive oil and give everything a good mix up, then put the tray in the oven for 8-10 min or until the croutons are toasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1692959786306-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Spaghetti is swapped for gnocchi here and the sauce has heaps of flavour from th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1667902268693-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667902288449-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your pork mince (remove the paper if required!) to the pan and cook for 4 min or until starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667902306928-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667902339514-x200.jpg)
 
 ### Step 4
 
 Add your Marmite to the pan with your dried oregano, dried basil, chilli flakes (can't handle the heat? Go easy!) and roasted garlic paste and cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667902343035-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Cook for a further 4 min or until the pork is cooked through (no pink meat!) and
 
 Note: Please make sure you cook your pork mince thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667902348242-x200.jpg)
 
 ### Step 6
 
 Once the sauce has thickened, stir through the drained gnocchi – this is your herby pork gnocchi bolognese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667902350527-x200.jpg)
 
 ### Step 7
 

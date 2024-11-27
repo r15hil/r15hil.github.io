@@ -28,7 +28,6 @@ This spicy Thai-inspired soup takes 5 minutes to prep. You'll tumble all your in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610730664500-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606304324625-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Peel and chop your red onion[s] into quarters, then finely slice 1/4 of the<span class="text-danger"> </span>red onion quarters and set aside for serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606304330739-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Crush your garlic open by squashing with the side of a knife and remove the skin
 
 Slice your lemongrass in half lengthways
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606304335744-x200.jpg)
 
 ### Step 4
 
 Add the red onion quarters to the dish with the halved lemongrass, crushed garlic and ginger halves
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606304369744-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Add your red Thai curry paste and your chicken stock mix
 
 Add 600ml <span class="text-purple">[900ml]</span><span class="text-danger"> [1.2L] </span>boiled water with your creamed coconut and sriracha (can't handle the heat? Go easy!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606304381773-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Meanwhile, trim your green beans, then chop them into thirds and set aside for l
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606304393909-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ For a turkey-free twist to your Thanksgiving dinner, look no further than our fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1635264208591-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion and garlic and cook for 4-5 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635264212019-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once the onion has softened, add the diced carrot, butternut squash cubes, drain
 
 Give everything a good mix up until fully combined – this is your veggie loaf mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635264214887-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Put the tin in the oven for 40 min or until browned and firm in the middle, rese
 
 Tip: If you don't have a loaf tin, shape into a log instead!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635264218281-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635264221070-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Return the reserved pan to a medium heat with a drizzle of olive oil and once ho
 
 Season with a pinch of salt and pepper and cook for 2-3 min or until lightly golden, then transfer to a small bowl, reserving the pan – this is your herby almond crumb
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635264224043-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once melted, add 2 tsp <span class="text-danger">[4 tsp]</span> flour and cook f
 
 Whisk in 250ml<span class="text-danger"> [400ml] </span>boiled water with the Henderson's Relish, remaining soy sauce and a generous grind of black pepper, and cook for 4-5 min or until thickened (this can be quickly reheated before serving!) – this is your gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635264226848-x200.jpg)
 
 ### Step 7
 

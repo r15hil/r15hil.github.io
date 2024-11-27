@@ -28,7 +28,6 @@ Punchy Cajun-inspired seasoning brings the heat to this fiery fusion dish. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1706539328845-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!), ground coriander, dried oregano, ground cumin, a pinch of sugar and salt and a generous grind of black pepper to a plate and give everything a good mix up – this is your Cajun-style spice mix
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1706539332846-x200.jpg)
 
 ### Step 2
 
 Press one side of your chicken breast portion[s] into the Cajun-style spice mix and save the rest of the spice mix for later – this is your Cajun-style spiced chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1706539338775-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once hot, add the Cajun-style spiced chicken, spice-side down, and cook for 3 mi
 
 Once charred, transfer the chicken, spice-side up, to a baking tray (reserve the pan for later), then put the tray in the oven for 15 min or until the chicken is cooked through (no pink meat!) and the juices run clear
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1706539343727-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1706539347975-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the sliced red onion, chopped garlic, pepper strips and remaining Cajun-style spice mix and cook for 8-10 min or until starting to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1706539352432-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Reboil half a kettle
 
 Dissolve your chicken stock mix and soft cheese in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml]</span> boiled water – this is your creamy stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1706539357034-x200.jpg)
 
 ### Step 7
 

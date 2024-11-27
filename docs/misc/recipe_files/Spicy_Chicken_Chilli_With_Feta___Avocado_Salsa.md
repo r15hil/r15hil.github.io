@@ -30,7 +30,6 @@ This fiery chilli is packed with succulent pulled chicken and Mexican flavour. Y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586949669906-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Rinse your brown rice, then add it to a pot with plenty of cold water and bring 
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1587996594479-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) over a 
 
 Once hot, add the coated chicken and cook for 3 min on each side or until browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586949680769-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Dissolve your chicken stock mix, chipotle paste (can't handle the heat? Go easy!
 
 Drain and rinse your black beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1587996696775-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the chipotle stock, drained black beans and chilli flakes (not a fan of spic
 
 Once boiling, cook, covered, for a further 10-12 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586949689604-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Crumble your feta into large pieces using your hands
 
 Cut your lime[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586949693666-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Add the juice of half your<span class="text-danger"> </span>lime[s] and stir it 
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586949698079-x200.jpg)
 
 ### Step 7
 

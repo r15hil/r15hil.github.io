@@ -27,7 +27,6 @@ Hailing from the Scottish borders, 'Rumbledethumps' is a classic dish similar to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602079716031-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Add the shredded kale and sliced onion and cook for 5-6 min or until wilted then remove to a plate, reserving the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602079782823-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add Chantenay carrots to a baking tray with a generous drizzle of vegetable oil 
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until tender and beginning to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602079803032-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel and finely chop (or grate) the garlic
 
 Strip the thyme leave off the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602079901616-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once hot, add the diced onion and cook for 6-8 min or until starting to soften, 
 
 Cook for a further 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602079958480-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Add the stock to the pan and bring to the boil over a high heat
 
 Cook for 4-5 min or until slightly thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602079994853-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Mash roughly, then stir in the wilted kale and onions with the horseradish cream
 
 Give everything a good mix up – this is your rumbledethumps
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602080056872-x200.jpg)
 
 ### Step 7
 

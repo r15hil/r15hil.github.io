@@ -26,7 +26,6 @@ This Spanish dish has a North African flavour: warmth and fragrance from our sig
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1463.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion&nbsp;with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1463.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Meanwhile, rinse the freekeh, add it to a pot with plenty of cold water and brin
 
 Cook for 20-25 min or until tender but with a bite, then drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1463.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once the onion has softened, add the chopped garlic,&nbsp;baharat and dried&nbsp
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1463.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Drain and rinse the chickpeas
 
 Add the capers,&nbsp;drained chickpeas,&nbsp;chopped tomatoes,&nbsp;vegetable&nbsp;stock cube<span class="text-danger">[s] </span>and 150ml <span class="text-danger">[250ml]</span> boiled water&nbsp;to the pan and cook for 10-15 min or until the sauce has thickened<br /><br /><br />
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1463.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Tip: soaking the saffron in hot water infuses the water, bringing out its colour
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1463.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Meanwhile, chop the parsley finely
 
 Once the water has infused, <span class="text-highlight">add half <span class="text-danger">[all]</span> of the</span>&nbsp;natural yoghurt to the saffron and give it a good mix up &ndash; this is your saffron yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1463.-step-7-x200.jpg)
 
 ### Step 7
 

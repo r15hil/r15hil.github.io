@@ -27,7 +27,6 @@ Our Cookstarter finalist, Noya’s Kitchen, offers a window to the vibrant, arom
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617204597247-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617204649780-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617204701194-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ Tip: Make sure the aubergine strips have some space so they don't steam!
 
 Put the tray in the oven for 20 min or until the aubergine is golden and soft
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617204756790-x200.jpg)
 
 ### Step 4
 
 Whilst the aubergine is cooking, combine the soy sauce, cornflour, chilli flakes (can't handle the heat? Go easy!), rice vinegar, 4 tbsp <span class="text-danger">[8 tbsp] </span>cold water and 1 tbsp <span class="text-danger">[2 tbsp]</span> brown sugar – this is your chilli sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617204763967-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Chop the coriander leaves finely, discarding the stalks
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617204787861-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ When the onion has softened, add the chopped ginger and garlic and cook for 2-3 
 
 Once fragrant, add the roasted aubergine and give everything a good stir
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617204952406-x200.jpg)
 
 ### Step 7
 

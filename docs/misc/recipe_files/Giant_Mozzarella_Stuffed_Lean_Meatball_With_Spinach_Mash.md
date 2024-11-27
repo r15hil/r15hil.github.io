@@ -28,7 +28,6 @@ This recipe has all the elements of cosy comfort food: a giant lean beef meatbal
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1726572618595-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, peel and finely chop (or grate)
 
 Combine your lean beef mince with half the chopped garlic and a pinch of salt and pepper and mix, then divide the lean beef mixture into 1 ball per person and flatten the mixture and add the mozzarella halves to the middle of each lean beef mixture
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1726572622592-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the mozzarella-stuffed meatballs and cook for 4-5 min or until bro
 
 Reserve the pan and boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1726572626221-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Return the reserved pan to a medium-high heat with a little drizzle of olive oil
 
 Once softened, add the chopped tomatoes, grated carrot and dried oregano with 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp] </span>flour and a pinch of salt and cook for 6-8 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1726572629609-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the vegetables have softened, add the tomato stock and cook for 4-5 min fur
 
 Once slightly thickened, pour the sauce over the meatballs and put the dish in the oven for 15-20 min<span class="text-danger"> </span>or until the meatballs are browned and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1726572632898-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a generous pin
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1726572636405-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Return the potatoes to a low heat with a knob of butter and a splash of milk
 
 Season with a pinch of salt and pepper and mash until smooth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1726572639949-x200.jpg)
 
 ### Step 7
 

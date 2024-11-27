@@ -26,7 +26,6 @@ For two classic comfort foods in one, you'll pack this rich beef ragù full of m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1615221223361-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cook the macaroni for 8-10 min or until cooked with a slight bite
 
 Once cooked, drain the macaroni and reserve the pot for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1615221229890-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Tear the chestnut mushrooms into rough, bite-sized pieces
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1615221238370-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the chopped onion and cook for 4-5 min or until beginning to softe
 
 Dissolve the beef stock mix in 200ml<span class="text-danger"> [300ml]</span> boiled water and stir in the tomato paste, dried oregano and half of the balsamic vinegar (you’ll use the rest later!) – this is your beef stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1615221244550-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon
 
 Add the torn mushrooms and chopped garlic and cook for 2 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1615221249146-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once browned, add the beef stock, grated carrot and 1 tsp <span class="text-dang
 
 Meanwhile, grate the cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1615221253671-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Gradually add 250ml <span class="text-danger">[400ml]</span> milk into the roux 
 
 Remove from the heat and season with salt and pepper – this is your béchamel
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1615221258563-x200.jpg)
 
 ### Step 7
 

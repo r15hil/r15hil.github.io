@@ -27,7 +27,6 @@ Inspired by the tastebud-tingling flavours of Peru, you’ll drizzle zingy chipo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665486460551-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and chop half your red onion[s] into wedges
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665486464759-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Season with a pinch of salt and pepper and give everything a good mix up
 
 Put the tray[s] in the oven for 25-30 min or until the potatoes are cooked through and golden and the onion has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665486469172-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the sliced onion, the juice of half the lime[s], a pinch of salt, 1 tsp <spa
 
 Give everything a good mix up and set aside – this is your quick-pickled red onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665486475319-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Wash your salad then pat it dry with kitchen paper
 
 Combine the grated carrot and salad in a large bowl – this is your salad mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665486486809-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once hot, add the drained sweetcorn with a pinch of salt and cook for 4-5 min or
 
 Once starting to char, transfer to a bowl to cool slightly, reserving the pan – this is your charred sweetcorn
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665486490913-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, drain then add your king prawns and chopped garlic and cook for 4-5 min or until the prawns are cooked through – these are your garlic king prawns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1665486513436-x200.jpg)
 
 ### Step 7
 

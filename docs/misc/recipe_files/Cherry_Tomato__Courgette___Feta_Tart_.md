@@ -24,7 +24,6 @@ This classic flavour combination shouts summer supper. Fresh mint, courgette rib
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1635.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,13 +41,11 @@ Cut the cherry tomatoes in half&nbsp;
 
 Trim then finely slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1635.-step-2-x200.jpg)
 
 ### Step 2
 
 Combine the chopped garlic with the cr&egrave;me fra&icirc;che&nbsp;and a pinch of salt&nbsp;&ndash; this is your&nbsp;creamy sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1635.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Score a<span class="text-highlight"> 1cm border </span>around the edge of the pa
 
 Tip: the border will puff up to give you a nice crust!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1635.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,19 +77,16 @@ Crumble over the feta cheese&nbsp;
 
 Season with generous grind of black pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1635.-step-5-x200.jpg)
 
 ### Step 5
 
 Put the tray in the oven and cook for&nbsp;35-40 min or until the pastry is cooked through, puffed up and golden &ndash; this is your courgette &amp; cherry tomato tart
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1635.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, strip the mint leaves from their stems and&nbsp;chop them roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1635.-step-7-x200.jpg)
 
 ### Step 7
 

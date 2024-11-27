@@ -25,7 +25,6 @@ This cheesy risotto will be the talk of your dinner table. You’ll stir in plen
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1715248811735-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Grate your cheddar cheese
 
 Dissolve your chicken stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1715248815603-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Roll your lemon[s] with your hand on a hard surface (to release more juice) and 
 
 Add your blanched peas to a colander and rinse under cold running water to refresh them
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1715248819814-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Season with a pinch of pepper and give everything a good mix up – this is your
 
 <span class="text-danger">Tip: Cooking for kids? Set aside half the refreshed peas and leave plain!</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1715248823459-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add your sliced prosciutto to a plate and put in the microwave for 4-5 min, then
 
 Tip: Check your sliced prosciutto every 30 secs to prevent it from burning, as microwave temperatures vary!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1715248827452-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and cook for 3-4 min or until beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1715248832131-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once fragrant, add the chicken stock a ladle at a time, stirring continuously fo
 
 Reboil a kettle
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1715248835558-x200.jpg)
 
 ### Step 7
 

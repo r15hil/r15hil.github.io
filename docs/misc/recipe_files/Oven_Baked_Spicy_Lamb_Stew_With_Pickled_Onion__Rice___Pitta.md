@@ -27,7 +27,6 @@ This rich lamb stew is spiced with aromatic ras el hanout and fiery harissa. Sta
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612376399729-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1603466906834-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add your sliced onion to a bowl and set aside for later
 
 Heat a large, wide-based hob-safe oven-proof casserole dish over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603466924039-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Crush your garlic open by squashing it with the side of a knife and remove the s
 
 Add your red wine vinegar to the bowl with the sliced red onion and set aside to pickle – this is your quick-pickled red onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603466929089-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Cook for 2 min, breaking the mince into large chunks with a wooden spoon, until 
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603466937141-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add your beef stock mix with 300ml <span class="text-purple">[400ml]</span> <spa
 
 Stir it all together and bring to the boil over a high heat, then put the dish in the oven, uncovered, for 40 min or until the sauce has thickened and the lamb has cooked through (no pink meat!) – this is your oven-baked spicy lamb stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1720526935427-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cover tightly with tin foil and put the dish on one side of a baking tray (or tw
 
 Put the tray[s] in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1720526945265-x200.jpg)
 
 ### Step 7
 

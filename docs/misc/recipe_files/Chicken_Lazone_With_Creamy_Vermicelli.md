@@ -21,7 +21,6 @@ Chicken Lazone is a fancy name for a super simple dish. Seasoned, pan-fried chic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/557.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Peel and finely chop (or grate) the garlic
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/557.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Mix thoroughly&nbsp;
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/557.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cook, covered, for 5 min
 
 Meanwhile, slice the mushrooms finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/557.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Cook, covered, for a further 5 min or until the chicken is cooked through
 
 Stir the mushrooms occasionally
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/557.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Meanwhile, place the noodles in dish and cover completely with boiled water
 
 Set aside for 3 min, then drain&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/557.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Once cooked, transfer the chicken with a few mushrooms to a plate and set aside 
 
 Return the pan to a low heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/557.-step-7-x200.jpg)
 
 ### Step 7
 

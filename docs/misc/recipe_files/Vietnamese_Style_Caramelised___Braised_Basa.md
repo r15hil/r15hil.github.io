@@ -28,7 +28,6 @@ Venture to Vietnam for the perfect braised basa. Simmer your fish in a caramelis
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1706632435798-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chopped basa to a bowl with your fish sauce and a generous grind of blac
 
 Set aside to marinate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1706632442030-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1706632445942-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add 3 tsp <span class="text-purple">[4 1/2 tsp]</span> <span class="text-danger">[6 tsp]</span> sugar and cook for 4-5 min or until golden and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1706632457451-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel and slice your shallot[s] finely
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1706632461109-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>boiled water with your soy sauce – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1706632465497-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once fragrant, add the coconut stock and cook for 3-4 min or until your fish is 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706632468912-x200.jpg)
 
 ### Step 7
 

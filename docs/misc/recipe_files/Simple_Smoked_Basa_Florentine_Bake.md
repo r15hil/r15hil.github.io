@@ -20,7 +20,6 @@ Our twist on fish pie is so simple to prepare. You'll cook smoked basa in a crea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1542.-step-1a-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut your waxy potatoes (skins on) into small bite-sized pieces
 
 Add the chopped potatoes to a pot of boiled water with a small pinch of salt, bring to the boil over a high heat and cook for 12-15 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1542.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Dissolve your soft cheese and vegetable stock mix in 70ml [<span class="text-p
 
 Once dissolved, add your wholegrain mustard, 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> milk and a generous grind of pepper – this is your creamy stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1542.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Wash your spinach then add your spinach to a colander and pour boiled water ove
 
 Rinse the wilted spinach under the cold tap until it's cool
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1615560896660-x200.jpg)
 
 ### Step 4
 
@@ -58,13 +54,11 @@ Once cool, squeeze the water out of the wilted spinach as much as you can and t
 
 Chop your smoked basa fillet[s] into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1542.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the chopped basa, chopped spinach and creamy stock to an oven-proof dish and give everything a good mix up – this is your smoked basa mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1542.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Once cooked, drain the potatoes and return them to the pot with a very generous 
 
 Tip: Don't press too hard, you only want to crush them!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1542.-step-7-x200.jpg)
 
 ### Step 7
 

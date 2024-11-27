@@ -26,7 +26,6 @@ Escape to Thailand in minutes with our fastest pad Thai yet. You'll pack noodles
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617027757332-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chicken breast and cook for 3-4 min until the chicken has started to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617027784058-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Meanwhile, combine the cornflour with 2 tbsp<span class="text-danger"> [4 tbsp]<
 
 Add the soy sauce, chicken stock mix, tamarind paste, the juice of 1/2 <span class="text-danger">[1]</span> lime and 2 tsp<span class="text-danger"> [4 tsp] </span>sugar and stir until the sugar has dissolved – this is your pad Thai sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617027791563-x200.jpg)
 
 ### Step 3
 
 Once the chicken has started to brown, add the rainbow veg mix, chilli flakes (can't handle the heat? Go easy!) and the ginger & garlic paste and cook for 2-3 min further until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617027799677-x200.jpg)
 
 ### Step 4
 

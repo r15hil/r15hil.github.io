@@ -22,7 +22,6 @@ This Indonesian-inspired rendang curry is full of punchy, aromatic flavours. Our
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1600762490686-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Boil half a kettle
 
 Cut the green beans in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600762541911-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Cook, covered, for 10-15 min or until all the water has absorbed and the rice an
 
 Once cooked, remove from the heat and keep covered until serving – this is your green bean rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1600762571097-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Crush the cardamom pods open by squashing them with the side of a knife and disc
 
 Grind the chopped garlic, chopped ginger, cardamom seeds, 1 tsp<span class="text-danger"> [2 tsp]</span> black pepper (freshly ground is best!) and a pinch of salt in a pestle & mortar to form a coarse paste – this is your spice paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600762606204-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Remove the coconut cream from the sachet<span class="text-danger">[s]</span> and
 
 Dissolve the chopped coconut cream in 150ml <span class="text-danger">[300ml]</span> boiled water then add the fish sauce – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600762620079-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once very hot, add the beef strips and cook for 1-2 min or until browned and coo
 
 Transfer the cooked beef strips to a plate and reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600762779390-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once fragrant, add the coconut stock to the pan
 
 Cook for a further 2-5 min or until the sauce is very thick
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600762784363-x200.jpg)
 
 ### Step 7
 

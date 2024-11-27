@@ -23,7 +23,6 @@ A mighty, meaty bowl of spaghetti and meatballs should be an essential part of a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/669.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop the basil finely, including the stalks (save some leaves for garnish!)
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/669.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp<span class="text
 
 Once hot, add the diced onion with a pinch of salt and cook for 7-8 min min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/669.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Combine the beef mince, cheddar pieces and chopped basil in a large mixing bowl 
 
 Mix well with clean hands to fully combine
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/669.-step-4-x200.jpg)
 
 ### Step 4
 
 Divide the mixture into 10<span class="text-danger"> [20] </span>and shape into balls – these are your cheesy meatballs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/669.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add the cheesy meatballs to an oiled baking tray
 
 Put the tray in the oven for 12-15 min or until the meatballs are cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/669.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Meanwhile, add the linguine to a pot of boiled water with a large pinch of salt
 
 Bring to the boil over a high heat and cook for 8-10 min or until cooked with a slight bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/669.-step-7-x200.jpg)
 
 ### Step 7
 

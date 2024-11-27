@@ -27,7 +27,6 @@ Studded with sweet chopped dates and spring onion and oven baked for ease, these
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/599.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Put the tray in the oven for 3-4 min or until the cashews are lightly toasted, t
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1633341147263-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop your parsley finely, keeping the stalks and leaves separate
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon) then chop into large, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/599.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your beef mince to a large bowl with the chopped spring onion, chopped dates
 
 Mix thoroughly with clean hands, then divide the mixture and shape into 3 meatballs per person – these are your harissa beef meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1633341284899-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Add the chopped pepper to the other side, then put the tray[s] in the oven for 15 min or until the meatballs are cooked through (no pink meat!) and the pepper has softened – these are your harissa beef meatballs and roasted pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633341311622-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, dissolve your beef stock mix and remaining harissa paste (not a fan o
 
 Add your couscous, cover and set aside to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633341352578-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add your natural yoghurt to a bowl with a drizzle of olive oil and a pinch of sa
 
 Chop the toasted cashew nuts coarsely (careful they may be hot!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1633341412342-x200.jpg)
 
 ### Step 7
 

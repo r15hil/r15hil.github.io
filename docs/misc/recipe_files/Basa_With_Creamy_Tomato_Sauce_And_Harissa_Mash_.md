@@ -25,7 +25,6 @@ Spice up a classic mash with Moroccan-style harissa paste, and serve with succul
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1636042595221-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a kettle
 
 Chop your potato[es] and carrot[s] (no need to peel!) into rough bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1636042779281-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the chopped potato and carrot to a pot of boiled water, bring to the boil
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636042786534-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>boiled water, then add your soft cheese and mix well – this is your creamy vegetable stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636042806524-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the halved cherry tomatoes and the sliced garlic to the pan and cook for 1-2 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636042813120-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Wash your spinach, then pat dry with kitchen paper
 
 Pat your basa fillet[s] dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636042819027-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Tip: Cooking for 3 or more? Do this in batches!
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1636042856769-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ This easy twist on Thai green curry is sure to impress. You'll whizz up a homema
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1598262693948-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1598262705777-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and finely chop your shallot[s]
 
 Trim, then chop your green beans into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602153477369-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Slice your red chilli[es] in half and scrape the seeds out with a spoon, then ch
 
 Add the ginger, garlic, half of your red chilli (can't handle the heat? Go easy!) and chopped coriander to a food processor with 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> water and blitz until smooth – this is your Thai-style green curry paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1598262733940-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the shallot with a pinch of salt and cook for 2 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1598262744434-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> boiled water, add your fish sauce, the juice of half your<span class="text-danger"> </span>lime[s] and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your fragrant stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1598262766687-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once fragrant, drain your king prawns, then add them to the pan with the chopped
 
 Tip: Add an extra splash of water if the sauce thickens too quickly!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1598262786350-x200.jpg)
 
 ### Step 7
 

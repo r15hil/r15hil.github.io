@@ -27,7 +27,6 @@ Venture to Vietnam for a taste of the country’s favourite soul-warming noodle 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670922908334-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the tofu slices to a medium bowl with 1 tsp <span class="text-purple">[1 1/2
 
 Give everything a good mix up and set aside to marinate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670922915443-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670922925410-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add the sliced onion and cook for 7-8 min or until softened
 
 Reboil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670922933988-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once very hot, add the marinated tofu and cook for 6-7 min, turning occasionally
 
 Tip: Cooking for 4 or more? You may need to do this in batches!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670922943169-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, top, tail, peel and chop your carrot[s] into matchsticks
 
 Dissolve your pho broth paste, umami seasoning and vegetable stock mix in 600ml <span class="text-purple">[800ml] </span><span class="text-danger">[1L] </span>boiled water – this is your pho stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670922952093-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Strip most of your mint leaves from their stems, leave some on the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670922958715-x200.jpg)
 
 ### Step 7
 

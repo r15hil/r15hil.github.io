@@ -21,7 +21,6 @@ Feed the fam with this smoky traybake. You’ll roast paprika-coated potatoes wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679562894230-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skins on) into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679562897084-x200.jpg)
 
 ### Step 2
 
@@ -37,25 +35,21 @@ Add the chopped potatoes to a baking tray (or two!) with your ground smoked papr
 
 Put the tray[s] in the oven for an initial 15-20 min or until the potatoes are slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679562900009-x200.jpg)
 
 ### Step 3
 
 Meanwhile, top, tail and chop your courgette[s] in half lengthways, then slice finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679562903601-x200.jpg)
 
 ### Step 4
 
 Peel and cut your red onion[s] into quarters, then separate the wedges so you end up with a pile of onion petals
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679562906745-x200.jpg)
 
 ### Step 5
 
 Cut your halloumi into 4 slices per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679562912109-x200.jpg)
 
 ### Step 6
 
@@ -67,7 +61,6 @@ Top with the sliced halloumi
 
 Return the tray[s] to the oven and cook for a final 12-15 min or until everything is golden and tender – this is your halloumi & courgette tray bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679562915168-x200.jpg)
 
 ### Step 7
 

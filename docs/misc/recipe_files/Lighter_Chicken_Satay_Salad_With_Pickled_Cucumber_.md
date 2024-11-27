@@ -27,7 +27,6 @@ Head on down to Southeast Asia to learn the way of the satay. You’ll char curr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695044250403-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Slice the chicken breast portion[s] lengthways into 2<span class="text-danger">
 
 Chop your creamed coconut roughly (if required!) and combine with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water – this is your coconut stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695044255201-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chicken strips, then mix well and set aside to marinate
 
 Heat a large, wide-based pan (preferably non-stick) over a medium-low heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695044258703-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Cook for 5-10 min or until it has reduced to the consistency of a thick custard,
 
 Once thickened, transfer to a bowl and set aside, reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695044264994-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695044271478-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the sliced cucumber to a small bowl with your rice vinegar and a generous pi
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695044275265-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Return the pan to a high heat
 
 Once hot, cook the chicken for 5-6 min on each side, turning once, or until cooked through (no pink meat!) and slightly charred – this is your Thai-style chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1695044281577-x200.jpg)
 
 ### Step 7
 

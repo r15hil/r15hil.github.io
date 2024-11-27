@@ -24,13 +24,11 @@ Curb your curry cravings with this easy noodle dish. You’ll char aubergine wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1672756653187-x200.jpg)
 
 ### Step 1
 
 Trim the green stalk[s] off your aubergine[s] and discard, then chop into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672756658325-x200.jpg)
 
 ### Step 2
 
@@ -38,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the chopped aubergine with a pinch of salt and cook for 3-4 min or until lightly charred
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672756663099-x200.jpg)
 
 ### Step 3
 
@@ -46,7 +43,6 @@ While the aubergine is cooking, peel and cut your red onion[s] into quarters, th
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672756669660-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Add the onion petals with a little drizzle of vegetable oil and cook for 2-3 min
 
 Once beginning to soften, add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour with your ground turmeric, curry powder and ginger & garlic paste and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672756677705-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Bring to the boil over a high heat
 
 Once boiling reduce the heat to medium-high and cook, covered, for 6-7 min or until the aubergine is tender and the sauce has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672756689906-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Set aside to soak for 5-6 min
 
 Drain the soaked noodles, reserving 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[80ml]</span> starchy noodle water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672756696397-x200.jpg)
 
 ### Step 7
 

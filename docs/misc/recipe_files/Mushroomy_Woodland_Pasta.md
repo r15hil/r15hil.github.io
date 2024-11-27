@@ -21,7 +21,6 @@ We're channelling a woodland country walk into this simple pasta dish. Flavours 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/320__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Bring a pot (with a matching lid) of boiled water back to the boil with a pinch 
 
 Peel and finely slice the red&nbsp;onion<span class="text-danger">[s]&nbsp;</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/320__-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once hot, add the sliced onion with a pinch of salt and a pinch of sugar
 
 Cook for 8-10 min or until slightly softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/320__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, add the conchiglie&nbsp;to the pot of boiled water
 
 Boil for 8-10 min or until cooked with a slight bite
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/320__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Strip the thyme leaves from the woody stalks and discard the stalks
 
 Chop the thyme leaves roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/320__-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Increase the heat to medium
 
 Cook for 5-10 min or until the mushrooms are tender and brown (lower the heat to prevent burning if necessary)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/320__-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once hot, add the remaining garlic with a pinch of salt
 
 Stir for 1 min before adding the baby spinach, stirring continuously until wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/320__-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Punchy Cajun-inspired seasoning brings the heat to this fiery fusion dish. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1691483833463-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!), ground coriander, dried oregano, ground cumin, a pinch of sugar and salt and a generous grind of black pepper to a plate and give everything a good mix up – this is your Cajun-style spice mix
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1691483836075-x200.jpg)
 
 ### Step 2
 
 Press one side of the chicken breast portion[s] into the Cajun-style spice mix and save the rest of the spice mix for later – this is your Cajun-style spiced chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1691483839978-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once charred, transfer the chicken, spice-side up, to a baking tray and reserve 
 
 Put the tray in the oven for 15 min or until the chicken is cooked through (no pink meat!) and the juices run clear
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1691483844823-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1691483848260-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once hot, add the sliced onion, chopped garlic, pepper strips and remaining Caj
 
 Meanwhile, dissolve your chicken stock mix and soft cheese in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml] </span>boiled water – this is your creamy stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1691483852393-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-6-1691483856527-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ You'll flavour rice with a classic combination of chestnut mushrooms, garlic and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1754.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once hot, add your bacon lardons and cook for 5-6 min or until golden and crispy
 
 Once crispy, transfer the bacon to a plate and reserve the pan and oil for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1754.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely chop (or grate) your garlic
 
 Slice your chestnut mushrooms
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1754.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,25 +52,21 @@ Return the reserved pan and oil to a medium heat
 
 Add the chopped onion, garlic and sliced mushrooms with a generous grind of black pepper and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1754.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1754.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the veg has softened, add your arborio rice and Chinese rice wine and cook for 1 min or until the Chinese rice wine has evaporated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1754.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the vegetable stock to the pan a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked – this is your easy mushroom risotto
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1754.-step-7-x200.jpg)
 
 ### Step 7
 

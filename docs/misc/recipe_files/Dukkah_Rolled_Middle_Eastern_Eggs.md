@@ -23,7 +23,6 @@ These eggs are cooked somewhere between soft and hard boiled, giving them a soli
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/450.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Rinse the&nbsp;freekeh in a sieve under cold water, then&nbsp;add it to a pot, w
 
 Once boiling, reduce the heat to medium-low and cook for 20-25 min or until cooked through, but with a slight bite
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/450.step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Combine half of the chopped&nbsp;garlic (reserve the rest for step 6) with the G
 
 Mix well and set aside until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/450.step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once boiling, cook for 7 min for perfect mid-boiled eggs
 
 Tip:&nbsp;the salt prevents the eggs from cracking
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/450.step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Transfer it to a plate and set aside&nbsp;
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/450.step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,7 +93,6 @@ Tip: alternatively, run them under very cold water for 3 min, then set aside in 
 
 Reserve the egg pot and give it a rinse out
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/450.step-6-x200.jpg)
 
 ### Step 6
 
@@ -113,7 +107,6 @@ Once hot, add the tomatoes, the remaining chopped&nbsp;garlic, harissa paste and
 
 Cook for 5-7 min on until they've softened&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/450.step-7-x200.jpg)
 
 ### Step 7
 

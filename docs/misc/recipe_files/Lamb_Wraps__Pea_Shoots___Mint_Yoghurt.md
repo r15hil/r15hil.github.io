@@ -21,7 +21,6 @@ The pairing of mint with lamb is famous for a reason – the bright flavour of m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1385.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Add the diced tomato to a bowl with a drizzle of olive oil and a pinch of salt and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1385.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,25 +46,21 @@ Heat a dry large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the&nbsp;<span class="text-highlight">lamb mince</span> and cook for 4-5 min or until crispy,&nbsp;breaking up with a wooden spoon as you go&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1385.-step-3-x200.jpg)
 
 ### Step 3
 
 Dissolve <span class="text-highlight">1/2&nbsp;<span class="text-danger">[1]</span>&nbsp;</span><span class="text-highlight">beef</span> stock cube&nbsp;in 50ml <span class="text-danger">[100ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1385.-step-4-x200.jpg)
 
 ### Step 4
 
 Once crispy, add the cumin seeds to the lamb and cook for 1-2 min further or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1385.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the beef stock to the pan and cook for 1-2 min further <span class="text-highlight">&ndash;</span> this is your cumin lamb
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1385.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Meanwhile, add the tortillas to a baking tray&nbsp;
 
 Put the tray in the oven for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1385.-step-7-x200.jpg)
 
 ### Step 7
 

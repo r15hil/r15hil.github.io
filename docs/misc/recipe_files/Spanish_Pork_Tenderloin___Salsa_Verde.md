@@ -24,7 +24,6 @@ This is a simple low-calorie Spanish roast. You'll rub pork tenderloin with drie
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/947.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the diced sweet potatoes to a baking tray, drizzle them with&nbsp;vegetable 
 
 Season them with a generous pinch of salt and pepper and put the tray in the oven for 30 min or until cooked through and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/947.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Dice the tomato<span class="text-danger">[es]</span><span class="text-danger">&n
 
 Peel and finely chop the shallot<span class="text-danger">[s]</span>&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/947.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Season them with a pinch of both salt and pepper and drizzle generously with oli
 
 Put the tray in the oven for 20-25 min or until they have softened and wrinkled at the edges - these are your sweet and sour peppers&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/947.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Chop the parsley finely,&nbsp;including the stalks&nbsp;
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/947.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Grind to a paste, then add the&nbsp;chopped garlic, Dijon mustard and remaining&
 
 Stir in 3-4 tbsp olive oil&nbsp;- this is your salsa verde&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/947.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,7 +102,6 @@ Heat a pan (preferably non-stick) with a matching lid, with a drizzle of vegetab
 
 Once hot, add the&nbsp;herby&nbsp;pork&nbsp;and cook for 2 min, turning occasionally until lightly browned &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/947.-step-7-x200.jpg)
 
 ### Step 7
 

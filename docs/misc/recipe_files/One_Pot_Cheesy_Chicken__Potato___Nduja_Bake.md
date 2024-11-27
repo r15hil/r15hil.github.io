@@ -28,7 +28,6 @@ Because of the flavour-packed 'Nduja sausage, this spicy one-pot takes no time t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1617706209543-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-49-copy-1724339516255-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish over a medium-high h
 
 Add your 'Nduja (can't handle the heat? Go easy!), ground smoked paprika and dried oregano to the dish, breaking it into small chunks and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-55-copy-1724339523881-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughl
 
 Crush your garlic open by squashing with the side of a knife and discard the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-49-copy-1724339527585-x200.jpg)
 
 ### Step 4
 
@@ -74,13 +70,11 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, put the dish in the oven for 40 min or until the potato is tender and the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-50-copy-1724339531717-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-50-copy-1724339535740-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ When your bake is nearly ready, grate your cheddar cheese
 
 Chop your basil roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-49-copy-1724339542520-x200.jpg)
 
 ### Step 7
 

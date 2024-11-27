@@ -26,7 +26,6 @@ This Spanish-style stew combines fish, giant couscous and chickpeas in a spicy t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1613669164667-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604922576951-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of o
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into rings
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1606904660918-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Crush your garlic open by squashing with the side of a knife and remove the skin
 
 Add the sliced pepper and chopped garlic to the dish with your ground smoked paprika, bay leaf[ves] and cayenne pepper (can’t handle the heat? Go easy!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604922602965-x200.jpg)
 
 ### Step 4
 
 Drain and rinse your chickpeas and add them to the dish with your chopped tomatoes and black olives and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604922613941-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Put the dish in the oven for an initial 15 min
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604922620669-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ After 15 min, remove the dish from the oven, add your giant couscous and season 
 
 Top with your hake fillet[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604922627587-x200.jpg)
 
 ### Step 7
 

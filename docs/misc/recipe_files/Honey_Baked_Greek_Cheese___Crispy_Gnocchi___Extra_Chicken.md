@@ -25,7 +25,6 @@ For this Greek-inspired dish, you'll bake cheese and honey until it melts into a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728998445924-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Before you begin...
 
 This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728998449146-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Peel and cut your red onion[s] into wedges
 
 Trim the green stalk[s] off your aubergine[s] and discard, then chop into small bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728998452470-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add a generous drizzle of olive oil to a large oven-proof dish (or two!)
 
 Add the chopped aubergine to one side of the dish[es] with the onion wedges and cherry tomatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728998455974-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Top the mixed vegetables with your Greek cheese, then drizzle half of your honey
 
 Add your gnocchi to the other side of the dish[es] with a drizzle of olive oil and a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728998459074-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Combine the remaining red wine vinegar with the remaining honey and a generous d
 
 Add your chicken breast portion to a tray with a drizzle of olive oil and a pinch of salt and pepper, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728998461893-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728998465414-x200.jpg)
 
 ### Step 7
 

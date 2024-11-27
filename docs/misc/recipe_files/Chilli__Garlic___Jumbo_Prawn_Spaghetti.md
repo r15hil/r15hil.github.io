@@ -27,7 +27,6 @@ Grab 10 minutes, and treat yourself to this succulent king prawn spaghetti tosse
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1614008532103-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1522.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Boil a kettle
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1522.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook the spaghetti for just 2 min or until cooked with a slight bite (it will ke
 
 Once done, drain the cooked spaghetti, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1522.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a generous d
 
 Once hot, drain your jumbo prawns, then add them to the pan with the halved cherry tomatoes and cook for 3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1522.-step-5-x200.jpg)
 
 ### Step 5
 
 Add your chilli flakes (can't handle the heat? Go easy!), tomato paste and roasted garlic paste and cook for 30 secs further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1522.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add your Chinese rice wine with a pinch of sugar and cook for 3-4 min or until t
 
 Note: Please make sure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1522.-step-7-x200.jpg)
 
 ### Step 7
 

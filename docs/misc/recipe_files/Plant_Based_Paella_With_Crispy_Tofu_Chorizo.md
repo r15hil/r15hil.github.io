@@ -31,7 +31,6 @@ It's the smoky flavours of chorizo you love, without a morsel of meat. You'll in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1656953047389-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1656953050336-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion and sliced pepper and cook for 3-4 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Tomato-stock-1703000232246-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ Once the onion is starting to soften, add 2/3 of the chopped garlic and half of 
 
 Once fragrant, add your arborio rice and cook for 1 min, stirring to coat the grains in the spices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656953059408-x200.jpg)
 
 ### Step 4
 
 Add the saffron stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656953062435-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the chopped tofu, soy sauce and remaining chopped garlic to a medium bowl wi
 
 Season with a pinch of salt and mix to combine – this is your coated tofu
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656953065251-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the paella has been cooking for an initial 25 min, add the juice of half yo
 
 Reduce the heat to medium-low and cook for a final 5-6 min or until everything is tender and warmed through – this is your plant-based paella
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656953068588-x200.jpg)
 
 ### Step 7
 

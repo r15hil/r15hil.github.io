@@ -29,7 +29,6 @@ Punchy and aromatic, this speedy take on beef rendang is ready in 10. You’ll w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1705676254021-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1705676264551-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lean beef mince and cook for 3-4 min or until beginning to brown, breaking it up into very small pieces with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1705676268848-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Wash, then cut your lettuce into wedges
 
 Slice your red chilli[es] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1705676272360-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once the beef is beginning to brown, add your cinnamon (not a fan of cinnamon? O
 
 Once fragrant, add the chopped creamed coconut with your tamarind paste, ginger & garlic paste and half your peanut butter (you'll use the rest later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1705676277894-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add half your sriracha with your soy sauce, beef stock mix and 150ml <span class
 
 Cook for a further 4 min or until the beef is cooked through (no pink meat!) and the sauce has thickened – this is your rendang-inspired lean beef mince curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1705676282752-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ While the curry is cooking, combine the remaining peanut butter with your white 
 
 Add a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar with a little olive oil and mix it all together – this is your satay dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1705676286769-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Crunchy, creamy, sweet and savoury – there's no denying this salad is a meal i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654617632719-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and cut your red onion[s] into quarters, then separate the wedges so you en
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654617636027-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Top, tail and peel lengths off your courgette[s] with a peeler until you end up 
 
 Chop the courgette stem[s] into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654617640583-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the onion petals, sliced wholemeal pittas and chopped courgette stem to a ba
 
 Add a very generous drizzle of olive oil and a large pinch of salt and give everything a good mix up, then set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654617648151-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add your black sesame seeds and toasted sesame seeds to a plate and mix them tog
 
 Drizzle a little olive oil over the Greek cheese triangles, then transfer them to the mixed sesame seeds and press down on both sides until they're fully coated – this is your sesame-crusted Greek cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654617655951-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the sesame-crusted Greek cheese to a separate baking paper-lined tray
 
 Put both baking trays with the pitta and cheese in the oven for 15-16 min or until the pitta is crispy and the cheese is slightly golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654617700846-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the courgette ribbons and toss, then set aside – these are your lemony cou
 
 Cut your tiger tomatoes into thin wedges and chop your basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654617712720-x200.jpg)
 
 ### Step 7
 

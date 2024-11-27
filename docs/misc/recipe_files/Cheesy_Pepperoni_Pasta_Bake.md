@@ -27,7 +27,6 @@ Can't choose between pizza or pasta? Here's your answer. For this warming dish, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1940.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1940.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your sliced onion and pepper strips with a pinch of salt and cook for 5-6 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1940.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once done, drain the cooked tortiglioni and set it aside until later
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1940.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Slice your cherry tomatoes in half
 
 Dissolve vegetable stock mix and tomato paste in 200ml<span class="text-purple"> [275ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1940.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the onion and pepper are starting to soften, add the tomato stock to the pa
 
 Once thickened, stir the cooked tortiglioni through the tomato sauce and season generously with black pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1940.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1940.-step-7-x200.jpg)
 
 ### Step 7
 

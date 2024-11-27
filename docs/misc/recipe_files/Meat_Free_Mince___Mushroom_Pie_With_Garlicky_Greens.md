@@ -23,7 +23,6 @@ Bake a pie in half the time with our favourite time-saving twist. You'll cook up
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644329177194-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644329190572-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Slice your chestnut mushrooms finely
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644329201807-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once the onion has softened, add your meat-free mince to the onion with 1 tsp <s
 
 Increase the heat to medium-high and cook for 4-5 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644329212111-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Rip the leaves off your spring greens, discard the tough stalks, then layer the 
 
 Wash the sliced spring greens, then pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644329223664-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the stock, give everything a good mix up and bring to the boil over a high h
 
 Reduce the heat to medium and cook for 10-12 min or until thickened to a bolognese-like consistency – this is your meat-free mince & mushroom pie mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644329242366-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Transfer the pastry to a non-stick baking paper-lined baking tray (or two!), the
 
 Crimp the borders with a fork and put the tray[s] in the oven for 15 min or until puffed up and golden – these are your pie lids
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644329256969-x200.jpg)
 
 ### Step 7
 

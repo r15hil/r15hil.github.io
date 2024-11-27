@@ -25,7 +25,6 @@ The US meets Mexico in this tasty taco delight. With a dollop of spicy burger sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1660821833077-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the fries to a baking paper-lined tray with your smoked paprika, a drizzle o
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your smoky fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2--1660821839106-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely slice your red onion[s]
 
 Combine your white wine vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar in a small bowl with the sliced onion and 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp] </span>boiled water – this is your quick-pickled onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1660821842960-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Chop your tomato[es] finely
 
 Wash your lettuce, then pat it dry with kitchen paper and shred it very finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1660821846730-x200.jpg)
 
 ### Step 4
 
 Combine your tomato ketchup, mayo and chipotle paste (can’t handle the heat? Go easy!) in a small bowl – this is your spicy burger sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1660821850657-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once hot, add your ultimate vegan burger patty[ies] and cook for 7-9 min or unti
 
 Season with a generous grind of pepper – this is your meat-free mince
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1660821855453-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Tear your cheese flavour slices into pieces
 
 Top the meat-free mince with the torn cheeze and cook, covered, for a final 1-2 min or until the cheeze has melted – this is your cheezy mince
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1660821861024-x200.jpg)
 
 ### Step 7
 

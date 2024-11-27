@@ -23,7 +23,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581514484422-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Top, tail and chop the carrot<span class="text-danger">[s]</span> into thin bato
 
 Slice the mangetout in half lengthways
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581514492407-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Peel (scrape the skin off with a teaspoon) and chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581514502544-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Add the wholewheat noodles to a pot, cover them with boiled water until fully su
 
 Set aside to soak for 4 min, then drain the soaked noodles and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581514508750-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once hot, add the carrot batons, onion petals and halved mangetout with a pinch 
 
 Cook for 5-6 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581514514856-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ While the vegetables are cooking, combine the soy sauce and rice vinegar with 1 
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581514520103-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once hot, add the haddock bites (unevenly sized haddock bites? Chop any larger o
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581514524728-x200.jpg)
 
 ### Step 7
 

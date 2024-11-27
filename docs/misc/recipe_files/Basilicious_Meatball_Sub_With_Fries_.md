@@ -25,7 +25,6 @@ This submarine sandwich is on a quest for flavour. The warm brioche sub rolls ar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1210.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Crumble in the&nbsp;beef stock cube<span class="text-danger">[s]</span> and seas
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1210.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Knead the mince mixture thoroughly with clean hands for 2-3 min or until everyth
 
 Refrigerate until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1210.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add the fries to a large baking tray with a drizzle of vegetable oil and a gener
 
 Put the tray in the oven for 25-30 min or until the fries are golden and starting to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1210.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a matching l
 
 Once hot, add the&nbsp;meatballs&nbsp;and cook for 3-4 min, turning occasionally, until they are&nbsp;browned all over&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1210.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Once cooked, remove the pan from the heat and keep covered until ready to serve
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1210.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Meanwhile, add the brioche sub rolls to a baking tray and put it in the oven for
 
 Grate the cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1210.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ For this calorie controlled chicken tikka masala you'll cook chicken breast in a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1894.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1894.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely slice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1717771708537-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your chicken breast strips and cook for 3 min on each side or until golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1894.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once softened, add the ginger paste with the chopped garlic and your tomato past
 
 Add a pinch of salt and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1894.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the chicken stock and chopped tomatoes to the pan, give everything a good mi
 
 Once boiling, reduce the heat to medium-low and cook for 10-12 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1894.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Rinse the wilted spinach under the cold tap until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1717771737831-x200.jpg)
 
 ### Step 7
 

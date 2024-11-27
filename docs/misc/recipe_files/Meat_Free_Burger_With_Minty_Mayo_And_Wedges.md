@@ -24,7 +24,6 @@ This rich veggie burger's inspired by a Sunday roast, and perfect any day of the
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618840093812-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut your potatoes (skins on) into wedges
 
 Add the wedges to a baking tray, drizzle with vegetable oil and season generously with salt, then put them in the oven for 30-40 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618840098637-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up
 
 Divide the mixture shape into 1 thin patty per person and refrigerate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618840103354-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Squeeze out the excess liquid from the cucumber ribbons (over the sink is the ea
 
 Tip: You want to get rid of the excess liquid so that the cucumber absorbs the pickling vinegar
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618840110029-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Once boiling, remove from the heat and combine the vinegar mix and cucumber ribb
 
 Set them aside to pickle until serving – this is your quick-pickled cucumber
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1618840115035-x200.jpg)
 
 ### Step 5
 
 Place your ciabatta[s] in the oven for 5 min to warm through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618840118293-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Combine your mayo and mint sauce in a small mixing bowl with a large drizzle of�
 
 Slice your tomato[es]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618840123648-x200.jpg)
 
 ### Step 7
 

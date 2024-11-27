@@ -23,7 +23,6 @@ Say goodbye to the oven because this chicken pot pie is a hero on the hob. Youâ€
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674755787138-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Top, tail, peel and dice the carrot<span class="text-danger">[s]</span> finely
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674755790698-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a medium-sized pot with a matching lid with a drizzle of olive oil over a h
 
 Once hot, add the diced chicken thigh and a pinch of salt and cook for 3-4 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674755795266-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the diced onion and chopped potato to the pot with the diced carrot and chop
 
 Season with a pinch of salt and a generous grind of black pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674755798910-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the chicken stock mix and soft cheese to the pot with 200ml<span class="text
 
 Cook, covered, for 15-20 min or until the potatoes are fork-tender and the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674755803217-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Unwrap the puff pastry and roll it out to approx. 0.5cm thickness with a rolling
 
 Score a 1cm border around the edge of the pastry with a knife, then carefully score inside the border in a criss-cross pattern
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674755807838-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the scored puff pastry and cook, covered, for 8-10 min on each sid
 
 Tip: Cooking for 4? Use 2 pans!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674755811995-x200.jpg)
 
 ### Step 7
 

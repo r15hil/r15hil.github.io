@@ -27,7 +27,6 @@ Whip up these fragrant masala prawns in minutes. You’ll simmer juicy prawns in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-9-1688396992567-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and sugar and cook for 4-5 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-9-1688396995588-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-9-1688396999065-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Chop your tomatoes roughly
 
 Chop your coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-10-1688397003979-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once the onion has softened, add the chopped ginger, chopped garlic, garam masal
 
 Cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-10-1688397008065-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once fragrant, stir through the chopped creamed coconut with 150ml<span class="t
 
 Drain, then add your king prawns to the pan and cook for 4-5 min or until the prawns are cooked through and the sauce has thickened to a gravy-like consistency – this is your masala king prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-10-1688397011886-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add the juice of half your lime[s] to a bowl with the chopped tomato and most of
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your tomato & coriander salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-10-1688397015198-x200.jpg)
 
 ### Step 7
 

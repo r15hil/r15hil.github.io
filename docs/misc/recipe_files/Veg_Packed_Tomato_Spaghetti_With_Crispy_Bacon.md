@@ -28,7 +28,6 @@ Everything tastes better with bacon. You’ll cook down onion, carrot and pepper
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677587757029-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely dice your brown onion[s]
 
 Top, tail, peel and grate your carrots
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677587764447-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add your smoked streaky bacon to the pan and cook for 3-4 min on each 
 
 Once crispy, transfer the bacon to kitchen paper and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677587785781-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger"> [350ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677587796031-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the diced onion and grated carrot with a pinch of salt and cook fo
 
 Once softened, add the diced pepper and chopped garlic with the dried oregano and cook for a further 3-4 min or until fragrant and softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677587804055-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked spaghetti and reserve a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677587814670-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once boiling, reduce the heat to medium-high and cook for a further 8-10 min or 
 
 Once thickened, add the drained spaghetti to the sauce with a splash of starchy water and cook for a final 1-2 min or until fully combined – this is your veg-packed tomato spaghetti
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677587825823-x200.jpg)
 
 ### Step 7
 

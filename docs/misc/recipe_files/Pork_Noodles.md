@@ -20,7 +20,6 @@ This is family friendly Thai food at its finest. Succulent pork noodles dressed 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/427.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Set aside to soften slightly until step 6
 
 Boil&nbsp;a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/427.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Season with salt to your taste
 
 Stir the spice into the oil, then, with clean hands, coat the steaks evenly on both sides
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/427.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Wash the spinach for step 7
 
 Peel and grate (or finely chop) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/427.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Set aside until step 7
 
 Chop or bash (in the bag with a rolling pin or in a pestle and mortar) the peanuts coarsely&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/427.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once cooked, transfer them to a clean board and cover with a tea towel to rest u
 
 Reserve the pan for the next step
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/427.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Add a lid and cook on a medium heat for 1-2 min, or until the noodles have just 
 
 Tip: Shake the pan occasionally to prevent sticking
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/427.-step-7-x200.jpg)
 
 ### Step 7
 

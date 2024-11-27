@@ -30,7 +30,6 @@ For this all-American salad you'll serve crispy chicken breast and parboiled egg
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1642010773127-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your egg[s] to a pot of boiled water with a pinch of salt (salt prevents the
 
 Once boiling, cook for exactly 8 min for perfect, medium-boiled eggs, then fill a bowl of very cold water and add the boiled egg[s] to the bowl and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642010785732-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add your diced chicken breast to the marinade and give everything a good mix up 
 
 Tip: This will help to tenderise your chicken!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642010806286-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Chop your tomato[es] finely
 
 Drain your sweetcorn
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642010819687-x200.jpg)
 
 ### Step 4
 
@@ -72,13 +68,11 @@ Add your mayo to a separate bowl with your dried oregano, grated garlic, the rem
 
 Give everything a good mix up – this is your ranch-style dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1642010833410-x200.jpg)
 
 ### Step 5
 
 Peel the cooled boiled egg[s] and cut them in into quarters
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642010844178-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add your cornflour with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <sp
 
 Give everything a good mix until the chicken is fully coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642010899316-x200.jpg)
 
 ### Step 7
 

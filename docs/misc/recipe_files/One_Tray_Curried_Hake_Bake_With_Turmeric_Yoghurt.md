@@ -23,7 +23,6 @@ This Indian-inspired bake is the perfect low-effort supper. You'll top lightly c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1698168542926-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 12-15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1698168549038-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Sprinkle 2/3 of your curry powder (save the rest for later!) over the hake and r
 
 Season with a pinch of salt and pepper and set aside – this is your curried hake
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1698168557117-x200.jpg)
 
 ### Step 3
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1698168563451-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Once the potatoes have had an initial 12-15 min, add your pepper strips and cher
 
 Sprinkle over the remaining curry powder and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1698168568849-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Return the tray[s] to the oven for a further 12-15 min or until the fish is cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1698168574446-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your natural yoghurt with your ground turmeric, a small splash of cold water and a pinch of salt in a small bowl – this is your turmeric yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1698168580320-x200.jpg)
 
 ### Step 7
 

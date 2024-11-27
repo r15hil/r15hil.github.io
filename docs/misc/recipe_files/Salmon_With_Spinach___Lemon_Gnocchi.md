@@ -22,7 +22,6 @@ This deliciously quick supper pairs plump potato gnocchi with tender salmon and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622807990459-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1763.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot add your salmon fillet[s], skin-side down, season with a pinch of salt
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1763.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a separate large, wide-based pan (preferably non-stick) with 25g <span clas
 
 Once melted, add your gnocchi with a pinch of salt and cook for 2-3 min or until starting to brown slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1763.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,13 +58,11 @@ Meanwhile, cut your lemon[s] into wedges
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1763.-step-5-x200.jpg)
 
 ### Step 5
 
 When the gnocchi has browned slightly, add your Chinese rice wine and roasted garlic paste and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1763.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the salad to a bowl along with a little olive oil and a squeeze of lemon juice– this is your salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1763.-step-7-x200.jpg)
 
 ### Step 7
 

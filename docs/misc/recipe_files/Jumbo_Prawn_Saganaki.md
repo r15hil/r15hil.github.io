@@ -27,7 +27,6 @@ For this speedy saganaki, you'll simmer succulent jumbo prawns and courgette in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623399019243-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Ciabatta-in-toaster-1675079868340-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Slice your bread roll[s] in half and place in the toaster for 1-2 min or until w
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1805.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Top, tail and chop your courgette[s] in half lengthways, then slice finely
 
 Cut your tomato[es] into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1805.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, drain your jumbo prawns, then add them to the pan with the sliced cour
 
 Season with a pinch of salt and pepper and cook for 3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1805.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Cook for a further 3-4 min or until the prawns are cooked through and the sauce 
 
 Note: Please make sure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1805.-step-6-x200.jpg)
 
 ### Step 6
 
 Chop your parsley roughly, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1805.-step-7-x200.jpg)
 
 ### Step 7
 

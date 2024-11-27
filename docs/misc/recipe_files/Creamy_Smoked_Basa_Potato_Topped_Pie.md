@@ -23,7 +23,6 @@ Packed with flaky smoked basa and an oh-so-creamy sauce, this delicious, hearty 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632822570211-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708086313987-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with 15g <span class="text-p
 
 Once melted, add the diced onion with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632822588387-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once the onion has softened, add half the chopped garlic (you’ll use the rest 
 
 Add the stock and soft cheese, bring to the boil over a high heat and cook for 3-4 min or until thickened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632822603577-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Return the drained potatoes to a low heat with a knob of butter and a small spla
 
 Season with a pinch of salt and pepper and mash until smooth – this is your mash
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632822612250-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the chopped smoked basa to the sauce with a generous grind of black pepper a
 
 Wash your shredded kale, then pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632822740203-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Put the dish in the oven for 15-20 min or until the fish is cooked through and t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710165553061-x200.jpg)
 
 ### Step 7
 

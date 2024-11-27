@@ -24,7 +24,6 @@ This French-inspired dish is the perfect light bite. You'll top crispy basa with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1613998410341-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1613998420612-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ While the potatoes are boiling, dice your tomato[es] finely
 
 Cut your lemon[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-chives-1654677062901-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Chop your chives roughly
 
 Chop your basil finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1613998443199-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the diced tomato, chopped chives, chopped basil and your ground coriander to
 
 Add a generous pinch of salt, 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>olive oil and the juice of half your lemon[s] (save the rest for garnish!) and give everything a good mix up – this is your sauce vierge
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1613998874992-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Sprinkle your cornflour all over and rub it into both sides of the fish until fu
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1613998882556-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Tip: Cooking for 3 or more? Do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1613998891938-x200.jpg)
 
 ### Step 7
 

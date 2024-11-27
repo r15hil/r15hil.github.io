@@ -26,7 +26,6 @@ The extra veg and leaner meat help make this fakeaway lower in calories and fat.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1636545119804-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1636545122165-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Pat the pork loin steaks dry with kitchen paper
 
 Rub them with a little vegetable oil, the five-spice mix and a pinch of salt
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1636545124744-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the spiced pork loin steaks and cook for 4-5 min on each side or until they're browned and cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1636545127169-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Wash, then rip the leaves off the spring greens, discard the tough stalks, then 
 
 Wash the spinach, then pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1636545129974-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Cook for a further 1 min, turning the pork steaks several times until they're ni
 
 Remove the pan from the heat and set aside to rest for a couple of min – these are your Taiwanese-style pork steaks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1636545132574-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add the sliced spring greens, spinach, sliced garlic, and chopped ging
 
 Give it a good mix up and cook, covered for 3-4 min or until tender – these are your sesame greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1636545135293-x200.jpg)
 
 ### Step 7
 

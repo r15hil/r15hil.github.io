@@ -26,7 +26,6 @@ Leave the knife and fork behind, because this one's meant to be messy! You'll sm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694438946448-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Peel and cut your sweet potato[es] into fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694438951213-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the sweet potato fries to a baking tray (or two!) with a drizzle of vegetabl
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694438963909-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add your cornflour and a pinch of salt to a bowl
 
 Add the chicken pieces to the cornflour and give everything a good mix up so the chicken pieces are fully coated – this is your coated chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694438994352-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once hot, add the coated chicken and cook for 5-6 min on each side, or until n
 
 Once done, transfer the golden chicken to a plate covered with kitchen paper and set aside for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694438999675-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once melted, remove the pot from the heat and add your sriracha (can’t handle 
 
 Stir everything together until it combines and becomes a sauce-like consistency – this is your buffalo sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694439012892-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add a drizzle of olive oil and season with a pinch of salt and pepper and give e
 
 Wash your lettuce, then pat dry with kitchen paper and chop into quarters
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694439018603-x200.jpg)
 
 ### Step 7
 

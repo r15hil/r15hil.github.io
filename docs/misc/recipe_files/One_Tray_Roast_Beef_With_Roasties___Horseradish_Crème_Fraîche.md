@@ -21,7 +21,6 @@ Go all in on easy with a beef roast that’s big on flavour and light on washing
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707823544404-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the carrot batons to a large piece of tin foil (or two!) with a generous spl
 
 Scrunch the foil around them to form a tightly sealed parcel and add to a baking tray (or two!), then put the tray[s] in the oven and cook for an initial 12 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707823551540-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the chopped potatoes to a large heat-proof bowl covered with cling film
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are slightly tender / fork tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707823556009-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Remove the string from your beef joint[s], then pat dry with kitchen paper
 
 Rub over your wholegrain mustard, a pinch of sugar and a pinch of salt and pepper – this is your coated beef
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707823560762-x200.jpg)
 
 ### Step 4
 
@@ -61,13 +57,11 @@ Return the tray[s] to the oven and cook for 22-25 min or until the beef is cooke
 
 Tip: Prefer no pink meat? Cook your beef for 3-5 min longer!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707823566254-x200.jpg)
 
 ### Step 5
 
 Meanwhile, wipe clean the reserved bowl and combine your crème fraîche and horseradish with a pinch of salt and pepper – this is your horseradish crème fraîche
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707823634252-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add your blanched peas to the parcel with the carrot batons
 
 Return the tray to the oven for a final 4-5 min or until the potatoes are roasted and golden and the peas are warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707823639921-x200.jpg)
 
 ### Step 7
 

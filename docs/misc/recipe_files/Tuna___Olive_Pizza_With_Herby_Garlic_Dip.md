@@ -23,7 +23,6 @@ For this easy, cheesy, quick-prep pizza recipe, you'll top fluffy naan with crea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1472.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Put a large baking tray in the oven to heat up (this will stop the pizza bottoms
 
 Combine half the garlic paste with the tomato paste, a drizzle of olive oil, 1 tbsp <span class="text-danger">[2 tbsp]</span> water and a generous pinch of salt, pepper and sugar&nbsp;&ndash; this is your tomato base
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1472.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,13 +45,11 @@ Tear the mozzarella into bite-sized pieces, pat it dry with kitchen paper, press
 
 Drain the tuna
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1472.-step-3-x200.jpg)
 
 ### Step 3
 
 Slice the pitted&nbsp;black olives in half lengthways
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1472.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Spread the tomato base over the naan breads&nbsp;with the back of a spoon
 
 Dot the torn mozzarella over,&nbsp;followed by the tuna and the sliced olives
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1472.-step-5-x200.jpg)
 
 ### Step 5
 
 Put the tray in the oven for 12-15 min or until the cheese has melted and the&nbsp;pizza bases are crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1472.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Chop half the basil, including the stalks
 
 Combine the chopped basil and tomatoes in a bowl with a drizzle of olive oil and a pinch of salt &ndash;&nbsp;this is your tomato &amp; basil salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1472.-step-7-x200.jpg)
 
 ### Step 7
 

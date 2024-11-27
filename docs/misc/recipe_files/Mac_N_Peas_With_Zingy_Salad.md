@@ -27,7 +27,6 @@ You're going to love our pea-packed twist on the classic. First you'll whip up a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644933993161-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cook for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked macaroni
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644934004658-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Melt 15g <span class="text-purple">[22g]<span class="text-danger"> </span>[30g] 
 
 Once melted, add 15g<span class="text-purple"> [22g]</span> <span class="text-danger">[30g]</span> flour and stir with a wooden spoon for 1 min or until a sandy paste forms – this is your roux
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644934046952-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Gradually whisk the creamy stock into the roux, a little at a time, and cook for
 
 Once you have a thick sauce, stir through your Dijon mustard and half the grated cheddar (you'll use the rest later!) then season with a good grind of black pepper – this is your béchamel sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644934050656-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Blitz until well combined and semi-smooth – this is your pea pesto
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644934052891-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add your panko breadcrumbs and the remaining grated cheddar to a small bowl with
 
 Add the drained macaroni to the béchamel sauce – this is your pasta mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644934056100-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Mix through the pea pesto then top with the cheesy breadcrumbs
 
 Put the dish in the oven for 15-20 min or until it's golden – this is your mac 'n' peas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644934058687-x200.jpg)
 
 ### Step 7
 

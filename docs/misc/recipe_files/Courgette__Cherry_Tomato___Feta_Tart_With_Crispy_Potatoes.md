@@ -22,7 +22,6 @@ Juicy tomatoes, tangy feta and creamy courgette sauce transform this simple tart
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1582891088293-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Grate the remaining courgette
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1582891092362-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1582891096408-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add the grated courgette and chopped garlic with a pinch of salt a
 
 Once done, add your crème fraîche to the pan and stir to combine – this is your creamy courgette sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1582891100234-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Line a baking tray (or two!) with non-stick baking paper, then add the pastry sq
 
 Tip: The pastry border will puff up to give you a nice crust!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1582891104002-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Crumble over your feta
 
 Season with a generous grind of pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1582891108284-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 15 min or until the pastry is golden and cooked through and the edges have puffed up – these are your courgette, cherry tomato & feta tarts
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1582891112483-x200.jpg)
 
 ### Step 7
 

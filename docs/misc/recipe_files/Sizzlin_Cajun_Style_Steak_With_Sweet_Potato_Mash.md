@@ -24,7 +24,6 @@ This sizzlin' Cajun steak is full of colour and flavour. Fry the spiced up steak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2013.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Boil a kettle
 
 Peel and chop your sweet potato[es]<span class="text-danger"> </span>into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2013.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the chopped sweet potato to a pot of boiled water over a high heat and cook 
 
 Once done, drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2013.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Combine your chilli flakes (can't handle the heat? Go easy!), ground smoked papr
 
 Add your rump steak[s] to the Cajun-style spice mix and rub until fully coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2013.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once done, transfer the steak to a clean plate to rest – this is your Cajun-style steak
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/mangetout-on-board-1714403027851-x200.jpg)
 
 ### Step 5
 
@@ -72,13 +67,11 @@ Cover the chopped sugar snap peas in boiled water and set aside for 7-8 min or u
 
 Once done, drain and return them to the bowl
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2013.-step-6-x200.jpg)
 
 ### Step 6
 
 While the steak is resting, add your soy sauce to the pan with a splash of boiled water and cook for 1 min or until the sauce has thickened slightly – this is your sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2013.-step-7-x200.jpg)
 
 ### Step 7
 

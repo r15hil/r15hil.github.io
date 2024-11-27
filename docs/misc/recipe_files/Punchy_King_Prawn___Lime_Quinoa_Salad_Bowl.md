@@ -28,7 +28,6 @@ You’ll love the punchiness of this prawn and quinoa bowl with lime, chilli and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581674378057-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to medium and cook for 6-8 min or until all the qu
 
 Once cooked, drain, return it to the pot until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581674382327-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Top, tail, peel and grate your carrot[s]
 
 Chop the root[s] off your lettuce and separate the leaves, then wash and pat dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581674387237-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add your rice vinegar with a pinch of salt and give everything a good mix up �
 
 Set aside for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581674392408-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel and grate (or finely chop) your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581674397813-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Combine the grated garlic (not a big garlic fan? Try using less!), chopped chill
 
 Stir it all together – this is your lime dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581674403423-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Drain your king prawns
 
 Once hot, add the drained king prawns and cook for 4-5 min or until cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581674410658-x200.jpg)
 
 ### Step 7
 

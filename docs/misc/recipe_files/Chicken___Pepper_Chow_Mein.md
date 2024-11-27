@@ -23,7 +23,6 @@ Get this takeaway classic on the table in 10 minutes. You'll toss noodles with c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1617027911003-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2041.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Deseed your sweet pointed pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon), then chop roughly into rounds
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2041.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the pan is hot, add your diced chicken breast and chopped pepper and cook for 4-5 min or until the chicken is starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2041.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2041.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the chicken has browned, add your mangetout and cook for 4-5 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727446858215-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add your soy sauce, hoisin sauce and toasted sesame oil to the pan and cook for 
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727446867960-x200.jpg)
 
 ### Step 7
 

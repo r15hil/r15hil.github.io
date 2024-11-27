@@ -30,7 +30,6 @@ Craving a comforting Chinese that saves on washing up? Then cook up our sweet se
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1672751884829-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672751887398-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cut your aubergine[s] in half lengthways and score the flesh quite deeply (in a 
 
 Add the aubergine halves to a tin foil-lined baking tray with a drizzle of olive oil and put the tray in the oven for an initial 15-20 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672751890079-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Add your basmati rice, hoisin sauce, Chinese rice wine, ginger & garlic paste and remaining gluten free soy sauce and stir it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672751892953-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your vegetable stock mix with 300ml <span class="text-purple">[390ml] </span
 
 Once boiling, cover with a lid and put the dish in the oven for 25-30 min or until all the water has absorbed and the rice is cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672751895713-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Once the aubergine is starting to soften, take the tray out of the oven and spre
 
 Return the tray to the oven for a final 10-15 min or until tender – this is your oven-baked sticky sesame aubergine
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672751898189-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672751902393-x200.jpg)
 
 ### Step 7
 

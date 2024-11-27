@@ -24,7 +24,6 @@ This salad has layers for days. You’ll pile crunchy balsamic and sundried toma
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679675184066-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the quinoa to a large pot with plenty of boiled water and your vegetable sto
 
 Once boiling, reduce the heat to medium and cook for 6-8 min or until all the water has absorbed and the quinoa is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679675194077-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ While the quinoa is cooking, peel and chop your sweet potato[es] into rounds
 
 Peel and chop your red onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679675215163-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the sweet potato rounds and onion wedges to the baking tray[s] with a drizzl
 
 Put the tray[s] in the oven for an initial 10 min or until everything's slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679675590239-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Season with a crack of black pepper and a pinch of sugar – this is your sun-dr
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679675567684-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
 Once the quinoa is cooked, remove the pot from the heat and stir through the remaining sun-dried tomato paste and chopped garlic – this is your sun-dried tomato & balsamic quinoa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679675476128-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the sun-dried tomato & balsamic quinoa to the other side and spread it out e
 
 Return the tray[s] to the oven for 15 min or until the veg is completely tender and the quinoa is crunchy – this is your roasted veg & crunchy quinoa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679675483522-x200.jpg)
 
 ### Step 7
 

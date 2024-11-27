@@ -27,7 +27,6 @@ For a twist on fried rice that's pak-ed with choi (see what we did there?), you'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624614978885-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Set aside for 8-10 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624615032355-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, dese
 
 Trim, then chop the spring onions<span class="text-danger"> </span>roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624615041289-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Wash then cut the pak choi into halves, lengthways, then pat it dry with kitchen
 
 Preheat the grill to medium-high
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624615052416-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot add the chopped garlic, ginger and spring onion with half the chopped red chilli (can’t handle the heat? Go easy!) to the pan and a pinch of salt and cook for 1-2 min or until softened and fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624615066468-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Tip: Cooking for 4? You may need to do this in batches!
 
 Wash the spinach, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624615075041-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Push the noodles to one side of the pan and crack the eggs into the other side
 
 Stir the eggs with a wooden spoon to break the yolks and cook for 1-2 min until it resembles scrambled egg, then mix it all through the noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624615097458-x200.jpg)
 
 ### Step 7
 

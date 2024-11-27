@@ -24,7 +24,6 @@ This comforting pasta is bursting with sweet tomatoes and Tenderstem broccoli. T
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1613746873645-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1764.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Boil a kettle, then chop your Tenderstem broccoli in half (chop them in one bunc
 
 Add your quick cook spaghetti and Tenderstem to a pot of boiled water and bring to the boil over a high heat, then cook for just 2 min (it will keep cooking in the sauce later!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1716912333195-x200.jpg)
 
 ### Step 3
 
 Once done, drain the spaghetti & Tenderstem, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1716912348037-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your diced chorizo and cook for 4-5 min or until beginning to crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1764.-step-5-x200.jpg)
 
 ### Step 5
 
 Chop your cherry tomatoes in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1716912369367-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Once the chorizo is crisp, add your roasted garlic paste and tomato paste to the
 
 Add your soft cheese and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1716912374726-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Christmas dinner in an hour? You got it. Roll up your sleeves and get set for a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1630924583603-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and halve the potatoes, then add them to a pot of boiled water with a l
 
 Tip: You will need some softened butter later so take it out of the fridge now!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1630924624780-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Slide half the sage leaves (you'll use the rest later!) under the string of the 
 
 Cover the turkey with tin foil and put the tray in the oven for 35 min or until it's cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1630924691904-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Finely chop the remaining sage leaves and discard the stems
 
 Combine the chopped sage with 2 <span class="text-danger">[4]</span> knobs of butter and spread the mixture onto the parsnips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1630924727684-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Carefully remove the tray of hot oil from the oven and add the drained potatoes,
 
 Turn them until they're fully coated in the oil and season with a pinch of salt, then return the tray to the oven for an initial 15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1630924788711-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Heat the reserved pot with a drizzle of vegetable oil over a medium heat, then a
 
 Season with salt and pepper and cook, covered, for 25-30 min or until all of the water has evaporated – this is your braised red cabbage
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1630925665562-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Tip: Keep an eye on your parsnips and remove them early if they look ready so th
 
 Reboil half a kettle
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1630926868311-x200.jpg)
 
 ### Step 7
 

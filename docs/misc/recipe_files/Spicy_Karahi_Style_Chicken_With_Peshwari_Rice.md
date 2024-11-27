@@ -32,7 +32,6 @@ Originating in Pakistan, Karahi is a dry, spicy chicken curry. We've teamed our 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1620661634891-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620661820700-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop a few matchsticks fro
 
 Slice your green chilli[es] in half lengthways
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620662122063-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once hot, add the sliced onion and halved green chilli[es] (can't handle the hea
 
 Meanwhile, chop your chicken breast strips into large, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620662141184-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Meanwhile, dissolve your chicken stock mix and tomato paste in 100ml <span class
 
 Cut your tomatoes into wedges
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1620662166719-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ Once the chicken has browned, add the tomato stock to the pan with your chopped 
 
 Tip: Don't worry if it's a little thick, karahi is drier than most curries!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620662177004-x200.jpg)
 
 ### Step 6
 
 Once the rice is done, add<span class="text-danger"> </span>your creamed coconut to the pot, cover with the lid and set aside for 2-3 min or until the coconut has melted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620662187436-x200.jpg)
 
 ### Step 7
 

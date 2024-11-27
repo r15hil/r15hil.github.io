@@ -29,7 +29,6 @@ With this recipe, you'll get that Friday feeling any day of the week! You'll mak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2220-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Put a large baking tray (or two) in the oven to heat up (this will stop the pizz
 
 Slice your chicken breast strips into thin strips, then cut your pepper[s] in half (scrape the seeds out with a teaspoon) and slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2220-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Cook for 12-15 min or until the chicken is cooked through (no pink meat!) – this is your tandoori-style chicken & peppers
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2220-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Meanwhile, add most of the chopped garlic (save the rest for later!) to a bowl w
 
 Add 5<span class="text-danger"> </span>tbsp<span class="text-purple"> [7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> water and give it a good mix up – this is your pizza sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2220-step-4-x200.jpg)
 
 ### Step 4
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2220-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Spread the pizza sauce evenly over the pizza base[s]
 
 Top the pizza[s] with the tandoori-style chicken & peppers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2220-step-6-x200.jpg)
 
 ### Step 6
 
 Top the pizza with the grated cheese and then put the tray[s] into the oven for 13-15 min or until the cheese has melted and the base is crispy – this is your tandoori-style chicken pizza
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2220-step-7-x200.jpg)
 
 ### Step 7
 

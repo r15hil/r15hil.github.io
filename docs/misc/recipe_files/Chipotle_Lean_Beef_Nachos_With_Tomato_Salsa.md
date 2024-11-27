@@ -24,7 +24,6 @@ These lean beef nachos are a Tex-Mex classic and perfect for a fakeaway night in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721213598026-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your tomato[es] roughly
 
 Chop your coriander finely, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721213603341-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Dissolve your beef stock mix and chipotle paste (can't handle the heat? Go easy!
 
 Drain and rinse your black beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721213607406-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lean beef mince with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721213611575-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Give everything a good mix up, then spread them out and put the tray[s] in the o
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721213615688-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the beef has browned, add 2/3 of the diced red onion (save the rest for lat
 
 Once softened, add the chopped garlic and cook for a further 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721213619751-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once boiling, reduce the heat to medium-high and cook for 4-5 min or the beef is
 
 Meanwhile, grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721213624291-x200.jpg)
 
 ### Step 7
 

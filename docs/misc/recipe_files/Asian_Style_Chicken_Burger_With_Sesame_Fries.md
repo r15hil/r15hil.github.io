@@ -27,7 +27,6 @@ This vibrant burger gets its Asian flavours from chicken simmered in soy sauce, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/838.step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut your potatoes (skins on) into thin fries, then toss them in a bowl with a d
 
 Transfer the fries to a baking tray (or two!) and put the tray[s] in the oven for 20-25 min or until they're cooked through and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640971103311-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add your chicken breast portion[s] and cook for 3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1640971108965-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Add your soy sauce and chopped garlic to the pan with a couple of splashes of water and cook, covered for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/838.step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Slice your cucumber into discs
 
 Slice each individual cucumber disc into matchsticks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/838.step-5-x200.jpg)
 
 ### Step 5
 
 Combine your mayo and red chilli relish in a small bowl – this is your chilli mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/838.step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once hot, add the brioche halves, cut-side down, and cook for 3 min or until toa
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/838.step-7-x200.jpg)
 
 ### Step 7
 

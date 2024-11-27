@@ -33,7 +33,6 @@ Explore the divine flavours of a North Indian-style dinner, with heady spiced ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632472062463-x200.jpg)
 
 ### Step 1
 
@@ -47,7 +46,6 @@ Strip your mint leaves from their stems, discard the stems and chop both the min
 
 Combine your lamb mince in a large bowl with the diced onion, half your ginger & garlic paste, half your garam masala, half of the chopped coriander and mint (save the rest for later!) and a generous pinch of salt and pepper, then set aside – this is your seekh kebab mixture
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632472352785-x200.jpg)
 
 ### Step 2
 
@@ -63,7 +61,6 @@ Scoop out 2 handfuls of the mixture per person, shape into rough bhaji shapes an
 
 Drizzle the onion bhajis with a little vegetable oil then put the tray[s] in the oven for 25-30 min or until golden and crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632472356928-x200.jpg)
 
 ### Step 3
 
@@ -75,7 +72,6 @@ Meanwhile, cut your chicken breast portion[s] into large, bite-sized pieces
 
 Add the chopped chicken to a bowl with 1/3 of the ground<span class="text-danger"> </span>turmeric and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> of natural yoghurt, mix up and set aside to marinate (save the rest of the yoghurt for later!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632472362308-x200.jpg)
 
 ### Step 4
 
@@ -85,7 +81,6 @@ Once boiling, reduce the heat to very low, sprinkle over the remaining ground tu
 
 Once cooked, remove from the heat and keep covered until serving – this is your turmeric rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632472369934-x200.jpg)
 
 ### Step 5
 
@@ -97,7 +92,6 @@ Dissolve your chicken stock mix in 200ml <span class="text-purple">[300ml]</span
 
 Once fragrant, add the tomato stock to the pan with the onions and cook, covered, for 8-10 min or until thickened slightly – this is your curry base
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632472374999-x200.jpg)
 
 ### Step 6
 
@@ -113,7 +107,6 @@ Put the tray[s] under the grill for 12-15 min, turning everything halfway, or un
 
 Once cooked, carefully slice your pepper[s] in half widthways
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632472379466-x200.jpg)
 
 ### Step 7
 

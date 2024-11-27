@@ -20,7 +20,6 @@ Meat-free sausages. Smooth mash. Onion marmalade? Not your regular trio, we know
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586955983467-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the carrots to a baking tray, drizzle them with olive oil and season the
 
 Add the meat-free sausages to the tray and put everything in the oven for 20 min or until the sausages are cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1586955987679-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the sliced red onion and cook for 8 min or until softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1586955992029-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the potatoes to a pot of boiling water with a pinch of salt over a hig
 
 Once cooked, drain and return to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1586955996758-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Reboil a kettle
 
 Dissolve the vegetable stock mix<span class="text-danger"> </span>in 250ml<span class="text-danger"> [500ml] </span>boiled water, add the onion marmalade and mix until fully combined – this is your onion gravy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1586956001643-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once the onions are caramelised, add 1 tsp <span class="text-danger">[2 tsp] </s
 
 Add the onion gravy stock, increase the heat to medium and cook for 7-8 min or until thickened to a gravy-like consistency – this is your red onion gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1634118975737-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once boiling, cook for 3-4 min or until tender with a bite
 
 Once cooked, drain and return to the pot and keep covered until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1586956027373-x200.jpg)
 
 ### Step 7
 

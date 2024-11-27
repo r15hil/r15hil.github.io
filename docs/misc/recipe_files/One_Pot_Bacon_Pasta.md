@@ -23,7 +23,6 @@ The secret to this dish is cooking your linguine in the same pan as you've fried
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/317_step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, dry pan&nbsp;with a lid&nbsp;over a medium heat&nbsp;
 
 Once hot, add the bacon and cook for 3-5 min until crispy&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/317_step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add 700ml<span class="text-danger">&nbsp;[1.4L]</span>&nbsp;boiled water to the 
 
 Whisk to dissolve the stock cube<span class="text-danger">[s]</span>&nbsp;and bring to the boil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/317_step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel and slice the onion<span class="text-danger">[s]</span>&nbsp;finely
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/317_step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once the stock is boiling, reduce the heat to medium and add the linguine (break
 
 Add the tomatoes, onion, garlic, dried oregano, chilli flakes (can't handle the heat? Go easy!) and half the grated cheddar to the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/317_step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span>&nbsp;olive oil, 1 tsp<span 
 
 Cover with a lid&nbsp;and cook for 5 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/317_step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ After 5 min, remove the lid, and stir continuously until the pasta is cooked and
 
 Tip: stirring the sauce releases the starch from the pasta making it naturally creamier
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/317_step-7-x200.jpg)
 
 ### Step 7
 

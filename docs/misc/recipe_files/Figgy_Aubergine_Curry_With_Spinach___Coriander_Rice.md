@@ -30,7 +30,6 @@ This decadent aubergine curry is made even more delicious with a fig relish twis
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626683327782-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Transfer the aubergine pieces to a baking tray with a generous drizzle of vegeta
 
 Give everything a good mix up and put the tray in the oven for 20 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626683331229-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Wash your spinach, then add and cook covered for a further 2-5 min or until the 
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626683335297-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Whilst the rice is cooking, boil a kettle
 
 Peel and finely slice your red onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626683340620-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter altern
 
 Once hot, add the sliced red onion with a pinch of<span class="text-danger"> </span>salt and cook for 5 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626683347960-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Combine your fig relish, chopped creamed coconut and vegetable stock with 200ml 
 
 Drain and rinse your chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626683353584-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add your curry powder, cumin seeds, chopped ginger, chopped garlic and a generou
 
 Add the figgy coconut stock, roasted aubergine and drained chickpeas, increase the heat to medium-high and cook, covered, for 3-4 min or until the sauce has thickened slightly – this is your figgy aubergine curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626712218207-x200.jpg)
 
 ### Step 7
 

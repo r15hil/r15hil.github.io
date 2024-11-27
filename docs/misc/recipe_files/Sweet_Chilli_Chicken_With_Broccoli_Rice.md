@@ -22,7 +22,6 @@ Chicken, rice and broccoli create a balanced meal every time. We've flavoured th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/632.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Transfer the chicken strips to a plate with a little flour
 
 Toss to coat the chicken evenly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/632.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once the rice is boiling, reduce the heat to low and add the broccoli florets on
 
 Cover and cook for 10-15 min or until all the water has absorbed and the rice and broccoli are cooked
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/632.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add the chicken and cook for 3 min or until nicely browned, turning on
 
 Once&nbsp;browned, transfer the strips to a plate and wipe the pan clean
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/632.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Peel and chop (or grate) the ginger finely
 
 Cut the lemon<span class="text-danger">[s]</span> in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/632.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the cornflour, sweet chilli jam, juice of half the&nbsp;<span class="text-da
 
 Stir to combine - this is your sweet chilli stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/632.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Add the sweet chilli stock and transfer the chicken back to the pan
 
 Cook for 3-5 min or until your chicken is cooked through and your sauce is sticky and has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/632.-step-7-x200.jpg)
 
 ### Step 7
 

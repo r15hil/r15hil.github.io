@@ -28,7 +28,6 @@ Whip out your wok and serve up sticky-sweet pork, crisp greens and fluffy rice. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684161948716-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Trim, then cut your green beans in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684161953311-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Tip: Cooking for 3 or more? Make 2 separate parcels!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684161957887-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684161962978-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your pork mince (remove the paper if required!) and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684161967274-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Finely slice some of your red chilli[es] into rounds and set aside for garnish
 
 Cut the remaining chilli in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684161971480-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the pork mince has browned, add the chopped garlic, ginger and chopped chil
 
 Add your hoisin sauce, cornflour and soy sauce with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[75ml] </span>water and cook for a further 4 min or until the sauce becomes sticky and the pork is cooked through (no pink meat!) – this is your spicy hoisin pork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684161975943-x200.jpg)
 
 ### Step 7
 

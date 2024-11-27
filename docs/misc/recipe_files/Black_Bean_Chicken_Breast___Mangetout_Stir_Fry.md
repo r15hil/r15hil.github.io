@@ -27,7 +27,6 @@ Sizzle up a classic stir-fry in a flash. Pan-fry diced chicken breast in soy sau
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1731489461793-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Rinse your white long grain rice until the water runs clear, then add it to a po
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1731489466548-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add your diced chicken breast with your soy sauce and cook for an init
 
 Once the rice is done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1731489480955-x200.jpg)
 
 ### Step 3
 
@@ -55,19 +52,16 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1731489486692-x200.jpg)
 
 ### Step 4
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughly chop
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1731489494990-x200.jpg)
 
 ### Step 5
 
 Combine your black bean paste and Chinese rice wine with 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[150ml] </span>boiled water and 1/2 tsp <span class="text-purple">[3/4 tsp]</span><span class="text-danger"> [1 tsp] </span>sugar – this is your black bean stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1731489502336-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Once the chicken is golden, add the chopped pepper, garlic, ginger and half your
 
 Once fragrant, add your cornflour and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1731489513160-x200.jpg)
 
 ### Step 7
 

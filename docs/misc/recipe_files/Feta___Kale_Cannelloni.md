@@ -22,7 +22,6 @@ This comforting veggie dish lets you roll lasagne sheets into kale and feta cann
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/822.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Strip the basil leaves from the stalks, chop the stalks finely and set the leave
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/822.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -58,7 +56,6 @@ Cook them for 5-7 min or until they've softened but not fully cooked and once dr
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/822.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -76,7 +73,6 @@ Add the garlic and&nbsp;kale
 
 Cover with a lid and cook for 5 min or until the kale has wilted
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/822.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -91,7 +87,6 @@ Stir 400ml <span class="text-danger">[800ml]</span>&nbsp;milk gradually into the
 
 Whisk&nbsp;constantly for 4 min or until a smooth, thick sauce remains, then remove from the heat, add the&nbsp;basil&nbsp;stalks and a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/822.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -100,7 +95,6 @@ Grate the cheddar&nbsp;and set aside
 
 Crumble the feta into the softened&nbsp;kale&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/822.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -115,7 +109,6 @@ Add the canelloni to your oven-proof&nbsp;dish with the seams facing down, pour 
 
 Put the dish in the oven for 15-20 min or until golden brown&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/822.-step-7-x200.jpg)
 
 ### Step 7
 

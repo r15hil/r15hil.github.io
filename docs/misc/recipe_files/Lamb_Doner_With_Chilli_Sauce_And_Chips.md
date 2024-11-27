@@ -28,7 +28,6 @@ Make the table go, "phwoar!" with this delicious homemade doner. You'll top warm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581673881408-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581673891649-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and grate half your red onion[s]
 
 Peel and finely slice the remaining red onion and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581673896421-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add your lamb mince to a bowl with your panko breadcrumbs, ground cumin, dried 
 
 Add 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> salt and half of the chopped garlic (save the rest for later!) and mix thoroughly until fully combined (clean hands is the best way!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581673902320-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tip: Cooking for 4 or more? Do this in batches!
 
 Add the tray[s]<span class="text-danger"> </span>to the oven for 18-20 min or until cooked through and browned (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721744392316-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Slice your tomato[es] into wedges
 
 Combine the remaining chopped garlic (not a fan of raw garlic? Just add a little!) with your mayo, a pinch of salt and a drizzle of olive oil – this is your garlic mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581673913574-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Give it a good mix up – this is your chilli sauce
 
 Once the chips are almost done, push them to one side, then add your wholemeal pitta[s] to the tray[s] and return to the oven for 3-4 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581673918773-x200.jpg)
 
 ### Step 7
 

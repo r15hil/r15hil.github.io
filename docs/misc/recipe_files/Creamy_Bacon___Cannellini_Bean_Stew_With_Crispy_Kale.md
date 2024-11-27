@@ -21,7 +21,6 @@ For this simple, comforting, creamy bacon & bean stew, you'll cook sweet leek wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1484.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Wash the leek<span class="text-danger">[s]</span><span class="text-danger"> </
 
 Dissolve the chicken stock cube<span class="text-danger">[s]</span> in 550ml <span class="text-danger">[1L]</span> boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1484.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with a 
 
 Once melted, add the sliced leek with a pinch of salt and cook for 3-4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1484.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, cut the potatoes (skins on) into small bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1484.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once the leek has softened, add the chicken stock and chopped potatoes and
 
 Once boiling, reduce the heat to medium and cook, covered, for 10-12 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1484.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Put the tray in the oven for 10-12 min or until turning golden and crisp 
 
 Meanwhile, drain and rinse the cannellini beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1484.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the smoked streaky bacon and cook for 5 min, turning once halfwa
 
 Once done, transfer the bacon to kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1484.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This sticky Chinese-style chicken dinner will give you the protein hit you need.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1722592615091-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1722592624405-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Boil half a kettle
 
 Add your chicken breast portion[s] to a chopping board, cover with cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722592634732-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Once hot, add the flattened chicken to the pan with a pinch of salt and pepper a
 
 Tip: Cooking for 5? Use two pans!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1722592644342-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add your hoisin sauce, gluten free soy sauce and ginger & garlic paste to a measuring jug with your cornflour and 50ml <span class="text-purple">[70ml]</span> <span class="text-danger">[90ml]</span> boiled water and stir it all together – this is your hoisin sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1722592649584-x200.jpg)
 
 ### Step 5
 
@@ -68,13 +63,11 @@ Wash, then, slice your pak choi into wedges lengthways on a clean chopping board
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1722592654348-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked, add the hoisin sauce to the pan and cook for 2-3 min or until the sauce has thickened and the chicken is coated – this is your sticky hoisin chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1722592658762-x200.jpg)
 
 ### Step 7
 

@@ -32,7 +32,6 @@ Tonight, whip up a fragrant stir-fry with king prawns and crunchy veg. For a tas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1652179193129-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel (scrape the skin off with a teaspoon) and grate your ginger, then peel and 
 
 Zest half your lime[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1652179195093-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Add the lime zest, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span clas
 
 Give everything a good mix up, then shape into 2 long sausages per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1652179198056-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1652179200903-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Push a skewer through each of the sausages and transfer them to a tin foil-lined baking tray with a little vegetable oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1652179204386-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Put the tray under the grill for 10-12 min, turning once halfway through, or unt
 
 Combine the juice of half your lime[s] in a bowl with your chilli relish and half of your soy sauce (you'll use the rest later!) – this is your sweet chilli dip
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652179206793-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced carrot and pepper strips and cook for 4-5 min or until slightly charred
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652179209752-x200.jpg)
 
 ### Step 7
 

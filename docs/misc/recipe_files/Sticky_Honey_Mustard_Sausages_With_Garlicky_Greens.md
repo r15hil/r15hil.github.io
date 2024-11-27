@@ -22,7 +22,6 @@ We've given Jolly Hog sausages a honey mustard makeover. These sticky glazed ban
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/514_step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop your red onion[s] into wedges through the root, keeping the skin on
 
 Tip: Cutting through the root ensures that they stay together while cooking
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/514_-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Drizzle with olive oil and season with salt and pepper
 
 Add the sausages to a sheet of tin foil, scrunching up the edges, and place on the other side
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/514_step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Strip your rosemary leaves from the stems and chop finely, discard the stems
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/514_step-4-x200.jpg)
 
 ### Step 4
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/514_-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Flip the potato discs
 
 Pour the honey mustard mixture over the browned sausages – these are your sticky honey mustard sausages
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/514_step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the onions are cool enough to handle, remove the skins
 
 Separate the roasted onion into petals
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/514_step-7-x200.jpg)
 
 ### Step 7
 

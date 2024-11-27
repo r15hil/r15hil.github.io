@@ -24,7 +24,6 @@ This is no average cheese toastie. Take your 3 cheese melt to the next level wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599496050294-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely slice your red onion[s]
 
 Cut your grapes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1599496054619-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the sliced onion and halved grapes with a pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599496066375-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add the potato discs to a baking tray with a drizzle of vegetable oil and a pinc
 
 Put the tray in the oven for 25-30 min or until golden and crispy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599496075222-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once done, set aside to cool slightly – this is your onion & grape chutney
 
 Tip: Cooling will help to thicken the chutney!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599496084573-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Grate your cheddar cheese into the bowl with half your grated Italian hard chees
 
 Slice your ciabatta[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599496094337-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Tip: This will give a delicious crust to your cheese melt!
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599496120546-x200.jpg)
 
 ### Step 7
 

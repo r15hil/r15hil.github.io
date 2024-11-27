@@ -24,7 +24,6 @@ All the best bits of a Greek fast food classic, made into a sumptuous salad. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1718713242007-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ This recipe takes around 5-10 min to prep, so get your baking tray and all your 
 
 Take your chicken out of the fridge, open the packet and let it air
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1718713250411-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Chop your tomato[es] into wedges
 
 Peel and cut your red onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1718713255666-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Chop your potatoes (skins on) into wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1718713260056-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Mix it all together until well coated and arrange the chicken thighs so they are
 
 Put the tray[s] in the oven for 30 min or until the chicken is cooked through (no pink meat!) and the potatoes are tender – this is your souvlaki-style chicken & roasted veg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1718713264832-x200.jpg)
 
 ### Step 5
 
 Meanwhile, wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1718713270043-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add your natural yoghurt to a bowl with your mint sauce and a squeeze of lemon j
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1-1718713274029-x200.jpg)
 
 ### Step 7
 

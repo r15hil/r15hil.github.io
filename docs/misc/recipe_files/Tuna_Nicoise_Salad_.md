@@ -21,7 +21,6 @@ This French classic is the perfect summery salad. You’ll toss lettuce, green b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696845449684-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Cut your potatoes (skins on) into large, bite-sized pieces
 
 Trim, then chop your green beans in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696845453527-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil,
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your herby roast potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696845457083-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Once boiling, cook for exactly 8 min for perfect, mid-boiled egg[s], then fill a
 
 Peel the cooled egg[s] and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696845460456-x200.jpg)
 
 ### Step 4
 
@@ -59,19 +55,16 @@ Drain your tuna
 
 Wash your lettuce, remove the outer leaves and tear into rough pieces, then shred the inner core
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696845464191-x200.jpg)
 
 ### Step 5
 
 Combine your mayo and red wine vinegar in a bowl with the remaining dried oregano, 1 tbsp<span class="text-purple"> [1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and pepper – this is your creamy dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696845467580-x200.jpg)
 
 ### Step 6
 
 Add the halved green beans to the reserved pot of water, bring to the boil over a high heat and cook for 3-4 min or until tender, then drain and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696845471649-x200.jpg)
 
 ### Step 7
 

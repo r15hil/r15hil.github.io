@@ -23,7 +23,6 @@ Sink your teeth into this succulent plant-based burger, with our juicy Ultimate 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1592237543860-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Strip your rosemary and thyme leaves from their stems and chop them roughly toge
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down the lengths to easily remove the leaves
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1592237550271-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil, a pinc
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your herby fries
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1592237558042-x200.jpg)
 
 ### Step 3
 
@@ -53,13 +50,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1592237570453-x200.jpg)
 
 ### Step 4
 
 Add your meat-free patty[ies] to one side of a tin foil-lined baking tray (or two!) and put in the oven for 10-12 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1592237578117-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once the onion is beginning to soften, add your fig relish to the pan and stir u
 
 Reduce the heat to very low and cook until ready to serve or until they have softened and caramelised – these are your figgy onions
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1592237592227-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Slice your ciabatta[s] in half and add to the other side of the tray[s]
 
 Return the tray[s] to the oven for 3-4 min or until the cheeze has melted and the ciabatta is warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1592237598357-x200.jpg)
 
 ### Step 7
 

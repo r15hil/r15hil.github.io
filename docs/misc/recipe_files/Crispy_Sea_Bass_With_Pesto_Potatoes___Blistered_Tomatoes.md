@@ -24,7 +24,6 @@ Sea bass is the star of the show in this dish. You’ll pan-fry your fish till c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724065992751-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Trim your green beans
 
 Crush your garlic open by squashing it with the side of a knife and discard the skins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724066001190-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cook the potatoes and green beans together for a further 5-7 min, or until tende
 
 Once tender, drain and allow to cool slightly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724066019609-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Once hot, add the halved tomatoes to the pan and cook for for 3 min or until the
 
 Once the tomatoes are blistered transfer them to a plate and reserve the pan for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1200.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine your pesto and half your balsamic vinegar (save the rest for later!) in a large bowl with 1 tbsp <span class="text-purple">[1 1/2tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water, a drizzle of olive oil and a pinch of salt and pepper – this is your balsamic pesto dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724066106757-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Once hot, add the seasoned sea bass fillet[s], skin side down with the crushed g
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724066115539-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add the blistered tomatoes, green beans and potatoes to the bowl with the balsamic pesto dressing and give everything a good mix up – these are your pesto dressed vegetables
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724066123807-x200.jpg)
 
 ### Step 7
 

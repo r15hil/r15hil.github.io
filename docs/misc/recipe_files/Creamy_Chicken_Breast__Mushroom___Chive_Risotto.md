@@ -27,7 +27,6 @@ Add fast, savoury flavour to this luxurious chicken risotto with roasted chestnu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633340172790-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Cook over a high heat for 3-5 min or until starting to brown and caramelise – these are your caramelised mushrooms
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633340176449-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Return the pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add your diced chicken breast with a pinch of salt and cook for 7-8 min or until browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1633340179779-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[1L]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633340183866-x200.jpg)
 
 ### Step 4
 
@@ -71,19 +67,16 @@ Add your arborio rice and chopped garlic to the pan and cook for 1 min, stirrin
 
 Add your Chinese rice wine and cook for 30 secs or until it's evaporated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633340186954-x200.jpg)
 
 ### Step 5
 
 Once evaporated, reduce the heat to medium, add your vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice and chicken are cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633340190974-x200.jpg)
 
 ### Step 6
 
 Meanwhile, grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633340195699-x200.jpg)
 
 ### Step 7
 

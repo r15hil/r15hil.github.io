@@ -26,7 +26,6 @@ For a plant-based burger that'll make you merry, you’ll serve up Gousto’s ju
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2320.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Sprinkle over half the dried sage (save the rest for later!) and give everyt
 
 Put the tray in the oven for 30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2320.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Tip: Don't have a food processor? Slice them finely instead!
 
 Add the shredded sprouts to a colander and pour boiled water all over them until bright green and wilted, then set aside to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2320.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the sliced mushrooms with the smoked paprika and a pinch of salt and cook for 3-4 min or until softened – these are your 'bacon' mushrooms
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2320.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the 'bacon' mushrooms, wilted sprouts, mayo and mustard ketchup to a larg
 
 Season with a pinch of salt and give everything a good mix up until fully combined – this is your sprout slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2320.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the ultimate vegan burger patties to the tray and put the tray in the oven 
 
 Whilst the patties are cooking, the vegetable stock mix in 250ml <span class="text-danger">[450ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2320.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once hot, add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and cook 
 
 Add the vegetable stock with the Marmite and remaining dried sage and cook for 4-5 min, stirring occasionally, until thickened to a gravy-like consistency – this is your gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2320.-step-7-x200.jpg)
 
 ### Step 7
 

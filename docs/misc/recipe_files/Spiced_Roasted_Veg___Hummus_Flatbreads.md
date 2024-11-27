@@ -26,7 +26,6 @@ For these tasty flatbreads, you'll spread creamy hummus over soft, warm tortilla
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625593536669-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Dissolve 1 tsp <span class="text-danger">[2 tsp]</span> sugar in 1 tbsp <span class="text-danger">[2 tbsp]</span> boiled water in a small bowl, then add the red wine vinegar with the sliced shallot and set aside to pickle – this is your pickled shallot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625593575524-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Meanwhile, deseed the red pepper<span class="text-danger">[s]</span> (scrape the
 
 Cut the cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625593617678-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once the butternut squash has had 10 min, add the chopped pepper, halved cherry 
 
 Return the tray to the oven for a further 10 min or until everything is tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625593647309-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, drain the chickpeas
 
 Peel and finely chop (or grate) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625593653266-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Blitz until smooth – this is your hummus
 
 Tip: Add a small splash more water if your hummus is looking a little thick!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625593660706-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the tortillas to a separate baking tray and put the tray in the oven for 3-
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1625593669990-x200.jpg)
 
 ### Step 7
 

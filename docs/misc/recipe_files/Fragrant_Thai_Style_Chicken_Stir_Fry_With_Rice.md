@@ -26,7 +26,6 @@ This quick and flavoursome meal is inspired by a famous Thai street food dish ca
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708356760122-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708356763306-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh and cook for 6-7 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708356850694-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Peel and finely slice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708356812810-x200.jpg)
 
 ### Step 4
 
 Once the chicken has browned, add the sliced shallot and diced pepper with the chopped garlic and cook for 3-4 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708356816189-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add your hoisin sauce, soy sauce, chilli flakes (can’t handle the heat? Go eas
 
 Cook for 2-3 min or until the sauce begins to reduce and the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708356819266-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Meanwhile, heat a separate large, wide-based pan (preferably non-stick with a ma
 
 Once hot, crack your egg[s] into the pan and cook, covered, for 2 min or until done to your liking – this is your fried egg[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708356822403-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Make a night in extra special with juicy British rump steak, rich and creamy mus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1449.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Add 400ml<span class="text-danger"> [800ml]</span> boiled water to a pot with t
 
 Once dissolved, gradually whisk the polenta into the boiling stock. Continue to whisk for 2-3 minutes or until a thick porridge consistency is achieved.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1449.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -63,7 +61,6 @@ Put the dish in the fridge for 20 minutes or until the polenta is set.
 
 Meanwhile, preheat the oven to 210°C/ 190°C (fan)/ 425°F/ Gas 6.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1449.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -81,7 +78,6 @@ Whisk thoroughly with a fork until fully combined.
 
 Use the next 10 minutes to set the table, wash up or simply chill.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1449.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -96,7 +92,6 @@ Gently add the polenta chips to an oiled baking tray, drizzle with vegetable oil
 
 Put the tray in the oven for 35 minutes or until the polenta chips are brown and crispy.
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1449.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -117,7 +112,6 @@ Chop the chives finely and set aside.
 
 Pat the rump steaks dry with a kitchen towel, rub them with vegetable oil and season both sides generously with salt.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1449.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -135,7 +129,6 @@ Tip: <span class="text-highlight">To get a lovely caramelisation, don’t move 
 
 Once cooked, transfer the steaks to a chopping board, cover with a clean tea towel and leave to rest in a warm place.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1449.-step-7-x200.jpg)
 
 ### Step 7
 

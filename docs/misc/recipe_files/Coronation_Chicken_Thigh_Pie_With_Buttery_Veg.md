@@ -26,7 +26,6 @@ This 2-in-1 classic is the crowning glory. You’ll simmer chicken thighs in cre
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681316297177-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the diced onion and cook for 5-6 min or until softened and lightly browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681316303511-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the trimmed green beans and carrot discs to a large piece of tin foil with 1
 
 Scrunch the foil around the vegetables to form a tightly sealed parcel (or two!) and add it to a baking tray, then set aside for later – this is your vegetable parcel
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681316308623-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Boil a kettle
 
 Once the onion has softened, add your diced chicken thigh to the pan and cook for 4-5 min or until browned all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681316314550-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, dissolve your chicken stock mix in 150ml <span class="text-purple">[2
 
 Add your sultanas and stir it all together – this is your sultana stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681316318781-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Transfer the pastry to a non-stick baking paper-lined baking tray (or two!), the
 
 Crimp the borders with a fork and put the tray[s] in the oven for 15 min or until puffed up, golden and cooked through– these are your pie lids
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681316323640-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Cook for 1 min or until fragrant, then add the sultana stock and mix it all toge
 
 Cook for 5-6 min or until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681316329648-x200.jpg)
 
 ### Step 7
 

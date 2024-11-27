@@ -27,7 +27,6 @@ Sound the alarm, this is aubergine parm with a twist. You’ll roast cheesy pank
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678954633850-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut your potatoes (skins on) into fries
 
 Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678954636571-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cut each half in two through the centre, so you end up with 2<span class="text-d
 
 Tip: Trim a little aubergine skin off each piece, this will make it easier for the breadcrumbs to stick!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678954639621-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add your panko breadcrumbs to a plate with your grated Italian hard cheese and a
 
 Combine 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> flour and a pinch of salt and pepper in a bowl with 3 tbsp<span class="text-purple"> [4 1/2 tbsp] <span class="text-danger">[</span>6 tbsp]</span> cold water – this is your flour mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678954643017-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the coated aubergine to a baking paper-lined tray and add a generous drizzle
 
 Put the trays with the fries and the aubergine in the oven for an initial 20 min or until crispy and golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678954646670-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Slice the drained mozzarella into 2<span class="text-danger"> </span>slices per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678954652333-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Slice your brioche bun[s] in half
 
 Wash your salad then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678954886520-x200.jpg)
 
 ### Step 7
 

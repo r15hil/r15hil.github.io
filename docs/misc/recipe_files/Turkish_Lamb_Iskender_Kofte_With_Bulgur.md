@@ -24,7 +24,6 @@ Love a doner for dinner? Then you'll want to try this twist on another famous ke
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1592297242114-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a pot (with a matching lid) with a generous knob of butter over a medium he
 
 Once melted, add the bulgur wheat and cook for 1-2 min or until toasted
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1592297249779-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once the bulgur has toasted, add the stock to the pan and reduce the heat to ver
 
 Cook, covered, for 15 min or until all of the water has been absorbed and the bulgur is cooked through – this is your tomato bulgur
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1592297272925-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Divide the lamb mixture into 10 <span class="text-danger">[20]</span>, shape the
 
 Tip: Use wet hands to shape the balls!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1592297292569-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Heat a dry, large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the lamb kofte and cook for 4-5 min on each side or until golden and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1592297301831-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Whilst the lamb is cooking, halve the cherry tomatoes
 
 Dissolve the remaining Knorr chicken stock cube in 100ml <span class="text-danger">[200ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1592297325697-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Return the pan to a medium heat and add the halved cherry tomatoes and cook for 
 
 Add the chicken stock a pinch of sugar and the ground paprika and cook for 2-3 min further or until starting to thicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1592297359297-x200.jpg)
 
 ### Step 7
 

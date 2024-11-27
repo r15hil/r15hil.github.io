@@ -31,7 +31,6 @@ Grab some napkins for these meat-free mince and pineapple tacos. You'll cook up 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637150459095-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel your red onion[s] and finely slice 3 rings per person, then dice the remain
 
 Add the red onion rings and your red wine vinegar to a shallow bowl and set aside to pickle until serving – these are your quick-pickled red onion rings
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637150462959-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion with a pinch of salt and cook for 8-10 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637150466125-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Chop your coriander finely, including the stalks
 
 Combine your vegan mayo with 2 tsp <span class="text-purple">[3 tsp</span>] <span class="text-danger">[4 tsp] </span>cold water and the chopped coriander in a small bowl – this is your herby mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637150470724-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the onion has softened, add the chopped garlic and your meat-free mince (re
 
 Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!) and soy sauce and cook for a further<span class="text-danger"> </span>5-6 min or until the meat-free mince is beginning to brown all over – this is your smoky meat-free mince
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637150473987-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Drain and finely dice your pineapple slices
 
 Combine the shredded lettuce, diced pineapple and your chilli flakes (not a fan of spice? Just add a little!) in a bowl with plenty of black pepper – this is your pineapple salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1663690949125-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637150480541-x200.jpg)
 
 ### Step 7
 

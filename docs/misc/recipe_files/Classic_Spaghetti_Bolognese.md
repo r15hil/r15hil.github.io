@@ -23,7 +23,6 @@ When it comes to family comfort food favourites, it's hard to beat spag bol. For
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1786-step-1.new-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ When it comes to family comfort food favourites, it's hard to beat spag bol. For
 
 <span class="text-highlight">Top, tail, peel and finely dice the carrot<span class="text-danger">[s] </span></span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1786.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion, carrot and garlic and cook for 6-8 min or until beginning to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1786.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,19 +53,16 @@ Meanwhile, add the spaghetti to a pot of boiled water with a pinch of salt, br
 
 Once cooked, drain and reserve a cup of the starchy cooking water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1786.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the vegetables have softened, add the beef mince and cook for 4-5 min further or until browned, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1786.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the beef mince has browned, add the Henderson's Relish, 1/2 <span class="text-danger">[1]</span> beef stock cube and soy sauce and cook for 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1786.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Add the chopped tomatoes and cook for 12-15 min or until the liquid is reduced 
 
 Meanwhile, grate the cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1786.-step-7-x200.jpg)
 
 ### Step 7
 

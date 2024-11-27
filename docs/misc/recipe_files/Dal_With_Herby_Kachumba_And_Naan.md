@@ -27,7 +27,6 @@ This creamy, luscious dal only takes 10 minutes to make. You'll serve it with a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1613746328328-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1664443595095-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Now, let's get started!
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1570.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add your curry powder, ground turmeric, ginger paste and roasted garli
 
 Drain and rinse your green lentils
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1570.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the drained lentils and 100ml <span class="text-purple">[150ml]</span><span 
 
 Once boiling, reduce the heat to medium-low and cook for a further 3-4 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1570.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Strip your mint leaves from their stems, discard the stems
 
 Chop the mint leaves and coriander (including the stalks!) together roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1570.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add your white wine vinegar to the bowl with a pinch of salt, pepper and sugar a
 
 Add your garlic & coriander naan[s] to a toaster for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1570.-step-7-x200.jpg)
 
 ### Step 7
 

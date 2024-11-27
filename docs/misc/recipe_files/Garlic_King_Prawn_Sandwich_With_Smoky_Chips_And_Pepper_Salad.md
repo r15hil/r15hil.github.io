@@ -24,7 +24,6 @@ Love garlic? This tapas-inspired sando is for you. Pile your ciabattas high with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702996518553-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a baking paper-lined baking tray (or two!) with your half your 
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 6-8 min – these are your smoky chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702996522024-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Slice your sweet pointed pepper[s] into rings (scrape the seeds and pith out wit
 
 Peel and cut your red onion[s] into quarters, then separate the wedges so you end up with a pile of onion petals
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702996525064-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tip: Cooking for 3 or more? Use a separate tray!
 
 Return the tray[s] to the oven for a further 15-18 min or or until everything is golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702996527573-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Peel and finely chop (or grate) the remaining garlic
 
 Combine the chopped garlic (don’t like raw garlic? Go easy!) with your mayo in a bowl with a pinch of salt and pepper – this is your aioli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702996530833-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once hot, add the sliced garlic and remaining ground smoked paprika to the pan a
 
 Once fragrant, drain, then add your king prawns and cook for 4-5 min or until cooked through – these are your garlic king prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702996534123-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Meanwhile, slice your ciabatta[s] in half and place in the toaster for 2-3 min o
 
 Wash your salad, then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702996537176-x200.jpg)
 
 ### Step 7
 

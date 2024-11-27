@@ -25,7 +25,6 @@ Serve up Thai flavours in no time. Wrap up delicate hake fillets with chunky pep
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646756818376-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your pak choi, and pat it dry with kitchen paper, then cut the pak choi in 
 
 Cut the white bases into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646756826672-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646756837547-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Chop your creamed coconut roughly (if required!) and dissolve it in 100ml<span c
 
 Add your soy sauce, Thai green curry paste, chopped garlic, chopped ginger, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and your lime leaf[ves] and stir it all up – this is your Thai-style curry stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646756862145-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Cut  A3 size sheets of baking paper (or tin foil)
 
 Divide the pepper strips and the pak choi green tops and chopped white bases evenly between the sheets
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646756874342-x200.jpg)
 
 ### Step 5
 
 Lay each hake fillet on top of the vegetables and season with a pinch of salt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646756885842-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Put the tray[s] in the oven for 17 min or until the fish is cooked through and t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646756900659-x200.jpg)
 
 ### Step 7
 

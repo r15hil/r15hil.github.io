@@ -23,7 +23,6 @@ Pile this gluten free burger high with succulent pulled chicken, juicy tomato an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1679315419890-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut your potatoes (skins on) into wedges, then add them to a baking tray (or two
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1679315427446-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once hot, add the brioche halves cut-side down, and cook for 2-3 min or until to
 
 Set aside until serving and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1679315431679-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1679315435860-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your wholegrain mustard (not a mustard fan? Go easy!) and mayo in a small bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil – this is your mustard mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1679315440315-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cut 1 slice of tomato per person, then dice the remaining tomato
 
 Combine your white wine vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper in a large bowl – this is your salad dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1679315444998-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the chicken is done, transfer to a clean board and shred it apart, using tw
 
 Season the pulled chicken with a generous pinch of salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1679315448797-x200.jpg)
 
 ### Step 7
 

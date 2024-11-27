@@ -28,7 +28,6 @@ Lemon chicken is a classic, and our sweet and tangy, baked-not-fried twist is le
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 20-25 min or until it's tender with a slight bite, then once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your chicken breast portion[s] to a baking tray with a drizzle of vegetable
 
 Top each piece of chicken with a lemon round and put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Squeeze in the juice of the remaining lemon – this is your lemon stock
 
 Wash your shredded kale, then pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-5-1699365450320-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the shredded kale to a large baking tray (or two!) with a pinch of salt, 
 
 Give everything a good mix up and put the tray[s] in the oven for 10-12 min or until crispy – this is your crispy kale
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-5-1699365454238-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once softened, add the lemon stock and cook for 5-6 min or until thickened
 
 Once thickened, remove from the heat and stir through your toasted sesame oil – this is your lemon sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-7-x200.jpg)
 
 ### Step 7
 

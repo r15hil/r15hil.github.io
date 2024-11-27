@@ -29,7 +29,6 @@ This quick-to-assemble bowl is everything you love about sushi, minus the faff. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2246-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2246-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get perfectly fluffy rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2246-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel lengths off your cucumber until you end up with a pile of cucumber ribbons
 
 Add the carrot ribbons and cucumber ribbons to a bowl with your rice vinegar and a pinch of salt and sugar and give everything a good mix up – these are your quick-pickled carrot & cucumber ribbons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2246-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Combine the chopped ginger with your soy sauce and toasted sesame oil in a small bowl – this is your ginger & soy dipping sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2246-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Mix your black sesame seeds and toasted sesame seeds together in a bowl with a p
 
 Add the salmon cubes to the bowl and give everything a good mix up until the salmon cubes are coated all over – this is your coated salmon
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2246-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, add the coated salmon and cook for 6-8 min, stirring occasionally u
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2246-Step-7-x200.jpg)
 
 ### Step 7
 

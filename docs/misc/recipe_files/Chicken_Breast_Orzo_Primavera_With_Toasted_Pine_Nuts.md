@@ -25,7 +25,6 @@ This simple one-pan dish is fresh as it gets. You'll stir diced chicken breast, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687248439641-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Boil a kettle
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687248442152-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once browned, add the sliced garlic and cook for 30 secs
 
 Add your orzo and cook for 1 min further
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687248445087-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Add the vegetable stock to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium-low and cook, covered, for an initial 5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687248447589-x200.jpg)
 
 ### Step 4
 
 Meanwhile, trim and cut your green beans in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687248450787-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once hot, add your pine kernels and cook for 2-3 min or until toasted and lightl
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687248453477-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the orzo has been cooking for 5 min, add the halved green beans and cook, c
 
 Tip: Add a splash more water if your orzo is looking a little dry, and stir it occasionally to prevent it from sticking!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687248456187-x200.jpg)
 
 ### Step 7
 

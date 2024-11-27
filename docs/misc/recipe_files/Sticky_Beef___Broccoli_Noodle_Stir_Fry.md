@@ -29,7 +29,6 @@ Tuck into beef noodles and crisp greens in a sticky sauce. You'll sizzle garlic,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2196-2196-v4-Step-1-ver2196-v4-Sion-3-17.03.01-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Tip: If you can't handle the heat, save some of the chilli for another recipe!
 
 Trim, then slice your spring onion[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2196-v2-2196-v3-2196-v4-Step-2-17.02.58-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the chopped garlic, ginger & chilli and cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2196-v2-2196-v3-2196-v4-Step-3-x200.jpg)
 
 ### Step 3
 
 Once fragrant, add your beef mince and your five-spice mix and cook for 4-5 min or until starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2196-v2-2196-v3-2196-v4-Step-4-1-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ While the mince is cooking, combine your cornflour with 75ml <span class="text
 
 Add your hoisin sauce, rice vinegar, soy sauce and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your sticky stir-fry sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2196-v2-2196-v3-2196-v4-Step-5-x200.jpg)
 
 ### Step 5
 
 Cut your broccoli into small florets, discard the stem and leaves
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2196-v2-2196-v3-2196-v4-Step-6-1-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Bring to the boil and cook over a high heat for 5-6 min or until the noodles are
 
 Once done, drain the noodles & broccoli, reserving a cup of the starchy noodle water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2196-v2-2196-v3-2196-v4-Step-7-x200.jpg)
 
 ### Step 7
 

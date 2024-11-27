@@ -27,7 +27,6 @@ This recipe is inspired by the famous Chapli kebabs from Peshawar, one of Pakist
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683214371421-x200.jpg)
 
 ### Step 1
 
@@ -39,13 +38,11 @@ Strip the mint leaves from their stems and discard the stems
 
 Add the mint leaves, coriander (including the stalks) and a pinch of salt to the food processor with a splash of water and blitz again for 10-15 secs or until paste-like
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683214375388-x200.jpg)
 
 ### Step 2
 
 Add the coriander & mint paste to a bowl with the natural yogurt and give everything a good mix up – this is your herby raita
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683214381745-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the chopped onion to the food processor with the beef mince and blitz for 10
 
 Add the beef and onion mix to the bowl with the garlic & ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683214386740-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the patties to a baking tray lined with non-stick baking paper and drizzle w
 
 Put into the oven for 15 min or until cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683214398252-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once melted, gently stir in the basmati rice and saffron then add 300ml<span cla
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your saffron rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1683297735600-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Peel and finely slice the remaining onion
 
 Add the chopped tomatoes and sliced onion to a bowl with a drizzle of olive oil and a generous pinch of salt and pepper – this is your red onion & tomato salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1683297739030-x200.jpg)
 
 ### Step 7
 

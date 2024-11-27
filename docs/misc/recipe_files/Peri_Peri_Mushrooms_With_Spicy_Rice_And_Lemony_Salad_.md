@@ -29,7 +29,6 @@ The Portuguese marinade, peri-peri, combines the zing of lemon and vinegar with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617029377436-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, dese
 
 Roll the lemon<span class="text-danger">[s] </span>with your hand on a hard surface (to release more juice!) and cut in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617029392610-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Deseed the sweet pointed pepper<span class="text-danger">[s] </span>(scrape the 
 
 Dissolve the vegetable stock mix, ground turmeric and half the tomato paste (you'll use the rest later!) in 225ml <span class="text-danger">[450ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617029433803-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion and diced pepper and cook for 3-4 min or until they've softened slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1617029452694-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the white long grain rice, tomato stock and half the chopped chilli (can
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked – this is your spicy rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617029461680-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Meanwhile, combine the white wine vinegar, chipotle paste, remaining chopped ch
 
 Add a drizzle of olive oil and season with a generous pinch of salt, then give everything a good mix up – this is your peri peri sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617029469842-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Transfer the coated mushrooms<span class="text-danger"> </span>to a baking tray,
 
 Put the tray in the oven for 10-15 min or until cooked through and tender – these are your peri peri mushrooms
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617029492461-x200.jpg)
 
 ### Step 7
 

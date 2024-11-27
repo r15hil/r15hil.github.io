@@ -30,7 +30,6 @@ To make these spicy Mexican-inspired burritos, you'll stuff warm tortillas with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1612882765773-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1612882780684-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lean beef mince with a generous pinch of salt and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1612882790150-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Combine the juice of half your lime with your natural yoghurt and a drizzle of o
 
 Season with a pinch of salt and pepper – this is your lime yoghurt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1612882794729-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Once the beef has browned, reduce the heat to medium-high and add your ground s
 
 Add your honey and cook for 2-3 min or until the beef becomes crispy, sticky and cooked through (no pink meat!) – this is your sticky lean beef mince chilli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1676967187240-x200.jpg)
 
 ### Step 5
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1620811661358-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Wash your lettuce, then pat dry with kitchen paper and shred it finely
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1612882819592-x200.jpg)
 
 ### Step 7
 

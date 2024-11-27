@@ -29,7 +29,6 @@ Give your fish a zingy fusion twist with crispy miso-infused goujons and a tangy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678204722186-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the drained rice with 200ml<span class="text-purple"><span class="text-dange
 
 Once boiling, reduce the heat to low until bubbling and cook, covered, for 15 min, then remove the pot from the heat and keep covered for a further 10 min before serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678204731977-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Cut your basa fillet[s] into quarters and add to the miso marinade
 
 Give everything a good mix up until the fish is fully coated, then set aside for later – this is your miso basa
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678204740876-x200.jpg)
 
 ### Step 3
 
 While the fish is marinating, chop your coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678204752135-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add your cornflour to a plate and coat the miso basa in the cornflour, pressing 
 
 Tip: Coat the basa in the cornflour one side at a time to avoid stickiness!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678204762048-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the diced shallot to a small bowl with your mayo, ginger paste, half of the 
 
 Season with a crack of black pepper and mix everything together – this is your ginger & coriander mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678204772743-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once hot, add the coated basa and cook for 4 min on each side until golden, cris
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678204779354-x200.jpg)
 
 ### Step 7
 

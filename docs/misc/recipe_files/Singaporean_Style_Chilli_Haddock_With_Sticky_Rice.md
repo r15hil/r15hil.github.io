@@ -27,7 +27,6 @@ Here's a mouthwatering twist on Singapore's iconic dish. You'll replace crab wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1656248283120-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the drained rice with 200ml<span class="text-danger"> [400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656248287837-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1656248294019-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Roughly chop the tomato<span class="text-danger">[es]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656248299014-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped garlic, chopped ginger and chopped tomato and cook for 7-8 min or until the tomato is starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656248303717-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the grated carrot and sliced cucumber to a bowl with half the rice vinegar (
 
 Mix everything together and set aside – this is your quick-pickled veg
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656248309552-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add 100ml <span class="text-danger">[200ml] </span>cold water and mix it all tog
 
 Once the tomato has softened, add the chilli sauce mix to the pan and cook for 2-3 min or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656248315202-x200.jpg)
 
 ### Step 7
 

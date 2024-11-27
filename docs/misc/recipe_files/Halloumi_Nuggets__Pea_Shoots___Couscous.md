@@ -22,7 +22,6 @@ Golden panko crusted halloumi, served over a peashoot and couscous salad with a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/707.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Slice the halloumi in half lengthways (where the natural crease forms)
 
 Cut each half into 3 even strips (see picture)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/707.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add&nbsp;the panko&nbsp;breadcrumbs and smoked&nbsp;paprika to a separate shallo
 
 Dip the halloumi&nbsp;in the flour, tap off the excess, then into the egg and finally press it into the breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/707.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the couscous to a heatproof bowl with 200ml <span class="text-danger">[400ml
 
 Strip the mint leaves from the stalks and chop them&nbsp;finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/707.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once hot, add the&nbsp;halloumi nuggets and cook for 1-2 min per side or until g
 
 Once cooked, transfer to kitchen paper&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/707.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, roll the lemon<span class="text-danger">[s]</span> on a hard surface 
 
 Mix together the mayonnaise, mint, juice from the lemon<span class="text-danger">[s]</span> and 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil - this is your dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/707.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Fluff the couscous with a fork
 
 Stir the pea shoots through the couscous with the dressing and a pinch of salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/707.-step-7-x200.jpg)
 
 ### Step 7
 

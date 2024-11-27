@@ -27,7 +27,6 @@ This comforting chilli con carne is packed with flavour. You'll create a meat sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1895.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1895.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the<span class="text-highlight"> chopped</span> pepper and onion and cook for 8-10 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1895.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Dissolve the beef stock cube<span class="text-danger">[s]</span> in 250ml<span
 
 Drain and rinse the kidney beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1895.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the onion and pepper have softened, increase the heat to medium-high an
 
 Cook for 4-5 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1895.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1895.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Season with a generous pinch of salt and pepper and bring to the boil over a
 
 Cook for 7-8 min further or until thickened – this is your classic <span class="text-highlight">beef</span> chilli con carne
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1895.-step-7-x200.jpg)
 
 ### Step 7
 

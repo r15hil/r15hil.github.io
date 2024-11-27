@@ -25,7 +25,6 @@ Get ready for rich, mushroomy flavour in minutes. You'll cook chestnut mushrooms
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1619443346138-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687271480475-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add your pine nuts and cook for 1-2 min or until lightly toasted
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687271488833-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Transfer the toasted pine nuts to a small bowl and set aside for later
 
 Return the pan to a high heat with a drizzle of olive oil and crumble your chestnut mushrooms roughly into the pan with your hands
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687271492347-x200.jpg)
 
 ### Step 4
 
 Add your roasted garlic paste to the pan with a generous pinch of salt, give everything a good mix up and cook for 3-4 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687271495769-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once done, drain the cooked spaghetti and return to the pot with a drizzle of ol
 
 Wash your spinach, then pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687271499372-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Cook for 2-3 min or until the spinach has wilted and the sauce has slightly thic
 
 Season with a generous grind of black pepper – this is your plant-based creamy mushroom sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687271503212-x200.jpg)
 
 ### Step 7
 

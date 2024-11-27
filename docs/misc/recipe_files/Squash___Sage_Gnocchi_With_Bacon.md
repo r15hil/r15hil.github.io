@@ -20,7 +20,6 @@ As the weather turns colder, there's nothing more comforting than a bowl of warm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1802.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Tip:<span class="text-highlight"> for</span> easier chopping, use a bread <span 
 
 Note: our seasonal squashes will come in <span class="text-highlight">all colours, shapes and sizes, but don't worry – the method will stay the same!</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1802.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Meanwhile, strip the sage leaves and chop them finely, discarding the stems
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1802.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once crisp, transfer it to a plate and set aside
 
 Reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1802.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1802.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,13 +81,11 @@ Meanwhile, wipe the bacon pan clean with kitchen paper and return it to a medium
 
 Add 50g <span class="text-danger">[100g]</span> butter with the chopped garlic and chopped sage and cook for 2 min or until foaming and beginning to turn a light brown colour – this is your sage burnt butter
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1802.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, break the crispy <span class="text-highlight">bacon</span><span class="text-highlight"> into s</span>hards (clean hands is the best way!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1802.-step-7-x200.jpg)
 
 ### Step 7
 

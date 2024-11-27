@@ -25,7 +25,6 @@ Countdown to Christmas with our spicy Italian-inspired dish topped with 'Nduja s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636378942620-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat, then onc
 
 Once done, move the warmed 'Nduja and any remaining 'Nduja juices to a large bowl and reserve the pan (no need to clean!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636378946756-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add half the softened onion to the bowl of 'Nduja
 
 Keep the remaining softened onion in the pan but remove the pan from the heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636378950597-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Chop the dried cranberries and zest 1/2 <span class="text-danger">[1]</span> lem
 
 Add the grated courgette, chopped cranberries and lemon zest to the bowl with the 'Nduja
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636378955066-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Give everything a good mix up and press together firmly to shape into 10 <span c
 
 Add the spicy 'Nduja & courgette stuffing balls to a baking tray lined with non-stick baking paper and put the tray in the oven for 17-19 min or until golden & crispy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636378960531-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Return the pan with the remaining softened onion to a medium heat
 
 Once hot, add the tomato paste and cook for 2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636378966030-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ While the spaghetti is cooking, add the garlic & herb spread to the pan with the
 
 Reboil half a kettle
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636378970479-x200.jpg)
 
 ### Step 7
 

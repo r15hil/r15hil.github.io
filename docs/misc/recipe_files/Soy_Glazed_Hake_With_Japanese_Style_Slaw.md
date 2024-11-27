@@ -28,7 +28,6 @@ Cook up a succulent bowlful of soy-glazed hake to serve with sticky sushi rice, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1726737379983-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Rinse your sushi rice in a sieve under cold water for 30 secs (use your han
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1726737384002-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time for fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1726737388166-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Combine the chopped garlic (not a big garlic fan? Try using less!), tahini, mayo and rice vinegar in a bowl – this is your Japanese-style dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1726737392393-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Slice your mangetout in half lengthways
 
 Add the grated carrot, apple matchsticks and halved mangetout to the bowl with the Japanese-style dressing then give everything a good mix up – this is your Japanese-style slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1726737395761-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Combine your cornflour with your soy sauce and honey in a bowl – this is your 
 
 Slice your red chilli[es] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1726737399398-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Slice your hake fillet[s] in half widthways
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1726737403269-x200.jpg)
 
 ### Step 7
 

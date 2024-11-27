@@ -23,7 +23,6 @@ This easy method of roasting sausages along with pear, potatoes and parsnips all
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/441.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Place on 1 <span class="text-danger">(2)</span> baking tray<span class="text-dan
 
 Add the sausages and oven-roast for 30-35 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/441.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add both to a smaller baking tray and drizzle with 1 tbsp <span class="text-dang
 
 Reserve the remaining dill for step 6
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/441.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Drain&nbsp;and rinse the beans
 
 Leave the sausages, potatoes, pears and parsnips in the oven for 10-15 min before moving on to the next step
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/441.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Boil a kettle
 
 Dissolve the stock cube<span class="text-danger">(s)</span> in 150ml<span class="text-danger"> (300ml)</span>&nbsp;boiled water&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/441.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Slice the leeks finely
 
 Peel and finely chop (or grate) the garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/441.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Once hot, add the leeks and garlic and cook for 4-7 min or until soft but not br
 
 Add the drained beans, bay leaf<span class="text-danger">(ves)</span>, stock and remaining dill
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/441.-step-7-x200.jpg)
 
 ### Step 7
 

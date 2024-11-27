@@ -31,7 +31,6 @@ Double down on takeaway night with this cheeseburger-inspired feast. You’ll ba
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707841970727-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Slice your cucumber finely into discs
 
 Add the cucumber discs and cider vinegar to a bowl with a pinch of salt and sugar and set aside – these are your 'pickles'
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707841973608-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Once hot, add your beef mince and cook for 4-5 min or until beginning to brown, 
 
 Once browned, set aside until you're ready to build your pizza
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707841976640-x200.jpg)
 
 ### Step 3
 
@@ -67,13 +64,11 @@ Add your panko breadcrumbs and ground smoked paprika (you'll use the rest later!
 
 Season your chicken breast strips with a generous pinch of salt, coat them in flour, tap off any excess, then add them to the milk and finally press them into the breadcrumbs firmly to coat evenly – these are your breaded chicken dippers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707841981110-x200.jpg)
 
 ### Step 4
 
 Add the breaded chicken dippers to a baking tray (or two!) and put the tray[s] in the oven for<span class="text-danger"> </span>18-20 min or until the chicken is cooked through (no pink meat!) – these are your chicken dippers
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707841983585-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add your tomato paste to a bowl with the chopped garlic, a pinch of salt and p
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707841987191-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Spread the tomato sauce evenly all over the pizza base[s] with the back of a spo
 
 Top with the browned mince and grated cheddar and place the tray[s] in the oven for 12-15 min or or until the cheese has melted, the base is crisp and the beef is cooked through (no pink meat!) – this is your 'cheeseburger' pizza
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707841989984-x200.jpg)
 
 ### Step 7
 

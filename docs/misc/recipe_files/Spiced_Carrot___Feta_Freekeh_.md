@@ -24,7 +24,6 @@ A warm, nutritious tumble of goodness. Honey-roasted, organic carrots are stirre
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/498.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Drizzle them with olive oil and season generously with salt
 
 Put the tray in the oven for 20 min, turning once
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/498.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Meanwhile, rinse the freekeh under cold water, then add it to a pot with 500ml <
 
 Once boiling, reduce the heat to medium and simmer for 20-25 min or until cooked through but with a slight bite
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/498.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the onions and cook with a pinch of salt for 3-5 min or until slightly softened, stirring occasionally
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/498.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Reduce the heat to low, add the garlic, cumin seeds and cinnamon to the softened onions, then cook for a further 20 min or until caramelised
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/498.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Scatter over the pumpkin seeds
 
 Return the tray to the oven for 3 min or until the pumpkin seeds have darkened and puffed slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/498.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Meanwhile, chop the parsely finely, including the stalks
 
 Add the freekeh to the onion pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/498.-step-7-x200.jpg)
 
 ### Step 7
 

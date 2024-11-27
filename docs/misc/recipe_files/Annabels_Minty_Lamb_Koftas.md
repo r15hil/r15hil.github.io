@@ -25,7 +25,6 @@ Bring a taste of the Middle East to this week’s menu with Annabel’s Minty La
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1183.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-8 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1183_step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Pick the mint leaves from their stems and chop them finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1183.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,13 +61,11 @@ Add the lamb mince, panko breadcrumbs, honey&nbsp;and half the chopped mint (sav
 
 Give everything a good old mix up until fully combined, then separate into 8 <span class="text-danger">[16]</span> patties
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1183.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the patties to a lightly oiled baking tray and put the tray in the oven for 12-15 min or until cooked through &ndash; these are your lamb koftas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1183.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, combine the Greek-style fat-free yoghurt with the juice of 1/2<span c
 
 Season with a pinch of salt&nbsp;&ndash; this is your minty yoghurt dressing&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1183.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Dice the tomatoes<span class="text-danger">&nbsp;</span>finely
 
 Add the diced cucumber and tomato to a bowl with a drizzle of olive oil and a pinch of salt and pepper&nbsp;&ndash; this is your tomato and cucumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1183.-step-7-x200.jpg)
 
 ### Step 7
 

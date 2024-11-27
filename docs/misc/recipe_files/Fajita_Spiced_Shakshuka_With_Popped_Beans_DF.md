@@ -28,7 +28,6 @@ Shake up your shakshuka with flavour-packed fajita spices. You'll simmer pepper,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641312409491-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and slice the red onion<span class="text-danger">[s]</span> into wedges
 
 Peel and finely slice (don't chop!) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641312413084-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot add the sliced onion with a pinch of salt and cook for 2-3 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641312416538-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641312420158-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Give everything a good mix up and cook for 1 min or until the garlic has slightl
 
 Add the halved cherry tomatoes and sliced pepper with a small splash of boiled water and cook for 3-4 min or until the tomatoes begin to blister
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641312424035-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add half the drained black beans with a small pinch of salt to a tin foil-lined 
 
 Add the remaining drained black beans to the pan with the vegetable stock mix and 100ml <span class="text-danger">[150ml]</span> boiled water, mix everything together and cook for 2 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641312427345-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Grate the cheddar flavour block
 
 Make 2 <span class="text-danger">[4] </span>wells in the pan and crack the eggs into them, then cook covered for 2-3 min or until the eggs are done to your liking – this is your fajita-spiced shakshuka
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641312431876-x200.jpg)
 
 ### Step 7
 

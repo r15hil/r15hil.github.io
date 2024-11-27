@@ -23,7 +23,6 @@ This springtime salad is the perfect pick-me-up. You’ll toss together crispy p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1711467175181-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1711467181224-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add your chicken breast portion[s] to a chopping board and cover with some cling
 
 Bash the chicken breast portion[s] with a rolling pin until evenly flattened – this is your chicken escalope[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1711467186880-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Spread most of your Dijon mustard (save the rest for later!) over both sides of 
 
 Press the chicken escalope[s] into the breadcrumbs firmly to evenly coat all over – this is your breaded chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1711467192000-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once hot, add the breaded chicken and cook for 5-6 min on each side or until gol
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1711467198188-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cut your cucumber[s] in half lengthways, then slice finely
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1711467204195-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Combine the remaining dijon mustard, mayo, cider vinegar and a pinch of salt and
 
 Give everything a good mix up – this is your mustard mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1711467211532-x200.jpg)
 
 ### Step 7
 

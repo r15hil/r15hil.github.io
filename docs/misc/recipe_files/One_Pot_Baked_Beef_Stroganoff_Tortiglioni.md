@@ -30,7 +30,6 @@ One pot is all it takes to rustle up this twist on a classic stroganoff. You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611656216326-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607607174021-x200.jpg)
 
 ### Step 2
 
@@ -54,19 +52,16 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Peel your brown onion[s] and chop into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607607184242-x200.jpg)
 
 ### Step 3
 
 Crush your garlic open by squashing with the side of a knife and remove the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607607205710-x200.jpg)
 
 ### Step 4
 
 Add your diced beef and onion quarters to the dish and cook for 2-3 min or until the beef is very slightly browned all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607607213015-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Sprinkle in your beef stock mix with your soy sauce, Dijon mustard and 450ml <sp
 
 Bring to the boil over a high heat and season with a pinch of salt and pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607607223294-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Reboil the kettle
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607607237980-x200.jpg)
 
 ### Step 7
 
@@ -96,7 +89,6 @@ After the 15 min, give everything a good mix up, then return the dish to the ove
 
 Once done, remove the dish from the oven and stir through most of your soured cream (save some for garnish!) – this is your one-pot baked beef stroganoff tortiglioni
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-8-1607607249610-x200.jpg)
 
 ### Step 8
 

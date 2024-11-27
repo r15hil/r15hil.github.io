@@ -24,7 +24,6 @@ Gremolata is a green Italian sauce made from chopped parsley, lemon zest and gar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1641914777445-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the diced potato to a pot with plenty of boiled water and a generous pinch o
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, drain and return to the pot to cool
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1641914789487-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Zest 1/2 <span class="text-danger">[1]</span> lemon (try to grate lightly with a
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1641914820256-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the chopped parsley to a bowl with half the garlic (you'll use the rest late
 
 Add the haddock bites and give everything a good mix up – this your gremolata fish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1641914835378-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Divide the mixture into 4 <span class="text-danger">[8]</span>, then shape into 
 
 Add the fish cakes to a baking paper-lined baking tray with a generous drizzle of olive oil and put the tray in the oven for 25 min, flipping once halfway for even cooking – these are your haddock & gremolata fish cakes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1641914871003-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ While the fish cakes are cooking, top, tail and chop the courgette<span class="t
 
 Peel and chop the red onion<span class="text-danger">[s]</span> into thin wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1641914891824-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once hot, add the cherry tomatoes, red onion wedges, courgette batons with a pin
 
 Cook for 12 min or until tender and starting to char
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1641914918154-x200.jpg)
 
 ### Step 7
 

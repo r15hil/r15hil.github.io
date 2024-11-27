@@ -30,7 +30,6 @@ Marseille yes to this classic French soup. Pack your base with potatoes, tomatoe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702394672876-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large pot with a drizzle of olive oil over a medium heat
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702394688819-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Chop your tomato[es] roughly
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702394683185-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Dissolve your vegetable stock mix and tomato paste in 450ml <span class="text-pu
 
 Add a generous pinch of salt and pepper and stir it all together – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702394697243-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once fragrant, add the chopped potato to the pot with your Chinese rice wine and
 
 Stir it all together and bring to the boil over a high heat, then reduce the heat to medium and cook for 22-25 min or until the potatoes are tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702394701458-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ On a separate board, chop your basa fillet[s] into large-bite sized pieces
 
 Drain your king prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702394705206-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Bring to the boil over a high heat, then reduce to medium and cook for 4-5 min, 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702394709314-x200.jpg)
 
 ### Step 7
 

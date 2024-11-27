@@ -23,7 +23,6 @@ Knock up a dish that's full of fresh veg. You'll pan-fry courgette with tomatoes
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641813329019-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641813332911-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut the courgette<span class="text-danger">[s]</span> into quarters lengthways t
 
 Once the pan is hot, add the sliced courgette with a pinch of salt and cook, covered, for 1-2 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641813335997-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once the courgette has slightly softened, add the roasted garlic paste, dried or
 
 Cook for a further 2-3 min or until the tomatoes have started to break down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641813340649-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi and reserve a cup of the starchy cooking water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641813344584-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Tip: Cooking for 2? Save the remaining olives for another recipe!
 
 Cook for 1-2 min or until the olives are warmed through – these are your Mediterranean vegetables
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641813348368-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Grate the cheddar flavour block
 
 Wash the spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641813352914-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Know what's great about Chinese-style stir-fry? It's simple, speedy and packed w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1649845827265-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649847372445-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh with a pinch of salt and cook for an initial 6-7 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649847380856-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649847384202-x200.jpg)
 
 ### Step 4
 
@@ -67,19 +63,16 @@ Wash, then cut your pak choi in half, separating the white base and green tops, 
 
 Drain and rinse your sweetcorn
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649847389037-x200.jpg)
 
 ### Step 5
 
 Once the chicken has had 6-7 min, add the sliced shallot and chopped pak choi base to the pan and cook for 2-3 min until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649847392907-x200.jpg)
 
 ### Step 6
 
 Combine your hoisin sauce, chilli flakes (can't handle the heat? Go easy!) and soy sauce in a small bowl with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water – this is your hoisin stir-fry sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649847397245-x200.jpg)
 
 ### Step 7
 

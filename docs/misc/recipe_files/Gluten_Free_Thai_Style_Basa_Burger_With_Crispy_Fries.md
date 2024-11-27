@@ -25,7 +25,6 @@ This twist on a classic gluten free burger incorporates Thai flavours to create 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1680004657617-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add a drizzle of vegetable oil and a pinch of salt and pepper and give everythin
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-3-1680004662260-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop the basa fillet[s] in half widthways
 
 Coat the chopped basa evenly in your red Thai curry paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1680004665980-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Meanwhile, peel and dice half your shallot[s]
 
 Slice the remaining shallot finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1680004669561-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add the sliced shallot and cook for 2-3 min or until crispy – this i
 
 Once crispy, transfer them to a small bowl or plate and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-3-1680004673791-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add the grated carrot, chopped coriander and chopped peanuts to the quick-pickle
 
 Combine your mayo and sriracha (can't handle the heat? Go easy!) in a small bowl – this is your sriracha mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1680004677210-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Once hot, add the brioche halves, cut-side down, and cook for 3 min or until c
 
 Once charred, remove and set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1680004680333-x200.jpg)
 
 ### Step 7
 

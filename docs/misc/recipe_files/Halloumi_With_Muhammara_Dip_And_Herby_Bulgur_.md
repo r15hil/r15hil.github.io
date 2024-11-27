@@ -27,7 +27,6 @@ Combine the savoury richness of golden halloumi with muhammara, a fiery pepper-b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1610979749006-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Tip: This gives the pepper a nice smoky flavour!
 
 Once done, remove the blackened pepper from the oven, slice in half and set aside to cool
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610979753389-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610979762967-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Cut your halloumi into 3 slices per person
 
 Slice your lemon[s] in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1610979781231-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Blitz until a smooth paste has formed
 
 Chop the remaining walnuts roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1610979795868-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Peel off the skin (clean hands is the best way!), then roughly chop the peeled p
 
 Add the chopped peeled pepper and panko breadcrumbs to the food processor with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>water and a pinch of salt and blitz until a smooth thick paste has formed – this is your muhammara dip
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610979833114-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once hot, add your halloumi and cook for 2-3 min on each side or until golden
 
 <span class="text-danger">Ordered extra halloumi? Slice and cook in a pan with a little oil for 4-6 min or until golden all over</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610979839775-x200.jpg)
 
 ### Step 7
 

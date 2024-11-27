@@ -26,7 +26,6 @@ Fill your kitchen with the fragrance of Marrakesh. You’ll flavour giant cousco
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676914322362-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the squash is fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676914327057-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the chopped onion to the pan and cook for 3-4 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676914334145-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ While the onion is cooking, dissolve the vegetable stock mix in 300ml <span clas
 
 Once the onion has softened, add the ground coriander, ground turmeric and ginger & garlic paste and cook for 30 secs or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676914337945-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once fragrant, add the cooked butternut squash, sultanas, giant couscous and veg
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until all the water has absorbed and the giant couscous is tender – this is your Morrocan-style pilaf
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676914341786-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once hot, add the flaked almonds and cook for 2-3 min or until toasted and light
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676914345587-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Combine the natural yoghurt and harissa paste (can't handle the heat? Go easy!) 
 
 Chop the parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676914351028-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ All hail halloumi. For your version of this Greek street food staple, you’ll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679394616525-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the fries to a baking tray (or two!) with a drizzle of olive oil and your d
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp – these are your herby fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679394624890-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut the remaining cucumber in half lengthways, scrape out the inner seeds with a
 
 Grate the deseeded cucumber and squeeze out any excess water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679394635634-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the grated cucumber to a bowl with half the chopped garlic (not a big garlic
 
 Give everything a good mix up – this is your tzatziki
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679394643670-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Slice your tomato[es] into rounds
 
 Slice your halloumi into 2 strips per person lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679394650218-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Combine the sliced halloumi and your ground cumin in a bowl with your ground smo
 
 Give everything a good mix up and season with a generous grind of black pepper – this is your marinated halloumi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679394655257-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the marinated halloumi and cook for 1-2 min on each side or until crispy and golden brown on both sides – this is your crispy halloumi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679394675850-x200.jpg)
 
 ### Step 7
 

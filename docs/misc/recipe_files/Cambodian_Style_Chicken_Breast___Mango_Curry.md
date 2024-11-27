@@ -27,7 +27,6 @@ For this sweet and fiery Cambodian-inspired curry, you'll simmer chicken in fres
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686641917797-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel your ginger (scrape the skin off with a teaspoon) and roughly chop, then pe
 
 Slice your lime[s]<span class="text-danger"> </span>into 4 wedges per person
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686641920117-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add your basmati rice and 300ml <span class="text-purple">[390ml]</span> <span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686641923082-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced chicken breast with a pinch of salt and cook for 3 min or until lightly browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686641926273-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Chop your creamed coconut roughly (if required!)
 
 Add in the chopped creamed coconut, the juice of half your lime wedges and blitz until finely chopped – this is your curry paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686641929985-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Once the chicken is lightly browned, add the curry paste to the pan with your 
 
 Meanwhile, dissolve your chicken stock mix in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686641933110-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add the chicken stock to the pan and cook, covered, for 5-6 min until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686641936328-x200.jpg)
 
 ### Step 7
 

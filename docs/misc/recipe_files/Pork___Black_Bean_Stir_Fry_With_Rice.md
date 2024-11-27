@@ -24,7 +24,6 @@ Speedy and simple, this stir-fry is a mid-week winner. You’ll sizzle minced po
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670928374242-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670928387729-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Peel and finely slice (don’t chop!) your garlic
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670928392318-x200.jpg)
 
 ### Step 3
 
@@ -54,19 +51,16 @@ Once hot, add your pork mince (remove the paper if required!) to the pan with a 
 
 Cook for 4-5 min turning once halfway until browned all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670928403198-x200.jpg)
 
 ### Step 4
 
 While the pork is browning, trim your green beans, then chop into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670928414621-x200.jpg)
 
 ### Step 5
 
 Dissolve your black bean paste in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml] </span>boiled<span class="text-danger"> </span>water with your soy sauce, toasted sesame oil and a pinch of sugar – this is your black bean stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670928424140-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Cook for 2-3 min, stirring occasionally, until the onion petals are starting to 
 
 Once slightly softened, add the sliced garlic and cook for 1-2 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670928433921-x200.jpg)
 
 ### Step 7
 

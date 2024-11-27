@@ -28,7 +28,6 @@ Bento-no-we-didn't! If you love sushi, this'll be right up your street. For this
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657644152195-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6 and boil half a kettle, then add
 
 Cover tightly with tin foil and put the dish in the oven for 25 min or until all the water is absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657644162586-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Meanwhile, cut your cucumber in half lengthways and scrape out the inner seeds w
 
 Add the sliced cucumber to a small bowl with your rice vinegar and a pinch of sugar, then stir everything together and set aside – this is your quick-pickled cucumber
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657644174961-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Peel and grate your garlic
 
 Combine half your soy sauce (you'll use the rest later!) and the grated garlic in a small bowl with your chilli flakes (can't handle the heat? Go easy!) and a pinch of sugar – this is your dipping sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657644181505-x200.jpg)
 
 ### Step 4
 
 Add your diced chicken thigh to a large bowl with the remaining soy sauce, then set aside to marinate
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657644192576-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Rinse your blanched edamame beans under cold running water
 
 Add your edamame beans to a bowl with half of the sriracha mayo (not a fan of spice? Just add a little!) (save some for garnish!) and a good grind of black pepper and give everything a good mix up – this is your edamame salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657644199929-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add your cornflour to the marinated chicken and give everything a good mix up un
 
 Once hot, add the coated chicken and cook for 5-6 min on each side or until cooked through (no pink meat!) – this is your crispy soy chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657644209925-x200.jpg)
 
 ### Step 7
 

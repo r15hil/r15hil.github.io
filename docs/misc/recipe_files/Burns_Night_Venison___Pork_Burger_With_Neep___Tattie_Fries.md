@@ -22,7 +22,6 @@ Burns Night is coming up, and this decadent burger is a delicious way to celebra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1609935712119-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel the swede
 
 Cut the potatoes (skins on) and the peeled swede into skinny fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1609935750145-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the skinny fries to a baking tray with a generous drizzle of vegetable oil a
 
 Give everything a good mix up and put the tray in the oven for 30 min or until golden – these are your neep & tattie fries
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1609936164771-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or unt
 
 Tip: Add a splash of water to the pan if they look like they may burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1609936180829-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Chop the remaining cornichons in half lengthways, then slice them as finely as y
 
 Combine the sliced cornichon, mayo and wholegrain mustard with a generous pinch of pepper – this is your mustardy cornichon sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1609936289077-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the venison & pork burger patties to one side of the baking tray
 
 Once the neep & tattie fries have been cooking for 15 min put the tray in the oven for 15 min or until the burgers are cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1609936296068-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Then remove from the heat and set aside
 
 Slice the cheddar cheese into 4 <span class="text-danger">[8]</span> slices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1609936328719-x200.jpg)
 
 ### Step 7
 

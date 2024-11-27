@@ -26,7 +26,6 @@ Want comforting flavour and a healthy winner? We've got you. You'll give your ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1652183447110-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Zest your lemon[s], then slice off 2 rounds per person (save the rest for later)
 
 Add the lemon zest to a small bowl with your cracked black pepper and a pinch of salt and mix it all together – this is your lemon pepper rub
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1652183450034-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, cook for 10-15 min or until fork-tender
 
 Once cooked, drain and return them to the pot with a small knob of butter and a splash of milk and mash until smooth, then set aside (this can be quickly reheated before serving) – this is your sweet potato mash
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1652183452903-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Whilst the potatoes are cooking, slice through the thickest part of your chicken
 
 Stuff the butterflied chicken with 2 lemon rounds, then add to a tin foil-lined baking tray (or two!), then add a drizzle of vegetable oil and coat the chicken with the lemon pepper rub, then put the baking tray[s] in the oven for 18-20 min or until the chicken is cooked through (no pink meat!) – this is your lemon pepper chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1652183455479-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once charred, remove from the heat and slice in half – these are your charred 
 
 Set the charred lemon wedges aside and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1652183457560-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once hot, add the sliced onion with a pinch of sugar to the pan, reduce the heat
 
 Reboil half a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652183460793-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the sliced spring greens to the pan with a grind of black pepper and increas
 
 Cook for 3-4 min or until tender with a bite – these are your caramelised onion greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652183462811-x200.jpg)
 
 ### Step 7
 

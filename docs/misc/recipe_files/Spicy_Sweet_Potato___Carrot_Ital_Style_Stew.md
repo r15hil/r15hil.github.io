@@ -30,7 +30,6 @@ We think you're going to love our Ital-style stew, inspired by the Rastafari mov
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649172677958-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and a pinch of brown sugar and cook for 4-5 min until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649172687252-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the carrot discs and chopped potatoes (the sweet potato will be added later)
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649172699837-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix and chopped creamed coconut in 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649172709828-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once the carrot and potatoes have slightly softened, add the chopped garlic to t
 
 Add half of the sliced chilli (can't handle the heat? Go easy!), give everything a good mix up and cook for a further 1 min until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649172720279-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once fragrant, add the chopped sweet potato to the pan with the coconut stock an
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until the sweet potato is fork-tender and the sauce has thickened slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649172733439-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once the sweet potato is tender, wash your spinach
 
 Add the spinach to the pan and cook, covered, for a final 2 min or until the spinach is wilted – this is your spicy sweet potato & carrot Ital-style stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649172746988-x200.jpg)
 
 ### Step 7
 

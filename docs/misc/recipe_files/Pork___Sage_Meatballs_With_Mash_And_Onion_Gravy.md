@@ -22,7 +22,6 @@ Indulge in these juicy sage-infused meatballs smothered in sweet, sticky onion g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/950.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the sliced onion with a pinch of salt and cook for 7-8 min or until soft and caramelised
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/950.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ While the onion is cooking, combine your pork mince (remove the paper from the m
 
 Mix everything together until fully combined, then shape into 6 <span class="text-purple">[9] </span><span class="text-danger">[12]</span> meatballs (they don't have to look perfect!) – these are your pork & sage meatballs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/950.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add the pork & sage meatballs to the pan and cook for 4-5 min, turning frequen
 
 Once browned, transfer to a plate and reserve the pan for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/950.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Put the tray in the oven for 10-15 min or until crisp - this is your crispy kale
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/950.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Dissolve the beef stock mix in 300ml<span class="text-purple"> [450 ml]</span> <span class="text-danger">[600ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/950.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the beef stock and onion marmalade and whisk until combined
 
 Return the browned pork & sage meatballs and caramelised onion to the pan and cook for 6-8 min or until the sauce has thickened into a gravy-like consistency and the meatballs are cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/950.-step-7-x200.jpg)
 
 ### Step 7
 

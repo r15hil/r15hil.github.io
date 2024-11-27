@@ -30,7 +30,6 @@ All the flavour of a burrito, minus the tortilla. You'll top rice with cumin-spi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1625492790309-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1625492793837-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Wash your lettuce, then pat dry with kitchen paper and shred
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1625492800231-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once very hot, add your meat-free mince (remove the paper if required!) and cook
 
 Once browned, add your ground cumin and and a pinch of salt and cook for 2 min further – this is your spiced meat-free mince
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1625492804449-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Grate your cheddar cheese
 
 Add your natural yoghurt to a bowl with your chipotle paste (can't handle the heat? Go easy!) and give it a good mix up – this is your chipotle yoghurt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1720527078700-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Return the pan (and any oil) to a medium heat
 
 Once hot, add the drained black beans, your ground smoked paprika and chopped garlic and cook for 1-2 min or until fragrant – these are your smoky beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1625492820909-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the vegetable stock and the juice of half your lime[s] to the pan and cook f
 
 Remove the smoky beans from the heat and mash into a semi-smooth paste – these are your refried smoky beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1625492829352-x200.jpg)
 
 ### Step 7
 

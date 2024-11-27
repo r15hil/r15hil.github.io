@@ -23,7 +23,6 @@ What could beat a classic bolognese? One that's served with mushroom-stuffed pas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1643797426253-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643797432970-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and slice (don't chop!) the garlic
 
 Once hot, add the beef mince to the pan with a pinch of salt and cook for 1-2 min or until starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643797435875-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ While the beef is browning, dice the tomato<span class="text-danger">[es]</span>
 
 Once starting to brown, add the sliced garlic and diced tomato to the beef and cook for 2-3 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643797443250-x200.jpg)
 
 ### Step 4
 
@@ -69,19 +65,16 @@ Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
 Tip: Use a ladle to spoon the starchy water from the cooking pasta!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643797440258-x200.jpg)
 
 ### Step 5
 
 Add the dried basil and dried oregano to the beef with 1 tsp<span class="text-danger"> [2 tsp]</span> flour and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643797447722-x200.jpg)
 
 ### Step 6
 
 Add the tomato paste, beef stock mix, soy sauce and 75ml <span class="text-danger">[150ml]</span> of the starchy pasta water and cook for 2-3 min or until thickened – this is your bolognese ragù
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643797451551-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Turn your go-to brunch into a dinnertime favourite. You’ll whip up classic Fre
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688485908490-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking paper-lined baking tray with a drizzle of vegetable oi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your cumin chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688485916431-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine the sliced shallot and red wine vinegar in a bowl with 1 tsp<span class
 
 Give it a good mix up and set aside – this is your quick-pickled shallot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688485923378-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Sprinkle half your curry powder (you'll use the rest later!) over the sliced pan
 
 Slice your ciabattas in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688485927146-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Give everything a good mix up – this is your egg mixture
 
 Dip the halved ciabatta, cut side down, into the egg mixture until it's been absorbed by the bread – this is your curried ciabatta
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688485931387-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ To build your french toast toastie, place a curried ciabatta base, cut side down
 
 Top with the spiced paneer and then the curried ciabatta lid, cut side up – this is your french toast toastie
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688485936190-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over a
 
 Once melted, add the french toast toastie and cook for 3-4 min on each side, pressing them down with a spatula until golden and crisp – this is your spiced paneer french toast
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688485940070-x200.jpg)
 
 ### Step 7
 

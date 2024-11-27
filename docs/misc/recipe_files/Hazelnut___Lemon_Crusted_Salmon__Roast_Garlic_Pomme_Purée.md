@@ -25,7 +25,6 @@ Treat someone special to a restaurant-worthy meal you made yourself. You’ll to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1465.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut a piece of tin foil (or baking paper) approx. the size of an A4 sheet of pap
 
 Scrunch the edges of the foil together to form a sealed parcel and add the parcel to a baking tray.<br /><br />Put the tray in the oven for an initial 5 minutes.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1465.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -61,7 +59,6 @@ Chop the dill finely, including the stalks.
 
 Combine the&nbsp;chopped dill, bashed hazelnuts, lemon zest&nbsp;in a bowl. Season with a pinch of salt and pepper&nbsp;&ndash; this is your hazelnut&nbsp;crumb.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1465.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -79,7 +76,6 @@ Once cooked, drain and return them to the pot.
 
 Re-boil a kettle.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1465.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -100,7 +96,6 @@ Tip: your fish is cooked when it flakes easily.
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1465.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -118,7 +113,6 @@ Grate the cheddar cheese.
 
 Add the chopped sugar snap peas&nbsp;and&nbsp;Tenderstem broccoli&nbsp;to a pot with a pinch of salt. Cover with boiled water and&nbsp;bring to the boil over a high heat and cook for 1-2 minutes or until they're tender.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1465.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -133,7 +127,6 @@ Carefully remove the skins from the&nbsp;roasted garlic. Return the drained pota
 
 Mash until smooth, then add the chopped chives and season generously with salt. Cover with a lid until serving &ndash; this is your garlic pomme pur&eacute;e.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1465.-step-7-x200.jpg)
 
 ### Step 7
 

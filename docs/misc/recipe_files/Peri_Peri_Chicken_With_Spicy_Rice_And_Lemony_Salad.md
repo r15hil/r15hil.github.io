@@ -30,7 +30,6 @@ The Portuguese marinade, peri peri, combines the zing of lemon and vinegar with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1595250987997-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice!) and cut in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1595250996433-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teasp
 
 Dissolve your chicken stock mix, ground turmeric and half your tomato paste (you'll use the rest later!) in 400ml <span class="text-purple">[600ml] </span><span class="text-danger">[800ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1595251008445-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion and diced pepper and cook for 3-4 min or until softened slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595251026779-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add your white long grain rice, tomato stock and half the chopped chilli (ca
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked – this is your spicy rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1595251035129-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, combine your white wine vinegar, chipotle paste, remaining chopped c
 
 Add a drizzle of olive oil and season with a generous pinch of salt, then give everything a good mix up – this is your peri peri sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1595251049806-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Transfer the coated chicken to a baking tray (use tin foil to avoid mess!) an
 
 Put the tray in the oven for 18-20 min or until the chicken is cooked through (no pink meat!) – this is your peri peri chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595251057788-x200.jpg)
 
 ### Step 7
 

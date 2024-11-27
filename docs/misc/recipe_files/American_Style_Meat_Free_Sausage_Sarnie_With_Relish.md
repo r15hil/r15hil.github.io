@@ -25,7 +25,6 @@ The inspiration for this epic sandwich comes from across the pond. You'll fill c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1621250586844-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to one side of a baking tray (or two!) with a drizzle of vegetable
 
 Give everything a good mix up
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621250601397-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Cooking for 4? Use two trays!
 
 Put the tray[s] in the oven for 25-30 min or until the chips are crispy and the sausages are cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621250617194-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Dice half the deseeded cucumber very finely (you'll use the rest later!)
 
 Peel and finely chop your shallot[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1621250629520-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Combine the diced cucumber, chopped shallot and cider vinegar with your sweet pe
 
 Set aside to pickle – this is your quick-pickled cucumber relish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621250635144-x200.jpg)
 
 ### Step 5
 
 Slice the remaining deseeded cucumber finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621250641842-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the sausages and chips have had 20 min, put your bread roll[s] in the oven 
 
 Once done, carefully slice in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621250646169-x200.jpg)
 
 ### Step 7
 

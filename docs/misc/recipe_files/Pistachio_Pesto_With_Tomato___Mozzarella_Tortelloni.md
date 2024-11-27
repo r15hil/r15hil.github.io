@@ -23,7 +23,6 @@ You say perfection, we say perfetto. For the speediest, greenest Italian pasta s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1644329976632-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1717409400501-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Boil a kettle and peel your garlic
 
 Strip your mint leaves from their stems, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644330015251-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Cook for 2-3 min, then add your blanched peas to the pot and cook for 1 min furt
 
 Once done, drain the cooked tomato & mozzarella tortelloni and refreshed peas, reserve the pot and a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644330026521-x200.jpg)
 
 ### Step 4
 
 Set aside a few basil and mint leaves and half of your grated Italian hard cheese for garnish (you'll use the rest later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644330040644-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add the peeled garlic, pistachio nuts, the remaining grated Italian hard cheese,
 
 Add the juice of half your lemon[s], 2 1/2 tbsp <span class="text-purple">[3 1/4 tbsp]</span> <span class="text-danger">[4 1/4 tbsp] </span>olive oil and a pinch of salt and pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644330047490-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Blitz until you are left with a smooth paste – this is your pistachio pesto
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644330059894-x200.jpg)
 
 ### Step 7
 

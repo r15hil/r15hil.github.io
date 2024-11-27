@@ -20,7 +20,6 @@ Italian-style comfort food doesn’t get better than this. You’ll combine peas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1684496723221-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684496728517-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684496731925-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Cook for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684496736413-x200.jpg)
 
 ### Step 4
 
@@ -62,13 +58,11 @@ While the orecchiette is cooking, peel and slice (don't chop!) your garlic
 
 Chop your basil finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684496740513-x200.jpg)
 
 ### Step 5
 
 Combine the chopped basil with 2 tbsp <span class="text-purple">[3 tbsp</span>] <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt in a bowl – this is your basil oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684496743913-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once fragrant, add 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span cl
 
 Add 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> milk gradually and whisk for 2 min or until a smooth, thick sauce remains
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684496747401-x200.jpg)
 
 ### Step 7
 

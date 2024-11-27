@@ -26,7 +26,6 @@ Thanks to our spicy cumin and oregano dry rub, this succulent chicken burger is 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643123443575-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut the potatoes (skins on) into fries, then add to a baking tray with a drizz
 
 Put the tray in the oven for 25-30 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1643123459085-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Gently stir it all together – this is your spice mix
 
 Add the chicken breast portions to the plate and turn several times until fully coated in the spice mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1643123468629-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the spiced chicken breast portions and cook for 3 min on each side or until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643123475871-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Grate the cheddar flavour block
 
 Combine the mayo and white wine vinegar in a small bowl and set aside for later – this is your zingy mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1643123493572-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once the chicken has browned, add the tomato stock and cook, covered, for 12-15 
 
 Tip: Flip the chicken occasionally to keep it moist!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643123498280-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cut the ciabattas in half and add them to a tray, cut-side up
 
 Put the tray in the oven for 3-4 min or until warmed through and slightly crispy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643123560282-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ The burger shop is open for business. Level up your bbq game with chicken breast
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688119962837-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688119966008-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Slice your brioche bun[s] in half
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688119969335-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Slice through the thickest part of the chicken, being careful not to cut all the
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688119972987-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the cucumber batons to the bowl and set aside to pickle – this is your qu
 
 <span class="text-danger">Tip: Cooking for kids? Set aside half of the cucumber batons to serve plain!</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688119976250-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat and 
 
 Set aside until serving and reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688119979980-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Return the reserved pan to a high heat with a drizzle of vegetable oil
 
 Once hot, add the butterflied chicken with a pinch of salt and cook for 4 min on each side until golden, then turn the heat down to medium and cook for a further 4-5 min or until cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688119982973-x200.jpg)
 
 ### Step 7
 

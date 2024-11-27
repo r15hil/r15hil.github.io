@@ -26,7 +26,6 @@ This plant-based pad Thai isn't your classic Thai takeaway. The noodles are coat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1795.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Slice the whole butternut squash in half, then scoop out and discard the seeds
 
 Tip: For easier cutting, use a bread knife (oiling the knife helps too!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1795.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Put the marinated squash wedges onto a baking tray lined with non-stick baking p
 
 Remove from the oven and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1795.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Set aside for 15 min to soften
 
 Once softened, drain the rice noodles and keep to one side
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1795.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Slice the mangetout in half diagonally
 
 Slice the spring onion<span class="text-danger">[s]</span> and red chilli<span class="text-danger">[es] </span>finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1795.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the chopped garlic and half of the sliced red chilli (can't handle the heat
 
 Once caramelised, add the mangetout and cook for 3-4 min or until starting to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1795.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Meanwhile, combine the soy sauce, Sriracha, tamarind paste, 1 tbsp <span class
 
 Add the drained rice noodles and the pad Thai sauce to the pan, stirring until everything is evenly coated in the sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1795.-step-7-x200.jpg)
 
 ### Step 7
 

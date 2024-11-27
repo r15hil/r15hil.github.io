@@ -23,7 +23,6 @@ Fire up the coals, because succulent Southern-style pulled pork is heading strai
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626786162100-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the halved potatoes to a baking tray (or two!) with a drizzle of vegetable o
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 30 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626786185433-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Transfer your BBQ pulled pork and any juices to an oven-proof dish
 
 Cover with tin foil and put the dish in the oven for an initial 30 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631780222153-x200.jpg)
 
 ### Step 3
 
@@ -51,19 +48,16 @@ Add your mayo and white wine vinegar to a bowl with your shredded red cabbage an
 
 Give everything a really good mix up – this is your creamy slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Grated-cheddar-on-a-board-1631780231111-x200.jpg)
 
 ### Step 4
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-chives-on-board-1631780241682-x200.jpg)
 
 ### Step 5
 
 Chop your chives finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626786335478-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Top the potatoes evenly with the grated cheese
 
 Return the tray[s] to the oven for 5-7 min or until the cheese has melted and is beginning to crisp slightly – these are your loaded potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626786381118-x200.jpg)
 
 ### Step 7
 

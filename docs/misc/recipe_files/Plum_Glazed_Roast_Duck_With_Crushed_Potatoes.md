@@ -23,7 +23,6 @@ A roast, with no chopping or peeling? You’re on. You'll roast succulent duck l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1698925990899-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Before you begin...
 
 This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so get your baking trays and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1698925998946-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Separate your duck leg[s] from the white duck fat and duck jelly (you'll use these in different parts of the recipe!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-3-1706694043900-x200.jpg)
 
 ### Step 3
 
@@ -51,13 +48,11 @@ Top your potatoes and carrots with the duck fat and season with a pinch of salt 
 
 Put the tray[s] in the oven for 30-35 min or until the duck leg[s] is golden and crispy and the potatoes are tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1698926012362-x200.jpg)
 
 ### Step 4
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1698926015864-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Add the duck jelly to a measuring jug with your chicken stock mix and cornflour
 
 Mix until fully combined, then stir in 150ml<span class="text-purple"> [195ml]</span><span class="text-danger"> [275ml]</span> boiled water, a knob of butter and a pinch of salt and pepper and set aside – this is your gravy mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-2-1706694090702-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Return to the oven for a final 2-3 min or until caramelised – this is your plu
 
 Meanwhile, put the gravy mix in the microwave for 2 min or until thickened, stirring halfway – this is your gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-3-1706694097202-x200.jpg)
 
 ### Step 7
 

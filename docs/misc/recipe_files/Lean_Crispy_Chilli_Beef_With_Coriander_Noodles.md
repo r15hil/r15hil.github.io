@@ -29,7 +29,6 @@ We like to describe this as savoury 'n' sweet, with a touch of heat. You'll glaz
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1611659949714-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop your shallot[s]
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1611659956557-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lean beef mince and chopped shallot and cook for 4 min until browned, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1611659967510-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Meanwhile, trim, then roughly chop your spring onions
 
 Chop most of your coriander finely, including the stalks (save a few whole leaves for garnish!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1611659979231-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Boil a kettle
 
 Once the lean beef is browned, add the grated carrot and cook for a further 3 min or until the lean beef mince is crisped
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1611659987912-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Bring to the boil over a high heat and cook for 1-2 min or until tender, then dr
 
 Once drained, return the noodles to the pot and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1611659998378-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once the lean beef has crisped, add the chopped garlic, ginger and chilli (can'
 
 Add the red chilli relish and half of your soy sauce (you’ll use the rest later!) and cook for a further 4 min or until everything is browned, crispy and cooked through (no pink meat!) – this is your lean crispy chilli beef
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1611660021307-x200.jpg)
 
 ### Step 7
 

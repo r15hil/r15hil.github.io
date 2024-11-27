@@ -20,7 +20,6 @@ This twist will broc your world. Blitz together broccoli, Italian cheese, almond
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1652715892220-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1652715900413-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cook for 6-8 min or until golden, stirring frequently
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1652715905445-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Zest the lemon<span class="text-danger">[s]</span> (try to grate lightly with a 
 
 Chop the Tenderstem broccoli in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1652715910547-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Cook for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked ravioli and cooked broccoli, reserving the pot and a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1652715915346-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Tip: No food processor? Chop everything up as finely as you can and mix it toget
 
 Add the juice of 1/2 <span class="text-danger">[1]</span> lemon, 2.5 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652715920895-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Cut the remaining lemon into wedges
 
 Once the breadcrumbs are golden, transfer them to a bowl with the lemon zest, give everything a good mix up and set aside for serving – this is your lemony pangrattato
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652715925554-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ On the streets of Trinidad & Tobago, roti is a favourite. Here, you’ll bring t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1630931809976-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut the green beans in half
 
 Chop the potato<span class="text-danger">[es]</span> (skin on) roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630931813447-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped ginger and most of the diced red onion and cook for 3-4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630931817080-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Drain the chickpeas
 
 Once fragrant, add the sliced carrot, chopped potato, drained chickpeas, halved green beans and half the chopped chilli (can’t handle the heat? Go easy!) and cook for 2-3 min or until coated in the spices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630931820439-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once the vegetables are coated in the spices, add the vegetable stock to the pan
 
 Cook, covered, for 15-20 min or until the curry has thickened and the potato is fork tender – this is your Trinidadian-style vegetable curry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630931824147-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Dice the mango flesh finely, discarding the stones and skin
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630931827474-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Combine the diced mango with the remaining diced red onion and chopped chilli (n
 
 Add the juice of 1/2<span class="text-danger"> [1]</span> lime, a drizzle of olive oil and a pinch of salt and give everything a good mix up – this is your mango chow
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630931830676-x200.jpg)
 
 ### Step 7
 

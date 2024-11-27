@@ -23,7 +23,6 @@ This delicious seafood-free version of the Spanish one-pot national dish boasts 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/614.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ De-link and cut the mini chorizo in half
 
 Cut each chicken thigh into bite-size pieces&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/614.-step2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan with a matching lid (preferably non-stick) with 1 t
 
 Once hot, add the chorizo and cook for 1 min, then add the chicken and cook for 1 min further&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/614.-step3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the pepper&nbsp;to the pan and continue to cook for approx. 3-4 min
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/614.-step4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Chop the olives roughly
 
 Dissolve the stock cube<span class="text-danger">[s]</span> with 350ml <span class="text-danger">[700ml]</span> boiled water&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/614.-step5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add&nbsp;the rice, garlic&nbsp;and smoked paprika to the pan and stir briefly to
 
 Stir&nbsp;in the stock and olives, bring to the boil over a high heat and once boiling, reduce the heat to very low, cover with a lid and cook for 10-15 min or until all the water has absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/614.-step6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Take some time to chill (or wash up!) until the rice is cooked and then move on 
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/614.-step7-x200.jpg)
 
 ### Step 7
 

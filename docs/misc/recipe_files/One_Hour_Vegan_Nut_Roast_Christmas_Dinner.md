@@ -32,7 +32,6 @@ Beat the clock with this all-in-one plant-based Christmas dinner, ready in under
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1665139832429-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-low heat with
 
 Once hot, add half the sliced onion (save the rest for later!) with a pinch of salt and cook for 5-6 min, then increase the heat to medium-high, add the chopped mushrooms and cook for a further 5-7 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1665139835776-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Add the halved potatoes to a pot of boiled water, bring to the boil over a h
 
 Once the potatoes are fork-tender, drain them in a colander and shake them until they're fluffy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1665139839196-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the drained lentils, dried cranberries, chopped pistachios, panko breadcrum
 
 Give everything a good mix up then roughly mash – this is your pistachio nut roast mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1665139844417-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Press down the mix into the corners and smooth out the top with a spatula, then 
 
 Tip: No loaf tin? Shape into a log instead!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1665139848619-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Wipe out the reserved pan and return to a medium heat with a generous drizzle of
 
 Once hot, add the remaining dried sage with a generous pinch of salt and pepper and cook for 30 secs or until fragrant – this is your sage oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1665139852550-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Add the chopped parsnip and carrot to the other side of the tray[s] with a knob 
 
 After 15 min, add the Brussels sprouts to the tray[s] with a knob of butter and return to the oven for a further 15 min or until the potatoes are crispy – these are your sage roast potatoes and roasted vegetables
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1665139856991-x200.jpg)
 
 ### Step 7
 

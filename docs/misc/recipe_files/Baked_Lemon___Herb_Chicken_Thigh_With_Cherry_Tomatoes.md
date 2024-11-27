@@ -25,7 +25,6 @@ For this Mediterranean-inspired recipe, you'll bake lemony chicken on top of pot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-prawn-spag-1637667263834-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-chicken-bake-1637667269034-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Boil half a kettle
 
 Chop your potatoes (skins on) into small bite-sized pieces and add them to a large oven-proof dish (or two!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606304615381-1637667278533-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Crush your garlic by squashing them with the side of a knife and discard the ski
 
 Pat your chicken thighs dry with kitchen paper and season them with a generous pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1653386046188-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add your seasoned chicken and crushed garlic to the dish[es] with your cherry to
 
 Give everything a good mix up, leaving the chicken at the top and put the dish[es] in the oven for an initial 35 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665479511033-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Slice half your lemon into slices and set them aside for later
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1653386108795-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ After an initial 35 min, remove the dish[es] from the oven and pour the herby st
 
 Squeeze over the remaining lemon and top the chicken with the reserved lemon slices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1653386111484-x200.jpg)
 
 ### Step 7
 

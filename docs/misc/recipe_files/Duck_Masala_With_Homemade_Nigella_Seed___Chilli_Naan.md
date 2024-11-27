@@ -32,7 +32,6 @@ Indulge in this rich duck masala curry full of spices and deep meaty flavour. Pl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1672753561191-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Boil a kettle
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672753569715-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Slice the green chilli<span class="text-danger">[es]</span> finely
 
 Add the dried yeast to a large bowl with 100ml <span class="text-danger">[200ml] </span>milk and 1 tsp <span class="text-danger">[2 tsp]</span> sugar, give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672753576001-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once hot, add the sliced shallot, chopped tomato, curry powder, ground paprika a
 
 Once fragrant, add the chicken stock mix, tomato paste and 150ml <span class="text-danger">[250ml]</span> boiled water to the dish and bring to the boil over a high heat
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672753582256-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ After 30 min, remove the dish from the oven, and shred the duck meat off the bon
 
 Once shredded, stir through half the yoghurt (save the rest for garnish!) – this is your duck masala
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672753589097-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672753595162-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Gradually add up to 75ml <span class="text-danger">[150ml] </span>warm water (y
 
 Tip the dough out onto a lightly floured work surface and knead it for 20 secs with floured hands
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672753602272-x200.jpg)
 
 ### Step 7
 

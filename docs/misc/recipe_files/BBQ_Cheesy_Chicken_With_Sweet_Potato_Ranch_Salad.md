@@ -26,7 +26,6 @@ Give this hearty salad a cheesy protein boost. You’ll toss sweet potato, lettu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1721994271295-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Chop your sweet potato[es] (skins on) into bite-sized pieces, the add them to a 
 
 Once done, drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1721994280976-x200.jpg)
 
 ### Step 2
 
 Add your chicken breast portion[s] to a clean chopping board, cover with cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1721994299688-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once hot, add the flattened chicken with a pinch of salt and pepper and cook for
 
 Tip: Cooking for 3? Use two pans!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1721994337151-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1721994346029-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Combine the chopped garlic with your mayo, dried oregano, white wine vinegar and
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your ranch-style dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1721994363880-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once cooked, divide your BBQ sauce between your cooked chicken breast[s] and spr
 
 Add a splash of cold water to the pan and cook, covered, for a further 3-4 min or until the cheese has melted – this is your cheesy BBQ chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1721994392900-x200.jpg)
 
 ### Step 7
 

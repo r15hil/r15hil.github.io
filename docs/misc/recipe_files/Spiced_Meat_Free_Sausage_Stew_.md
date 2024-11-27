@@ -22,7 +22,6 @@ Get your tastebuds sizzling with this spicy stew! You'll simmer Meatless Farm sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581508341576-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the meat-free sausages to a baking tray with a drizzle of vegetable oil
 
 Put the tray in the oven and cook for 20-25 min or until the sausages have browned and cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581508346050-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the chopped onion and a pinch of salt and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581508350849-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Dissolve 1/2<span class="text-danger"> [1]</span> Knorr vegetable stock cube in 
 
 Add the tomato paste – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581508355361-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once the onion has softened, add the curry powder and chopped potatoes to the pa
 
 Add the tomato stock and cook, covered, for an initial 10-15 min or until the sauce is starting to thicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581508360734-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Once the sauce is starting to thicken, drain and rinse the chickpeas
 
 Add the drained chickpeas to the pan and cook, covered, for a further 10-15 min or until the potatoes are cooked through – this is your spiced stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581508365778-x200.jpg)
 
 ### Step 6
 
 Whilst everything is cooking, chop the coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581508369805-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This speedy Spanish-style stew is a real smokeshow. You’ll infuse tomato sauce
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676975582933-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676975591319-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely slice (don't chop!) 3/4 of your garlic (you'll use the rest late
 
 Once hot, add the sliced garlic to the pan and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676975598966-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add your waxy potatoes to a heatproof bowl, then cover with cling film and pie
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676975639918-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once fragrant, add your dried thyme and ground smoked paprika to the pan and giv
 
 Add your chopped tomatoes and vegetable stock mix with 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676975650304-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once boiling, reduce the heat to medium and cook for 5 min further or until the 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676975661659-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676975670874-x200.jpg)
 
 ### Step 7
 

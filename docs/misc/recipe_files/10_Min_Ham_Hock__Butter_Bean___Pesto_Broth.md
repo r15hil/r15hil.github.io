@@ -21,7 +21,6 @@ This super speedy broth will be on the table in minutes! It's packed with hearty
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1640.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1640.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Meanwhile, add the focaccia to a baking tray and put the tray in the oven for 5 min or until warmed through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1640.-step-3-x200.png)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Meanwhile, drain and rinse the butter beans
 
 Once hot, add the butter beans to the pan and cook for 30 sec
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1640.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,19 +71,16 @@ Crumble the chicken stock cube<span class="text-danger">[s]</span> into the pan 
 
 Give everything a good mix up until the chicken stock has dissolved
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1640.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the <span class="text-highlight">classic basil nut</span> pesto with <span class="text-highlight">half</span> of the<span class="text-highlight"> shredded</span> ham hock and the<span class="text-highlight"> shredded kale </span>and cook, covered, for 1-2 min or until the kale<span class="text-highlight"> is tender with a bite</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1640.-step-6--x200.png)
 
 ### Step 6
 
 Meanwhile, grate the cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1640.-step-7-new-x200.png)
 
 ### Step 7
 

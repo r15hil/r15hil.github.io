@@ -26,7 +26,6 @@ Dive into this Indian-inspired twist on a veggie burger. You’ll pack fluffy br
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1667909365822-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667909375282-x200.jpg)
 
 ### Step 2
 
@@ -46,19 +44,16 @@ Peel and finely slice your red onion[s]
 
 Combine your cider vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar in a bowl with the sliced onion and set aside – this is your quick-pickled onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667909379200-x200.jpg)
 
 ### Step 3
 
 Combine your natural yoghurt and mint sauce in a bowl – this is your mint yoghurt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667909382969-x200.jpg)
 
 ### Step 4
 
 Slice your paneer in half, lengthways (like you're slicing a burger bun!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667909386864-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Combine your cornflour and curry powder on a plate with a pinch of salt and pepp
 
 Add the halved paneer to the curried flour and turn them several times until they're fully coated – this is your coated paneer
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667909389857-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Remove leaves from the lettuce for 1 per person and set aside
 
 Chop the inner core[s] into quarters, lengthways – these are your lettuce wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667909393525-x200.jpg)
 
 ### Step 7
 

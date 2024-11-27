@@ -23,7 +23,6 @@ Paneer (pan-ear) is an Indian cheese that is a great meat alternative in a lot o
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/885.-step1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut the waxy&nbsp;potatoes&nbsp;(skins on) into bite-sized pieces&nbsp;
 
 Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 15 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/885.-step2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Squeeze any excess liquid out of the 'cucumber ribbons'
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/885.-step3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add 3/4 of the nigella seeds and season with a pinch of salt
 
 Add the carrot and cucumber&nbsp;ribbons to the bowl and mix well - this is your Indian&nbsp;slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/885.-step4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Add them to a baking tray and put it in the oven for 5 min or until they are cri
 
 Once crispy, remove from the oven and set aside to cool
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/885.-step5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Pat the paneer steaks&nbsp;dry with kitchen paper
 
 Rub them with a little vegetable oil and season both sides with the garam masala and a pinch of salt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/885.-step6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Heat a wide-based pan (preferably non-stick) with a drizzle of vegetable oil, ov
 
 Once hot, add the paneer steaks and cook for 2-3 min on each side until they are brown and crispy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/885.-step7-x200.jpg)
 
 ### Step 7
 

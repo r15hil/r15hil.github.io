@@ -24,7 +24,6 @@ This is peanut satay like you’ve never had before. For a foodie fusion, try co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707215342566-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Add the chips to a baking tray (or two!) with your toasted sesame seeds, a drizz
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your sesame chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707215350065-x200.jpg)
 
 ### Step 2
 
 Cover your chicken breast portion[s] in cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707215355822-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat and 
 
 Set aside until serving, reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707215362270-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the flattened chicken with a generous pinch of salt and pepper and cook for 6 min on each side or until golden and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707215370355-x200.jpg)
 
 ### Step 5
 
 Add your carrot & cabbage slaw mix to a bowl with your mayo, the juice of half your lime[s] (you'll use the rest later!) and a pinch of salt, pepper and sugar – this is your lime slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707215377318-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Combine your peanut butter and soy sauce in a bowl with your red chilli relish a
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> warm water and stir it all together – this is your satay sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707215384516-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Fresh pasta has entered the chat. Whip up this zesty dish in minutes with a lemo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1692971175283-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1692971179379-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and slice (don't chop!) your garlic
 
 Peel 2 thin strips of zest per person from your lemon[s]<span class="text-danger"> </span>(avoid the white bitter pith)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1692971183253-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped asparagus to the pan with a pinch of salt and cook for 2-3 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1692971187169-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook the taglietelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1692971190889-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut the zested lemon[s] in half
 
 Once fragrant, add the juice of half your lemon[s] to the pan along with your vegetable stock mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1692971194974-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Season with a pinch of salt and a grind of black pepper and gently cook for 1 mi
 
 Tip: Make sure the pan isn't too hot as this could cause your sauce to split!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1692971198759-x200.jpg)
 
 ### Step 7
 

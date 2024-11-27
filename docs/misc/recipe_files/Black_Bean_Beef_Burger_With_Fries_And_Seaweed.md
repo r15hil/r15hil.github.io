@@ -25,7 +25,6 @@ Two takeaway classics collide in this beef in black bean inspired burger. You'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721286290411-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Add the fries and pepper halves to a baking tray with a drizzle of vegetable oil and a pinch of salt and pepper and put the tray in the oven for an initial 20 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721286299490-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely slice your brown onion[s]
 
 Combine your black bean paste and cornflour with 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water in a small bowl – this is you black bean stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721286306579-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide and shape into 1 equal-sized patty per person and refrigerate until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721286317626-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the onion has started to soften, add your ginger & garlic paste and cook fo
 
 Once fragrant, add the black bean stock and cook for 8-10 min or until the sauce has begun to thicken to a gravy-like consistency – this is your black bean & onion gravy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721286325596-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Slice your brioche bun[s] in half
 
 Once hot, add the brioche halves to the pan, cut-side down, and cook for 3-4 min or until toasted and golden, then transfer to a plate and set aside for later, reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721286335398-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Return the reserved pan to a medium-high heat
 
 Once hot, add the beef patties, press them down firmly with a spatula and cook for 4-5 min on each side or until cooked through and charred (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721286342771-x200.jpg)
 
 ### Step 7
 

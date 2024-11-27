@@ -21,7 +21,6 @@ Try your hand at simple Southern Italian cooking. Toss delicious fresh tagliatel
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1693574208618-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693574212250-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Top, tail and slice your courgette[s] into discs
 
 Once hot, add the courgette discs to the pan with a pinch of salt and cook for 5-6 min, turning halfway, until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693574216403-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693574220639-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Peel and slice (don't chop!) your garlic
 
 Dissolve your vegetable stock mix in 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[130ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693574224461-x200.jpg)
 
 ### Step 5
 
 Once the courgette has started to soften, add the sliced garlic to the pan and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693574227897-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once fragrant, add half your grated Italian hard cheese and half your cracked bl
 
 Give everything a good mix up – this is your courgette & black pepper sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693574231276-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This simple, elegant pasta combines sweet crab meat, chilli, baby plum tomatoes 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2476Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop (or grate) your garlic
 
 Add your fennel seeds to a pestle & mortar and grind (or chop if you don't have a pestle and mortar) to a fine powder
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2476Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once hot, add the halved tomatoes, chopped garlic, ground fennel seeds and chill
 
 Cook for 3-4 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Tomato-stock-1612956810437-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Meanwhile, dissolve your vegetable stock mix in 150ml<span class="text-purple"> 
 
 Stir through your tomato paste and 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> sugar – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2476Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine and return to the pot, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2476Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the tomatoes are fragrant, add the tomato stock and crab meat to the pan an
 
 Season with a pinch of salt and pepper and cook for 4-5 min or until thickened to a pasta sauce-like consistency – this is your fiery tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2476Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Grate any remaining Italian hard cheese
 
 Chop your basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2476Step-7-x200.jpg)
 
 ### Step 7
 

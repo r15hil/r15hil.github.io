@@ -25,7 +25,6 @@ Italian for ‘angry’, ‘arrabbiata’ sauce is as spicy as they come. For ou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1692886559539-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1692886563852-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Peel and slice (don't chop!) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1692886567223-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, boil a kettle
 
 Once hot, add the sliced garlic and your chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1-2 min or until fragrant – this is your chilli oil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1692886570459-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Trim the ends off your Tenderstem broccoli then chop into thirds
 
 Grate your Italian hard cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1692886573954-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cook for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle and broccoli, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1692886579080-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ While the tagliatelle is cooking, add your chopped tomatoes, tomato paste, and v
 
 Season with a pinch of salt, sugar and a grind of black pepper and cook for 2-3 min or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1692886583403-x200.jpg)
 
 ### Step 7
 

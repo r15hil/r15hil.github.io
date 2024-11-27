@@ -28,7 +28,6 @@ Flavoured with our signature Baharat spice blend, these free range chicken and p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1710234191049-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your free range chicken breast portion[s] into 6 pieces per person
 
 Chop half your pepper[s] into bite-sized pieces, then chop half your red onion[s] into chunks (save the rest for later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1710234193715-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add your baharat, red onion chunks, pepper chunks and chopped chicken to a bowl
 
 Give everything a good mix up until nicely coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1710234198264-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Thread the chicken, pepper and onion chunks onto the skewers, alternating as yo
 
 Transfer the chicken skewers to a baking tray (or two!) and put the tray[s] in the oven for 18-20 min, or until the chicken is cooked through (no pink meat!) – these are your baharat free range chicken & pepper skewers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1710234217354-x200.jpg)
 
 ### Step 4
 
 Meanwhile, peel and finely dice the remaining onion and remaining pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1710234224036-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add the diced onion and diced pepper and cook for 2 min or until slightly softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1710234228758-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Add your basmati rice, ground smoked paprika, ground cumin and ground turmeri
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until the water has absorbed and the rice is cooked – this is your spiced rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1710234235726-x200.jpg)
 
 ### Step 7
 

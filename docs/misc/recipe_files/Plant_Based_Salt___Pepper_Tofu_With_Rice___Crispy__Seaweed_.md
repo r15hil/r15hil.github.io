@@ -26,7 +26,6 @@ This crispy Chinese classic is about to go vegan. You’ll coat tofu in soy sauc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1667899939761-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the shredded kale to a large baking tray (or two!) with a pinch of salt, 1 t
 
 Give the shredded kale a good mix up, then put the tray[s] in the oven for 25-30 min or until crispy – this is your crispy ‘seaweed’
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667899944191-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667899947447-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Chop your tofu into large bite-sized pieces
 
 Add the chopped tofu to a bowl with half your soy sauce (you'll use the rest later!) and set aside to marinate
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667899952380-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Peel and chop your brown onion[s] into wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667899958964-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once the pan is very hot, add the coated tofu and cook for 5-6 min, turning occasionally until golden and crisp
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667899963119-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the tofu is crispy, add the onion wedges and chopped pepper to the pan with
 
 Season with a pinch of salt and a generous grind of black pepper and cook for 4-5 min further or until the vegetables are beginning to soften – this is your salt & pepper tofu
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667899966997-x200.jpg)
 
 ### Step 7
 

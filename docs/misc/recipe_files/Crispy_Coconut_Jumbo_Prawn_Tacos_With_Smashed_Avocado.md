@@ -28,7 +28,6 @@ Fill these tacos with the flavours of Mexico! You'll fry coconut breaded jumbo p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1640106983162-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add a pinch of salt and sugar to a bowl with a splash of boiled water and stir e
 
 Once dissolved, add your cider vinegar and sliced green chilli and set aside to pickle – this is your quick-pickled chilli
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1640107006811-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Wash and chop your lettuce roughly, then pat it dry with kitchen paper
 
 Dice your tomato[es]<span class="text-danger"> </span>and chop your coconut flakes finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1640107040289-x200.jpg)
 
 ### Step 3
 
 Drain your jumbo prawns, then pat them dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1640107057925-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Crack your egg[s] into a separate bowl and beat with a fork
 
 Combine your panko breadcrumbs and chopped coconut flakes in another bowl – these are your coconut breadcrumbs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1640107070474-x200.jpg)
 
 ### Step 5
 
 Coat the jumbo prawns in the flour, tap off any excess, then add into the beaten egg and finally press into the coconut breadcrumbs firmly to evenly coat all over – these are your breaded jumbo prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1640107080235-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the breaded jumbo prawns and cook for 3-4 min on each side or unti
 
 Tip: Do the prawns in batches if you need to so you don't overcrowd the pan!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1704882850631-x200.jpg)
 
 ### Step 7
 

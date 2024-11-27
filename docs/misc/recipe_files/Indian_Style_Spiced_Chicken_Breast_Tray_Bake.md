@@ -30,7 +30,6 @@ For this easy, one-pan traybake, you'll marinate chicken breast in ginger, yoghu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690364532238-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Add your chicken breast portions and give everything a good mix up until the chicken is fully coated in the marinade, then refrigerate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690364536859-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and chop your red onion[s] into wedges
 
 Crush your garlic with the side of a knife, keeping the skins on
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690364545966-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Sprinkle over your ground turmeric and yellow mustard seeds
 
 Season with a generous pinch of salt and pepper and stir it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690364549899-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Cut your lemon[s] into wedges
 
 Squeeze half the lemon wedges over the potatoes and onion wedges then add the squeezed wedges to the tray[s] (save the remaining wedges for garnish)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690364557680-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the crushed garlic to the tray[s], along with the marinated chicken and any 
 
 Put the tray[s] in the oven for an initial 30 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690364561986-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once everything has been cooking for 30 min, remove the tray[s] from the oven, p
 
 Return the tray[s] to the oven for a further 5 min or until the spinach has wilted and the chicken is cooked through (no pink meat!) – this is your Indian-style spiced chicken breast
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690364579789-x200.jpg)
 
 ### Step 7
 

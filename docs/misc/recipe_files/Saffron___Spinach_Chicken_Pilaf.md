@@ -31,7 +31,6 @@ This sunny-hued pilaf is spiced with saffron, cardamom and turmeric and finished
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1016.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel and finely dice your brown onion[s]
 
 Crush your cardamom pods open by squashing them with the side of a knife
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-2-1709721895906-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a l
 
 Once hot, add the diced onion, crushed cardamom pods and your ground turmeric with a generous pinch of salt and cook for 3-4 min or until the onion is starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1016.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve your chicken stock mix in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water, then add your saffron – this is your saffron chicken stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-2-1709721910784-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Increase the heat to high and add your diced chicken breast and chopped tomato t
 
 Season with a generous pinch of salt and pepper and cook for 3-4 min or until the chicken is browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-2-1709721916377-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the chicken is browned, reduce the heat to medium, then stir your basmati r
 
 Add your saffron chicken stock to the pan, reduce the heat to low and cook, covered, for 15 min or until the water has absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1016.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Top, tail, peel and grate your carrot[s]
 
 Wash, then chop your spinach roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-2-1709721925492-x200.jpg)
 
 ### Step 7
 

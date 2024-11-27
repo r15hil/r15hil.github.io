@@ -23,7 +23,6 @@ You’re 10 minutes away from extra creamy chicken gnocchi. First, whip up an ea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623400279031-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1713792813901-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chicken thigh and cook for an initial 5-6 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713792821845-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add your gnocchi and cook for 8-9 min or until beginning to crisp
 
 Tip: Don’t stir too often as this will prevent the gnocchi from crisping
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1713792837092-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Peel and slice your shallot[s] finely
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713792850087-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the chopped cherry tomatoes and sliced shallot to the pan with the chicken
 
 Cook for 2-3 min or until the tomatoes have started to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713792886301-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Return the pan to the heat, stir it all together and cook for 2-3 min or until t
 
 Once wilted, add the crème fraiche with a splash of cold water and cook for a final 1-2 min or until the chicken is cooked through (no pink meat!) – this is your creamy sun-dried tomato pesto sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713792900000-x200.jpg)
 
 ### Step 7
 

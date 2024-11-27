@@ -27,7 +27,6 @@ At Gousto we love smoky chipotle paste, which is remarkably similar to Korean ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1189.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1189.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -60,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Once hot, add the&nbsp;meatballs and cook 6-8 min, turning occasionally&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1189.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,7 +69,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Slice the sugar snap peas in half lengthways
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1189.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -84,7 +80,6 @@ Re-boil a kettle
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1189.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,7 +91,6 @@ Once the mushrooms are crisp and the meatballs are cooked through, add 2 <span c
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1189.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,7 +99,6 @@ Meanwhile, once the noodles are tender, add the sliced sugar snap peas to the po
 
 Drain the noodles&nbsp;and sugar snap peas and reserve the pot for the next step&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1189.-step-7-x200.jpg)
 
 ### Step 7
 

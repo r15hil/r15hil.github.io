@@ -27,7 +27,6 @@ Spice up your burger with the heat of Southern Italy! You'll roast chicken with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1591625042901-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potatoes (skins on) into fries and add them to a baking tray (or two!)
 
 Cut the pepper[s] in half (scrape the seeds and pith out with a teaspoon)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chicken-breasts-on-baking-tray-no-foil-1600696537683-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Unevenly sized chicken breast? Cut in half like a burger bun (but don’t c
 
 Add the halved pepper to the other side of the tray[s] with a drizzle of olive oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600696521783-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Put the tray[s] in the oven for 15-20 min or until the chicken is cooked through
 
 Meanwhile, wash your salad, then pat dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602668227004-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Peel and finely chop your shallot[s],<span class="text-danger"> </span>then add 
 
 Add most of the salad to the bowl (you'll use the rest later!), then season with a grind of pepper and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600696509672-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Cut 2 slices per person from your tomato[es] and set aside for later, then finel
 
 Add the sliced cucumber and diced tomato (keeping the sliced tomato aside for later!) to the salad bowl and give everything a good mix up – this is your tomato & cucumber salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1591625680228-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Cut your ciabatta[s] in half and add to the other side of the tray[s]
 
 Return the tray[s] to the oven for 2-3 min until the cheese has melted and the ciabatta is warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1591625624813-x200.jpg)
 
 ### Step 7
 

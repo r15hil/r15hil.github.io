@@ -25,7 +25,6 @@ For a quick and flavourful supper, look no further than our Japanese-inspired ba
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1617035485304-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1922.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Trim, then slice the green beans in half (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1922.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the pan is hot, add the halved green beans with a pinch of salt and cook for 1-2 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1922.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add 100ml<span class="text-danger"> [150ml]</span> boiled water and mix well �
 
 Once the green beans have started to soften, add the miso sauce to the pan and cook for 1 min or until starting to thicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1922.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the smoked basa fillets to the pan and cook, covered, for 5 min or until the
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1922-step-6-1-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a l
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1922.-step-7-x200.jpg)
 
 ### Step 7
 

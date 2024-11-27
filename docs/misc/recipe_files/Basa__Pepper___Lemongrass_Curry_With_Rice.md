@@ -29,7 +29,6 @@ By combining Indian spices with slow-cooked pepper, coconut and coriander, you'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632301709968-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice your red onion[s]
 
 Boil half a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632301720442-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the pepper strips and sliced onion with a big pinch of salt and sugar
 
 Cook for 5 min, then reduce the heat to low and cook for 10-15 min or until softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632301725676-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel your ginger (scrape the skin off with a teaspoon) and your garlic, then fin
 
 Bash your lemongrass stalk[s]<span class="text-danger"> </span>with a rolling pin, cut it down the middle lengthways, remove the tough outer layers and set aside for later, then chop the soft inner core[s] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632301731559-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your lemongrass rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632301738891-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the chopped ginger, chopped garlic, chopped lemongrass core[s], curry pow
 
 Chop your coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632301745539-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ On a clean board, chop your basa fillets into large bite-sized pieces
 
 Add 200ml<span class="text-danger"> <span class="text-purple">[275ml]</span> [350ml]</span> boiled water, your softened creamed coconut and your vegetable stock mix to the pan and stir for 2 min until everything has combined, then gently add the chopped basa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632301751408-x200.jpg)
 
 ### Step 7
 

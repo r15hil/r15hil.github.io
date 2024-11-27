@@ -26,7 +26,6 @@ Recreate a fragrant panang-style curry from tropical Southern Thailand. You'll m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1656337617690-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add your basmati rice and 300ml <span class="text-purple">[390ml] </span><span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has been absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1656337627708-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Meanwhile, peel and finely slice your brown onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1656337633647-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and pepper strips and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656337640727-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Boil a kettle
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656337652299-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Add your ground turmeric, a squeeze of lime juice and 1 tsp <span class="text-pu
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656337659958-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once the pepper and onion have softened, add your red Thai curry paste to the pa
 
 Once fragrant, add the peanut stock and cook for 3-4 min further or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656337686000-x200.jpg)
 
 ### Step 7
 

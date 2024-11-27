@@ -24,7 +24,6 @@ Is The Peanut Pop Star your pick? Rich blend of satay sauce and lime-pickled moo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1696409542037-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1696409542510-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ While the fries are cooking, add the meat-free hot dog sausages to one side of a
 
 Put the tray in the oven for an initial 15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1696409542522-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Chop your coriander finely, including the stalks (save some leaves for garnish!)
 
 Roughly chop your roasted peanuts
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1696409542265-x200.jpg)
 
 ### Step 4
 
 Combine your peanut butter and soy sauce in a small bowl with your chilli relish, half of the chopped peanuts and the juice of 1 lime wedge[s] per person<span class="text-danger"> </span>– this is your satay sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1696409542474-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add your mooli slaw mix and the chopped coriander to a large bowl with the juice
 
 Give everything a good mix up and set aside – this is your lime-pickled mooli slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1696409542528-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once the meat-free sausages have had 15 min, remove the sausage tray from the ov
 
 Add the cut hot dog buns to the other side of the tray, then return the tray to the oven for 2-3 min or until the hot dog buns are warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1696409542704-x200.jpg)
 
 ### Step 7
 

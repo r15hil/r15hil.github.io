@@ -28,7 +28,6 @@ Think making healthy choices means being hungry? Think again. This Thai-style di
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1646130006160-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once cooked, drain, return it to the pot and keep covered until serving
 
 Boil half a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1704803675852-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the sliced tofu to a large bowl with your soy sauce and give everything a go
 
 Dissolve your creamed coconut in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml] </span>boiled water with a generous pinch of salt – this is your coconut stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1704803699321-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Chop your lime[s] in half
 
 Separate your coriander leaves from the stalks, then chop both finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1704803718727-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Add a pinch of salt and grind to a paste – this is your Thai-style paste
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a high heat, and once very hot, add the marinated tofu and cook for 5-6 min, turning occasionally until golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1704803739207-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Add the juice of half the lime[s] and stir it all together – this is your Tha
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1704803783059-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Wash your spring greens then pat it dry with kitchen paper
 
 Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1704803825402-x200.jpg)
 
 ### Step 7
 

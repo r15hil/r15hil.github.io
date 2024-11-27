@@ -30,7 +30,6 @@ If you like sticky, spicy fried cauliflower pumped up with extra garlic, you're 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1628679761036-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the drained rice with 200ml <span class="text-purple">[300ml]</span><span cl
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1628679773508-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1628679783877-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add your cornflour to a separate bowl
 
 Add the cauliflower to the bowl of cornflour and give it a good mix up until all the cauliflower is fully coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1628679801903-x200.jpg)
 
 ### Step 4
 
@@ -74,13 +70,11 @@ Tip: You might need to do this in batches!
 
 Once crispy, transfer to kitchen paper and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1628679823959-x200.jpg)
 
 ### Step 5
 
 While the cauliflower is cooking, combine your gochujang paste (can't handle the heat? Go easy!), rice vinegar, tomato ketchup, honey and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water in a bowl and give everything a good mix up – this is your yang-nyum sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1628679839504-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Trim, then slice your spring onion[s]
 
 Combine 1/2 tsp per person of the yang-nyum sauce (you'll use the rest later!) with your mayo and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water in a separate bowl – this is your creamy Korean-style dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1628679846962-x200.jpg)
 
 ### Step 7
 

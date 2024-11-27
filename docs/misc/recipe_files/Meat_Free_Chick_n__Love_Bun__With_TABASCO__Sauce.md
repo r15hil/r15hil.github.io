@@ -23,7 +23,6 @@ Settle in for a Valentine’s fired-up by TABASCO® Sauce. You’ll sandwich cri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673977565672-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the waxy potatoes to a heatproof bowl, then cover the bowl with cling film a
 
 Put the bowl in the microwave for 5-6 min <span class="text-danger">[7-9 min]</span> or until the potatoes are fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673977569595-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once hot, add the brioche halves to the pan, cut-side down, and cook for 2-3 min
 
 Set aside until serving and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673977573503-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add a generous drizzle of olive oil, a generous knob of butter alternative and a
 
 Put the tray in the oven for 18-22 min or until the potatoes are crisp and golden – these are your smashed potatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673977577127-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Combine the cornflour, ground paprika and a pinch of salt in another bowl
 
 Add the meat-free chick’n to the cornflour mixture and give everything a good mix up until the chick'n pieces are nicely coated – this is your coated meat-free chick’n
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673977580955-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Return the reserved pan to a medium-high heat with a very generous drizzle of ve
 
 Once hot, add the coated meat-free chick’n and cook for 6-7 min, turning halfway, or until crisp, golden and warmed through – these are your crispy fried chick'n pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673977585298-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Wash the gem lettuce, then pat dry with kitchen paper
 
 Remove 2 <span class="text-danger">[4]</span> leaves from the gem lettuce and set aside, then cut the inner core<span class="text-danger">[s]</span> into 4 <span class="text-danger">[8]</span> wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673977589181-x200.jpg)
 
 ### Step 7
 

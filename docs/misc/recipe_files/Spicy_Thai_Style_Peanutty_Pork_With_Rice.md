@@ -28,7 +28,6 @@ Rich, spicy and nutty, this speedy stir fry has it all. You’ll pan fry pork mi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1720682636608-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1720682648180-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add your pork mince to the pan (remove the paper if required!) with a 
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1720682714276-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Trim your green beans
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1720682726310-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the pork has browned, add the onion wedges to the pan with the sliced peppe
 
 Cook for 4-5 min, stirring occasionally to prevent burning, or until the vegetables have softened and browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1720682736031-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Roughly chop your roasted peanuts
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1720682748461-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add your red Thai curry paste with your soy sauce, chilli flakes (can't handle t
 
 Stir it all together – this is your peanut sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1720682759391-x200.jpg)
 
 ### Step 7
 

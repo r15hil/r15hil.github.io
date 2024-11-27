@@ -26,7 +26,6 @@ Kick it kedgeree style with aromatic, curry-spiced rice. You’ll simmer rice in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680604420038-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice your red onion[s]
 
 Drain your sweetcorn
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680604422577-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 6-7 min or until softened and beginning to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680604425177-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the drained sweetcorn to the pan with your white long grain rice
 
 Cook for 1 min further, stirring to coat the grains in all the spices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680604427934-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680604431105-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Put the tray in the oven for 12-15 min or until cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680604434018-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Meanwhile, chop your coriander finely, including the stalks
 
 Combine your natural yoghurt with half the chopped coriander (save the rest for later!) and a pinch of salt in a small bowl – this is your coriander yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680604437578-x200.jpg)
 
 ### Step 7
 

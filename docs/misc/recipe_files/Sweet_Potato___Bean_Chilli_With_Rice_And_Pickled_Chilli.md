@@ -30,7 +30,6 @@ This chilli is a crowd-pleaser for kids and adults alike. You’ll simmer kidney
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706628515077-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and chop your sweet potato[es] into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706628518949-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Add the sliced chilli to a bowl with your cider vinegar and a pinch of salt and 
 
 Give everything a good mix up and set aside – this is your quick-pickled chilli
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706628522966-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the chopped sweet potato to a heatproof bowl, then cover the bowl with cling
 
 Put the bowl in the microwave for 5-7 min or until the sweet potato is fork-tender, then crush lightly with a fork
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706628527237-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and diced pepper with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706628532194-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706628536175-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once the veg has softened, add the chopped garlic to the pan with your ground sm
 
 Cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706628539511-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ For this wholesome one-pot, you'll cook beef mince, red onion and butter beans i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721814717200-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Transfer the toasted almonds to a plate, reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721814721099-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop your tomato[es] roughly
 
 Drain and rinse your butter beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721814725427-x200.jpg)
 
 ### Step 3
 
@@ -61,19 +58,16 @@ Once hot, add your beef mince with a pinch of salt and cook for 3-4 min or until
 
 Once browned, add the sliced onion and chopped tomato and cook for 2-3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721814728803-x200.jpg)
 
 ### Step 4
 
 Dissolve your beef stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721814732356-x200.jpg)
 
 ### Step 5
 
 Once softened, add your ras el hanout and tomato paste and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721814736507-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once fragrant, add the drained butter beans and beef stock
 
 Cook for a further 3-4 min or until cooked through (no pink meat!) and the sauce has slightly thickened – this is your one-pot spiced beef
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721814740595-x200.jpg)
 
 ### Step 7
 

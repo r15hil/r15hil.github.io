@@ -25,7 +25,6 @@ Fresh, bold and and satisfying, this version of the classic Caesar salad packs i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1731064124224-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Peel and chop your red onion[s] into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1731064129723-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Sprinkle your dried oregano over the chicken
 
 Put the tray[s] in the oven for 20-25 min or until the onion wedges are tender and the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1731064136701-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the torn ciabatta to a separate baking tray with a drizzle of olive oil and 
 
 Give everything a good mix up and put the tray in the oven for 6-7 min or until golden and crispy – these are your croutons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1731064141826-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Shave half of your Italian hard cheese with a peeler until you end up with a pil
 
 Grate the remaining Italian hard cheese finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1731064146491-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Season with a pinch of salt and pepper – this is your yoghurt Caesar dressing
 
 Wash your lettuce, then pat it dry with kitchen paper and tear into rough bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1731064151026-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the torn lettuce, remaining grated Italian hard cheese, croutons, and red 
 
 Add the yoghurt Caesar dressing and give everything a good mix until evenly coated in the dressing – this is your Caesar salad with yoghurt dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1731064156085-x200.jpg)
 
 ### Step 7
 

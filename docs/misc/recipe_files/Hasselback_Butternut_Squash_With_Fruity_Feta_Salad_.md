@@ -22,7 +22,6 @@ Top our Mediterranean-inspired feta, grape and salad with oregano-crusted hassel
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626433093400-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Tip: Drizzle the knife with a little olive oil for easier chopping
 
 Scoop out the seeds with a spoon and discard
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626433099969-x200.jpg)
 
 ### Step 2
 
 Cut narrow slices (about 1cm in width) into the butternut squash halves, making sure not to cut all the way down to the base – this is your hasselback butternut squash
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626433104839-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Transfer the hasselback butternut squash to a tray (flat side down!) and drizzle
 
 Put the tray[s] in the oven for 40-45 min or until the butternut squash is soft
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626433110426-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626433114628-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the crumbled feta cheese, sliced spring onion and salad to a large bowl and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626433125496-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Heat a large, wide-based pan (preferably non-stick), with a drizzle of olive oil
 
 Once hot, add the halved grapes and cook for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626433136668-x200.jpg)
 
 ### Step 7
 

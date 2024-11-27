@@ -26,7 +26,6 @@ Master the art of rolling burritos with this punchy plant-based dish. You'll pac
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1595254695801-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1595254700667-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, boil half a kettle
 
 Drain the jackfruit and tear into small, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1595254704812-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add the torn jackfruit with the smoked paprika, ground cumin, cayenne 
 
 Add the tomato paste with 100ml <span class="text-danger">[150ml]</span> boiled water and cook for 3-4 min further or until thickened to a pulled pork consistency
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1595254709343-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Whilst the jackfruit is cooking, chop the little gem lettuce<span class="text-da
 
 Combine the free-from mayo with the juice of 1/2<span class="text-danger"> [1]</span> lime and season with a pinch of salt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1595254731043-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once the rice is cooked, stir the drained black beans through the rice and seaso
 
 Once the jackfruit is almost done, add the large tortillas to a tray and put the tray in the oven for 1-2 min or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1595254736764-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Top each warmed tortilla with the beany rice, pulled jackfruit, shredded lettuce
 
 Tip: Go light on the filling on your first one so that you don't overfill the burritos!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595254777681-x200.jpg)
 
 ### Step 7
 

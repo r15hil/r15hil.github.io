@@ -27,7 +27,6 @@ Known as 'Chanar Dalna', this classic dish is a staple in Kolkata. 'Chanar' mean
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1839.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Tip: this is to warm your naans<span class="text-highlight"> later (or you can j
 
 <span class="text-highlight">Chop the potatoes into quarters, then add them to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 15-20 min or until fork-tender</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1839.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once hot, add the cubed paneer and <span class="text-highlight">ground</span> t
 
 <span class="text-highlight">Season generously with salt, then once golden, transfer the paneer to a bowl and cover with boiled water (this helps to soften the paneer!)</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1839.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Peel and finely chop the ginger
 
 Grind the chopped chilli (Can't handle the heat? Go easy!), ginger and ground cumin with a pinch of salt in a <span class="text-highlight">pestle &amp;</span> mortar to form a smooth paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1839.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Return the pan to a medium heat with a generous drizzle of vegetable oil
 
 Meanwhile, re-boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1839.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Add the drained potatoes, 200ml<span class="text-danger"> [300ml]</span> boi
 
 Meanwhile, chop the coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1839.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,7 +99,6 @@ Add the drained paneer to the pan, reduce the heat to low and cook, covered, 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1839.-step-7-x200.jpg)
 
 ### Step 7
 

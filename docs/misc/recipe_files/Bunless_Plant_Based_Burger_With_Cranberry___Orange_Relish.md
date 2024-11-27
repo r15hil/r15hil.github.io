@@ -24,7 +24,6 @@ You’ll serve your bunless plant-based burger with cranberry relish and chunky 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651573015471-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel your potatoes and chop them into thick chips, then add them to a pot with p
 
 Once boiling, reduce the heat to medium and cook for 10-12 min, then drain (reserve the pot!) and shake them around the colander to fluff up the edges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651573021514-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cut your orange[s] in half
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651573032053-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Season with a pinch of salt and sugar and whisk together – this is your mustar
 
 Combine your mayo with the truffle oil in a separate bowl – this is your truffle mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651573041093-x200.jpg)
 
 ### Step 4
 
 Add the drained potatoes to a baking tray with a drizzle of vegetable oil and a generous pinch of salt and put in the oven for 30 min or until crispy and golden – these are your twice cooked chips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651573049504-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once hot, add the diced shallot with a pinch of salt and cook for 1-2 min or unt
 
 Mix everything together and cook over a medium-low heat for 15-20 min or until thickened to a jam-like consistency – this is your cranberry & orange relish
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651573056232-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tip: Use a sharp knife to get rid of any pith!
 
 Cut your lettuce into 2 thin wedges per person, give them a wash and pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651573169858-x200.jpg)
 
 ### Step 7
 

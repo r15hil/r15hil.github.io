@@ -28,7 +28,6 @@ The umami-rich yakitori sauce is the star of this dish. You'll use it to glaze t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627992414164-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Chop the sweet potatoes (skins on) into large, bite-sized pieces
 
 Add the chopped sweet potato to the tray with a drizzle of vegetable oil and a pinch of salt and put the tray in the oven for an initial 25 min or until starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627992425196-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Drain the tofu, pat it dry with kitchen paper and cut into large pieces
 
 Trim, then cut half the spring onions into small, bite-sized pieces and slice the rest finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627992436060-x200.jpg)
 
 ### Step 3
 
 Thread the chopped tofu pieces and spring onion pieces evenly onto the soaked skewers – these are your tofu skewers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627992467175-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the tofu skewers to a separate baking tray and put the tray in the oven for 
 
 Tip: You'll cook these more later!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627992483678-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Halve the cucumber lengthways then scrape out and discard the seeds using a te
 
 Slice the cucumber halves finely and add them to a separate bowl with the remaining rice vinegar and a pinch of salt – this is your quick-pickled cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627992519611-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the yakitori sauce to a pot over a medium heat and cook for 5 min or until t
 
 Tip: Watch this like a hawk to make sure it doesn't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627992540395-x200.jpg)
 
 ### Step 7
 

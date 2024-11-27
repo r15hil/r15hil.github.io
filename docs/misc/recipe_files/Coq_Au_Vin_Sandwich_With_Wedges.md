@@ -35,7 +35,6 @@ Cut your potatoes (skins on) into wedges and add the wedges to one side of a bak
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1688742728547-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +46,6 @@ Once melted, add the sliced shallot with a pinch of sugar
 
 Cook for 4-5 min or until starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1688742731882-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +57,6 @@ Cook for 3-4 min or until the sauce begins to thicken to a gravy-like consistenc
 
 Set aside to reheat later – this is your red wine gravy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1688742756427-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +66,6 @@ Add the flattened chicken to a bowl with 1 tbsp <span class="text-purple">[1 1/2
 
 Give everything a good mix up until the chicken is fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688742743506-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +77,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the floured chicken and cook for 5-6 min on each side or until golden and cooked through (no pink meat!) – this is your fried chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688742750252-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +86,6 @@ Remove the tray[s] from the oven and add the sliced ciabatta
 
 Return the tray[s] to the oven for a final 5 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688742753928-x200.jpg)
 
 ### Step 7
 

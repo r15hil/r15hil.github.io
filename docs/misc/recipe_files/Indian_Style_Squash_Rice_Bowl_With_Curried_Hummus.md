@@ -32,7 +32,6 @@ This speedy Indian-inspired rice bowl is filled with gingery slaw, turmeric rice
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687517890987-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your sultana rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687517895444-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Meanwhile, drain and rinse your chickpeas
 
 Cut your lemon[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687517898635-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add your tahini, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span clas
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687517902357-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the squash is fork-tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687517906151-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add your carrot & cabbage slaw mix to a large bowl with your white wine vinegar,
 
 Season with a pinch of salt and sugar and give everything a good mix up – this is your ginger slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687517909510-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687517913551-x200.jpg)
 
 ### Step 7
 

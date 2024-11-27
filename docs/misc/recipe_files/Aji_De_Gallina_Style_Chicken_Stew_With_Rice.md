@@ -24,7 +24,6 @@ No one does stew like Peru. For your take on aji de gallina, you’ll simmer chi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683039594239-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the white long grain rice to a pot with a lid with 225ml [450ml] cold water 
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683039597241-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Crush the garlic open by squashing them with the side of a knife and discard the skins
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683039608819-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once hot, add the onion petals, chopped pepper and peeled garlic
 
 Cook for 2-3 min or until starting to char
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683039614973-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Add the walnuts and 50ml <span class="text-danger">[100ml]</span> milk to a food processor with 1/2 <span class="text-danger">[1]</span> chopped chilli (can't handle the heat? Go easy!), the chicken stock mix, Italian hard cheese , 1 tsp <span class="text-danger">[2 tsp]</span> flour and a very generous pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683039619492-x200.jpg)
 
 ### Step 5
 
 Once the veg is starting to char, transfer the charred pepper to the food processor with the garlic and half the onion petals – this is your aji de gallina mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683039622744-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Cook for 4-5 min on each side or until golden and cooked through (no pink meat!)
 
 Meanwhile, blitz the aji de gallina mix until smooth – this is your aji de gallina sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683039627546-x200.jpg)
 
 ### Step 7
 

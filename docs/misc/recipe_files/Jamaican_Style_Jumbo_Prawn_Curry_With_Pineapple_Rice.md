@@ -28,7 +28,6 @@ Transport your taste buds to the Caribbean with this creamy prawn curry. You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1705678170915-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1705678174348-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Slice your red chilli[es] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1705678178195-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, drain then add your jumbo prawns and chopped pepper to the pan with the sliced chilli (can't handle the heat? Go easy!), ground turmeric, curry powder, your ground allspice and a pinch of salt and cook for 2-3 min or until the pepper has slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1705678182068-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tip: Keep the pineapple juice for your smoothies, cakes or marinades!
 
 Trim, then finely slice your spring onion[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1705678187144-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once the pepper has slightly softened, add your chopped creamed coconut, roasted
 
 Stir it all together and cook for 4-5 min further or until the sauce is starting to thicken and the jumbo prawns are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1705678194064-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1705678199525-x200.jpg)
 
 ### Step 7
 

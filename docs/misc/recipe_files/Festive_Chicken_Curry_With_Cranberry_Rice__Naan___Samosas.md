@@ -34,7 +34,6 @@ Deck your dining table with a festive curry that's ready in just 20 minutes. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-1-1732011543021-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6, take your chicken out of the fr
 
 Add your basmati rice, cloves, dried cranberries, ground turmeric and 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[600ml]</span> cold water with a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-2-1732011555249-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Boil a kettle
 
 Peel and finely chop your shallot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-3-1732011562134-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped shallot with a pinch of salt and pepper and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-4-1732011569141-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your chicken stock mix with 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water – this is your chicken stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-5-1732011577048-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once the shallot has softened, increase the heat to high and add your chopped ch
 
 Meanwhile, add your samosas to a baking tray and put in the oven for an initial 8-10 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-6-1732011588489-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once fragrant, add the chicken stock with 1 tsp <span class="text-purple">[1 1/2
 
 Once the samosas have had an initial 8-10 min, remove the tray from the oven and add the naan[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-7-1732011595430-x200.jpg)
 
 ### Step 7
 

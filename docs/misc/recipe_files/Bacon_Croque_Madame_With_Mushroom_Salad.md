@@ -23,7 +23,6 @@ Literally meaning "missus crunch", the croque madame layers crispy bacon and che
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682613737487-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once hot, add your smoked streaky bacon to the pan and cook for 2-3 min on each 
 
 Once crisp, transfer the bacon to kitchen paper (reserve the pan)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682613741461-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the sliced mushrooms and cook for 5 min or until browned
 
 Once the mushrooms have browned remove them from the heat and set aside (reserve the pan)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682613749295-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once melted, add 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span><span class
 
 Gradually whisk in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>cold milk into the roux, a little at a time, and cook for 4-5 min or until a thick sauce remains – this is your béchamel sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682613753987-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the béchamel sauce has thickened, add half the grated cheese (you'll use t
 
 Set the cheese sauce aside to cool slightly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682613758540-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the mustardy slices to a baking tray and divide half the cheese sauce betwee
 
 Pour the remaining cheese sauce over the top and sprinkle over the reserved grated cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682613762584-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Combine the sliced shallot with your cider vinegar, 2 tbsp <span class="text-pur
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682613767771-x200.jpg)
 
 ### Step 7
 

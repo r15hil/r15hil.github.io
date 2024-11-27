@@ -22,7 +22,6 @@ Pack your plate with Sicilian sunshine with our speedy twist on peperonata. Cook
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1655205514371-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655205529586-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Once hot, add the pepper strips to the pan with a pinch of salt and cook for 5-6 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655205534080-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel and slice (don't chop!) your garlic
 
 Chop your basil roughly, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655205534789-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
 Reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655205539924-x200.jpg)
 
 ### Step 5
 
 Combine your chopped tomatoes, vegetable stock mix, dried oregano and balsamic vinegar with 80ml<span class="text-danger"> <span class="text-purple">[105ml]</span> [130ml]</span> boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655205546713-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the pepper has softened, add the sliced garlic to the pan and cook for 1 mi
 
 Once fragrant, add the tomato stock and a generous pinch of salt to the pan and cook for 2-3 min or until the sauce thickens slightly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655205548873-x200.jpg)
 
 ### Step 7
 

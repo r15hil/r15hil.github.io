@@ -26,7 +26,6 @@ Udon want to miss this one! While your lean pork mince caramelises in Marmite, y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1686661348866-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686661354833-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your lean pork mince (remove the paper if required!) to the pan and cook for 6-7 min, breaking it up with a wooden spoon as you go, until starting to brown and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686661361145-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Meanwhile, add half of your Marmite (you'll use the rest later!) to a bowl with 
 
 Wash your spinach, then pat dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1686661367353-x200.jpg)
 
 ### Step 4
 
 Once the lean pork mince has started to brown, add your ginger & garlic paste and remaining Marmite to the pan and cook for 1 min further or until caramelised and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686661392403-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once the lean pork has caramelised, add your udon noodles and spinach to the pan
 
 Tip: Gently separate the noodles with a fork!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686661400744-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Meanwhile, trim, then slice your spring onion[s]<span class="text-danger"> </spa
 
 Chop your roasted peanuts roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1686661407128-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ It’s an island affair with these Greek-style lean pork kebabs. You’ll add a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1717664166106-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and slice your red onion[s] into wedges
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1717664170700-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add your lean pork mince (remove the paper if required!), baharat and a generous
 
 Divide the lean pork mixture into 2 per person and roll into sausage shapes – these are your spiced lean pork kebabs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1717664175448-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the halved cherry tomatoes and red onion wedges to the other side and sprink
 
 Give the veg a good mix up, then put the tray[s] in the oven for 18-20 min or until the kebabs are cooked through and the tomatoes have softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718273696791-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1718273062079-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ Peel and finely chop (or grate) your garlic and strip your mint leaves from thei
 
 Grate your cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1717664185376-x200.jpg)
 
 ### Step 6
 
 Add the chopped garlic (not a big garlic fan? Try using less!), half the chopped mint (save the rest for later!) and grated cucumber to a separate bowl with your natural yoghurt and the juice of half the<span class="text-danger"> </span>lemon[s] and stir it all together – this is your tzatziki
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1718797011896-x200.jpg)
 
 ### Step 7
 

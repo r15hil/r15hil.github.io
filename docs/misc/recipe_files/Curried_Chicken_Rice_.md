@@ -23,7 +23,6 @@ This is a warming, creamy chicken and rice one-pot. The base flavours of curry s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/488.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel (scrape the skin off with a teaspoon) and finely grate or chop the ginger
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/488.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Cut the chicken into bite-size pieces
 
 Submerge the coconut cream sachets in a bowl of boiling water and set aside to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/488.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ When hot, add the chicken and a large pinch of salt
 
 Cook for 3-4 min or until golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/488.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Cook for 4 min or until the onion has softened
 
 Add the garlic and ginger and cook for a further 2 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/488.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Add the rice and 375ml <span class="text-danger">(750ml)</span> water to the pan
 
 Stir in the softened coconut cream and a pinch of sugar (optional)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/488.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Bring to the boil over a high heat and then lower to a gentle simmer
 
 Add a lid and simmer for 10-20 min or until the rice is tender and the chicken cooked through, checking occasionally to prevent sticking
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/488.-step--7-x200.jpg)
 
 ### Step 7
 

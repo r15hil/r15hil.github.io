@@ -19,7 +19,6 @@ A Goustofied British institution, learn how to make beautifully golden breaded c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/292__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,13 +30,11 @@ Add the potatoes and salt (optional) to a large pot of cold water and bring to t
 
 Boil for 15 min or until you can pierce them easily with a fork
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/292__-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, place your hand flat onto each&nbsp;chicken breast fillet&nbsp;and slice in half as if you were cutting a burger bun, so you are left with two thinner pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/292__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Add 3 tbsp <span class="text-danger">[6 tbsp]</span>&nbsp;flour&nbsp;to a plate 
 
 On a second plate, add the panko breadcrumbs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/292__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Roll it in the panko breadcrumbs and make sure it is evenly coated
 
 Repeat with the rest of the chicken and set aside &ndash; these are your chicken escalopes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/292__-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cut the broccoli into florets (including the stalk)
 
 Add the broccoli to the potato pot, and boil for a further 5 min&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/292__-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Melt 2 tbsp <span class="text-danger">[4 tbsp]</span>&nbsp;butter in a pot with 
 
 Once the butter&nbsp;has started to foam, remove the pot from the heat and set aside &ndash; this is your garlic butter
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/292__-step-7-x200.jpg)
 
 ### Step 7
 

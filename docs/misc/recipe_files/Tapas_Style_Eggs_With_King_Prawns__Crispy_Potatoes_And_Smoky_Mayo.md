@@ -25,7 +25,6 @@ Escape to the bars of Barcelona with this easy tapas-style dish. You'll top a ri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637144545592-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the potatoes (skins on) into bite-sized pieces
 
 Add them to a baking tray, drizzle with olive oil, season with cayenne pepper (can't handle the heat? Go easy!), salt and pepper, then put in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637144548878-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637144553094-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook for 7-9 min or until softened
 
 Once softened, add the chopped garlic and cook for a further 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637144557164-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Chop the coriander finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637144561502-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Drain the king prawns
 
 Once the sauce has thickened slightly, add the king prawns to the pan and cook for 4-5 min or until the prawns are cooked through and the sauce has reduced to a thick stew – this is your pepper & prawn stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637144565319-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Combine the mayo in a small bowl with the sliced spring onion, remaining chipo
 
 Season with a pinch of pepper and set aside – this is your smoky mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637144569573-x200.jpg)
 
 ### Step 7
 

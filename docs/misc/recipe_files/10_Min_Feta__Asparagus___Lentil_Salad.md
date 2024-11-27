@@ -22,7 +22,6 @@ This super-speedy salad is packed with veg (and flavour!). So simple – ready-t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1537.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it 
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1537.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid&nbsp;ove
 
 Meanwhile, chop the&nbsp;asparagus&nbsp;in half (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1537.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Cover and cook for 3-4 min or until bright green and tender with a slight bite
 
 Once done, remove the pan from the heat and set aside until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1537.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Meanwhile, chop the&nbsp;baby plum tomatoes&nbsp;in half
 
 Add the&nbsp;chopped tomatoes&nbsp;and&nbsp;washed&nbsp;rocket&nbsp;to a large mixing bowl
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1537.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Microwave the beluga lentils according to packet instructions
 
 Tip: if you're cooking two packets, pop them in together but increase the microwave cook time accordingly!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1537.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Season with a pinch of&nbsp;salt&nbsp;and&nbsp;pepper &ndash;&nbsp;this is your&
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1537.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ To rustle up this punchy pasta, you'll stir chicken into a cherry tomato sauce w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599209413448-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your linguine to a pot of boiled water with a pinch of salt, bring to the bo
 
 Once cooked, drain the cooked linguine, reserving a cup of the starchy pasta water and set aside until later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599209418760-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Peel and finely chop (or grate) your garlic
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599209423683-x200.jpg)
 
 ### Step 3
 
 Chop your chicken breast portion[s] into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599209435931-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add the chopped garlic and chilli flakes (can't handle the heat? Go easy!) and
 
 Add the chopped chicken and the halved cherry tomatoes with a generous pinch of salt and cook for 4 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599209442374-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Dissolve your tomato paste and chicken stock mix in 200ml <span class="text-purp
 
 Chop your chives finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599209459891-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Cook for 6-8 min or until the chicken is cooked through (no pink meat!) and the 
 
 Season with a pinch of salt and pepper and remove from the heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599209465226-x200.jpg)
 
 ### Step 7
 

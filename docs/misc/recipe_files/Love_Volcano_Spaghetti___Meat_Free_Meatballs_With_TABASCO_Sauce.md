@@ -25,7 +25,6 @@ Caution: This Italian dinner is red-hot. Kick off Valentine’s with a fiery spi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673971356659-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Drain the mozzarella, then pat and squeeze as much liquid out as you can with ki
 
 Wash the rocket and pat dry with kitchen paper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673971367381-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Divide the meatball mixture into 2<span class="text-danger"> [4] </span>balls, t
 
 Split half the torn mozzarella (you'll use the rest later!) equally between each meatball
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673971377729-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the meat-free meatballs to a baking paper-lined oven-proof dish and drizzle 
 
 Put the dish in the oven and cook for 12-15 min or until lightly golden and firm on top
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673971386874-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the chopped shallot to the pan with a generous pinch of salt and c
 
 Dissolve the vegetable stock mix, the remaining Henderson's Relish, half the balsamic vinegar (save the rest for garnish!) and a generous pinch of sugar in 200ml <span class="text-danger">[350ml]</span> boiled water – this is your balsamic stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673971394942-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Stir it all together and bring to a boil over a high heat
 
 Once boiling, reduce the heat to medium and cook for 12-14 min or until thickened, stirring occasionally – this is your rich tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673971403353-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Tip: Your pasta will finish cooking in the sauce!
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673971413558-x200.jpg)
 
 ### Step 7
 

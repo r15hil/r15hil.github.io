@@ -22,7 +22,6 @@ Celebrate Easter with this Italian-inspired twist. You'll pair succulent British
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2087.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Once done, drain and set aside to steam dry
 
 Meanwhile, add the pistachios to a baking tray and put in the oven for 3 min or until lightly toasted
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2087.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the seasoned lamb and cook for 4-5 min or until golden all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2087.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the halved cherry tomatoes to the tray lined with baking paper, with the 
 
 Drizzle the tomatoes with olive oil, give everything a good mix up and push them to one side of the tray – these are your balsamic tomatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2087.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the lamb is done, transfer it to a plate, cover and leave to rest for 5 min
 
 Tip: Switch the oven off and return the balsamic tomatoes to the oven to keep warm until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2087.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tip: Add a drizzle of vegetable oil if it's looking a little dry
 
 Once hot, add the rosemary sprigs, drained potatoes and a generous pinch of salt and cook, stirring frequently, for 15-17 min or until golden and crispy – these are your sautéed potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2087.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ While the potatoes are cooking, peel and chop the garlic roughly
 
 Chop the parsley roughly, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2087.-step-7-x200.jpg)
 
 ### Step 7
 

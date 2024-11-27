@@ -20,7 +20,6 @@ This British classic is an essential for everyone's repertoire. You'll make crea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1488.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the Cumberland sausages to the other side of the tray
 
 Put the tray in the oven and cook for 25 min or until golden and cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1488.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over a
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 10 min or until softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1488.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Once cooked, drain and return to the pot to steam dry
 
 Reserve the sieve
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1488.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Re-boil a kettle 
 
 Dissolve 1/2 <span class="text-danger">[1]</span> beef stock cube in 300ml <span class="text-danger">[600ml]</span> boiled water, add the onion marmalade and mix until fully combined – this is your onion gravy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1488.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once the onion is caramelised, add 1 tsp <span class="text-danger">[2 tsp]</spa
 
 Add the onion gravy stock, increase the heat to medium and cook for 10-15 min or until thickened to a gravy-like consistency – this is your red onion gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1488.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Season with a pinch of salt and pepper and mash until smooth
 
 <span class="text-highlight">Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up &amp; slice into thin strips</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1488.-step-7-x200.jpg)
 
 ### Step 7
 

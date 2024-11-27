@@ -28,7 +28,6 @@ Bring the flavours of a Mexican fiesta with these vibrant beef tacos. You’ll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688133940577-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Chop your tomato[es] roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688133943413-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your parsley finely, including the stalks
 
 Dissolve your beef stock mix and tomato paste in 100ml <span class="text-purple">[150ml]</span><span class="text-danger"> [200ml] </span>boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688133946303-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the pepper strips with a pinch of salt and cook for 3-4 min or unt
 
 Once done, transfer to a bowl and set aside, reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688133948867-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add a little drizzle of olive oil and season with a pinch of salt and sugar
 
 Give everything a good mix up – this is your charred pepper & parsley salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688133951895-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Return the reserved pan to a high heat and once hot, add your lean beef mince wi
 
 Cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688133954846-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once browned, add the onion petals and cook for 3-4 min or until softened
 
 Once softened, add the chopped garlic and cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688133957804-x200.jpg)
 
 ### Step 7
 

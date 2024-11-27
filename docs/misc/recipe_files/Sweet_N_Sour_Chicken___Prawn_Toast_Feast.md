@@ -27,7 +27,6 @@ For an indulgent feast inspired by the east, complete your night with this tasty
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666101746507-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Trim, then chop the spring onions finely and peel and finely chop (or grate) the
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon), drain the pineapple and then chop both into bite-sized pieces, reserving the pineapple juice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666101750359-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the long grain rice to an oven-proof dish with the remaining sesame oil, the
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your sesame rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666101754471-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated chicken and cook for 4-5 min on each side until golden, crispy and cooked through (no pink meat!) then set aside for later – this is your crispy chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666101758253-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Using a separate chopping board, chop the drained prawns until they are very fin
 
 Combine the minced prawns with the chopped garlic and a pinch of salt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666101761820-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Slice the trimmed ciabatta in half through the middle, then into 4<span class="t
 
 Spread the minced prawns onto the ciabatta triangles and press half the toasted sesame seeds (save the rest for garnish!) onto the minced prawns – these are your prawn ciabattas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666101765332-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Heat a separate, large, wide-based pan (preferably non-stick) with a very genero
 
 Once hot, add the prawn ciabattas and fry for 4-5 min on each side or until the prawns are cooked through and the toast is golden – these are your prawn toasts
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666101768959-x200.jpg)
 
 ### Step 7
 

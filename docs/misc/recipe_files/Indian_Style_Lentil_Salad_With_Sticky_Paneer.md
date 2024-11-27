@@ -24,7 +24,6 @@ This bright Indian-inspired salad is ready in minutes. You'll pan-fry paneer in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1614682986954-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1700.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Top, tail (no need to peel!) and grate your carrot[s] into a very large bowl
 
 Chop your cherry tomatoes roughly and add them to the bowl
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Drained-green-lentils-1719847770346-x200.jpg)
 
 ### Step 3
 
 Drain and rinse your green lentils
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1700.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Chop your paneer into bite-sized cubes
 
 Once hot, add the cubed paneer and curry powder and cook for 3 min, turning once halfway, until golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1700.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Chop your coriander roughly, including the stalks
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1700.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Increase the heat to high and add the remaining mango chutney and your nigella 
 
 Cook for a further 1 min or until sticky – this is your sticky paneer
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1700.-step-7-x200.jpg)
 
 ### Step 7
 

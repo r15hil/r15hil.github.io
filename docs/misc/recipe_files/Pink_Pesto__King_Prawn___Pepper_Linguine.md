@@ -26,7 +26,6 @@ For this dreamy linguine, you'll serve juicy king prawns and pasta in a blushing
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1297.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1297.-step-2-x200.jpg)
 
 ### Step 2
 
 While the linguine is cooking, chop your pepper[s] in half (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1297.-step-3.ajpg-x200.jpg)
 
 ### Step 3
 
@@ -52,13 +49,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the pepper strips and cook for 5-7 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1297.-step-4-x200.jpg)
 
 ### Step 4
 
 While the pepper is cooking, peel and finely slice (don't chop!) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1297.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Drain your king prawns
 
 Once the pepper has softened, add the sliced garlic and drained king prawns to the pan and cook for 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1297.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Add your soft cheese, sun-dried tomato pesto, chilli flakes (can't handle the h
 
 Season with a generous pinch of salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1297.-step-7-x200.jpg)
 
 ### Step 7
 

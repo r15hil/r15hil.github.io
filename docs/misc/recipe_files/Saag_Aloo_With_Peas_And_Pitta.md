@@ -30,7 +30,6 @@ For this shortcut saag aloo, you'll zap potatoes in the microwave, before adding
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1615371286897-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1589292757304-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Slice your waxy potatoes in half, then add them to a heatproof bowl, cover the b
 
 Put the bowl in the microwave for 6-8 min<span class="text-danger"> </span>or until the potatoes are fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1589292763231-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add your cumin seeds, curry powder, ground turmeric and ginger & garlic paste to the pan with a pinch of salt and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1589292769320-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Dissolve the chopped creamed coconut, tomato paste and vegetable stock mix in 15
 
 Add the coconut stock to the pan and cook for 2-3 min or until thickened slightly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1589292777019-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Rinse the wilted spinach under cold running water until it's cool enough to
 
 Squeeze as much water out of the spinach as you can, then chop it roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1589292782179-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add your wholemeal pitta[s] to a toaster for 1-2 min or until warmed through
 
 Slice your red chilli[es] finely into rounds
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1589292786632-x200.jpg)
 
 ### Step 7
 

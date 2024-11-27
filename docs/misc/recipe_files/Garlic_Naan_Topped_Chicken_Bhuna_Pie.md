@@ -28,7 +28,6 @@ This 2-in-1 Indian-inspired pie is filled with rich, spicy chicken bhuna sauce a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695994565306-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take some butter out of the fridge and set aside to soften, then boil half a ket
 
 Add your dried yeast to a large bowl with 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> warm water and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar, give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695994839765-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your tomato paste and chicken stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695994847918-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Gradually add up to 60ml <span class="text-purple">[80ml] </span><span class="t
 
 Tip the dough out onto a lightly floured work surface and knead it for 20 secs, then set aside – this is your naan dough
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695994858601-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once browned, add the sliced onion and cook for a further 2-3 min or until golde
 
 Meanwhile, combine 1/3 of the chopped garlic (you'll use the rest later!) with the softened butter and a pinch of salt in a bowl – this is your garlic butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695994863451-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the tomato stock with a pinch of sugar and bring to the boil over a high hea
 
 Once boiling, reduce the heat to medium-high and cook for 4-5 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened – this is your chicken bhuna curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695994867406-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Tip: Only have one oven-proof dish? Leave the naan dough whole and roll out to t
 
 Put the dish in the oven for 15-18 min or until the naan is cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695994871914-x200.jpg)
 
 ### Step 7
 

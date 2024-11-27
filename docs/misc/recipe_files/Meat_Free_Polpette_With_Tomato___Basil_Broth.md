@@ -25,7 +25,6 @@ This hearty soup is big on flavour and perfect for cold nights. You'll cook gian
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1667318723818-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop (or grate) your garlic
 
 Pick your basil leaves from their stalks (save them for later!) and chop the stalks finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667318717881-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Combine your meat-free mince (remove the paper if required!) with the chopped ba
 
 Mix until combined (clean hands is the best way), then roll into 3 polpette per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667318711001-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the polpette and cook for 2-3 min, turning occasionally until brow
 
 Once browned, set aside on a plate (reserve the pan) – these are your meat-free polpette
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667318701950-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once hot, add the chopped shallot with a pinch of salt and cook for 3 min or u
 
 Add the remaining chopped garlic and cook for a further 1 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667318694111-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Stir until combined, then bring to the boil over a high heat
 
 Once boiling, add your giant couscous and cook for 5 min or until beginning to soften – this is your tomato & basil broth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-basil-on-board-1668675286126-x200.jpg)
 
 ### Step 6
 
 Chop your basil leaves roughly (save some for garnish!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667318681689-x200.jpg)
 
 ### Step 7
 

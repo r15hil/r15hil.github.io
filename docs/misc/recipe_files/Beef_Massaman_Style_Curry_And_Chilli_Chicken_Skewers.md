@@ -27,7 +27,6 @@ This meltingly tender massaman curry will be your new favourite meal. Serve with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652267423824-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Soak the skewers in water, then heat a large, hob-safe oven-proof casserole dish
 
 Note: Don’t have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652267441738-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Remove the tough outer layers of the lemongrass and set aside for later then cho
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652267456428-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add 450ml <span class="text-danger">[850ml] </span>boiled water to the dish with
 
 Once boiling, cover with a lid and put the dish in the oven for an initial 30 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652267484120-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Chop the chicken breast portions into bite-sized pieces
 
 Combine the chopped chicken breast and chilli relish in a large bowl with the lime zest and a pinch of salt – this is your marinated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652267526216-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Remove the dish from the oven and add the chopped potatoes then give everything 
 
 Return the dish to the oven and cook, covered, for 30 min further or until the beef is tender – this is your beef massaman-style curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652267536990-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Cover tightly with tin foil and put the dish in the oven for 25-30 min or until 
 
 When the curry has 15 min remaining, thread the marinated chicken onto the soaked skewers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1652267548312-x200.jpg)
 
 ### Step 7
 

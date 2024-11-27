@@ -25,7 +25,6 @@ Knock up a dish that's full of fresh veg. You'll pan-fry courgette with cherry t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1613562554562-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2178-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Top, tail and chop your courgette[s] into quarters lengthways then slice finely
 
 Once the pan is hot, add the sliced courgette with a pinch of salt and cook, covered, for 1-2 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2178-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once the courgette has slightly softened, add your roasted garlic paste, dried o
 
 Cook for a further 2-3 min or until the tomatoes have started to break down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2178-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi and reserve a cup of the starchy cooking water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2178-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once the tomatoes have started to break down, add the chopped tomatoes and your 
 
 Cook for 1-2 min or until the olives are warmed through – these are your Mediterranean-style vegetables
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2178-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Grate your cheddar cheese
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2178-Step-7-x200.jpg)
 
 ### Step 7
 

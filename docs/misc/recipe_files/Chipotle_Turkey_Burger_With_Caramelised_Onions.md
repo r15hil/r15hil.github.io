@@ -20,7 +20,6 @@ We can't get enough of this smoky burger with Tex-Mex style chipotle mayo, crisp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1601992352647-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until the chips are golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1601993649107-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the sliced onions with a pinch of salt and sugar
 
 Reduce the heat to very low and cook the onions, stirring frequently, until ready to serve or until they have softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601993653952-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Massage the meat with clean hands for 1 min (this helps them to hold their shape
 
 Divide the mince into 2 <span class="text-danger">[4]</span>, shape them into patties and refrigerate until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1601993659291-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Heat a separate, large, dry, wide-based pan (preferably non-stick) over a medium
 
 Reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1601993665800-x200.jpg)
 
 ### Step 5
 
 Combine the mayo with the chipotle paste (can't handle the heat? Go easy!) in a small bowl and season with salt and pepper – this is your chipotle mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1601993670846-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Remove 2<span class="text-danger">[4]</span> whole outer leaves and set aside fo
 
 Add the torn leaves to a bowl and mix with a drizzle of olive oil and season lightly with salt and pepper – this is your crisp lettuce salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1601993675817-x200.jpg)
 
 ### Step 7
 

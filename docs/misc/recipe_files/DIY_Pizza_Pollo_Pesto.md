@@ -22,7 +22,6 @@ On this pizza, there's no such thing as too much pesto. After making your dough 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1598436770248-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the dried yeast to a large bowl with 100ml <span class="text-danger">[200ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598436775038-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Put the tray in the oven for 15-20 min or until the chicken is cooked through (n
 
 Once cooked, shred the cooked chicken into rough, bite-sized pieces using two forks – this technique is known as 'pulling'
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1598436780832-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Drain the mozzarella, then pat it dry with kitchen paper (squeeze as much liquid
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598436788277-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tip the dough ball out onto a floured work surface and cut into 2 <span class=
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598436799076-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Keep going until your base is slightly smaller than a side plate (you will make 
 
 Heat 1<span class="text-danger"> [2] </span>large, dry, wide-based pans (preferably non-stick) over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598436808228-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Add 1/2 <span class="text-danger">[1/4]</span> of the pesto sauce to each piz
 
 Cook the pizza base<span class="text-danger">[s]</span> for 3-4 min or until the crust has started to puff up, then remove the heated tray<span class="text-danger">[s]</span> from the oven and slide the puffed pizza base<span class="text-danger">[s] </span>onto the tray<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1598436813608-x200.jpg)
 
 ### Step 7
 

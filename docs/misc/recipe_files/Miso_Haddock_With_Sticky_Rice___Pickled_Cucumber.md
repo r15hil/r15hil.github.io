@@ -25,7 +25,6 @@ Mix up your week with this melt-in-your-mouth miso haddock. You’ll pan-fry had
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-13-1681053238256-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Rinse the sushi rice in a sieve under cold running water for 30 secs (use your h
 
 Add the drained rice with 200ml <span class="text-danger">[400ml] </span>cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-12-1681053242186-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-11-1681053245800-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Peel lengths off the cucumber until you end up with a pile of cucumber ribbons
 
 Add the cucumber ribbons to a bowl with the rice vinegar and a pinch of salt and sugar – this is your quick-pickled cucumber
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-9-1681053249406-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Pat the haddock bites dry with kitchen paper
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-8-1681053253068-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced spring onion and cook for 1-2 min or until starting to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-8-1681053257719-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once fragrant, add the haddock bites to the pan and cook for 3 min, turning once
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-11-1681053261843-x200.jpg)
 
 ### Step 7
 

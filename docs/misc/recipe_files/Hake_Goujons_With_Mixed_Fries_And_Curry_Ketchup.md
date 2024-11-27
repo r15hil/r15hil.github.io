@@ -22,7 +22,6 @@ This flavour-packed fakeaway will give your chippy a run for its money. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1701167912852-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and cut your potato[es] and sweet potato[es] into fries – these are your mixed fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1701167928400-x200.jpg)
 
 ### Step 2
 
@@ -38,13 +36,11 @@ Add the mixed fries to a large baking tray (or two!) with a drizzle of vegetable
 
 Put the tray[s] in the oven for 20-25 min or until the fries are tender and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1701167947858-x200.jpg)
 
 ### Step 3
 
 Meanwhile, slice your hake fillet[s] into 4 strips per person (roughly the size and shape of fish fingers)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1701167964073-x200.jpg)
 
 ### Step 4
 
@@ -54,7 +50,6 @@ Add your panko breadcrumbs to another plate with your ground paprika, a generous
 
 Coat the hake strips in the flour, tap off any excess, then add it into the milk and finally press it into the breadcrumbs firmly to evenly coat all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1701167980816-x200.jpg)
 
 ### Step 5
 
@@ -62,7 +57,6 @@ Add the breaded hake strips to a separate baking paper-lined baking tray and put
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1701167994007-x200.jpg)
 
 ### Step 6
 
@@ -70,7 +64,6 @@ Whilst everything is cooking, combine your tomato ketchup in a small bowl with y
 
 <span class="text-danger">Tip: Cooking for kids? Only use half of the ketchup and save the rest for later!</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1701168006740-x200.jpg)
 
 ### Step 7
 

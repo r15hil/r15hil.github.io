@@ -33,7 +33,6 @@ For a Chinese-inspired feast, fill your table with sticky and sweet, melt-in-the
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1610985267257-x200.jpg)
 
 ### Step 1
 
@@ -49,7 +48,6 @@ Once done, cut off a quarter of the pork – this is your plain salted pork bell
 
 Season the remaining pork with a crack of black pepper and reserve the pan – this is your peppered pork belly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610985152902-x200.jpg)
 
 ### Step 2
 
@@ -63,7 +61,6 @@ Once done, transfer the cooked rice to a plate and spread it out flat to help it
 
 Combine the toasted sesame oil, chilli flakes (can't handle the heat? Go easy!) and half the soy sauce (you'll use the rest later!) in a bowl and set aside to infuse – this is your sesame chilli oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1610985170226-x200.jpg)
 
 ### Step 3
 
@@ -79,7 +76,6 @@ Add the sliced spring greens to a large baking tray and sprinkle with a generous
 
 Set aside for later, then boil a full kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1610985176819-x200.jpg)
 
 ### Step 4
 
@@ -95,7 +91,6 @@ Add the black bean paste with 100ml <span class="text-danger">[150ml] </span>boi
 
 Tip: Remove the lid for the final few minutes if your sauce needs thickening!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610985182718-x200.jpg)
 
 ### Step 5
 
@@ -109,7 +104,6 @@ Add the shredded spring greens to the oven for 8-10 min or until crispy – this
 
 Add the fine egg noodles to a large bowl and cover them with boiled water, then stir for 10 secs to separate the noodles and set aside to soak for 4 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610985202772-x200.jpg)
 
 ### Step 6
 
@@ -123,7 +117,6 @@ Once combined, push the rice to one side of the pot and crack the egg<span class
 
 Stir the egg<span class="text-danger">[s]</span> with a wooden spoon to break the yolk<span class="text-danger">[s]</span> and cook for 1-2 min until it resembles scrambled egg, then mix it all through the rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1610985229364-x200.jpg)
 
 ### Step 7
 

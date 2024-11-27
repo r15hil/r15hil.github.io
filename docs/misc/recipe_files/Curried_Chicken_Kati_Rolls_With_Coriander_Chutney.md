@@ -30,7 +30,6 @@ A kati roll (pronounced 'kar-tee') is an Indian street food classic. You'll fill
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1651596347326-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and finely chop (or grate) your garlic and ginger
 
 Cut your lemon[s] in half, then cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1651596357024-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Stir through the chopped chilli (can't handle the heat? Go easy!) – this is your spicy coriander chutney
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1651596361660-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips (as finely as you can!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1651596367556-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pepper strips and sliced onion with a pinch of salt and cook for 7-8 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1651596373065-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Top, tail, peel, then grate your carrot[s]
 
 Chop your chicken breast strips in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1651596395598-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add 100ml <span class="text-purple">[130ml]</span><span class="text-danger"> [1
 
 Once done, remove the pan from the heat – these are your curried vegetables
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1651596469185-x200.jpg)
 
 ### Step 7
 

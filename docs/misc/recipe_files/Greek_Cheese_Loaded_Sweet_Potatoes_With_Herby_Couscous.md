@@ -28,7 +28,6 @@ For an autumnal feast, you'll use a microwave to soften the squash then stuff th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600692951846-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Pierce your sweet potato[es] with a fork, then cook in the microwave for 6-7 min or until slightly softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600692963005-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Dice the remaining onion finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600692990267-x200.jpg)
 
 ### Step 3
 
 Transfer the softened sweet potatoes to a tin foil-lined baking tray with a drizzle of olive oil and a pinch of salt and pepper, then put the tray in the oven and cook for 12-15 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600693002415-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once softened, add the chopped garlic and cook for 1-2 min further
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600693011581-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Crumble in your Greek cheese, add your dried cranberries and a grind of black pe
 
 Remove the pan from the heat and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600693023660-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Chop your parsley finely, including the stalks
 
 Combine your honey, cider vinegar and Dijon mustard with 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-danger">[6 tbsp] </span>olive oil and a pinch of salt and pepper – this is your honey-Dijon dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600693037774-x200.jpg)
 
 ### Step 7
 

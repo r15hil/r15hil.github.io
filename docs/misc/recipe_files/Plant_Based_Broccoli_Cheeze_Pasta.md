@@ -23,7 +23,6 @@ For plant-based comfort, nothing beats an indulgently cheezy broccoli pasta. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1670237384751-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1718353170218-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Boil a full kettle
 
 Cut your broccoli into small florets
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1718353175890-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ After an initial 3 min, add your quick cook spaghetti and cook with the broccoli
 
 Once done, drain the spaghetti & broccoli
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718353183719-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the spaghetti has had an initial 4 min, add the broccoli florets to the pot
 
 Once done, drain the spaghetti & broccoli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634643631418-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat
 
 Add your creamy single soy, torn cheeze, Dijon mustard (not a mustard fan? Go easy!) and vegetable stock mix and cook for 2-3 min or until thickened – this is your cheeze sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634643636014-x200.jpg)
 
 ### Step 6
 
 Meanwhile, cut your cherry tomatoes in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716978813118-x200.jpg)
 
 ### Step 7
 

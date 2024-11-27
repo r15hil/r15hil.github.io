@@ -25,7 +25,6 @@ These tofu fritters are crispy, crunchy and fried to perfection. You’ll coat t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684230202544-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut the potatoes (skins on) into chips, then add them to a baking tray with a d
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684230207702-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ While the chips are cooking, add the peanut butter, half the soy sauce (save the
 
 Stir until fully combined – this is your satay sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684230212459-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Slice the cucumber finely
 
 Chop the coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684230218039-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the sliced shallot, sliced cucumber and chopped coriander to a bowl with the
 
 Give everything a good mix up and set aside for later – this is your cucumber & shallot salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684230222705-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the grated tofu to a large bowl with the remaining soy sauce, tamarind paste
 
 Give everything a good mix up – this is your tofu fritter batter
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684230226582-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once very hot, add 4 large spoonfuls of the tofu fritter batter to the pan and p
 
 Cook for 4-5 min on each side until crispy and golden – these are your tofu fritters
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684230230398-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ For an easy twist on a Chinese ‘Bang Bang’ recipe, you'll pull tender Britis
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1009.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your white long grain rice to a pot with a lid with 175ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635764948230-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick with a matching li
 
 Once hot, add your chicken breast strips with a pinch of both salt and pepper and cook for 3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1009.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Trim, then slice your spring onion[s] finely
 
 Add your shredded lettuce, grated carrot and sliced spring onion to a large mixing bowl
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635764952740-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Turn the chicken several times until evenly coated in the spice
 
 Cook for 1 min further, then add a splash of water and increase the heat to medium, and then cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1009.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Cut half of your red chilli[es] into rounds (save the rest for later!)
 
 Add the cucumber matchsticks and chilli rounds (can't handle the heat? Go easy!) to the bowl with the lettuce, carrot and spring onion – this is your crunchy salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1009.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Combine your peanut butter and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</sp
 
 Add your soy sauce, toasted sesame oil, rice vinegar, chopped chilli (not a fan of spice? Just add a little!) and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and mix well to combine – this is your peanut dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1009.-step-7-x200.jpg)
 
 ### Step 7
 

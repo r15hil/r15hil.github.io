@@ -26,7 +26,6 @@ Make the table go, "phwoar!" with these delicious halloumi doner kebabs. You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1678874307714-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil, your d
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your smoky fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1678874313036-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop half the chopped onion<span class="text-danger"> </span>into quarters, then
 
 Slice the remaining chopped onion finely and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1678874320183-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Slice your red chilli[es] finely
 
 Chop your coriander roughly, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1678874323282-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the halloumi strips to a bowl with the onion petals, ground cumin, the remai
 
 Mix it all together until the halloumi and onion are well coated – these are your spiced halloumi strips & onion petals
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1678874331995-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Once hot, add the spiced halloumi strips & onion petals
 
 Cook for 4-5 min, turning the halloumi halfway, or until it is golden on all sides and the onion has slightly softened – this is your halloumi doner
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1678874336220-x200.jpg)
 
 ### Step 6
 
 While the halloumi is cooking, combine your red chilli relish and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water – this is your sweet chilli sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1678874353407-x200.jpg)
 
 ### Step 7
 

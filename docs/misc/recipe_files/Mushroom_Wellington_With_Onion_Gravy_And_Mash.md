@@ -26,7 +26,6 @@ This plant-based Wellington gives beef a run for its money. You'll stuff puff pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2480Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Wash your shredded kale, then pat dry with kitchen paper, then peel your shallot
 
 Peel and finely slice your red onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2480Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot with a knob of butter and a splash of milk, season with salt and pepper and mash until smooth
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2480Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: If you don't have a food processor, chop everything finely!
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium-high heat and once hot, add the mushroom mixture and soy sauce to the pan, then cook for 3-4 min or until all the liquid is absorbed
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2480Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Divide the mushroom mixture evenly between the pastry squares, covering one hal
 
 Put the tray in the oven for 20-25 min or until the pastry is golden and cooked through – this is your mushroom Wellington
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2480Step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Lay the shredded kale in the middle with a knob of butter and 1 tbsp <span clas
 
 Add the tray to the oven for 10-15 min or until tender – this is your roasted kale
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2480Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once hot, add the sliced onion with 1 tsp<span class="text-purple"> [1 1/2 tsp]<
 
 While the onion is caramelising, dissolve your vegetable stock mix in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2480Step-7-x200.jpg)
 
 ### Step 7
 

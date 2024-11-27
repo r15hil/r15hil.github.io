@@ -25,7 +25,6 @@ These plant-based enchiladas are packed with Mexican flavours. You'll wrap spice
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1601311876741-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Drain the jackfruit and tear (or chop!) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601311883313-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601311892000-x200.jpg)
 
 ### Step 3
 
 While the onions are cooking, dissolve 1/2<span class="text-danger"> [1] </span>Knorr vegetable stock cube and the tomato paste in 200ml <span class="text-danger">[400ml] </span>boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601311907500-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Once the onion has softened, add the torn jackfruit, ground cumin, smoked paprik
 
 Meanwhile, tear (or crumble!) the vegan cheese into small pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601311916636-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Increase the heat to high, add the tomato stock to the pan and cook for 2-3 min 
 
 Grease an oven-proof dish with a little olive oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601311925893-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Top with the torn vegan cheese and a drizzle of olive oil
 
 Put the dish in the oven for 8-10 min or until the tortillas are beginning to crisp and the cheese has melted – these are your smoky jackfruit enchiladas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601311938052-x200.jpg)
 
 ### Step 7
 

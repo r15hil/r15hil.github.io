@@ -32,7 +32,6 @@ Warm up the winter chill with some sun-kissed Caribbean flavour. You’ll whip u
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667908532769-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1667908536213-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the sliced pepper and cook for 3-4 min or until charred and starti
 
 Once charred, transfer to a bowl and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667908539904-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, transfer the basmati rice to a plate to cool and reserve the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1667908544908-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Drain and rinse your black beans
 
 Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667908548421-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once fragrant, add the drained black beans and chopped tomatoes with your vegeta
 
 Once boiling, reduce the heat to medium-high and cook for 7-8 min or until the sauce has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1667908551936-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Chop your green chilli[es] finely into rounds and add them to a bowl with your
 
 Once the sauce has thickened, add the charred pepper to the pan with half your cultured coconut (you'll use the rest later!) and give everything a good mix up – this is your black bean curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1667908555802-x200.jpg)
 
 ### Step 7
 

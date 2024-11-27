@@ -26,7 +26,6 @@ For this smoky Spanish-inspired salad, you'll roast tomatoes with onions until s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690285221322-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your potatoes (skins on) into small bite-sized pieces and add to a baking t
 
 Sprinkle your dried oregano all over, give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690285225197-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Chop your tomato[es] into wedges
 
 Add the onion wedges and tomato wedges to one side of a separate baking tray and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690285229447-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add your ground smoked paprika to a plate with a generous pinch of salt and pepp
 
 Mix everything together, then add your free range chicken thighs and turn them several times until they're fully coated in all the spices – this is your paprika chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690285233144-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add the paprika chicken to the tray with the onion and tomato and drizzle everyt
 
 Season with a pinch of salt and pepper and put the tray in the oven for 18-20 min or until the chicken is cooked through (no pink meat!) and the vegetables have softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690285237002-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Combine your mayo with your red wine vinegar and your cayenne pepper (can't hand
 
 Add the chopped garlic (not a big garlic fan? Try using less!) with a pinch of salt to the bowl and stir it all together – this is your spicy aioli
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690285240539-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped pepper and cook for 4-5 min, turning occasionally, until starting to char and soften – this is your charred pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690285244321-x200.jpg)
 
 ### Step 7
 

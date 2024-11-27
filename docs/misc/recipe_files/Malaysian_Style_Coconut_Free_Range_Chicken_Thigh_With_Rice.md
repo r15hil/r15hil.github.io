@@ -29,7 +29,6 @@ Inspired by the fragrant flavours of the classic Malaysian chicken dish 'Ayam Pe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693816568300-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Cut your cucumber in half lengthways and slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693816566295-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the sliced cucumber to a bowl with your rice vinegar, 1 tsp <span class="tex
 
 Stir it all together and set aside until serving – this is your quick-pickled cucumber
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693816571076-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once cooked, remove from the heat and keep covered until serving
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693816574041-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add your free range chicken thighs and sprinkle over half of your ground turm
 
 Cook for 3 min on each side or until lightly browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693816576927-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Chop half your red chilli[es] roughly, and finely slice the rest into rounds (sa
 
 Put everything into a food processor (can't handle the heat? Go easy on the chilli!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693816580604-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Pulse until you're left with a slightly chunky paste – this is your Malaysia
 
 Add the Malaysian-style spice paste to the chicken and cook for 5-6 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693816583849-x200.jpg)
 
 ### Step 7
 

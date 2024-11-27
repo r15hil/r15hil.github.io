@@ -28,7 +28,6 @@ Rich, creamy and comforting, this pasta is on the table in minutes. You’ll pan
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1725465659839-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1705334885063-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Boil a kettle
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1705334889034-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a s
 
 Once hot, add the halved tomatoes and cook for 2-3 min or until slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1705334893911-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Cook the orzo for 6-8 min or until cooked with a slight bite
 
 Once done, drain the orzo, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1705334897675-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Wash your salad and your spinach, then pat dry with kitchen paper
 
 Once the tomatoes have softened slightly, add your roasted garlic paste to the pan and stir it all together
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1705334901214-x200.jpg)
 
 ### Step 6
 
 Add the spinach to the pan, give everything a good mix up and cook, covered, for 1-2 min or until starting to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1705334905961-x200.jpg)
 
 ### Step 7
 

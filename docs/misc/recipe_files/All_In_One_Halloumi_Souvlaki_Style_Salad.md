@@ -29,7 +29,6 @@ All the best bits of a Greek fast food classic, made into a sumptuous salad. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1724254663126-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Before you begin...
 
 This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684764789869-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Chop your waxy potatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684764795648-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add your dried oregano, cumin seeds and ground smoked paprika with a generous dr
 
 Give everything a good mix up until everything is fully coated and put the dish in the oven for an initial 20 min or until the veg is beginning to char
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684764814050-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Shred the inner core[s]
 
 Peel and grate (don't chop!) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684764823492-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ After an initial 20 min, remove the dish from the oven and top the roast vegetab
 
 Return the dish to the oven for 15 min or until the vegetables are cooked and the halloumi is golden – this is your souvlaki-style halloumi & roasted veg
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684764843565-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Meanwhile, add your natural yoghurt to a bowl with your red wine vinegar, mint s
 
 Add a drizzle of olive oil and a pinch of salt and stir it all together – this is your minty yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684764837382-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Lighten up a classic linguine dish with nourishing courgette. You'll coat the pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1615476094479-x200.jpg)
 
 ### Step 1
 
@@ -35,13 +34,11 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of starchy pasta water, then set it aside until later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1615476104313-x200.jpg)
 
 ### Step 2
 
 Whilst the linguine is cooking, chop your cherry tomatoes into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1615476119841-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Then peel the lengths of the sliced courgette[s] until you have a pile of 'courg
 
 Tip: Have a spiraliser? Use this instead!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1615476135188-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp<span class="text
 
 Once hot, add the chopped cherry tomatoes and a generous pinch of salt and cook for 6-8 min or until softened and starting to break down
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1615476147662-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Meanwhile, peel and finely slice (don't chop!) your garlic
 
 Once the tomatoes have softened, add the sliced garlic and cook for 2-3 min until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1615476154306-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Increase the heat to medium-high heat, then drain and add your king prawns and c
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1615476174813-x200.jpg)
 
 ### Step 7
 

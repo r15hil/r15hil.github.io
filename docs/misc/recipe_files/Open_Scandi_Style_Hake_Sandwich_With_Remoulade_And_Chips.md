@@ -25,7 +25,6 @@ Fish sandwiches are found all over Scandinavia. For our version, you'll fill cia
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1712327974775-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1712327985213-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, trim, then slice your spring onion[s] finely
 
 Chop your<span class="text-danger"> </span>capers finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1712328015294-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Combine the sliced spring onion, mayo, chopped capers, Dijon mustard, chopped di
 
 Separate and wash your lettuce leaves, pat them dry with kitchen paper, then set aside until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1712328023022-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Crack your egg[s] into a shallow bowl and whisk
 
 Add your panko breadcrumbs to a separate large bowl with a pinch of salt and mix it up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1712328030469-x200.jpg)
 
 ### Step 5
 
 Coat your hake fillet[s] in the flour, tap off any excess, then add to the beaten egg and finally press it into the panko breadcrumbs firmly to coat everything evenly – this is your breaded hake
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1712328035495-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once hot, add the sliced ciabatta, cut-side-down and cook for 3 min or until lig
 
 Once toasted, transfer the toasted ciabatta to a plate and reserve the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1712328047559-x200.jpg)
 
 ### Step 7
 

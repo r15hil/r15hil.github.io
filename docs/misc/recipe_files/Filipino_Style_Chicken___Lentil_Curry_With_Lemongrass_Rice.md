@@ -29,7 +29,6 @@ This Filipino-style chicken is a fragrant feast. You’ll pan-fry juicy chicken 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678987684554-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely dice your brown onion[s], then heat a large, wide-based pan (pre
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-5 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678987688653-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Remove the tough outer layers of the lemongrass and set aside for later
 
 Slice half your red chilli[es] into rounds and finely chop the remaining
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678987693842-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once fragrant, add your diced chicken thigh, half your cider vinegar (you'll use
 
 While the chicken is browning, rinse your red lentils in a sieve under cold running water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678987703494-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once the chicken is starting to brown, add your tomato paste, rinsed lentils and
 
 Once boiling, reduce the heat to medium-low and cook, covered, for an initial 18-20 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678987708597-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your lemongrass rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678987712934-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ While the rice is cooking, add the chilli rounds to a bowl with the remaining ci
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678987717764-x200.jpg)
 
 ### Step 7
 

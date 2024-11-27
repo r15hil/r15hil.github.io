@@ -25,7 +25,6 @@ This speedy stir-fry is perfect for busy weeknights. You’ll fry up juicy mince
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1730737706688-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702394753719-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Once hot, add your pork mince (remove the paper if required) to the pan and cook
 
 Meanwhile, peel and cut your brown onion[s] into quarters, then separate the wedges so you end up with a pile of onion petals
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702394764398-x200.jpg)
 
 ### Step 3
 
 Add the onion petals to the pan and cook for a further 3-4 min or until the pork is starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702394775989-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Heat a separate large, wide-based pan (preferably non-stick with a matching lid)
 
 Once hot, add your Tenderstem broccoli with a pinch of salt and a splash of cold water and cook, covered, for 4-5 min or until tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702394787115-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once fragrant, add your red chilli relish, soy sauce, cornflour and 150ml <span 
 
 Cook for 2-3 min or until the sauce has thickened and the pork is cooked through (no pink meat!) – this is your Vietnamese-style pork
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702394800202-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702394810788-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This Indonesian-inspired rendang curry is full of punchy, aromatic flavours. Our
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-9-1725458451415-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil half a kettle
 
 Trim, then chop your green beans in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-10-1725458483174-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Cook, covered, for 10-12 min or until all the water has absorbed and the rice an
 
 Once cooked, remove from the heat and keep covered until serving – this is your green bean rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-11-1725458487778-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Crush your cardamom pods open by squashing them with the side of a knife and dis
 
 Grind the chopped garlic, chopped ginger, cardamom seeds, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> black pepper (freshly ground is best!) and a pinch of salt in a pestle & mortar to form a coarse paste – this is your spice paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-11-1725458491588-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> boiled water then add your fish sauce – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-11-1725458496945-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Heat a large, wide-based pan (preferably non-stick), with 1 tbsp <span class="te
 
 Once hot, add the coated hake and cook for an initial 1 min on each side
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-11-1725458501207-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once boiling, reduce the heat to medium and cook for 3-4 min further or until th
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-9-1725458506114-x200.jpg)
 
 ### Step 7
 

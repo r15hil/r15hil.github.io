@@ -30,7 +30,6 @@ This Turkish-inspired bulgur takes minutes to prep. You'll bake lamb mince, pepp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1619454855260-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1606747743810-x200.jpg)
 
 ### Step 2
 
@@ -54,13 +52,11 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Chop your tomatoes into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1606747748522-x200.jpg)
 
 ### Step 3
 
 Add your lamb mince to the dish with your dried oregano, bay leaf[ves] and baharat and cook for 1-2 min, breaking the mince into rough, large chunks until very lightly browned all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1606747753194-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the pepper rings and tomato wedges to the dish, season with a pinch of salt 
 
 Put the dish in the oven, uncovered, for an initial 15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1606747757395-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Dissolve your beef stock mix<span class="text-danger"> </span>and tomato paste i
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1606747763756-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Cover with a lid and return the dish to the oven for 15 min further until the la
 
 Strip your mint leaves from their stems and chop them finely, discard the stems
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1606747767963-x200.jpg)
 
 ### Step 7
 

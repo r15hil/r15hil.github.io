@@ -27,7 +27,6 @@ This rich spaghetti is inspired by Roman cuisine. Traditionally made with pork, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644835711367-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your capers and cook for 3-4 min, stirring frequently, or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644835715564-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely slice (don't chop) your garlic
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644835719463-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the diced onion with a pinch of salt and cook for 6-7 min or until softened
 
 Dissolve your tomato paste and your vegetable stock mix in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[300ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644835723579-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the onion has softened, add the halved tomatoes, sliced garlic, dried oreg
 
 Once broken down, add your tomato stock with a pinch of sugar and cook for 3-4 min or until the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644835730053-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Meanwhile, add your spaghetti to a pot of boiled water with a generous pinc
 
 Once done, drain the cooked spaghetti and reserve a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644835733403-x200.jpg)
 
 ### Step 6
 
 While the pasta is cooking, chop your basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644835738165-x200.jpg)
 
 ### Step 7
 

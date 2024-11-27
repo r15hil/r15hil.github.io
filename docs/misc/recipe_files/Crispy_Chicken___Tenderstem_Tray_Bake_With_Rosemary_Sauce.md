@@ -22,7 +22,6 @@ This tasty tray bake is as simple as it is sumptuous. You’ll rustle up juicy c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650991593536-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Chop your waxy potatoes into quarters
 
 Peel and quarter your shallot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650991602327-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Strip half of your rosemary leaves from their stems and chop them roughly (save 
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650991606968-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add a generous drizzle of vegetable oil and sprinkle the chopped rosemary all ov
 
 Put the baking tray[s] in the oven for an initial 10 min or until the potatoes and chicken start to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650991610576-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once hot, add the reserved rosemary (stems and all) to the pan and cook for<span
 
 Once the butter has infused, remove and discard the rosemary – this is your infused rosemary butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650991614859-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the infused rosemary butter to the bowl with a grind of black pepper and sti
 
 Set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650991619115-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the chicken has had an initial 10 min, remove the tray[s] from the oven and
 
 Return the tray[s] to the oven for a further 10-12 min or until the broccoli is tender and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650991623544-x200.jpg)
 
 ### Step 7
 

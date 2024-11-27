@@ -23,7 +23,6 @@ Up the steaks with a succulent sando. You’ll sizzle your steak to perfection b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687511142198-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and finely slice your brown onion[s], then heat a medium sized pot over a m
 
 Once hot, add the sliced onion with a pinch of salt and cook for 20 min, stirring frequently or until softened and golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687511147096-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687511151110-x200.jpg)
 
 ### Step 3
 
@@ -51,13 +48,11 @@ While the chips are cooking, peel and finely chop (or grate) your garlic
 
 Wash your salad, then pat dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687511161942-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your horseradish and mayo in a bowl with a pinch of salt and pepper – this is your horseradish mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687511168581-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once fragrant, add 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span clas
 
 Pat your rump steak[s] dry with kitchen paper, then drizzle with vegetable oil and season with a generous pinch of salt and pepper on both sides
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687511179060-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the steak is cooked, transfer to a plate to rest
 
 Slice the rested steak finely on a clean board
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687511184113-x200.jpg)
 
 ### Step 7
 

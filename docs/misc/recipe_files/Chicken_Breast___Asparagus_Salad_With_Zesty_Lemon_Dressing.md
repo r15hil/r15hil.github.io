@@ -22,7 +22,6 @@ This speedy salad sings with the flavours of summer. Pan-fry juicy chicken breas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683203887210-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683203890169-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced chicken breast with a very generous pinch of salt and pepper and cook for an initial 4-5 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683203897531-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the halved potatoes to a heatproof bowl, cover the bowl with cling film an
 
 Put the bowl in the microwave for 4-8 min  or until the potatoes are fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683204101724-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Tip: Alternatively, bend the woody ends of the asparagus until they snap!
 
 Chop your tomato[es] into wedges
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683204106047-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ After the chicken has had an initial 4-5 min, add the trimmed asparagus to the p
 
 Cook for 4-5 min further or until the chicken is cooked through (no pink meat!) and the asparagus is tender – this is your pan-fried chicken breast & asparagus
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683204109608-x200.jpg)
 
 ### Step 6
 

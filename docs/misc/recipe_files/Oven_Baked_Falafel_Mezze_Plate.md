@@ -27,7 +27,6 @@ Falafel are patties, soft in the middle but crunchy on the outside, made from bl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2184-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Drain and rinse the chickpeas
 
 Roughly chop the parsley and cut the lemon<span class="text-danger">[s]</span> into 4 <span class="text-danger">[8]</span> wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2184-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Add half the chopped parsley (save the rest for later!) with half the sesame s
 
 Pulse until everything is blitzed but not smooth – this is your falafel mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2184-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -75,7 +72,6 @@ Add the falafel balls to the baking tray and press them gently into the sesame s
 
 Drizzle generously with olive oil and put the tray in the oven for 20-25 min or until golden brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2184-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -90,7 +86,6 @@ Combine the tahini with the natural yoghurt and the juice of 1 <span class="text
 
 Tip: Add everything to the yoghurt pot to save on washing up!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2184-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -99,7 +94,6 @@ Cut the wholemeal pitta into triangles 
 
 Add the pitta triangles to the tray with the falafel (or a separate one!) and return the tray to the oven for 4-5 min or until the pitta is golden and crunchy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2184-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -114,7 +108,6 @@ Chop the feta into small bite-sized pieces 
 
 Combine the chopped cucumber, sliced red onion, chopped feta and half the chopped mint with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil in a large bowl – this is your cucumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2184-Step-7-x200.jpg)
 
 ### Step 7
 

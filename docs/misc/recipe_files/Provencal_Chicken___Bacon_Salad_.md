@@ -22,7 +22,6 @@ Quite literally - it's crunch time! This meaty and mighty salad transports us to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/598.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Put the tray in the oven for 10-15 min or until slightly crispy
 
 Once done, transfer the cooked bacon to a chopping board to cool and keep the baking tray for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/598.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once hot, add the diced chicken with a pinch of salt and pepper
 
 Cover and cook for 3-4 min or until nicely browned and cooked through then remove from the heat and keep covered until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/598.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Strip the tarragon leaves&nbsp;from their stalks and chop the&nbsp;leaves&nbsp;f
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/598.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,13 +66,11 @@ Cut&nbsp;the ciabatta<span class="text-danger">[s]</span> into bite-size cubes
 
 Add the ciabatta cubes to the bacon tray, drizzle them with olive oil and season with a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/598.-step-5-x200.jpg)
 
 ### Step 5
 
 Put the tray in the oven for 4-8 min or until the ciabatta is crunchy and just&nbsp;beginning to brown - these are your croutons&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/598.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Season&nbsp;with pepper and mix well - this is your dressing
 
 Chop the cooled bacon roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/598.-step-7-x200.jpg)
 
 ### Step 7
 

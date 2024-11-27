@@ -25,7 +25,6 @@ This rustic chicken tray bake is the perfect weeknight warmer and has minimal pr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1674583974174-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ This recipe takes around 5-10 min to prep, so get all your ingredients ready, th
 
 Before you start cooking, take your chicken out of the fridge, open the packet and let it air
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635257782746-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Top, tail and chop your carrot[s] in half lengthways, then slice on a diagonal
 
 Slice your leek[s] in half lengthways, then wash thoroughly to remove any grit from between the leaves and chop into chunks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635257785134-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the chicken thighs skin side up with a drizzle of vegetable oil and a pinch 
 
 Put the tray[s] in the oven for an initial 25 min or until cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635257787871-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Add 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[30
 
 Wash your shredded spring greens then pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635257790942-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635257793955-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Return the tray[s] to the oven for a further 3 min or until the greens are wilte
 
 Tip: Keep an eye on the spring greens, as they can burn quickly!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635257797232-x200.jpg)
 
 ### Step 7
 

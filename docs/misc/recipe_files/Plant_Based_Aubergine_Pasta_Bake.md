@@ -30,7 +30,6 @@ Open the oven to a bubbling pasta bake. You'll layer tender roasted vegetables, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595262048534-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Trim the green stalk[s] off your aubergine[s] and top, tail and slice lengthways
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595262053885-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Give everything a good mix up and put the tray[s] in the oven for 12-15 min or u
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595262061744-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and chopped garlic and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595262078964-x200.jpg)
 
 ### Step 4
 
@@ -70,13 +66,11 @@ While the onion is softening, dissolve your vegetable stock mix in 400ml <span c
 
 Once the onion has softened, add the dried oregano and tomato stock to the pan with 1/2 tsp <span class="text-purple">[3/4 tsp]</span><span class="text-danger"> [1 tsp]</span> sugar and stir it all together, then add your macaroni, tear in your basil and cook for 2-3 min – this is your tomato macaroni
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595262101682-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine your panko breadcrumbs and flaked almonds in a bowl with a drizzle of olive oil and a pinch of salt and pepper – this is your almond crumb
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595262109960-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add a big spoonful of the tomato macaroni to an oven-proof dish, then top wit
 
 Repeat this layering process until you have used all of the roasted veg and tomato macaroni
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595263056296-x200.jpg)
 
 ### Step 7
 

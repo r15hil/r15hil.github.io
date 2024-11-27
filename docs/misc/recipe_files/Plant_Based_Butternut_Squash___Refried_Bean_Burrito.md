@@ -30,7 +30,6 @@ These plant-based burritos are packed with roasted butternut squash, creamy refr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609937324498-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your butternut squash cubes to a tray with your ground smoked paprika, a dri
 
 Give it a good mix up and put the tray in the oven for 20-25 min or until the butternut squash is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609937756858-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609937791246-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Drain and rinse your black beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609937821247-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the drained black beans, ground cumin and chopped garlic and cook 
 
 Once fragrant, add your soy sauce, juice of half your lime[s] and a splash of water and mash until smooth – these are your refried beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609937890616-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add your chipotle paste (can't handle the heat? Go easy!) to a small bowl with t
 
 Tear your cheese flavour slice[s] into small pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609937908943-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Trim, then finely slice your spring onion[s]
 
 Stir the chopped coriander and sliced spring onion through the cooked rice – this is your coriander rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1609937968842-x200.jpg)
 
 ### Step 7
 

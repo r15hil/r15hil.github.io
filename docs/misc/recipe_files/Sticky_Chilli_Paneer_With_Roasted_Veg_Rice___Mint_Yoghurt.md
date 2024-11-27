@@ -28,7 +28,6 @@ Pack in the chilli with this punchy paneer. You’ll pan-fry paneer in cumin and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679659422719-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Top, tail and chop your courgette[s] in half lengthways, then chop roughly
 
 Peel and chop your red onion[s] into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679659430749-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped pepper and courgette to a baking paper-lined baking tray with th
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until the vegetables are softened and golden – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679659435094-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679659441318-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Combine the chopped mint and natural yoghurt in a small bowl with a pinch of salt and give everything a good mix up – this is your mint yoghurt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679659445518-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the chopped paneer and cook for 5-6 min or until golden, turning occasionally for even colouring
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679659449242-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the paneer is golden, add your ground smoked paprika and cumin seeds to the
 
 Once fragrant, remove the pan from the heat, then add your honey and give everything a good mix up – this is your sticky chilli paneer
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659890162086-x200.jpg)
 
 ### Step 7
 

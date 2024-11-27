@@ -26,7 +26,6 @@ Full of protein and fibre, this wholesome bowl is perfect after a busy day. The 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2278Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Rinse your quinoa in a sieve under cold running water and add to a pot with a li
 
 Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until all the water has absorbed and the quinoa is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2278Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the steak[s] to a plate with your ground cumin, 1/2 tbsp <span class="text-
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thick strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2278Step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak is cooked, transfer to a plate to rest, reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2278Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the chopped cherry tomatoes and sliced spring onion to a bowl with 1/2 tbsp 
 
 Give it a good mix up – this is your tomato salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2278Step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Whilst the steak is resting, return the reserved pan to a high heat
 
 Once hot, add the pepper strips and cook for 5-6 min or until tender and starting to char
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2278Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Add the chopped parsley, coriander and garlic to a pestle & mortar with a pinch of salt and a small splash of cold water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2278Step-7-x200.jpg)
 
 ### Step 7
 

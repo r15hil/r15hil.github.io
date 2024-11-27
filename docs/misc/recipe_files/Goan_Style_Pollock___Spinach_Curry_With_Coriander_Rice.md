@@ -26,7 +26,6 @@ Goan curries famously marry the creaminess of coconut with fish. For this simple
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650983150223-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and grate (or finely chop) the garlic
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650983153499-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the diced red onion and cook for 3-4 min or until starting to soft
 
 Once softened, add the grated ginger and grated garlic to the pan and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650983155766-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650983158422-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ While the rice is cooking, chop the creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and vegetable stock mix in 300ml <span class="text-danger">[500ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650983161661-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the tomato paste, most of the chopped chilli (can't handle the heat? Go eas
 
 Add the coconut stock and cook for 1-2 min or until starting to reduce – this is your Goan-style curry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650983163717-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Wash the spinach, then chop it roughly
 
 Add the chopped spinach to the curry sauce and stir continuously for 1-2 min or until wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650983166434-x200.jpg)
 
 ### Step 7
 

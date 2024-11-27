@@ -27,7 +27,6 @@ This lush linguine is unbelievably creamy. You’ll simmer courgette, garlic and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680016314219-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp<span class="text
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680016319008-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Top, tail and chop your courgette[s] in half lengthways, then slice finely
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680016323213-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat the reserved pan with a generous drizzle of olive oil over a medium heat
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680016326948-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the onion is beginning to soften, add the sliced courgette and sliced garli
 
 Cook for 10-12 min or until the courgette is beginning to soften, stirring occasionally
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680016330695-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680016335096-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once evaporated, add your single creamy soy, vegetable stock mix, Dijon mustard 
 
 Give everything a good mix up and cook for 5-6 min, or until the sauce has thickened to a double cream-like consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680016339587-x200.jpg)
 
 ### Step 7
 

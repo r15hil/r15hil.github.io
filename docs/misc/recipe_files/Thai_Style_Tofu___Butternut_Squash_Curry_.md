@@ -27,7 +27,6 @@ Grab a taste of this zingy Thai-style curry, packed with citrusy lemongrass, gin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612273757228-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped pepper and your butternut squash cubes to a baking tray with a d
 
 Put the tray in the oven for 20-25 min or until the vegetables have softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612273778361-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced tofu with your gluten-free soy sauce and cook for 5-6 min, turning once halfway until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612273795905-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel and roughly chop your ginger, garlic and shallot[s]
 
 Slice half of your red chilli[es] into rounds and roughly chop the rest
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612273848478-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Blitz to a rough paste – this is your Thai-style curry paste
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1612273863289-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once boiling, reduce the heat to low, then cover and cook for 12-15 min or until
 
 Remove from the heat and set aside (lid on) to steam until serving – this is your sticky lemongrass rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612273870921-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Once hot, add the Thai-style curry paste and cook for 2 min until fragrant
 
 Meanwhile, dissolve your creamed coconut in 200ml <span class="text-purple">[250ml] </span><span class="text-danger">[300ml]</span> boiled water with the juice of half your lime[s] and a pinch of sugar – this is your coconut stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612273892889-x200.jpg)
 
 ### Step 7
 

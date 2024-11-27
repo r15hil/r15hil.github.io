@@ -28,7 +28,6 @@ This dish is a well-known North Indian street food that simmers golden paneer in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600416132038-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the paneer cubes and cook for 3-4 min or until golden all over, then set aside on a plate and reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1731075642571-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely dice the remaining red onion
 
 Cut your cucumber in half lengthways and scrape out the inner seeds with a teaspoon, throw the watery seeds away and chop the deseeded cucumber into half moons
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600416146641-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600416153644-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cook for 2 min or until fragrant
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[255ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600416184882-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Meanwhile, chop your coriander finely, including the stalks
 
 Add your naan[s] to a baking tray and put the tray in the oven for 4-5 min or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600416190618-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Chop your tomato[es] into rough, bite-sized pieces
 
 Combine the chopped tomato, cucumber half moons, sliced red onion and a pinch of chopped coriander in a bowl with a drizzle of olive oil and a pinch of salt and pepper – this is your tomato salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600416202303-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ For this open-faced tikka sandwich, you’ll marinate paneer cheese in spices, b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1639995359192-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1639995236415-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Roll your lemon[s] with your hand on a hard surface (to release more juice) and 
 
 Combine 1/4 of your natural yoghurt (save the rest for later!) in a bowl with your ground turmeric, ground paprika, garam masala, ginger paste, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>vegetable oil, a pinch of salt and the a squeeze of lemon juice – this is your tikka marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1639995257069-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat
 
 Once hot, add the marinated paneer and cook for 3-5 min or until golden, turning occasionally for even colouring – this is your paneer tikka
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1676470411169-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add your naan[s] to a toaster for 1-2 min or until warmed through
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1639995285882-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the chopped cucumber and grated carrot to a bowl with your nigella seeds, a 
 
 Give everything a good mix up – this is your Indian-style salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1639995289572-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add your spinach to a colander and pour boiled water all over it so that it star
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1639995294669-x200.jpg)
 
 ### Step 7
 

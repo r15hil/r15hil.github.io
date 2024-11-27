@@ -23,7 +23,6 @@ Whether you call it a rapid ragù, a brisk bolognese or a prompt pasta, one thin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/603.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of&nbsp;veget
 
 Once hot, add the onion with a large pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/603.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Cook for 5 min or until everything is starting to soften&nbsp;
 
 Tip: crumbling the mushrooms adds texture and saves time!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/603.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the linguine and cook for 8-10 min or until cooked through but with a slight
 
 Once&nbsp;cooked, reserve approx.&nbsp;175ml <span class="text-danger">[250ml]</span>&nbsp;starchy pasta water, then drain and return the pasta to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/603.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Meanwhile, add the beef mince to the softened vegetables and cook for a further 
 
 Season with 1 tsp <span class="text-danger">[2 tsp]</span> of both salt and sugar&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/603.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Stir to dissolve &ndash; this is your stock
 
 Tip: pasta water is full of starch which helps your sauce stick to the linguine
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/603.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Once done, stir in the drained linguine
 
 Taste for seasoning, adding salt and pepper if needed
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/603.-step--7-x200.jpg)
 
 ### Step 7
 

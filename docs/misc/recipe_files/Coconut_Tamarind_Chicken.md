@@ -23,7 +23,6 @@ This naturally sweet and sour chicken noodle bowl combines tart tamarind and nat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/476.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ When hot, add the chicken and colour on each side for 3 min or until golden
 
 Season each side generously with salt&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/476.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: The trapped water creates steam for even cooking
 
 Reduce the heat to medium-low and cook for a further 7-10 min or until the chicken is cooked through, lowering the heat if necessary
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/476.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Trim the green beans and cut them in half widthways
 
 Soak the coconut cream sachet<span class="text-danger">(s)</span> in a bowl of very hot water (this softens it)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/476.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add the carrot to the same pan with a large pinch of salt
 
 Cook over a medium-high heat for 3 min or until coloured and caramelised
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/476.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Boil for 5-7 min or until cooked through but with a slight bite
 
 Once cooked, drain and briefly rinse them under cold, running water until cooled slightly, then return them to the pot off the heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/476.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Cook for 5 min over a medium-low heat or until both vegetables are tender&nbsp;
 
 Meanwhile, peel and chop (or grate) the garlic finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/476.-step-7-x200.jpg)
 
 ### Step 7
 

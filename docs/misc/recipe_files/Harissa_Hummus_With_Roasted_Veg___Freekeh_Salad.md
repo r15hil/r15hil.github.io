@@ -27,7 +27,6 @@ Tuck into a bowl of plant-powered goodness. You'll make hummus with a twist by w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1358.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Rinse the freekeh, then add it to a pot with plenty of cold water and bring to t
 
 Cook for 20-25 min or until tender but with a bite, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1358.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the red onion wedges and butternut squash cubes to a baking tray with a driz
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until softened and golden – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1358.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, drain and rinse the chickpeas (set aside a handful of chickpeas to us
 
 Peel and roughly chop the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1358.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the drained chickpeas to a food processor with the chopped garlic, 50ml <spa
 
 Add the tahini, 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and the harissa paste (can't handle the heat? Go easy!) with a very generous pinch of salt and blitz for 1-2 min or until fully combined and smooth – this is your harissa hummus
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1358.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
 Strip the mint leaves from their stems and chop them finely, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1358.-step-6.ajpg-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the roasted veg is golden, add it to the pot of drained freekeh with the gr
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your roasted veg & freekeh salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1358.-step-7.ajpg-x200.jpg)
 
 ### Step 7
 

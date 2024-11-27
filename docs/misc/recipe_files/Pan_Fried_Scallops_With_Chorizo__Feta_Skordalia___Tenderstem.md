@@ -24,7 +24,6 @@ Sweet and delicate, scallops pair perfectly with the smoky paprika hit of crispy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1585.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Boil a kettle.
 
 Peel and chop the potatoes into rough, bite-sized pieces.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1585.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt over a hi
 
 Once cooked, drain and return them to the pot.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1585.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Chop the parsley finely, including the stalks (keep the chopped leaves and stal
 
 Mash the feta with a fork until smooth. Re-boil a kettle.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1585.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Once hot, add the diced chorizo and cook for 5-6 minutes or until starting to cr
 
 Once starting to crisp, transfer the chorizo and oil to a plate and reserve for later.
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1585.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,7 +91,6 @@ Add 50ml <span class="text-danger">[100ml]</span> milk, 2 tbsp<span class="text
 
 Once done, cover to keep warm and set aside until serving – this is your feta skordalia.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1585.-step-6.Tenderstem-x200.jpg)
 
 ### Step 6
 
@@ -111,7 +105,6 @@ Once the water comes to the boil, add the Tenderstem broccoli and cook for 4 
 
 Meanwhile, pat the scallops dry with kitchen roll.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1585.-step-7-x200.jpg)
 
 ### Step 7
 

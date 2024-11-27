@@ -25,7 +25,6 @@ Time for some proper pub grub with a hint of spice. You’ll take these curried 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681826975436-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the eggs to a pot of boiled water and bring to the boil over a high heat
 
 Once boiling, cook for exactly 5 min, then fill a bowl of very cold water and add the cooked eggs to the bowl to cool down quickly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681826980334-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Slice the remaining onion
 
 Add the sliced onion to a large bowl with the rice vinegar and a pinch of  sugar, then set aside for later – these are your quick-pickled onions
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681826985545-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chips to a baking paper-lined baking tray with a drizzle of vegetable oi
 
 Add the vegan burger patties to a large bowl with the chopped red onion, grated garlic and curry powder and give everything a good mix up (use clean hands!) – this is your veggie mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681826992910-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Form half the veggie mixture into a giant meatball, then flatten the meatball in
 
 Repeat this with the remaining veggie mixture until you have 2 <span class="text-danger">[4]</span> veggie mixture circles
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681826999223-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add a peeled egg to the centre of each veggie mixture circle
 
 Wrap the veggie mixture around each peeled egg and seal it tightly on all sides so that there aren't any gaps – these are your veggie-coated eggs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681827008981-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add a generous drizzle of vegetable oil to a separate plate
 
 Turn the veggie-coated eggs in the vegetable oil, shake off the excess, then add them to the nigella breadcrumbs and press firmly until they're evenly coated all over – these are your breaded eggs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681827014101-x200.jpg)
 
 ### Step 7
 

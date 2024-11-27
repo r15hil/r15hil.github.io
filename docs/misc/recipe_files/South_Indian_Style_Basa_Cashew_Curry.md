@@ -31,7 +31,6 @@ Homemade cashew paste is typical of South Indian curries, and adds delicate swee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1630420494907-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), over a 
 
 Once hot, add the sliced onion and chopped garlic with a pinch of salt and cook for 8 min or until softened and browning slightly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630420498785-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Chop your coriander finely, including the stalks
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630420502958-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once the onion has softened, add your garam masala, tomato paste, most of the ch
 
 Add the chopped tomato and cook for a further 30 secs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630420506833-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Dissolve your vegetable stock mix in 300ml <span class="text-purple">[400ml]</sp
 
 Add the vegetable stock to the pan and cook, covered, for 5 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630420510625-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630420515220-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Gently add the chopped basa to the pan, reduce the heat to medium and cook, cove
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630420520310-x200.jpg)
 
 ### Step 7
 

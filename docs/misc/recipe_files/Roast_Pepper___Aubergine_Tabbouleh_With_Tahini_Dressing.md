@@ -28,7 +28,6 @@ Our simple plant-based version of tabbouleh is topped with roasted peppers, tend
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/411__step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Boil a kettle
 
 Trim the green stalk[s] off your aubergine[s]<span class="text-danger"> </span>then slice in half lengthways
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/411__step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Slice each aubergine half lengthways into 4 wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thick strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/411__step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Drizzle with olive oil and season generously with salt and pepper
 
 Put the tray in the oven for 20-30 min or until the aubergine is tender and the pepper has softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/411__step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/411__step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Season lightly with salt and pepper and set aside until serving – this is your tahini dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/411__step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Chop your parsley and mint finely, discarding the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/411__step-7-x200.jpg)
 
 ### Step 7
 

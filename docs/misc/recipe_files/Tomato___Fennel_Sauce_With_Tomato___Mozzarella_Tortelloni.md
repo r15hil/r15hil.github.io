@@ -23,7 +23,6 @@ Serve up a real winner with this moreish Mediterranean dinner. You’ll pan-fry 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1664292562649-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682354417977-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop your cherry tomatoes in half
 
 Once hot, add the halved cherry tomatoes and fennel seeds (don't like aniseed? Just add a little!) to the pan with a pinch of salt and cook for 2-3 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682354425311-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Chop your parsley finely, including the stalks
 
 Zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682354429423-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682354434037-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the tomatoes have softened, add the sliced garlic and chilli flakes (can't 
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682354441645-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once fragrant, add your soft cheese, lemon zest (not sure about citrus? Try usin
 
 Chop the lemon[s] into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682354448211-x200.jpg)
 
 ### Step 7
 

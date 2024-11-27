@@ -23,7 +23,6 @@ Time for a cheeky Chinese fakeaway. You’ll fry soy-marinated tofu bites with s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646132712839-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Drain the tofu and pat it dry with kitchen paper
 
 Crumble the tofu into a large bowl with your hands with half the soy sauce  (you'll use the rest later!) and set aside to marinate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646132715594-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the marinated tofu to the pan and cook for 6-7 min or until golden and crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646132720449-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Trim, then slice the spring onions lengthways into batons
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646132724297-x200.jpg)
 
 ### Step 4
 
@@ -63,19 +59,16 @@ Bring to the boil over a high heat and cook for 4-5 min until they're tender wit
 
 Once done, drain the noodles and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646132731110-x200.jpg)
 
 ### Step 5
 
 Once the tofu is golden, add the chopped garlic, chopped ginger, spring onion batons and sliced pepper to the pan and cook for 4-5 min or until beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646132734652-x200.jpg)
 
 ### Step 6
 
 Add the toasted sesame oil to the drained noodles and give everything a good mix up – these are your sesame noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646132743159-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ For this summery twist on a classic roast, you'll infuse chicken breasts with le
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655808107414-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Top, tail, peel and slice the carrot<span class="text-danger">[s]</span> into lo
 
 Slice 4 <span class="text-danger">[8]</span> thin rounds from the lemon<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655808117122-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the carrot batons to an oven-proof dish with a knob of butter and a pinch of
 
 Dissolve the chicken stock mix in 150ml<span class="text-danger"> [250ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655808120999-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Lay the seasoned chicken breasts over the carrots and thyme, then top with the l
 
 Add the garlic cloves (no need to peel!) and the chicken stock to the dish, then put the dish in the oven for 30-35 minutes or until the carrots are tender and the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655808129423-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot with a knob of butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655808132574-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Pat them dry with kitchen paper
 
 Combine the Dijon mustard, the juice of the remaining lemon<span class="text-danger">[s]</span> and 1/2 tsp <span class="text-danger">[1 tsp]</span> sugar in a small bowl
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655808136972-x200.jpg)
 
 ### Step 6
 

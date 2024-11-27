@@ -28,7 +28,6 @@ You only get one pot, so make it work. You’ll simmer onion and sweet potato wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1688641272449-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688641283525-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Bash your lemongrass with a rolling pin
 
 Chop your creamed coconut roughly (if required!), then peel and chop your sweet potato[es] into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688641288757-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of v
 
 Once hot, add the onion wedges and bashed lemongrass to the pot with the chopped sweet potato and cook for 2-3 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1688641295666-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Once browned, add your ginger & garlic paste and curry powder to the dish with t
 
 Give everything a good mix up, cover with the lid and put the dish in the oven for 25 min or until the sauce has thickened and the sweet potato is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688641355082-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688641358566-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Cover with a lid and return the dish to the oven for 5-7 min further or until th
 
 Once tender, gently separate the noodles with a fork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688641361505-x200.jpg)
 
 ### Step 7
 

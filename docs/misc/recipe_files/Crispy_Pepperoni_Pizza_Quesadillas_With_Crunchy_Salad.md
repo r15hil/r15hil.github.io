@@ -27,7 +27,6 @@ Combine classic Italian flavours with a Tex-Mex treasure: Quesadilla. You'll fil
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1600415868969-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600415872129-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Combine the chopped garlic with your tomato paste, dried oregano and 3 tbsp <spa
 
 Add a generous pinch of salt, pepper and sugar and stir it all together – this is your pizza sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1600415884311-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Grate your cheddar cheese
 
 Roughly chop your basil, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600415889711-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Top the sauce evenly with the grated cheddar, chopped basil, pepperoni slices a
 
 Fold each tortilla over so you're left with 3<span class="text-danger"> </span>half moon-shaped sandwiches per person– these are your loaded quesadillas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1600415898959-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Place a second baking tray on top to weigh them down slightly
 
 Put the stacked baking trays in the oven and cook for 12 min, or until the quesadillas are slightly browned and the cheese has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600415910705-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Chop your tomato[es] finely
 
 Combine your mayo with your white wine vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>olive oil and a pinch of salt – this is your creamy dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600415925308-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ This Asian-inspired salad combines pan-fried lean British beef strips with fresh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1413.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the black rice to a pot of plenty of boiled water and cook over a high heat 
 
 Once cooked, drain and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1413.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Meanwhile, slice the cucumber into discs
 
 Slice each individual cucumber disc&nbsp;into matchsticks&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1413.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1413.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Combine the soy sauce&nbsp;and&nbsp;the juice of the lime<span class="text-dange
 
 Add the chopped garlic and half the chopped chilli (Can't handle the heat? Go easy!) &ndash; this is your chilli-lime dressing&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1413.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Set the mint and coriander leaves aside for garnish
 
 Chop the coriander stems finely, and add them to the chilli-lime dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1413.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once your pan is very hot, add the beef strips with the remaining chopped chilli
 
 Once done, transfer them to a plate
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1413.-step-7-x200.jpg)
 
 ### Step 7
 

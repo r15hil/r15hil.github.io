@@ -24,7 +24,6 @@ This warm tandoori cod sandwich makes a big impact with minimal effort! Spiced t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1228.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Give the salt and cucumber a good mix up and leave to drain over the sink for 10
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1228.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Sprinkle with the nigella seeds
 
 Place the tray in the oven for 25 min or until they're cooked through and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1228.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,7 +69,6 @@ Once dissolved, add the apple cider vinegar &ndash;&nbsp;this is your pickling l
 
 Peel and slice the shallot<span class="text-danger">[s] </span>finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1228.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,13 +77,11 @@ Rinse the sliced cucumber under cold water&nbsp;to remove any excess salt and gi
 
 Add the sliced cucumber and shallot to the pickling liquor&nbsp;and set aside until serving&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1228.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine the natural yoghurt, mint sauce and a pinch of salt in a bowl &ndash; this is your cheat's raita&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1228.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Cut the brioche rolls in half
 
 Once hot, add the brioche, cut-side down, and cook for 2-3 min or until toasted and charred, then set them aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1228.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Fancy a biryani, fast? Try this tasty, mushroom-packed twist. You'll whip it up 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1619448141660-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1485-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min o
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1485.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Meanwhile, boil half a kettle
 
 Once hot, tear your flat white mushrooms into large pieces, add them to the pan and cook for 2 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1485.-step-4-x200.jpg)
 
 ### Step 4
 
 While the flat white mushrooms are cooking, combine your vegetable stock mix, tomato paste, mango chutney and sultanas with 200ml <span class="text-purple">[260ml]</span><span class="text-danger"> [350ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1485.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Crumble your chestnut mushrooms into the pan and add your curry powder and ro
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1485.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the cooked rice to the pan with the tomato stock and increase the heat to hi
 
 Give everything a good mix up and cook for 2 min or until the mushrooms have softened – this is your mushroom biryani
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1485.-step-7-x200.jpg)
 
 ### Step 7
 

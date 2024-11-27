@@ -26,7 +26,6 @@ Enjoy a touch of luxury with our luscious crab linguine. You'll fold the pasta i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/767-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cover them with boiled water until they’re fully submerged and set them aside 
 
 Tip: The boiling water loosens the skins for easy peeling in step 4!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/767-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ While the pasta cooks, drain the tomato[es], then refill the bowl with ice-cold 
 
 Once the pasta is cooked, drain and reserve a cup of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/767-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 50ml<span class="text-danger"> <span class="text-purple">[75ml]</span> [100ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/767-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Chop the tomato[es] into quarters, scoop out and discard the seeds so that you e
 
 Carefully and using a sharp knife, dice the tomato petals – this is your tomato concasse
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-pan-1686910251211-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Once hot, add the chopped garlic, chilli flakes (can’t handle the heat? Go easy!) and lemon zest and cook for 1 min until golden and aromatic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/767-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add your Chinese rice wine and cook for 1 min or until it’s evaporated
 
 Once evaporated, add the vegetable stock and cook for a further 2 min or until it’s reduced down to a sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646760122063-x200.jpg)
 
 ### Step 7
 

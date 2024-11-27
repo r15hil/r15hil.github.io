@@ -24,7 +24,6 @@ Chicken cacciatore ('hunter's chicken') is the Italian take on France's chicken 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/783.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add a large pinch of salt and pepper and mix well
 
 Put them in the oven for 20-25 min or until they're golden brown and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/783.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the chicken thigh fillets and season them lightly with salt and 
 
 Cook for 3 min or until starting to brown, turning occasionally for even colouring
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/783.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add the chopped onion<span class="text-danger">[s]</span>, carrot<span class="t
 
 Cook for 3 min or until the vegetables have softened slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/783.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Stir in the tomato paste and cook for 1 min further 
 
 Meanwhile, boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/783.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Tip: the sugar helps balance the acidity of the tomatoes
 
 Meanwhile, dissolve the <span class="text-highlight">Knorr</span> chicken stock cube<span class="text-danger">[s]</span> in 100ml <span class="text-danger">[200ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/783.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,7 +99,6 @@ Cook for 10 min or until the sauce resembles a pasta sauce-like consistency
 
 Tip: loosen with a splash of boiled water if the sauce becomes too dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/783.-step-7-x200.jpg)
 
 ### Step 7
 

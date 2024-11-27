@@ -23,7 +23,6 @@ This is salmon spaghetti at speed! You'll coat seared salmon, quick-cook spaghet
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1623144429009-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2177.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once the pan is hot, add your salmon fillet[s] with a generous pinch of salt and pepper and cook for 3-4 min on each side or until starting to colour
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2177.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Cook for 2-3 min or until the spaghetti and spinach are cooked with a slight bit
 
 Once done, drain the cooked spaghetti & spinach reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2177.-step-4-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2177.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the salmon is starting to colour, add your roasted garlic paste and the j
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2177.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the salmon is cooked through, peel off and discard the skin and then flake 
 
 Chop your chives roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2177.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Looking for something fresh and light? This simple, summery pea shoot and leek s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1548.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel and slice the brown onion<span class="text-danger">[s]</span>
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1548._step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a medium-sized pot over a low heat with a drizzle of olive oil
 
 Once hot, add the sliced leek&nbsp;and onion with a pinch of salt and cook for 8-10 min or until softened&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1548.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Meanwhile, tear the mini baguette rolls into small bite-sized pieces&nbsp;
 
 Add the baguette pieces to a baking tray and put the tray in the oven for 15-20 min or until golden and crisp &ndash; these are your croutons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1548.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Dissolve the vegetable stock cube<span class="text-danger">[s]</span><span class
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1548.-step-5.emergency-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once the leek&nbsp;and onion has softened, add the chopped garlic&nbsp;and cook 
 
 Once fragrant, add the vegetable stock and cook for 5 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1548.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Meanwhile, strip the mint leaves from their stems and&nbsp;chop them roughly
 
 Crumble the feta&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1548.-step-7-x200.jpg)
 
 ### Step 7
 

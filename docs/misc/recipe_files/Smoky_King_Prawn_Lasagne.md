@@ -26,7 +26,6 @@ Get a taste of this seafood twist on a hearty Italian classic. You'll layer shee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636448784991-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely chop brown onion<span class="text-danger">[s]</span>
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and dice into bite-size pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636448802034-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the chopped onion and diced red pepper with a pinch of salt and cook for 4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636448823166-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve the vegetable stock mix, chopped tomatoes, balsamic vinegar in 150ml <span class="text-danger">[300ml]</span> boiled water and give everything a good mix up – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636448839587-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add the tomato stock to the pan and cook for 3-4 min or until the sauce is begin
 
 Meanwhile, grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636448853307-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Gradually whisk in 250ml <span class="text-danger">[500ml]</span> milk, a littl
 
 Remove from the heat, add half the grated cheddar and a pinch of salt and pepper – this is your béchamel
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636448865465-x200.jpg)
 
 ### Step 6
 
 Stir the king prawns (discard any excess water) into the pan with the smoky tomato sauce – this is your smoky king prawn ragù
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636448885467-x200.jpg)
 
 ### Step 7
 

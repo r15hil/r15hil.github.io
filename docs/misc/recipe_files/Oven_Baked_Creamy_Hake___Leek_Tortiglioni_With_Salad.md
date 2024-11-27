@@ -25,7 +25,6 @@ To prep this dinner, you only need 5 minutes. After baking hake, leek and pasta 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1713879389103-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1713879395046-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil a kettle
 
 Wash your leek[s] thoroughly to remove any grit from between the leaves then top, tail and slice into rounds
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1713879400946-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the sliced leek and a pinch of salt to the dish
 
 Meanwhile, chop your hake fillet[s] into large, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1713879406689-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once hot, add your vegetable stock mix to the dish with your tortiglioni, Chines
 
 Nestle the pasta into the water as much as you can, then give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1713879413479-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Tip: Give everything a stir halfway through for evenly cooked pasta!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1713879446320-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once the pasta is cooked, remove the dish from the oven and stir through your cr
 
 Add the juice of half your lemon[s] (you'll use the rest later!) and a generous pinch of salt and give everything a good mix up – this is your oven-baked creamy hake & leek tortiglioni
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1713879479117-x200.jpg)
 
 ### Step 7
 

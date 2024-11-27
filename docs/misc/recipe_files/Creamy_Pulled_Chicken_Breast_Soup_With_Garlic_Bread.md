@@ -25,7 +25,6 @@ Warm your cockles with a creamy chicken soup you'll want to make again and again
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684152454709-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chicken breast portions to a baking tray with a drizzle of olive oil and
 
 Put the tray in the oven for 15-18 min or until cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684152457729-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the sliced onion and diced carrot with a pinch of salt and cook fo
 
 Remove 2 tbsp <span class="text-danger">[4 tbsp]</span> butter from the fridge to warm up for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696855960349-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the vegetable stock mix in 600ml<span class="text-danger"> [1.2L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684152464103-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once the onion and carrot are beginning to soften, add the diced potato, sliced 
 
 Cook for 1 min, then add the vegetable stock and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684152467150-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Meanwhile, strip the thyme leaves from their stems and add them to the pan, disc
 
 Tip: Hold the top of the thyme sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684152470112-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Combine the chopped parsley and remaining chopped garlic with the warmed butter,
 
 Once the soup is almost done, put the tray in the oven for 5-7 min or until crusty – this is your garlic bread
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684152472501-x200.jpg)
 
 ### Step 7
 

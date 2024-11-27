@@ -27,7 +27,6 @@ One tray is all it takes for this sizzling tofu and pepper tray bake. You’ll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1654602770472-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Drain your tofu and pat it dry with kitchen paper
 
 Chop the tofu lengthways into 2 slices per person and score a criss-cross pattern by drawing a sharp knife through each slice (be careful not to cut all the way through!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1654602787226-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1654602806180-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Combine your tomato paste and soy sauce with your ground smoked paprika, dried o
 
 Add half your red wine vinegar (save the rest for later!), 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and a pinch of salt and pepper with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>olive oil and stir it all together – this is your marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1654602994041-x200.jpg)
 
 ### Step 4
 
 Add the sliced tofu to the marinade and give it a good mix, then transfer to a baking tray (or two!), keeping the remaining marinade in the bowl (you'll use this later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1654603003629-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Transfer the marinated vegetables to the baking tray[s] with the tofu and reserv
 
 Put the tray[s] in the oven for 20-25 min or until everything is cooked through and starting to char
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1654603015145-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Meanwhile, wipe the reserved bowl clean with kitchen paper
 
 Combine your mayo, remaining garlic (not a fan of raw garlic? Just add a little!), remaining red wine vinegar, 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> cold water and a pinch of salt in the reserved bowl – this is your aioli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1654603018209-x200.jpg)
 
 ### Step 7
 

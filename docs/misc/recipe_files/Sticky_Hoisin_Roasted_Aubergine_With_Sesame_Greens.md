@@ -26,7 +26,6 @@ These sticky hoisin aubergine steaks are easy and packed with flavour. While you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679331137076-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679331139811-x200.jpg)
 
 ### Step 2
 
 While the rice is cooking, combine your soy sauce, honey and hoisin sauce with 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> vegetable oil in a bowl – this is your hoisin marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679331143025-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Trim the green stalks off your aubergine[s]
 
 Cut the aubergine[s] in half lengthways, then score the flesh in a criss-cross pattern, taking care not to cut through to the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679331146558-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Transfer the aubergine halves to a tin foil-lined baking tray (or two!) then dri
 
 Put the tray[s] in the oven for 25-30 min or until the aubergine is tender – this is your hoisin roasted aubergine
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679331149063-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Peel and finely chop (or grate) your garlic
 
 Rinse your blanched edamame beans under cold running water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679331151600-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once hot, add the pak choi leaves, chopped spring onion and a pinch of salt an
 
 Once softened, add the chopped garlic, edamame beans and your toasted sesame oil and cook for 1 min further – these are your sesame greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1628674748293-x200.jpg)
 
 ### Step 7
 

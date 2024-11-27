@@ -24,7 +24,6 @@ Fish sandwiches are found all over Scandinavia. For our version, you'll fill cia
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650378590384-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a generous pi
 
 Put the tray in the oven for 20-25 min or until the chips are golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650378605560-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Chop half <span class="text-danger">[all]</span> the capers finely
 
 Tip: Cooking for 2? Save the remaining capers for another recipe!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650378614699-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: Cooking for 2? Save the remaining wholegrain mustard for another recipe!
 
 Separate and wash the gem lettuce leaves, pat them dry with kitchen paper then set aside until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650378624759-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Crack the egg<span class="text-danger">[s]</span> into a shallow bowl and whisk
 
 Add the panko breadcrumbs to a separate large bowl with a  pinch of salt and mix it up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650378649575-x200.jpg)
 
 ### Step 5
 
 Coat the tilapia fillets in the flour, tap off any excess, then add to the beaten egg and finally press it into the panko breadcrumbs firmly to coat everything evenly – this is your breaded tilapia
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650378657377-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add the ciabatta halves, cut-side-down and cook for 3 min or until lig
 
 Once toasted, transfer the ciabatta to a plate and reserve the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650378668727-x200.jpg)
 
 ### Step 7
 

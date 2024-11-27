@@ -27,7 +27,6 @@ Sprout fans, these festive croquettes are made for you. You'll recreate these cr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1631106523196-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to medium-high and cook for 14-16 min or until for
 
 Once done, drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631106526687-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Tip: Don't have a food processor? Chop as finely as you can with a knife
 
 Chop the dried cranberries roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631106529752-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chopped Brussels sprouts, chopped cranberries and a generous pinch of sa
 
 Add half of the cornflour (you'll use the rest later!) and give everything a good mix up – this is your potato mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631106535304-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the croquettes to the baking tray<span class="text-danger">[s]</span> and co
 
 Put the tray<span class="text-danger">[s]</span> in the oven for an initial 17-20 min or until lightly golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631106540196-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Peel and grate the garlic
 
 Slice the apple<span class="text-danger">[s] </span>finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631106543407-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Drizzle most of the honey over the walnuts (save the rest for later!)
 
 Return the tray<span class="text-danger">[s]</span> to the oven and cook for a final 5-6 min – these are your  sprout & cranberry croquettes and honey roasted walnuts
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631106546819-x200.jpg)
 
 ### Step 7
 

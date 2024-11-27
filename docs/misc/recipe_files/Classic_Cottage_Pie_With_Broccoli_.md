@@ -23,7 +23,6 @@ With over 2 of your 5-a-day, this classic pie is comforting and deliciously sati
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1784.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chopped potatoes to a pot of boiled water with a generous pinch of salt,
 
 Once done, drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1784.-step-2.a-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Top, tail, peel and dice the carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1784.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Once hot, add the chopped onion,<span class="text-danger"> </span>carrot and g
 
 Meanwhile, dissolve the beef stock cube<span class="text-danger">[s]</span><span class="text-danger"> </span>in 200ml <span class="text-danger">[400ml] </span>boiled water (for a lower salt option, use half!) and add the tomato paste and Henderson's Relish <span class="text-highlight">– this is your tomato stock</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1784.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Once boiling, reduce the heat to medium and cook for 8-10 min or until the liqui
 
 Meanwhile, grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1784.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Return the drained potatoes to a low heat with a large knob of butter, a splash
 
 Mash until smooth – this is your creamy mashed potato
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1784.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,7 +101,6 @@ Sprinkle over the grated cheese
 
 Put the dish in the oven for 15-20 min or until golden brown and bubbling – this is your cottage pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1784.-step-7-x200.jpg)
 
 ### Step 7
 

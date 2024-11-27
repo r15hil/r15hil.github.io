@@ -25,7 +25,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1696938614402-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/STEP-2-1696938617676-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Trim the ends from your Brussels sprouts and cut half the sprouts in half (you'l
 
 Peel and cut your brown onion[s] into quarters, then separate the wedges so you end up with a pile of onion petals
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/STEP-3-1696938620933-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the onion petals and halved sprouts to the pan with a generous pin
 
 Cook for 2-3 min or until slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696938624151-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the onion and sprouts have softened slightly, reduce the heat to medium-hig
 
 Drain your king prawns, then add to the pan and cook for an initial 1-2 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696938627605-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ After an initial 1-2 min, add the sliced Brussels sprouts and cooked white long 
 
 Cook for a further 3-4 min or until the rice is hot and the prawns are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696938631297-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Meanwhile, combine your mayo, sriracha (can't handle the heat? Go easy!) and hal
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water and stir it all together – this is your sriracha mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696938635861-x200.jpg)
 
 ### Step 7
 

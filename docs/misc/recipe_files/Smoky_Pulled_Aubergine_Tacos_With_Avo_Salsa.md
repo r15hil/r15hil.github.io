@@ -28,7 +28,6 @@ Craving the taste of smoky tacos? Then whack these sweet, tender BBQ aubergines 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1607347784782-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Score the flesh in a criss-cross pattern, then add the aubergine halves to a bak
 
 Put the tray[s] in the oven for 20-25 min or until the flesh has softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607347790380-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once the aubergine has been cooking for 15 min, peel and finely slice your red o
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607347806043-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once the pan is hot, add most of the sliced onion (save the rest for garnish!) with a pinch of salt and cook for 4-5 min or until starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607347810907-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Chop your coriander finely, including the stalks
 
 Add the smashed avocado, chopped coriander and juice of half your lime[s] (you'll use the rest later!) to a bowl with a pinch of salt and gently mix – this is your avo salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607347866536-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Tip: Carefully hold the stalks (they will be hot!) to scrape the flesh out easil
 
 Discard the skins
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607347876741-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the onion has started to caramelise, add the chopped garlic and ground smok
 
 Once fragrant, add the pulled aubergine, agave, soy sauce, BBQ sauce and a generous grind of black pepper to the pan then cook for 2-3 min until everything's combined – this your smoky pulled aubergine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607347892351-x200.jpg)
 
 ### Step 7
 

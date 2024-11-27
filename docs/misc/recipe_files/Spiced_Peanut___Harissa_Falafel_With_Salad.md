@@ -27,7 +27,6 @@ To create these nourishing, plant-based falafel, you'll use peanut butter to bin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1521.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the drained chickpeas, panko breadcrumbs, harissa paste, peanut butter, grou
 
 Tip: if you don't have a processor, mash everything with a potato masher until smooth
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1521.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Divide the chickpea mixture into 10 <span class="text-danger">[20]</span> port
 
 Add the falafel balls to one side of an oiled baking tray<br />
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1521.-step-3-x200.jpg)
 
 ### Step 3
 
 Chop the sweet potatoes (skins on) into small bite-sized cubes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1521.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Put the tray in the oven for 20-25 min or until the sweet potatoes and falafel a
 
 Tip: gently turn the falafel and potato halfway through so they cook evenly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1521.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Peel and grate the garlic 
 
 Combine the soy sauce, grated garlic (Don't like raw garlic? Go easy!), the juice of 1/2 <span class="text-danger">[1]</span> lemon, agave nectar, a drizzle of olive oil and a pinch of salt and pepper – this is your lemon dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1521.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Trim and slice the spring onion<span class="text-danger">[s]</span> finely
 
 Halve the cherry tomatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1521.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Low carb veggie curries don't get much better than our tangy twist. Blitz up a c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1621861018074-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and chop your red onion[s]<span class="text-danger"> </span>into wedges
 
 Peel and roughly chop your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1621861029824-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the curry base with your ground turmeric, curry powder and a generous pinch of salt and cook for 2-3 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1621861038393-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add the chopped aubergine and halved green beans to the pan
 
 Mix everything together and cook for 1-2 min until the spices have coated the vegetables
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1621861053758-x200.jpg)
 
 ### Step 4
 
@@ -76,19 +72,16 @@ Add 350ml <span class="text-purple">[455ml]</span> <span class="text-danger">[59
 
 Give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1621861080086-x200.jpg)
 
 ### Step 5
 
 Drain and rinse your chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1621861090450-x200.jpg)
 
 ### Step 6
 
 Add the drained chickpeas to the pan then cook, covered, for 5 min or until the aubergine is cooked through – this is your coconutty tamarind aubergine & green bean curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660648115844-x200.jpg)
 
 ### Step 7
 

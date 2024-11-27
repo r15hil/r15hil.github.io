@@ -26,7 +26,6 @@ Saddle up your taste buds for a Texas-style plant-based twist, sprinkled with pe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651056558280-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the sliced cucumber to a small bowl with the cider vinegar and 1 tsp <span c
 
 Mix everything together and set aside – this is your quick-pickled cucumber
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1651056565825-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Drain the tofu and pat it dry with kitchen paper
 
 Slice the drained tofu lengthways into 4<span class="text-danger"> [8]</span> flat pieces, then score in a criss-cross pattern, taking care not to cut all the way through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1651056573136-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Meanwhile, chop the orange<span class="text-danger">[s] </span>in half
 
 Peel and grate the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651056579461-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Heat a small pot over a medium heat and add the juice of the orange<span class="
 
 Cook for 3-4 min or until the sauce has thickened to a syrup-like consistency, then remove it from the heat and set aside – this is your BBQ sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1651056586517-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ After an initial 7-8 min, remove the tofu from the oven and add a spoonful of th
 
 Return the tray to the oven for a further 10-12 min or until warmed through and sticky – this is your Texas-style dalmatian tofu
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651056593224-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Slice the ciabattas in half, then spread the garlic butter over the ciabatta hal
 
 Once the tofu is almost done, add the garlic ciabattas to a separate baking paper-lined baking tray and put the tray in the oven for 5-7 min or until crusty – this is your Texas-style toast
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1651056606500-x200.jpg)
 
 ### Step 7
 

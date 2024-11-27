@@ -28,7 +28,6 @@ A Mexican chilli should take hours, but this one's ready in moments. Ramp up the
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622805385728-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1605.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Boil half a kettle
 
 Drain and rinse your beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1605.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Trim, then chop your spring onion[s] roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1605.-step-4-x200.jpg)
 
 ### Step 4
 
 Once hot, add your roasted garlic paste, ground smoked paprika and ground cumin to the pan and cook for 30 secs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1605.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the drained beans, chopped tomatoes, chipotle paste (can't handle the heat? 
 
 Bring to the boil over a high heat and cook for 3 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1605.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Chop your coriander finely, including the stalks
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1605.-step-7-x200.jpg)
 
 ### Step 7
 

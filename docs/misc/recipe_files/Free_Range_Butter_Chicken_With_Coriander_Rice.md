@@ -30,7 +30,6 @@ Butter chicken or 'murgh makhani' is a curry house favourite. To make your own, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1700644812787-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1700644822737-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your free range chicken breast portion[s] into large, bite-sized pieces
 
 Combine the chopped chicken with your ground coriander, half of your<span class="text-danger"> </span>garam masala (save the rest for later!) and a generous pinch of salt in a large bowl – this is your coated chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1700644830065-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once hot, add the coated chicken and cook for 5-6 min, turning occasionally unti
 
 Once done, transfer the browned chicken to a plate (reserve the pan for later!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1700644837366-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Return the reserved pan to a medium heat with 1 tbsp <span class="text-purple">[
 
 Once the butter has melted, add the diced onion with a pinch of salt and cook for 5 min or until softened and starting to caramelise
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1700644844967-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once softened, add the chopped ginger and chopped garlic to the pan with your g
 
 Add your chicken stock mix with 250ml<span class="text-danger"> <span class="text-purple">[325ml]</span> [425ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1700644857816-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Meanwhile, chop most of your coriander finely, including the stalks (save a few 
 
 Fluff the basmati rice with a fork, stir through the chopped coriander and season with salt – this is your coriander rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1700644864487-x200.jpg)
 
 ### Step 7
 

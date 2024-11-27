@@ -28,7 +28,6 @@ For this easy twist on classic lasagne, you'll simmer free range chicken in toma
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1699374060421-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your free range chicken thighs to a baking tray with a drizzle of olive oil 
 
 Put the tray in the oven for 17-18 min or until cooked through (no pink meat!), then once cooked, remove the tray from the oven and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1699374064357-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1699374067027-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Dissolve your chicken stock mix, Henderson's Relish, dried oregano, dried basil 
 
 Grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1699374069633-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your chopped tomatoes and stock with a pinch of sugar and bring to the boil 
 
 Once boiling, reduce the heat to low and cook for 10-15 min or until thickened slightly – this is your sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1699374072461-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add 350ml<span class="text-purple"> [525ml]</span><span class="text-danger"> [7
 
 Remove from the heat and season generously with pepper – this is your béchamel sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1699374075356-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once cooked, transfer the free range chicken thighs to a clean board and shred i
 
 Add the pulled free range chicken to the sauce – this is your free range chicken mixture
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1699374081251-x200.jpg)
 
 ### Step 7
 

@@ -32,7 +32,6 @@ Tuck into a takeaway with this aromatic chicken curry, packed with carrot and ye
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708526037128-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Roughly chop your roasted peanuts and trim, then slice your spring onion[s], then add the chopped peanuts with half the sliced spring onion, half your toasted sesame oil (save the rest for later!) and your chilli flakes (can't handle the heat? Go easy!) to a bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>olive oil and a pinch of salt – this is your crunchy chilli oil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708526040652-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into small bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708526045181-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and carrot discs with a pinch of salt and cook for 4-5 min or until the onion has softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708526051193-x200.jpg)
 
 ### Step 4
 
@@ -68,19 +64,16 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708526056951-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add your diced chicken breast and cook for a further 4-5 min or until beginning to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708526061072-x200.jpg)
 
 ### Step 6
 
 Once browned, add your curry powder, ground turmeric and cornflour and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708526065565-x200.jpg)
 
 ### Step 7
 

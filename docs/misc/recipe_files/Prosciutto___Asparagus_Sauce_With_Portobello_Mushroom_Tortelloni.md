@@ -20,7 +20,6 @@ Bright, buttery and bursting with the flavours of springtime in Italia. You'll t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1665503824596-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1665503829927-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add your sliced prosciutto to a plate and put in the microwave for 4-5 min, then
 
 Tip: Check your sliced prosciutto every 30 secs to prevent them from burning, as microwave temperatures vary!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1665503834538-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Trim the woody ends off your asparagus and discard, then chop into thirds
 
 Once hot, add the chopped asparagus to the pan with a pinch of salt and cook for 2-3 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1665503838982-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Meanwhile, peel and slice (don't chop!) your garlic
 
 Zest your lemon[s]<span class="text-danger"> </span>(try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter), then roll with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1665503842895-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1665503849016-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Wash your salad, then pat dry with kitchen paper
 
 Cut the zested lemon into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1665503853364-x200.jpg)
 
 ### Step 7
 

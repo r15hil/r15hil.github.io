@@ -23,7 +23,6 @@ Love flavour and hate washing up? This lighter one-pan risotto is for you. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1660041105909-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once hot, add the bacon lardons and cook for 6-7 min or until golden and crispy
 
 Transfer the crispy bacon to a plate and reserve the pan with any remaining oil for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1660041109285-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Peel and finely chop (or grate) the garlic
 
 Slice the chestnut mushrooms roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1660041112131-x200.jpg)
 
 ### Step 3
 
@@ -53,19 +50,16 @@ Return the reserved pan to a medium heat
 
 Once hot, add the chopped onion, chopped garlic and sliced mushrooms with a generous grind of black pepper and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660041114198-x200.jpg)
 
 ### Step 4
 
 While the vegetables are cooking, dissolve the vegetable stock mix in 700ml <span class="text-danger">[1.4L] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1660041117545-x200.jpg)
 
 ### Step 5
 
 Once the vegetables have softened, add the arborio rice and Chinese rice wine and cook for 1 min or until the Chinese rice wine has evaporated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1660041120197-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ While the risotto is cooking, grate the lighter cheese
 
 Chop the parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1660041122336-x200.jpg)
 
 ### Step 7
 

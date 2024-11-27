@@ -23,7 +23,6 @@ This creamy gnocchi is easy peasy. You’ll blitz peas, pine nuts and mint with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1680165982465-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680165986170-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add your gnocchi with a pinch of salt and cook for an initial 5-6 min 
 
 Tip: Don’t stir too often as this will prevent the gnocchi from crisping!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680165989647-x200.jpg)
 
 ### Step 3
 
@@ -57,25 +54,21 @@ Add half your blanched peas and half your pine nuts (you'll use the rest later!)
 
 Blitz until smooth – this is your creamy pea & mint sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680165993121-x200.jpg)
 
 ### Step 4
 
 Cut your lemon[s] in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680166063657-x200.jpg)
 
 ### Step 5
 
 Once the gnocchi is beginning to crisp, add your roasted garlic paste to the pan with a pinch of salt and cook for 1 min further or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680166068176-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add the creamy pea & mint sauce to the pan with your vegetable stock mix and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680166079358-x200.jpg)
 
 ### Step 7
 

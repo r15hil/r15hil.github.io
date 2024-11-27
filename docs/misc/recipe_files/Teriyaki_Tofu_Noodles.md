@@ -22,7 +22,6 @@ Teriyaki is a salty-sweet Japanese sauce made with fresh ginger, sesame, lime, s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/335-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Zest and juice the lime<span class="text-danger">(s)</span>
 
 Combine the ginger, zest and lime juice in a bowl
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/335-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the soy sauce, sesame oil, 2 tbsp <span class="text-danger">(4 tbsp)</span>&
 
 Mix well- this is your teryaki sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/335-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cut&nbsp;in half and cut each half into 9 cubes
 
 Trim the beans and slice them finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/335-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Shake the bag so that the sesame seeds stick to the tofu
 
 Tip: If you don't have a sandwich bag, just add them to a bowl and toss with your hands
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/335-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Cook&nbsp;for 7-9 min over a medium-high heat
 
 Once cooked, drain and rinse under a little cold water (this prevents the noodles sticking together)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/335-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once hot, add the tofu and cook over a medium-high heat for 8-10 min, turning oc
 
 Once golden, transfer the tofu to kitchen paper and season generously with salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/335-step-7-x200.jpg)
 
 ### Step 7
 

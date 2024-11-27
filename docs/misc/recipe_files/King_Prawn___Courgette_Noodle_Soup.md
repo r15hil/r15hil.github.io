@@ -29,7 +29,6 @@ You'll have this noodle soup on the table in minutes. While the egg noodles soak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1618325372303-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, the wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1761.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,13 +51,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Top, tail and cut your courgette[s] in half, then slice finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1761.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add your red Thai curry paste, ginger paste, ground turmeric and chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 30 secs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1761.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Chop your creamed coconut roughly (if required!)
 
 Add the chopped creamed coconut to the pan with 450ml <span class="text-purple">[600ml]</span> <span class="text-danger">[750ml]</span> boiled water, give everything a good mix up and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1761.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Meanwhile, add your fine egg noodles to a large bowl, cover them with boiled 
 
 Set aside to soak for 4 min, or until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1761.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Cook for 4-5 min or until the courgette is tender with a bite and the prawns are
 
 Note: Please make sure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1761.-step-7-x200.jpg)
 
 ### Step 7
 

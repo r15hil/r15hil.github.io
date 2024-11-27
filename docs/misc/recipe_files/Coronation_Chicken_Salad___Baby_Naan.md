@@ -27,7 +27,6 @@ A nation's favourite has come home to roost! We've reinvented this regal dish by
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1071.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with a 
 
 Once hot, add your chicken breast portions and cook for 3 min on each side until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1071.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once golden, add a knob of butter, your curry powder and a pinch of salt to the 
 
 Reduce the heat to medium-low, add a few splashes of water and your sultanas and cook, covered, for 10-15 min or until the chicken is cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1071.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Trim, then slice your spring onion[s] finely
 
 Roll your lime[s] with your hand on a hard surface (to release more juice!) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1071.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Combine the chopped garlic (don't like raw garlic? Go easy!), mustard seeds and 
 
 Juice the lime into the bowl and season with salt and pepper - this is your lime & mustard seed dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1071.-step-5-x200.jpg)
 
 ### Step 5
 
 Pop your mini coriander naans in the oven for 3-4 min or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1071.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the chicken is cooked, remove the pan from the heat and shred the chicken a
 
 Once pulled, add your Greek-style yoghurt and mango chutney to the pan and give everything a good mix up - this is your Coronation chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1071.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ This Korean-style winner will bowl you over with its spicy, garlicky deliciousne
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1712074140580-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the drained rice with 200ml<span class="text-purple"> [300ml]</span> <span c
 
 Once boiling, reduce the heat to low until very gently bubbling and cook, covered, for 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1712074144330-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Boil half a kettle
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips, then peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1712074148074-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) with a small drizzle of vege
 
 Once hot, add your pork mince (remove the paper if required) and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1712074152504-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, dissolve most of your gochujang paste (can’t handle the heat? Go ea
 
 Add your soy sauce, mirin, chicken stock mix and half your rice vinegar (you'll use the rest later!) and stir it all together – this is your gochujang stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1712074156481-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once starting to soften, add 1 tsp <span class="text-purple">[1 1/2 tsp] </span>
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1712074161657-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once fragrant, add the gochujang stock to the pan
 
 Give everything a good mix up and cook for a further 6-8 min or until the sauce has thickened and the pork is cooked through (no pink meat!) – this is your gochujang pork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1712074165788-x200.jpg)
 
 ### Step 7
 

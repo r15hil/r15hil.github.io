@@ -21,7 +21,6 @@ This simple and sophisticated spaghetti is sure to impress. You'll make a silky 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2199.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This simple and sophisticated spaghetti is sure to impress. You'll make a silky 
 
 <span class="text-highlight">Roughly chop the stalks</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2199.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ After 4-5 min add the <span class="text-highlight">chopped asparagus</span> an
 
 Once cooked, drain and reserve a cup of the starchy cooking water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2199.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once cooked, drain and reserve a cup of the starchy cooking water
 
 <span class="text-highlight">Separate the white crab meat from the brown crab meat with a spoon (you’ll use the white meat at the end!)</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2199.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Chop the lemon<span class="text-danger">[s]</span> in half 
 
 Chop the parsley finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2199.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Add the <span class="text-highlight">Chinese rice w</span>ine and give <span cla
 
 Add the brown crab meat with a generous pinch of salt and<span class="text-highlight"> mix to combine</span> – this is your crab sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2199.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Add the drained spaghetti to the crab sauce with <span class="text-highlight">1
 
 <span class="text-highlight">Tip: Add a splash more starchy pasta water if your sauce is looking a little dry!</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2199.-step-7-x200.jpg)
 
 ### Step 7
 

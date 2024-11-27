@@ -23,7 +23,6 @@ Blue cheese dressing is an American classic. Salty, tangy and creamy at once - i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1037.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with a 
 
 Once hot, add the chicken breast<span class="text-danger">[s]</span>&nbsp;and cook for 3 min on each side until golden, then add&nbsp;a splash of water and cook, covered, over a&nbsp;medium heat for 10-15 min or until the chicken is cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1037.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the pecans&nbsp;to the sugar syrup and mix until coated&nbsp;
 
 Once coated, add the pecans to one side of a baking tray&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1037.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Add the&nbsp;ciabatta to the other side of the baking tray, then drizzle it with
 
 Put the tray in the oven and cook for 10-15 min &ndash; these are your&nbsp;candied pecans and oregano croutons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1037.-step-4-x200.jpg)
 
 ### Step 4
 
 Peel and finely chop (or grate) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1037.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the chopped garlic (don't like raw garlic? Go easy!), mayonnaise and 1 tbsp<
 
 Season generously with salt and pepper and give everything a good mix up -&nbsp;this is your&nbsp;blue cheese dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1037.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Chop the baby plum tomatoes in half
 
 Divide the little gem and chopped baby plum tomatoes between 2<span class="text-danger"> [4]</span> large shallow bowls or plates&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1037.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Made with roast veg and topped with pine nuts, this easy, wholesome chicken bake
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1369.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Slice the courgette<span class="text-danger">[s]</span> finely
 
 Cut the cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1369.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and finely chop (or grate!) the garlic
 
 Combine the Dijon mustard, chopped garlic and dried oregano with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil – this is your mustard marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1369.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Lay the chicken breast<span class="text-danger">[s]</span> in the middle of 2 
 
 Spoon the mustard marinade over the chicken evenly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1369.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Scrunch the edges of the tin foil together around the chicken to form a sealed 
 
 Put the baking tray in the oven for 25 min or until the chicken is cooked through <span class="text-highlight">(no pink meat!)</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1369.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Put the tray in the oven and cook for an initial 15 min
 
 Once the sweet potatoes have been in for 15 min, add the sliced courgette and cherry tomatoes and cook for 10-15 min further or until all the vegetables are soft
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1369.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Tip: watch like a hawk to make sure they don't burn!  
 
 Chop the basil leaves finely, discarding the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1369.-step-7-x200.jpg)
 
 ### Step 7
 

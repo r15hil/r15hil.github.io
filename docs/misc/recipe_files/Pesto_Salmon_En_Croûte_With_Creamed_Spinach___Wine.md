@@ -21,7 +21,6 @@ Salmon en croûte is a beloved dish that looks impressive and tastes delicious. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662397147138-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the cubed potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Put the tray in the oven and cook for an initial 20 min or until starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662397156291-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once hot, add the salmon fillets to the pan (skin-side down) with a pinch of sal
 
 Carefully peel the skin off the salmon and discard it, then cut the salmon fillets in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1662397161016-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Place 2 salmon pieces side-by-side onto each piece of pastry and spoon most of t
 
 Brush a little milk around the edges of the salmon-topped pastry square
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1662397178547-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the parcels to a baking tray and brush the tops of them with milk
 
 Sprinkle the parcels with the nigella seeds and put the tray in the oven for 20-25 minutes or until golden and cooked through – this is your pesto salmon en croûte
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662397175236-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the potatoes are starting to crisp, remove them from the oven and add the c
 
 Give it a good mix up then return to the oven for 4-5 min or until the potatoes are golden and crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662397183064-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once melted, add 20g <span class="text-danger">[40g] </span>flour and stir with 
 
 Add 150ml <span class="text-danger">[300ml]</span> milk gradually and whisk for 2-3 min or until a smooth, thick sauce remains – this is your white sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662397187584-x200.jpg)
 
 ### Step 7
 

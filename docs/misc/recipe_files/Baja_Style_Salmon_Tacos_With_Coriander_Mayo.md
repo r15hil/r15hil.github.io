@@ -30,7 +30,6 @@ For these tasty tacos, you'll coat tender salmon fillets in spices before crispi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616582753193-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1616582764550-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the sliced onion and pepper strips to a baking tray, drizzle with olive oil 
 
 Put the tray in the oven for 10-15 min or until the vegetables are soft and golden – this is your roasted onion & pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616582772711-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ While the vegetables are cooking, remove and discard the skin from your salmon f
 
 Add the salmon pieces to a bowl, drizzle with your soy sauce and give everything a good mix up until they're coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1616582790192-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add your cornflour, ground smoked paprika, cayenne pepper (can't handle the he
 
 Add the coated salmon pieces to the plate and gently turn them until they're fully coated in the spice mix – these are your spiced salmon pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1616582808143-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once hot, add the spiced salmon pieces and cook, turning frequently for 6-8 min 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-wraps-on-a-bakin-tray-1677584995712-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Put the tray in the oven for 2-3 min or until they're warmed through (alternati
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1616582822174-x200.jpg)
 
 ### Step 7
 

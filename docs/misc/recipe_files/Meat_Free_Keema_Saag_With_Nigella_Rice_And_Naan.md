@@ -26,7 +26,6 @@ To whip up a simple Gujarati-style curry that's rich, deeply delicious and won't
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627379712957-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a pot with a matching lid with a knob of butter over a medium heat
 
 Once melted, add the nigella seeds and basmati rice and cook for 1 min or until fragrant and lightly toasted
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627379719040-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ When the rice is boiling, reduce the heat to very low and cook, covered, for 10-
 
 Remove the rice from the heat and keep covered until serving – this is your nigella rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627379723058-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely chop (or grate) the garlic
 
 Cut the tomato<span class="text-danger">[es]</span> into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627379727814-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Meanwhile, dissolve the veg stock mix, tomato paste and 1 tsp <span class="text-
 
 Reboil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627379733544-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Rinse the wilted spinach under the cold tap until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627379750103-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the meat-free mince, garam masala, chilli flakes (can't handle the heat? Go 
 
 Add the tomato wedges, chopped spinach and tomato stock and cook for 5-6 min or until the sauce has thickened to a curry-like consistency – this is your meat-free keema saag
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627379756311-x200.jpg)
 
 ### Step 7
 

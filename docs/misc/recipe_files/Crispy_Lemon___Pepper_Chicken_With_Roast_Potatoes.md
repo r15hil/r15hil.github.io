@@ -26,7 +26,6 @@ The secret behind this dish is all in the marinade. You'll coat chicken breast i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714657061744-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Peel and finely chop (or grate) your garlic
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714657066775-x200.jpg)
 
 ### Step 2
 
 Combine half your honey (you'll use the rest later!) and Dijon mustard in a bowl with your cracked black pepper, chopped garlic, the juice of half your lemon[s], 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>olive oil and a pinch of salt and pepper – this is your lemon & pepper marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714657071831-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Cover with cling film and bash with a rolling pin until you have an even thickne
 
 Add the butterflied chicken to the marinade, give everything a good mix up and set aside to marinate
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714657076272-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add the chopped potatoes to a baking tray (or two!) with your dried thyme, a dri
 
 Put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714657081629-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add your panko breadcrumbs to a plate
 
 Press the marinated chicken into the breadcrumbs firmly to evenly coat all over – this is your breaded chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714657086420-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once the potatoes have had 15 min, heat a large, wide-based pan (preferably non-
 
 Once hot, add the breaded chicken and cook for 5-6 min on each side or until golden and cooked through (no pink meat!) – this is your crispy lemon & pepper chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714657091986-x200.jpg)
 
 ### Step 7
 

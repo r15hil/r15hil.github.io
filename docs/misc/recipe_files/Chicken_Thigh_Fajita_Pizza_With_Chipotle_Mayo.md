@@ -27,7 +27,6 @@ Get set for the ultimate chicken pizza with pepper and green chilli sautéed in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686047499358-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon), then
 
 Peel and finely slice your shallot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686047502144-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Slice your green chilli[es] finely
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686047505627-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once hot, add the diced chicken thigh with your ground smoked paprika, ground cu
 
 Once done, add the chopped pepper and sliced shallot and cook for 5-6 min further or until the chicken is golden, crispy and cooked through (no pink meat!) – this is your spicy chicken & pepper mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686047509575-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, add your tomato paste to a bowl with the chopped garlic and a generou
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp] </span><span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your tomato sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686047513051-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Spread the tomato sauce evenly between the pizza base[s] with the back of a spoo
 
 Top with the spicy chicken & pepper mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686047516640-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Sprinkle the pizza[s] with the grated cheese then top with the sliced green chil
 
 Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your chicken thigh fajita pizza
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686047519305-x200.jpg)
 
 ### Step 7
 

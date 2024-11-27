@@ -19,7 +19,6 @@ Pack size (800g). Refer to package for cooking instructions.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Braised-Beef-_-Pork-Ragu-With-Fettuccine-_-Garlic-Ciabatta-Crumb-Packaging-14616-copy-1705400874961-x200.jpeg)
 
 ### Step 1
 
@@ -33,37 +32,31 @@ Check food is piping hot throughout before serving.
 
 Do not reheat.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Braised-Beef-_-Pork-Ragu-With-Fettuccine-_-Garlic-Ciabatta-Crumb-Packaging-14616-copy-1705400883927-x200.jpeg)
 
 ### Step 2
 
 -
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Braised-Beef-_-Pork-Ragu-With-Fettuccine-_-Garlic-Ciabatta-Crumb-Packaging-14616-copy-1705400886970-x200.jpeg)
 
 ### Step 3
 
 -
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Braised-Beef-_-Pork-Ragu-With-Fettuccine-_-Garlic-Ciabatta-Crumb-Packaging-14616-copy-1705400890595-x200.jpeg)
 
 ### Step 4
 
 -
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Braised-Beef-_-Pork-Ragu-With-Fettuccine-_-Garlic-Ciabatta-Crumb-Packaging-14616-copy-1705400894285-x200.jpeg)
 
 ### Step 5
 
 -
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Braised-Beef-_-Pork-Ragu-With-Fettuccine-_-Garlic-Ciabatta-Crumb-Packaging-14616-copy-1705400898579-x200.jpeg)
 
 ### Step 6
 
 -
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Braised-Beef-_-Pork-Ragu-With-Fettuccine-_-Garlic-Ciabatta-Crumb-Packaging-14616-copy-1705400901968-x200.jpeg)
 
 ### Step 7
 

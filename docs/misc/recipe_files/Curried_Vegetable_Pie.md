@@ -26,7 +26,6 @@ This easy twist on classic pie is a veg-packed delight. You’ll curry a medley 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674217234352-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Top, tail, peel and chop your carrot[s] into bite-sized pieces
 
 Chop your tomato[es] into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674217239424-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674217245266-x200.jpg)
 
 ### Step 3
 
 Whilst the onion is softening, dissolve your tomato paste and vegetable stock mix in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674217251750-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once the onion has softened, add your ginger & garlic paste to the pan with your
 
 Once fragrant, add the chopped potato and carrot with a pinch of salt and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674217255518-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once boiling, reduce the heat to medium and cook, covered, for 20-25 min or unti
 
 Whilst everything is cooking, line a baking tray (or two!) with non-stick baking paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674217260609-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the pastry rectangle[s] to the tray[s] and score a 1cm border around the edg
 
 Put the tray[s] in the oven for 15 min or until puffed up, golden and cooked through – these are your pie lids
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674217265623-x200.jpg)
 
 ### Step 7
 

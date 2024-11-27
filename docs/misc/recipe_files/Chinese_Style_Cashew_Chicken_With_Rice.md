@@ -28,7 +28,6 @@ Cook up the classic crispy-yet-sticky cashew chicken you know and love – fresh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-9-1732274535899-x200.jpg)
 
 ### Step 1
 
@@ -40,13 +39,11 @@ Top, tail and slice your carrot[s] in half lengthways then slice diagonally into
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into small, bite-sized pieces, then peel and finely chop (or grate) your ginger and garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-10-1732274542631-x200.jpg)
 
 ### Step 2
 
 Add your diced chicken thighs to a bowl with your cornflour and and give everything a good mix up until the chicken is fully coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-9-1732274549782-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick), with a generous drizzle of 
 
 Once hot, add the coated chicken thighs and your soy sauce to the pan and cook for 4-5 min on each side or until the chicken has started to brown and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-9-1732274557265-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-10-1732274563359-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once the chicken is lightly browned, add the sliced carrot[s], chopped pepper[s]
 
 Once the carrot and red pepper have softened, add the chopped ginger, garlic and your cashew nuts and cook for 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-10-1732274566456-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add your hoisin sauce and 150ml <span class="text-purple">[195ml]</span> <span 
 
 Tip: Add another splash of water if it's looking a little thick!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-10-1732274575477-x200.jpg)
 
 ### Step 7
 

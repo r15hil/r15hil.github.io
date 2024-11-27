@@ -24,7 +24,6 @@ A smashing salad, stuffed with goodness and ready in 10. You'll top greens and b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622805174892-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1910.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add your salmon fillet[s] (skin-side down) then season with a pinch 
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1910.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Meanwhile, drain and rinse your green lentils
 
 Trim, then roughly chop your spring onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1910.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Once hot, trim then add your green beans and cook for 1-2 min
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1910.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the drained lentils and spinach and cook for 2-3 min or until warmed through and wilted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1910.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Meanwhile, cut your lemon[s] in half
 
 Combine your wholegrain mustard, the juice of half your lemon[s], 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water in a small bowl with a pinch of salt and pepper – this is your mustard dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1910.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ To make these spicy Mexican-inspired burritos, you'll stuff warm tortillas with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1623667031496-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1623667041304-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the meat-free mince with a pinch of salt and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1623667051551-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Combine the juice of 1/2 <span class="text-danger">[1]</span> lime with the natu
 
 Season with a pinch of salt and pepper – this is your lime yoghurt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623667057780-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Once the meat-free mince is browned, reduce the heat to medium-high and add the�
 
 Add the honey and cook for 2-3 min or until the mince becomes crispy and sticky – this is your sticky chilli meat-free mince
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1676967380645-x200.jpg)
 
 ### Step 5
 
 Add the tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1623667071589-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Wash the lettuce, then pat dry with kitchen paper and shred it finely
 
 Grate the cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1623667076423-x200.jpg)
 
 ### Step 7
 

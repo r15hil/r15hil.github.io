@@ -30,7 +30,6 @@ You'll start this easy winner on the hob, cooking aubergine, butternut squash, s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1651581866214-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1651581892416-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Trim the green stalk off your aubergine[s] and chop into large chunks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1651581897481-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Chop your creamed coconut roughly (if required!)
 
 Roll your lime[s]<span class="text-danger"> </span>with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1651581920696-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add your ginger & garlic paste to the pot with your vegetable stock mix, peanut 
 
 Give everything a good mix up and bring to the boil over a high heat – this is your curry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1651581933046-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ Put the dish in the oven for 25 min or until all the water is absorbed and the r
 
 Once the curry is boiling, cover with a lid and put the dish in the oven for 25 min or until the butternut squash is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1651581944222-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1651581956111-x200.jpg)
 
 ### Step 7
 

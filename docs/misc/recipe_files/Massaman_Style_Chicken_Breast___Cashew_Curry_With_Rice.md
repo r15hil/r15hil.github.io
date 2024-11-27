@@ -29,7 +29,6 @@ Dive head-first into a rich, creamy massaman-inspired curry. For our version, yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706874110199-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Crush your cashew nuts in their bag with a rolling pin, then once hot, add the
 
 Once toasted, transfer them to a plate and set aside for later, reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706874115100-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Trim, then chop your green beans in half
 
 Crush your cardamom pod[s] open by squashing with the side of a knife
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706874118786-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Return the pan to a high heat with a drizzle of vegetable oil
 
 Once hot, add your diced chicken breast and sliced onion with a pinch of salt and pepper and cook for an initial 4-5 min or until the chicken is starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706874122756-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Whilst the chicken is browning, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut, fish sauce and a pinch of sugar in 225ml<span class="text-purple"> [290ml]</span> <span class="text-danger">[380ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706874126805-x200.jpg)
 
 ### Step 5
 
 Once starting to brown, add your ground coriander, crushed cardamom pod[s] and red Thai curry paste to the pan and cook for 1-2 min further or until the chicken is coated in the spices
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706874130837-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706874135059-x200.jpg)
 
 ### Step 7
 

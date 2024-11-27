@@ -30,7 +30,6 @@ Get your pan sizzling for these succulent, Chinese-style beef meatballs. You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-17-1732631854437-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel (scrape the skin off with a teaspoon) and grate (or finely chop) your ginge
 
 Trim, then finely slice your spring onions
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/941__step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Divide the mixture equally and shape into meatballs (3 per person!)
 
 Add the beef meatballs to a baking tray and put the tray in the oven for 15 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/941__step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/941__step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cut the remaining chilli in half lengthways, deseed (scrape the seeds out with 
 
 Top, tail and peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-18-1732631865312-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add the remaining grated ginger and stir to combine – this is your spiced hoi
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-17-1732631874827-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once hot, add the spinach and cook for 1 min or until beginning to wilt
 
 Once wilted, remove the pan from the heat and add your toasted sesame oil, soy sauce, carrot ribbons and remaining sliced spring onion to the pan – this is your sesame veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/941__step-7-x200.jpg)
 
 ### Step 7
 

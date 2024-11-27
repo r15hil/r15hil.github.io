@@ -21,7 +21,6 @@ For this wholesome, Omega 3 packed salad, you'll combine delicate mackerel with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1470.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,13 +29,11 @@ Add the quinoa to a pot with a matching lid with 250ml <span class="text-danger"
 
 Once boiling, reduce the heat to low and cook, covered, for 10 min&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1470.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, chop the green beans in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1470.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Chop the parsley finely, including the stalks
 
 Zest the lemon<span class="text-danger">[s]</span> and cut in half&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1470.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Grind to a paste, then add the juice of&nbsp;1/2&nbsp;<span class="text-danger">
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1470.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ After 10 min, add the&nbsp;green beans&nbsp;to the quinoa pot with 150ml <span c
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered, until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1470.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Tip: hold the fillets down flat with a spatula to crisp up the <span class="text
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1470.--step-7-x200.jpg)
 
 ### Step 7
 

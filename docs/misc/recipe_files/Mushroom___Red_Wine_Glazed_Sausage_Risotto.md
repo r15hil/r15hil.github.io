@@ -27,7 +27,6 @@ This creamy risotto is a meaty treat. You’ll rustle up a rich chestnut mushroo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678467904330-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and chopped mushrooms and cook for 4-5 min or until the onion is beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678467908297-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Dissolve your chicken stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678467914157-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Reduce the heat to medium and add your chicken stock a ladle at a time, stirring
 
 Tip: Add a splash of water if the risotto is looking a little dry!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678467919100-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Wash your salad, then pat dry with kitchen paper
 
 Combine half your cider vinegar (you'll use the rest later!) with a drizzle of<span class="text-danger"> </span>olive oil in a bowl with a pinch of pepper – this is your dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678467924063-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once golden, transfer the toasted hazelnuts to a plate, reserve the pan and carefully wipe with some kitchen paper (it will be hot!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678468263892-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once hot, add your sausage meat (remove the paper if required!), break it up int
 
 Once browned, add your red wine stock paste with a small splash of cold water and cook for a final 2-3 min or until the sausage is fully cooked and coated in the glaze (no pink meat!) – this is your red wine glazed sausage
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678468267886-x200.jpg)
 
 ### Step 7
 

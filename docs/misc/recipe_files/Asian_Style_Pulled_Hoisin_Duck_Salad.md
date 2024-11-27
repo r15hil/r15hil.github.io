@@ -28,7 +28,6 @@ This Asian-style salad combines mixed baby leaves with cucumber and spring onion
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-3-1657627791439-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the duck to a tin foil-lined baking tray (or two!)
 
 Season with a pinch of salt and pepper and put the tray[s] in the oven for 30 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1657627799375-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Peel and grate your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1657627815428-x200.jpg)
 
 ### Step 3
 
 Combine your rice vinegar, toasted sesame oil and grated garlic (not a fan of raw garlic? Go easy!) in a bowl with half your hoisin sauce (save the rest for later!) – this is your hoisin dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1657627822970-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Add the sliced ciabatta to a baking tray with a drizzle of vegetable oil, half y
 
 Season with a pinch of salt and put the tray in the oven for 5 min or until golden and crisp – these are your sesame croutons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1657627897030-x200.jpg)
 
 ### Step 5
 
 Once cooked, transfer the duck to a clean board and shred apart using two forks (watch out for any bones!) – this technique is known as 'pulling'
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1657627907767-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the pulled duck to a large bowl with the remaining hoisin sauce and remainin
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your pulled hoisin duck
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-3-1657627933553-x200.jpg)
 
 ### Step 7
 

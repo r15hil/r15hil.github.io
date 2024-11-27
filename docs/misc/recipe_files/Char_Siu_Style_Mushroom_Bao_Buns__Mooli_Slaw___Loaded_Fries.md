@@ -28,7 +28,6 @@ Transport your taste buds to China with these char siu pulled mushroom bao buns.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670922465689-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Add your meaty pulled mushrooms to an oven-proof dish with a drizzle of vegetable oil and put the dish in the oven for an initial 20 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670922472467-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670922480034-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, add your mooli slaw mix and rice vinegar to a large bowl with a pinch
 
 Give everything a good mix up and set aside – this is your quick-pickled mooli slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670922486459-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Combine the grated garlic, five-spice mix, hoisin sauce, agave and soy sauce in 
 
 Add 125ml <span class="text-purple">[175ml]</span> <span class="text-danger">[200ml]</span> cold water and a drizzle of vegetable oil and stir everything together – this is your char siu-style sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670922491670-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Combine your sriracha (can't handle the heat? Go easy!) and mayo in a small bowl
 
 Pick your coriander leaves from the stalks, discard the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670922501793-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ After an initial 20 min, remove the dish with the meaty pulled mushrooms from th
 
 Spoon the char siu-style sauce over the mushrooms and return them to the oven for 10-12 min further, basting them twice more until the sauce is thick and the mushrooms are nicely glazed – these are your char siu-style pulled mushrooms
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670922513866-x200.jpg)
 
 ### Step 7
 

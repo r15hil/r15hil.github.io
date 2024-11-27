@@ -22,7 +22,6 @@ This tangy salad is all about speed. You'll pack it with pepper, courgette, toma
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1611311262525-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Top, tail and slice the courgette<span class="text-danger">[s] </span>on a diago
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thick strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1611311271797-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the sliced courgette and pepper strips to a large baking tray with a drizzle
 
 Give everything a good mix up and put the tray under the grill for 8-10 min until softened and charred – these are your grilled vegetables
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1611311279106-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Peel and chop the red onion<span class="text-danger">[s]</span> into wedges
 
 Cut the halloumi into 6 <span class="text-danger">[12]</span> slices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1611311306681-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Combine the green tomato chutney with the juice of 1/2 <span class="text-danger"
 
 Cut the remaining lemon into wedges
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1611311314080-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Once hot, add the onion and tomato wedges
 
 Cook for 3-4 min or until starting to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1611311321568-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once the onion and tomato wedges are starting to soften, add the halloumi slices
 
 Cook for 1-2 min on each side or until golden
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1611311327156-x200.jpg)
 
 ### Step 7
 

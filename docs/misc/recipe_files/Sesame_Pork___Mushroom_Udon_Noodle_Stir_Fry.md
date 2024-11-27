@@ -28,7 +28,6 @@ Here’s a classic stir-fry when you need some fast flavour. You’ll infuse noo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1664882937805-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1664882946214-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add your pork mince (remove the paper if required!) with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1664882949651-x200.jpg)
 
 ### Step 3
 
 While the pork mince is cooking, dissolve your honey, mirin, rice vinegar, ginger & garlic paste and soy sauce in 100ml<span class="text-purple"> [150ml] </span><span class="text-danger">[200ml]</span> boiled water – this is your soy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1664882954513-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Once the pork mince is beginning to brown, crumble your chestnut mushrooms direc
 
 Cook for 2-3 min or until the mushrooms are starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1664882960156-x200.jpg)
 
 ### Step 5
 
 Meanwhile, trim, then slice your spring onion[s] finely, keeping the whites and greens separate
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1664882965806-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add the spring onion whites, udon noodles, soy stock and a grind of pepper to th
 
 Cook, covered, for 2-3 min, stirring occasionally until the noodles are soft and coated in the sauce and the pork mince is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1664882969051-x200.jpg)
 
 ### Step 7
 

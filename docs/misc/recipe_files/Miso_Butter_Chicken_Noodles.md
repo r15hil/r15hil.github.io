@@ -20,7 +20,6 @@ Savoury-sweet miso butter is the saucy secret to this umami-rich supper. You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1601375900553-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601375909395-x200.jpg)
 
 ### Step 2
 
@@ -38,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chicken thigh and cook for 5-7 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601375924351-x200.jpg)
 
 ### Step 3
 
@@ -46,7 +43,6 @@ Add the wholewheat noodles to a pot of boiling water with a pinch of salt over a
 
 Once done, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601375941250-x200.jpg)
 
 ### Step 4
 
@@ -56,19 +52,16 @@ Melt 2 tbsp <span class="text-danger">[4 tbsp] </span>butter in a small bowl in 
 
 Once melted, add the butter and chopped ginger to the miso mixture and whisk to combine – this is your miso butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601375978310-x200.jpg)
 
 ### Step 5
 
 Once the chicken is almost cooked, add the sliced red pepper and mangetout to the pan and cook for 3 min or until slightly softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601375992849-x200.jpg)
 
 ### Step 6
 
 Drizzle the toasted sesame oil over the drained noodles, give everything a good mix up and set aside – these are your sesame noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601375998255-x200.jpg)
 
 ### Step 7
 

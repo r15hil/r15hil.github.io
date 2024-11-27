@@ -25,7 +25,6 @@ This easy chicken linguine is light enough for summer without skimping on big fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1097.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once hot, add the chicken thigh fillets and cook for 3-4 min, turning once half 
 
 Add the sun-dried tomatoes to a bowl, cover them with 250ml <span class="text-danger">[400ml]</span> boiled water and leave them to soak
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1097.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) the garlic
 
 Cut the tomatoes&nbsp;into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1097.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add the chopped onion to the pan and cook for 3-4 min over a medium-low heat&nbs
 
 Add the chopped garlic and cook for 1 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1097.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Return the chicken thighs to the pan, cover with a lid and cook for 10-12 min or
 
 Re-boil a kettle&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1097.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup&nbsp;of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1097.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Chop the basil finely, including the stalks
 
 Combine the remaining balsamic vinegar, 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil, 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a pinch of salt and pepper in a small bowl - this is your balsamic dressing&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1097.-step-7-x200.jpg)
 
 ### Step 7
 

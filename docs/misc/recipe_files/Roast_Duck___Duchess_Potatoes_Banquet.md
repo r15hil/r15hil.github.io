@@ -28,7 +28,6 @@ One certainly wouldn’t want to miss this, this banquet is the talk of the ton.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691680602360-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the sliced potatoes and bay leaf[ves] to a pot with plenty of boiled water a
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until very tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691680615075-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the halved shallots to a baking paper-lined baking tray (or 2!) and top with
 
 Add the carrot batons to the other side, then put the tray[s] in the oven for an initial 15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691680659303-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Separate the egg yolk[s] from the white[s] by cracking your egg[s] over a small 
 
 Add the egg yolk[s] (save the whites for another recipe!) and chopped garlic to the mashed potatoes and give everything a good mix up until well combined – this is your potato mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691680680573-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Press the back of a spoon into the mix to make rows of ridges
 
 Put the dish in oven and cook for 15-20 min or until slightly crispy and golden – these are your duchess potatoes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691680699475-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once the duck legs have had an initial 15 min, remove the tray[s] from the oven 
 
 Return the tray[s]<span class="text-danger"> </span>to the oven and cook for 10 min further until the duck legs are golden and crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691680740191-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Return the pot to a medium heat with 150ml <span class="text-purple">[195ml]</sp
 
 Bring to the boil and cook for 3-4 min or until thickened – this is your red wine & duck jus
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691680730625-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This comforting vegetarian bake is packed with goodness from green lentils, aube
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1846.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Add the potato discs to a pot of boiling water with a pinch of salt, bring to th
 
 Once done, drain, set aside to steam dry and reserve the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1846.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Add the sliced aubergine and cook for 2-3 min on each side or until charred and beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1846.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Transfer the softened aubergine to a plate and return the pan to a medium heat 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1846.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -84,7 +80,6 @@ Dissolve the vegetable stock cube<span class="text-danger">[s]</span> in 150ml<s
 
 Drain and rinse the canned lentils
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1846.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -99,7 +94,6 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook until step 7
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1846.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -114,7 +108,6 @@ Gradually whisk 350ml<span class="text-danger"> [700ml]</span> milk into the rou
 
 Season generously with salt – this is your béchamel sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1846.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This chilli is a straight-up classic, only this time without the meat. You’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2507Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2507Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2507Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the pepper strips and chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2507Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Dissolve the vegetable stock mix and the tomato paste in 300ml <span class="
 
 Drain and rinse the black beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2507Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the onion and pepper have softened, increase the heat to medium-high an
 
 Cook for 3-4 min or until the meat-free mince is browned, breaking it up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2507Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Bring to the boil over a high heat and cook for 5-6 min further or until the sau
 
 Tip: If you like it more saucy add a splash more water!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2507Step-7-x200.jpg)
 
 ### Step 7
 

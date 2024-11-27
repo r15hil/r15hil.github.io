@@ -28,7 +28,6 @@ This Indonesian street food favourite is a scoop of rice surrounded by an array 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629109101047-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Boil a kettle
 
 Chop the creamed coconut roughly (if required!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629109105556-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once done, remove from the heat and leave covered until serving – this is your coconut rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629109110073-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Drain the tofu and pat it dry with kitchen paper then cut the tofu into strips
 
 Add the tofu strips to the coconut marinade and give everything a good mix up until the strips are coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629109115028-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Discard the tough stalks, then layer the remaining leaves over each other, roll 
 
 Reboil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629109119538-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Scrunch the edges of the foil around the greens to form 1 <span class="text-dang
 
 Put the tray in the oven for 12-15 min or until the greens are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629109123662-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Combine the sliced shallot, chopped tomato, coconut flakes, dried chilli flakes 
 
 Season with a small pinch of salt and mix everything together – this is your sambal
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629109127826-x200.jpg)
 
 ### Step 7
 

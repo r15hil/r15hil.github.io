@@ -26,7 +26,6 @@ To recreate crispy, German-style schnitzel at home, you'll pan-fry breaded chick
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729496299263-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a baking tray (or two!) with a generous drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729496302381-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your basil finely, including the stalks
 
 Set everything aside until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729496305657-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cover your chicken breast portions with cling film and bash with a rolling pin u
 
 Season the flattened chicken with a generous pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729496308894-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your panko breadcrumbs to another plate
 
 Coat the chicken in the flour, tap off any excess, then add it into the beaten egg and finally press it into the breadcrumbs firmly to evenly coat all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729496311844-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated chicken and cook for 5-6 min on each side or until golden, crisp and cooked through (no pink meat!) – this is your breaded chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729496315459-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once hot, add the chopped cherry tomatoes with a pinch of salt and cook for 3-4 
 
 Add the chopped garlic and cook for 30 secs, then add 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml]</span> water with a pinch of pepper and sugar and cook for 4-5 min further or until thickened – this is your tomato sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729496318752-x200.jpg)
 
 ### Step 7
 

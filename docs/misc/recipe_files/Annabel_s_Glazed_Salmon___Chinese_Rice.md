@@ -24,7 +24,6 @@ This is a recipe you’ll want to keep to hand! Not only is this delicious salmo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1131.step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the basmati rice, diced carrot and 350ml <span class="text-danger">[700ml]</
 
 Once boiling, reduce the heat to very low and cook, covered, for 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1131.step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Meanwhile, cut the salmon fillets into large, bite-sized cubes
 
 Combine the honey, tomato ketchup, white wine vinegar, chilli jam and half of the soy sauce in a large bowl &ndash; this is your marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1131.step-3-x200.jpg)
 
 ### Step 3
 
 Add the salmon cubes to the marinade and set aside&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1131.step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Meanwhile, peel and finely dice the shallots<span class="text-danger">[s]</span>
 
 Once the rice has been cooking for 10 min, add the garden peas and cook, covered, for a further 5 min or until everything's tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1131.step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a large knob
 
 Once hot, add the diced <span class="text-highlight">shallot</span><span class="text-highlight">&nbsp;</span>and cook for 5 min or until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1131.step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Put the tray in the oven for 5-7 min or until the salmon is cooked through
 
 Tip: your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1131.step-7-x200.jpg)
 
 ### Step 7
 

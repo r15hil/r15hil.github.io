@@ -23,7 +23,6 @@ Timers at the ready: these tasty tacos will be on the table in 10. Crispy pan-fr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1657641641296-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657641654805-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 Chop the coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657641713556-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Drain and rinse the black beans
 
 Roll the lime<span class="text-danger">[s] </span>with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657641722118-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Heat a pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the drained black beans with the chipotle paste (can’t handle the heat? Go easy!) and a splash of cold water and cook for 4-5 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657641733299-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once hot, add the basa fillets with a pinch of salt and cook for 3-4 min on each
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657641747257-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ While the fish is cooking, add the chopped tomatoes, sliced shallot and chopped 
 
 Combine the mayo with the chilli flakes (not a fan of spice? Just add a little!) and the juice of the remaining lime in a small bowl – this is your chilli lime mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657641774112-x200.jpg)
 
 ### Step 7
 

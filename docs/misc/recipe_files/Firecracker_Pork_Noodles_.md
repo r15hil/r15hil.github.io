@@ -23,7 +23,6 @@ These fiesty pork noodles are quick, easy and radiate heat from warm root ginger
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/515.step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan with a matching lid (preferably non-stick) with a d
 
 Once hot, add the onion with a big pinch of salt and cook for 8-10 min or until the onion has softened&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/515.step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Boil for 3 min or until starting to soften
 
 Meanwhile, trim the green beans and cut them in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/515.step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once cooked, drain and rinse the lot briefly under cold water (to prevent them f
 
 Trim the fat off the pork steaks&nbsp;and slice finely into strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/515.step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the pork strips to the onion pan, increase the heat to medium-high and cook 
 
 Once cooked, remove the pan from the heat and keep covered until later (this stops the pork overcooking)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/515.step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Trim then slice the spring onion<span class="text-danger">[s]</span>&nbsp;finely
 
 Peel and finely chop (or grate) the garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/515.step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Combine the soy sauce, ginger, garlic, sesame oil, chilli flakes (can't handle t
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/515.step-7-x200.jpg)
 
 ### Step 7
 

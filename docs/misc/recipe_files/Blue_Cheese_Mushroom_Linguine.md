@@ -23,7 +23,6 @@ Mingled into this linguine is melted blue cheese and caramelised mushrooms. Topp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/802.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Trim and slice the spring onion<span class="text-danger">[s]</span> finely
 
 Roughly break up the walnuts&nbsp;in a pestle and mortar or chop them roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/802.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,13 +54,11 @@ Once browned, stir in the lemon zest and season generously with salt - this is y
 
 Transfer it to a plate and keep the pan for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/802.-step-3-x200.jpg)
 
 ### Step 3
 
 Slice the mushrooms into thick slices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/802.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine,&nbsp;reserving 300ml <span class="text-danger">[600ml]</span> pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/802.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and cook for 1 min fu
 
 Add the shaoxing&nbsp;wine and cook 1 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/802.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Crumble the blue cheese into the pan and cook for 3-4 min or until the sauce has
 
 Cut and juice half of the lemon straight into the pan&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/802.-step-7-x200.jpg)
 
 ### Step 7
 

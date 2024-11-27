@@ -25,7 +25,6 @@ This succulent chicken with creamy sun-dried tomato sauce is inspired by rustic 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/893.-step-1new-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1612438552834-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Strip your rosemary leaves from their stems, discard the stems
 
 Crush your garlic cloves by pressing them down with the side of a knife (skins on!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599128733920-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Add the chicken breasts portion[s] to a baking tray (or two!) with the chopped p
 
 Season everything with a pinch of salt and pepper, drizzle with vegetable oil and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599128738376-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Put the tray[s] in the oven for 30 min or until the potatoes are golden and the 
 
 Meanwhile, boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/893.-step-7-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Bring to the boil over a high heat and cook for 4-5 min or until tender
 
 Once cooked, drain and return them to the pot and cover until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/893.-step-6new-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Roughly chop your sun-dried tomatoes
 
 Once hot, add the sliced spring onion, chopped sun-dried tomatoes and tomato paste with 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> boiled water and cook for 1 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1612438488318-x200.jpg)
 
 ### Step 7
 

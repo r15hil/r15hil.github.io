@@ -28,7 +28,6 @@ Za'atar is a Middle Eastern blend of dried herbs, sumac and sesame seeds. In thi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2305-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your white long grain rice to a pot with a lid with 225ml<span class="text-p
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2305-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the red onion wedges and courgette discs to a baking tray (or two!) with a d
 
 Put the tray[s] in the oven for an initial 10-15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2305-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Pat your chicken thighs dry with kitchen paper and season them generously on bot
 
 Once hot, add the seasoned chicken thighs, skin-side down, and cook for 10 min or until the skins have browned and crisped
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2305-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your toasted sesame seeds, dried thyme, ground cumin and sumac to a pestle a
 
 Grind to a paste then add 2 tbsp<span class="text-purple"> [3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and the lemon zest and give everything a good mix up – this is your za'atar paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2305-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Spread the za'atar paste over the crispy chicken and roasted courgette
 
 Return the tray[s] to the oven for a further 12-15 min or until the chicken is cooked through (no pink meat!) and the vegetables are tender – this is your za'atar chicken & roasted veg
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2305-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cut the remaining lemon into 1 wedge per person
 
 Combine your natural yoghurt with with a squeeze of lemon, your roasted garlic paste and a pinch of salt and pepper – this is your garlic yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2305-Step-7-x200.jpg)
 
 ### Step 7
 

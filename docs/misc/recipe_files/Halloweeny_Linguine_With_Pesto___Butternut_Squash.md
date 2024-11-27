@@ -25,7 +25,6 @@ Despite its (slightly) spooky appearance, this not-too-trick-y linguine will go 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1315.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped butternut squash to a baking tray with a drizzle of vegetable oi
 
 <span class="text-highlight">Put the tray in the oven for 15-20 min or until softened and golden</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1315.-step-2.2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, boil a kettle
 
 Peel (don't chop) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1315.-step-3.2-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Peel (don't chop) the garlic
 
 <span class="text-highlight">Drain and rip the mozzarella into bite-sized pieces </span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1315.-step-4.2-x200.jpg)
 
 ### Step 4
 
 <span class="text-highlight">Dissolve 1/2<span class="text-danger"> [1]</span> vegetable stock cube<span style="color:#e86754;"> </span></span>in 100ml <span class="text-danger">[200ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1315.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cook the linguine for 8-10 min or until it's cooked with a slight bite
 
 Once done, drain the linguine and return it to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1315.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once done, drain the linguine and return it to the pot
 
 <span class="text-highlight">Blitz for 1-2 min or until a smooth sauce remains – this is your spinach pesto </span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1315.-step-7-x200.jpg)
 
 ### Step 7
 

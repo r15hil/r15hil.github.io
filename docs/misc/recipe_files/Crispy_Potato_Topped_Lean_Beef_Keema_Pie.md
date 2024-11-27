@@ -30,7 +30,6 @@ This beef keema bake is our Indian-inspired twist on cottage pie. You'll top gen
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1610020015602-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the halved potatoes to a pot of plenty of boiled water with a pinch of salt 
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610020033455-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) over a high hea
 
 Once hot, add the lean beef mince and cook for 4-5 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610020043988-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Top, tail, peel and dice your carrot[s]
 
 Once the beef mince has browned, add the chopped onion and diced carrot to the pan with a generous pinch of salt and cook for a further 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1610020060258-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add your beef stock mix<span class="text-danger"> </span>to the pan with the cu
 
 Cook for 2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1610020101173-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Wash your spinach, then add to the pan and cook for a further 1-2 min, stirring 
 
 Add the blanched peas and cook for 1 min further or until the sauce has thickened – this is your lean beef keema
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610020124519-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ While the lean beef keema is thickening, return the drained potatoes to the pot 
 
 Gently mix the potatoes until they're evenly coated in the spices – these are your turmeric potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610020147125-x200.jpg)
 
 ### Step 7
 

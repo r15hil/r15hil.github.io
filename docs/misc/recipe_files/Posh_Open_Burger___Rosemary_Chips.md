@@ -28,7 +28,6 @@ This 'open' burger has a melty cheddar cheese centre and is served with homemade
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/946.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil, a generous pinch
 
 Put the tray in the oven for 25-30 min or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/946.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the chopped shallot to a bowl with the beef mince and a pinch of salt and pe
 
 Give everything a very good mix up until fully combined (clean hands is the best way!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/946.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add the cheese-stuffed patties to an oiled baking tray
 
 Put the tray in the oven for 15-20 min or until cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/946.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Once hot, add the chopped tomatoes with a pinch of salt and cook them for 2-3 mi
 
 Add the chopped garlic and tomato paste and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/946.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Cook for 4-5 min or until the tomatoes have broken down and the sauce is the con
 
 Once thickened, remove from the heat – this is your homemade ketchup
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/946.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Once the burgers have 3-4 min left, add the ciabatta to the tray and return the 
 
 Wash the baby leaf salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/946.-step-7-x200.jpg)
 
 ### Step 7
 

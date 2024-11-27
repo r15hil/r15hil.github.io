@@ -26,7 +26,6 @@ Feed your cravings with this fakeaway twist on sweet and sour chicken. You’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1697021902092-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Cut your potatoes (skins on) into fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1697021893893-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 20-25 min or until the fries are golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1697021910142-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add your honey and tomato ketchup with your rice vinegar, soy sauce, 1/2 tsp per
 
 Cook for 2-3 min or until the sauce has thickened – this is your sweet & sour dipping sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1697021914836-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Add the carrot & cabbage slaw mix to a large bowl with the black sesame seeds an
 
 Mix until fully combined – this is your sesame slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1697021919999-x200.jpg)
 
 ### Step 5
 
 Slice your free range chicken breast portion[s] into 3 strips per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1697021931159-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Add the chicken strips to a large bowl with the remaining cornflour, 2 tbsp <spa
 
 Give everything a good mix up – this is your coated chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1697021937689-x200.jpg)
 
 ### Step 7
 

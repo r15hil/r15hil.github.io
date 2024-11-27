@@ -29,7 +29,6 @@ For this Thai-style chicken curry, you'll stir up a silky sauce with creamy coco
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-12-1681049495699-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ging
 
 Chop your chicken breast strips into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-11-1681049499066-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the chopped chicken and onion wedges and cook for 4-5 min or until
 
 Meanwhile cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely, set some aside for garnish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-10-1681049503558-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Dissolve your chicken stock mix in 300ml <span class="text-purple">[450ml]</span
 
 Once the chicken has browned, add chopped ginger, chopped chilli (can't handle the heat? Go easy!) and your red Thai curry paste to the pan and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-8-1681049507621-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once fragrant, add the chicken stock, bay leaf[ves] and 1 tsp <span class="text
 
 Cook, covered, for 10-15 min or until the sauce has reduced and the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-7-1681049512028-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6--1681049516124-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Crush your roasted peanuts with a rolling pin
 
 Tip: If you don’t have a rolling pin, just chop them roughly!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-10-1681049519781-x200.jpg)
 
 ### Step 7
 

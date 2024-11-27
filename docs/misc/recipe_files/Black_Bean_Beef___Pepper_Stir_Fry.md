@@ -25,7 +25,6 @@ Beef up this umami-rich stir-fry with flavour-packed black bean sauce. You'll th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1625510762421-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1625510766067-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1625510769686-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1625510773271-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once the beef mince is beginning to brown, reduce the heat to medium-high, then 
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1625510777966-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Meanwhile, deseed your peppers (scrape the seeds and pith out with a teaspoon) a
 
 Once softened, add the chopped pepper to the pan and cook for 3-4 min further or until the pepper is softened and the beef mince is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1625510781986-x200.jpg)
 
 ### Step 6
 
 While the peppers are cooking, combine your black bean paste, soy sauce and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar with 150ml<span class="text-purple"> [200ml]<span class="text-danger"> </span>[250ml]</span> boiled water – this is your black bean sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625510785403-x200.jpg)
 
 ### Step 7
 

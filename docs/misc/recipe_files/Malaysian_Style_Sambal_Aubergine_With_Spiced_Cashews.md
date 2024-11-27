@@ -28,7 +28,6 @@ Experience the heat of Malaysia with this spiced-up sensation. You’ll slow roa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723203992386-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your aubergine[s] in half lengthways (including the stalk), then score the f
 
 Add the scored aubergine halves to a baking tray (or two!), cut-side down, and put in the oven for 25-30 min or until the flesh is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723203996803-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723204001970-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and finely dice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723204006415-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add the chopped pepper, tomato and shallot to the pan with half the di
 
 Trim, then finely slice your spring onion[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723204010125-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Meanwhile, zest half your lime[s] (try to grate lightly with a micro-plane or sh
 
 Roll the lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723204014394-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Blitz until smooth – this is your sambal sauce
 
 Return the sambal sauce to the reserved pan on a low heat to keep warm
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723204018635-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This one's stacked up to be winner! You'll layer paprika chicken with pepper and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1596545686492-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add half the ground smoked paprika (you'll use the rest later!) to a plate with 
 
 Add the flattened chicken to the plate and coat in the spices
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1596545813717-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Give everything a good mix up and put the tray in the oven for 25-30 min or unti
 
 Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1596545882869-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Drain the mozzarella, then pat and squeeze as much liquid out as you can with ki
 
 Tear the drained mozzarella into 4 <span class="text-danger">[8] </span>pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1596545867411-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Layer the paprika chicken followed by a pepper quarter (hollow of the pepper fac
 
 Repeat this again and insert a skewer down the centre so that everything stays in place – these are your smoky chicken stacks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1596545904356-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Trim, then chop the spring onion<span class="text-danger">[s]</span>
 
 Drain the sweetcorn
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1596545920842-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once hot, add the chopped garlic and spring onion and cook for 1-2 min or until 
 
 Add the drained sweetcorn, dried chilli flakes (can't handle the heat? Go easy!) and half the cider vinegar and cook for a further 1-2 min or until the vinegar has been absorbed
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1596545939322-x200.jpg)
 
 ### Step 7
 

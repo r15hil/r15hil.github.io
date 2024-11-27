@@ -28,7 +28,6 @@ Christmas has come early. Take this classic trimming up a notch with sticky srir
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667324163588-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Trim the ends off your Brussels sprouts, then chop in half lengthways
 
 Trim, then chop your spring onions into thirds
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1667324167384-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Put the tray in the oven and cook for 15-20 min or until the sprouts are tender
 
 Once tender, remove the tray from the oven and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667324171111-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Slice your red chilli[es] finely
 
 Tip: Not a fan of spice? Remove the seeds!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1667324175409-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tear the top corner of the pouch[es]<span class="text-danger"> </span>(just a li
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667324180357-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add half the chopped garlic (save the rest for later!) and cook for 1-
 
 Once fragrant, add your cooked white long grain rice and cook for 3-4 min or until warmed through – this is your garlic rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1667324184424-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, heat a separate, medium-sized pot over a medium-high heat and once ho
 
 Once thickened, add the roasted sprouts & spring onions to the pot and mix it all together – these are your Kung Pao Brussels sprouts
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1667324188843-x200.jpg)
 
 ### Step 7
 

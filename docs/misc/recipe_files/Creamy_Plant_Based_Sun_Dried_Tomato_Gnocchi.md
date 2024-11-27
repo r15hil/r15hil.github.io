@@ -24,7 +24,6 @@ This speedy supper is ready in the blink of an eye. You’ll pack your sauce wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1613745648063-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1613745655607-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add your gnocchi to the pan and cook for 8 min or until crisp and golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686214340972-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, peel and slice your shallot[s] finely
 
 Chop your Tenderstem broccoli tips away from the stalks, then finely chop the Tenderstem stalks (keep the tips and stalks separate!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686214380543-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once hot, add the sliced shallot and the chopped tenderstem stalks with a pinch 
 
 Once softened, add your roasted garlic paste, balsamic sun-dried tomato paste and Chinese rice wine to the pan and cook for a further 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686214387876-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once fragrant, add your vegetable stock mix and your creamy single soy to the pa
 
 Cook for 2-3 min further or until the sauce has thickened – this is your creamy sun-dried tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686214516972-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ After the initial 6 min, add your pine nuts to the gnocchi pan and cook for a fu
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686214510661-x200.jpg)
 
 ### Step 7
 

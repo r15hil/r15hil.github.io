@@ -25,7 +25,6 @@ Romesco sauce is a sweet and sour, thick, smoky red pepper salsa that originates
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1096__step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut the tomato<span class="text-danger">[es]</span> into wedges, then crush the 
 
 Add the&nbsp;pepper, tomato wedges and peeled garlic to a baking tray, drizzle with&nbsp;olive oil, then&nbsp;put in the oven for 20 min until softened&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1096__step-2-x200.jpg)
 
 ### Step 2
 
@@ -58,7 +56,6 @@ Once they're cooked, drain return them to the pot to steam dry&nbsp;
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1096__step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with of a drizzle
 
 Once hot, add the pork tenderloin and cook on all sides for 1-2 min or until lightly browned (this is known as searing)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1096__step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Put the tray in the oven for 10-15 min or until the pork is cooked through and t
 
 Once done,&nbsp;transfer the pork to a chopping board, cover with a clean tea towel to rest&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1096__step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,7 +86,6 @@ Tip: if you don't have a pestle and mortar, chop everything very finely or use a
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1096__step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Add the ground red pepper, tomato and garlic to a medium bowl with the ground al
 
 Add 50ml <span class="text-danger">[100ml]</span> olive oil, 1 tbsp <span class="text-danger">[2 tbsp]</span> sugar,&nbsp;a generous pinch of both salt and pepper and give everything a good mix up - this is your romesco sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1096__step-7-x200.jpg)
 
 ### Step 7
 

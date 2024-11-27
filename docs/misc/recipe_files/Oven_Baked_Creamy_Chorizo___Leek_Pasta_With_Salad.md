@@ -26,7 +26,6 @@ To prep this dinner, you only need 5 minutes. After baking chorizo, leek and pas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610731173760-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606304786848-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your diced chorizo to the dish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606304805889-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Wash your leek[s] thoroughly to remove any grit from between the leaves then top
 
 Add the sliced leek to the dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606304880887-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add your chicken stock mix to the dish with your tortiglioni, Chinese rice wine 
 
 Nestle the pasta into the water as much as you can, then stir everything together and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606304885677-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Tip: Give everything a stir halfway through for evenly cooked pasta!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606304894191-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the juice of half your lemon[s] and give everything a good mix up
 
 Taste for seasoning, adding more salt if needed – this is your oven baked creamy chorizo & leek pasta
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606304905303-x200.jpg)
 
 ### Step 7
 

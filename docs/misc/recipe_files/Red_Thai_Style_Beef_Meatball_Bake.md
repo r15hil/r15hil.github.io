@@ -29,7 +29,6 @@ Imagine the rich, fragrant flavours of Thai cuisine but in a super-simple tray b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684845449905-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel then chop your sweet potato[s] into bite-sized pieces
 
 Top, tail and slice your carrot[s] at an angle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684845453595-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Put the tray in the oven for an initial 20 min or until the potatoes have starte
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684845460020-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Cut half your red chilli[es] into rounds
 
 Cut the remaining chilli in half, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684845464386-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add your beef mince to a bowl with the chopped shallot, half the chopped garlic,
 
 Divide the beef mince into 3 per person<span class="text-danger"> </span>and shape them into meatballs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684845467863-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Trim, then chop your green beans in half
 
 Crush your cardamom pods open by squashing them with the side of a knife
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684845471153-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add the meatballs, halved green beans, cardamom pods and lime leaves to the tray
 
 Return the tray to the oven for 15 min further or until the meatballs are cooked through (no pink meat!) and the sauce is thick and rich – this is your red Thai-style beef meatball bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684845474492-x200.jpg)
 
 ### Step 7
 

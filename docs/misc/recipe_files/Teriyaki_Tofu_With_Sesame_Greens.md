@@ -23,7 +23,6 @@ For this easy cook's trick, you'll season your tofu in soy, maple syrup and chil
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629201326975-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629201007427-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Drain your tofu, then pat it dry with kitchen paper
 
 Cut the drained tofu into cubes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629201011742-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once the pan is very hot, add the tofu cubes and cook for 6-7 min, turning occas
 
 Trim, then slice your spring onion[s] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629201015333-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Set aside to soften
 
 In a small bowl combine your soy sauce, maple syrup and chilli flakes (can't handle the heat? Go easy!) – this is your teriyaki glaze
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629201027725-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Tear the top corner of the pouch[es] (just a little!) and put the pouch in the�
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629201022850-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the teriyaki glaze and half the sliced spring onion (save some for garnish!)
 
 Cook for 1-2 min further or until the sauce has coated the tofu nicely – this is your teriyaki tofu
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629201042571-x200.jpg)
 
 ### Step 7
 

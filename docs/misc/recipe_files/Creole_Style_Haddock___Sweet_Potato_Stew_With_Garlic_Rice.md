@@ -29,7 +29,6 @@ Take your taste buds to the bayou with this Creole-inspired stew. You’ll build
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1681314322884-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once melted, add 20g <span class="text-purple">[30g]</span><span class="text-dan
 
 Cook for a further 2-3 min, stirring frequently, until the roux has browned – this is your brown roux
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1681314227548-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Reduce the heat to medium-low and cook for 3-4 min, stirring occasionally, or un
 
 Boil a full kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1681314232190-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix, Henderson’s Relish, tomato paste and a generous pinch of salt in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[850ml] </span>boiled water – this is your Creole-style stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1681314236045-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Stir everything together and cook for 30 secs or until fragrant then add the Cre
 
 Give everything a good mix up and cook, covered, stirring occasionally, for 15-18 min or until the sweet potato is tender and the stew has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1681314241012-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Heat a separate pot with a matching lid over a medium heat and add a knob of but
 
 Once melted, add the remaining chopped garlic with a pinch of salt and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1681314245505-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your garlic rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1681314251263-x200.jpg)
 
 ### Step 7
 

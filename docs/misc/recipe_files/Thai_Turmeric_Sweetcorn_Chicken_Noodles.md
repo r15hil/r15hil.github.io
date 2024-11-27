@@ -26,7 +26,6 @@ A bright yellow, wholesome and warming chicken noodle dish with fragrant spices 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1079.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once hot, add the chicken breast<span class="text-danger">[s]</span>&nbsp;and co
 
 Once golden, reduce the heat to medium, add&nbsp;a splash of water and cook, covered, for 10-15 min or until the chicken is cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1079.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Set the green tops aside and cut the whites into bite-sized pieces&nbsp;
 
 Peel and finely slice (don't chop!) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1079.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the sliced garlic and Thai green curry paste and cook for 2 min
 
 Reduce the heat to medium-low, add the white pak choi&nbsp;with a generous pinch of salt&nbsp;and cook for 3 min or until the pak choi is tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1079.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 Meanwhile, re-boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1079.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,7 +90,6 @@ Quarter the lime<span class="text-danger">[s]</span>
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1079.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Add the coconut stock, chilli flakes&nbsp;(can't handle the heat? Go easy!) and&
 
 Add the sweetcorn&nbsp;(no need to drain) and the green pak choi&nbsp;and cook for 1-2 min or until the greens have wilted - this is your&nbsp;sunny broth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1079.-step-7-x200.jpg)
 
 ### Step 7
 

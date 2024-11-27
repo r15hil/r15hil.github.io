@@ -25,7 +25,6 @@ You’ll throw together fresh veggies with soft and chewy udon for a delicious a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2256-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2256-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Trim, then slice the spring onions into large, bite-sized pieces
 
 Tip: Bunch them together for speed!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2256-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,25 +55,21 @@ Heat a wide, large based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced mushrooms, red onion and red pepper with a pinch of salt and cook for 3-4 min or until starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2256-Step-4-x200.jpg)
 
 ### Step 4
 
 Once caramelised, add the chopped spring onion and cook for 2-3 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2256-Step-5-x200.jpg)
 
 ### Step 5
 
 Add the chopped ginger and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2256-Step-6-x200.jpg)
 
 ### Step 6
 
 Add the udon noodles and cook for 3-4 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2256-Step-7-x200.jpg)
 
 ### Step 7
 

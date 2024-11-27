@@ -22,7 +22,6 @@ Beetroot and goats' cheese are a perfect pair. You'll stud your goats' cheese wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2183.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Add the puy-style lentils to a pot with plenty of cold water, bring to the boil 
 
 Once done, drain and return them to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2183.-step-2-x200.jpg)
 
 ### Step 2
 
 Chop your beetroot into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2183.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Give everything a good mix up, then drizzle half of your honey (you'll use the 
 
 Put the tray[s] in the oven and cook for 20-25 min or until everything is tender and golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2183.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Chop your chives finely
 
 Mix the chopped walnuts and chives together on the chopping board
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2183.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Tip: Apply a good amount of pressure so that the mix sticks to the cheese
 
 Cover the coated goats' cheese with cling film and put it in the fridge until later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2183.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Combine the remaining honey, balsamic vinegar, 2 tbsp <span class="text-purple">
 
 Use the remaining time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2183.-step-7-x200.jpg)
 
 ### Step 7
 

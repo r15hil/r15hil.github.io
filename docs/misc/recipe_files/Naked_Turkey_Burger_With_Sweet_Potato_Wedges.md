@@ -22,7 +22,6 @@ Want a burger sans the bun? Then these turkey patties are a healthy winner. You'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2258Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the sweet potato wedges to a tray with a drizzle of vegetable oil and a pinc
 
 Put the tray in the oven for an initial 12-15 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2258Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Grate the remaining red onion
 
 Peel and grate (or finely chop) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654612881697-x200.jpg)
 
 ### Step 3
 
@@ -52,13 +49,11 @@ Add the turkey mince, panko breadcrumbs, grated onion, dried oregano and half t
 
 Mix thoroughly until fully combined (clean hands are the best way!) – this is your herby turkey mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654612885005-x200.jpg)
 
 ### Step 4
 
 Shape the herby turkey mixture into 2<span class="text-danger"> [4]</span> burger patties – these are your turkey burgers
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654612893559-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Tip: Cooking for 4? Use a separate tray!
 
 Put the tray<span class="text-danger">[s]</span> in the oven for a further 12-14 min or until everything is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654612904901-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Meanwhile, combine the mayo with the remaining grated garlic (don't like raw ga
 
 Add a pinch of salt and give it a good mix up – this is your aioli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1654612908436-x200.jpg)
 
 ### Step 7
 

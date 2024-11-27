@@ -30,7 +30,6 @@ Fire up your mid-week with this aromatic curry. You’ll simmer sweet potato in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696241131522-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Chop your sweet potato[es] (skin on) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696241133890-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-6 min or until beginning to soften and brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696241136874-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix, tomato paste and chopped creamed coconut in 250ml<span class="text-purple"> [325ml]</span> <span class="text-danger">[425ml]</span> boiled water – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696241139404-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once the onion has softened, add the chopped garlic and chopped ginger to the pa
 
 Cook for a further 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696241142044-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once fragrant, add the chopped sweet potato with the coconut stock and a pinch o
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-18 min or until the sweet potato is fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696241145154-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696241147801-x200.jpg)
 
 ### Step 7
 

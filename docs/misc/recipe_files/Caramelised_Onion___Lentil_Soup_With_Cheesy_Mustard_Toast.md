@@ -26,7 +26,6 @@ Soup up this French bistro classic with protein-packed beluga lentils. You’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660662023790-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Top, tail, peel and dice the carrot<span class="text-danger">[s]</span> finely
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660662099258-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the sliced onions, diced carrot and chopped garlic, 75ml <span cla
 
 Cook for 10 min or until the onions are very soft, stirring frequently
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660662117915-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Chop the parsley finely, including the stalks
 
 Grate the cheddar cheese finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660662130064-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Crumble the chestnut mushrooms roughly into the pan with your hands
 
 Cook for 10-15 min further or until caramelised
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660662151521-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the ciabatta slices to a baking tray with a drizzle of olive oil
 
 Put the tray in the oven for an initial 4 min or until slightly toasted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660662167914-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Cook for a further 3-4 min or until the lentils have warmed through
 
 Season with a good grind of black pepper and stir through the chopped parsley – this is your caramelised onion & lentil soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660662185120-x200.jpg)
 
 ### Step 7
 

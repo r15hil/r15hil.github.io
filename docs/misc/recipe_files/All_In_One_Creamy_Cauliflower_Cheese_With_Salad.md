@@ -25,7 +25,6 @@ For a hearty veg-packed dinner, try cauli steaks slathered in cheesy, mustardy g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1632224000920-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632224049682-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Slice the cauliflower[s] into 1<span class="text-danger"> </span>steak per perso
 
 Tip: Save any leftover florets for another recipe!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632224057668-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Chop your cherry tomatoes roughly
 
 Put the dish[es] in the oven for an initial 30 min or until golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632224085204-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Add your single creamy soy, vegetable stock mix, wholegrain mustard (not a musta
 
 Give everything a good mix up until well combined – this is your cheese sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632224157591-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632224164475-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Pour the cheese sauce all over
 
 Return the dish[es] to the oven for a further 12-15 min or until bubbling and thickened – this is your all-in-one creamy cauliflower cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632224191366-x200.jpg)
 
 ### Step 7
 

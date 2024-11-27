@@ -22,7 +22,6 @@ This festive pizza is as christmassy as it comes! Top yours with bacon, sprouts,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2423Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the tomato paste and dried oregano to a bowl with a generous pinch of sal
 
 Add 5 tbsp <span class="text-danger">[10 tbsp]</span> cold water and give everything a good mix up – this is your tomato sauce
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2423Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Trim the ends from the Brussels sprouts, then finely slice
 
 Chop the smoked bacon into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2423Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Drain and pat the mozzarella dry with kitchen paper (squeeze as much liquid 
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2423Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Divide the tomato sauce between the pizza bases and spread it evenly all ove
 
 Top with the torn mozzarella and dot the onion marmalade all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2423Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Top with the sliced Brussels sprouts and chopped bacon
 
 Season with a pinch of pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2423Step-6-x200.jpg)
 
 ### Step 6
 
 Put the tray in the oven for 13-15 min or until the cheese has melted and the bases are crisp – these are your Christmas bacon &amp; sprout pizzas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2423Step-7-x200.jpg)
 
 ### Step 7
 

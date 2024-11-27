@@ -26,7 +26,6 @@ This Spanish-inspired stew is a hearty, smoky blend of butternut squash, peppers
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-7-1730306808151-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-9-1730306817343-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Reboil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-8-1730306824006-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once hot, add the pepper strips and sliced onion with a large pinch of sugar and
 
 Cook for 5 min or until they've softened slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-8-1730306828160-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Meanwhile, dissolve your vegetable stock mix in 250ml<span class="text-purple"> 
 
 Drain and rinse your butter beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-9-1730306837902-x200.jpg)
 
 ### Step 5
 
 Once softened, add your ground smoked paprika and sliced garlic and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-9-1730306843044-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cook, covered, for 15 min or until the squash is fork-tender – this is your sp
 
 Finely chop your parsley, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-9-1730306851673-x200.jpg)
 
 ### Step 7
 

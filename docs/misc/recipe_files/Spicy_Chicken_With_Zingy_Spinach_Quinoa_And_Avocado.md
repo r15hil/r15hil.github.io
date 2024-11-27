@@ -31,7 +31,6 @@ For a nutrient-packed green dressing, you'll whizz spinach up with coriander, ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1580126069408-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Rinse your quinoa in a sieve under cold running water, then add it to a pot with
 
 Once boiling, reduce the heat to low and cook, covered, for 6-8 min or until all the water has absorbed and the quinoa is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580126073803-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go eas
 
 Add your chicken breast portion[s] to the paste and turn until well coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580126079050-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add the coated chicken and cook for 3 min on each side or until gold
 
 Once golden, add a couple of splashes of water to the pan and cover with a lid, cook for a further 10-12 min or until cooked through (no pink meat!) – this is your spicy chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580126082265-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Slice your red chilli[es] into rounds
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580126086796-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add the spinach, chopped garlic, half of the chilli rounds (can't handle the hea
 
 Add the juice of your lime[s] with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>water and a generous pinch of salt and give it a good mix up – this is your zingy spinach dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580126091334-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Cut your avocado[s] in half lengthways, around the stone
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely lengthways
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580126097652-x200.jpg)
 
 ### Step 7
 

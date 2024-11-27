@@ -26,7 +26,6 @@ Indian flavours give the classic egg, chips and beans a delicious twist. You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/480.step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the sweet potato wedges to a baking tray (or two!), skin-side down, drizzle 
 
 Put the tray[s] in the oven for 30 min or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/480.step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a pot with a drizzle of olive oil over a medium-low heat
 
 Once hot, add the chopped onion, garlic and a pinch of salt, and cook for 3 min or until the onion has softened, then add your curry powder and cook for 1 min further
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/480.step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, dissolve your vegetable stock mix in 100ml <span class="text-purple">
 
 Add your vegetable stock and chopped tomatoes to the softened onion with your Henderson's Relish and 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and bring to the boil over a high heat
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/480.step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,19 +64,16 @@ While the sauce thickens, drain and rinse your cannellini beans
 
 Add the cannellini beans to the sauce, reduce the heat to low and warm through until you're ready to serve – these are your Indian-style beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/480.step-5-x200.jpg)
 
 ### Step 5
 
 Chop your coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/480.step-6-x200.jpg)
 
 ### Step 6
 
 Check the sweet potato wedges are crispy (you don't want to move onto the egg until your wedges are done!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/480.step-7-x200.jpg)
 
 ### Step 7
 

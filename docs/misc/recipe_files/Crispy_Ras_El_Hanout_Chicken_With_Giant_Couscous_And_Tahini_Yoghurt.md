@@ -27,7 +27,6 @@ Let this aromatic chicken warm up your evening. You’ll bake ras el hanout-coat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715956988366-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Pat your chicken thighs dry with kitchen paper and season generously with salt a
 
 Heat a large, dry, wide-based pan (preferably non-stick with a matching lid) over medium-high heat, then once hot, add the seasoned chicken, skin-side down, and cook for 10 min or until the skins have browned and crisped
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715956991325-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Whilst the chicken is cooking, peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips, then peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715956994333-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once hot, add the sliced onion and pepper strips with a pinch of sugar and cook 
 
 Meanwhile, dissolve your chicken stock mix in 450ml <span class="text-purple">[680ml]</span> <span class="text-danger">[900ml] </span>boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715956997476-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Once fragrant, add your giant couscous and the chicken stock and bring to the bo
 
 Once boiling, reduce the heat to medium and cook, covered, stirring occasionally, for 12-14 min or until all the water has absorbed and the giant couscous is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715957001967-x200.jpg)
 
 ### Step 5
 
 While the couscous is cooking, put the tray with the chicken in the oven for 12-15 min or until cooked through (no pink meat!) – this is your crispy ras el hanout chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715957005097-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add your natural yoghurt with a pinch of salt, then stir it all together – thi
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715957009743-x200.jpg)
 
 ### Step 7
 

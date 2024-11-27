@@ -27,7 +27,6 @@ This coconut curry is so creamy, you’ll think you’re dreaming. Treat yoursel
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1665485399386-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665485415800-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Drain your tofu and pat it dry with kitchen paper, then cut the tofu into strips
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665485422498-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add the tofu strips and garam masala to the pan and cook for 5-6 min, 
 
 Meanwhile, heat a separate, large wide-based pan (preferably non-stick) over a medium-high heat with a drizzle of vegetable oil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665485426886-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once hot, add the chopped pepper and shallot wedges to the pan with your ginger 
 
 Dissolve your creamed coconut and gluten free soy sauce in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml] </span>boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665485431305-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once fragrant, add the drained chickpeas, coconut stock and peanut butter to the
 
 Once boiling, reduce the heat to medium and cook for 3 min or until the sauce has slightly thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665485436105-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Tear the top corner of the pouch[es]<span class="text-danger"> </span>(just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665485440393-x200.jpg)
 
 ### Step 7
 

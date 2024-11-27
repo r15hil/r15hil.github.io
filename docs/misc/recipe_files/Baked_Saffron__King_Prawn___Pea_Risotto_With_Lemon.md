@@ -24,7 +24,6 @@ This saffron, prawn and pea risotto is simple, with a touch of class. Just add y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612430281379-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607704807960-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607704812670-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Remove the skin and discard, then chop the garlic roughly
 
 Add the chopped garlic, your arborio rice and saffron to the dish and cook for 30 secs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607704847900-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Bring to the boil over a high heat
 
 Once boiling, cover with a lid and put the dish in the oven for an initial 20 min or until most of the water has absorbed and the rice is almost cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607704869973-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ After 20 min, remove the dish from the oven and add the drained king prawns, bla
 
 Stir it all up, cover with the lid and return the dish to the oven for a further 8-10 min or until the prawns are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607704887658-x200.jpg)
 
 ### Step 6
 
 Once done, add the juice of half<span class="text-danger"> </span>your<span class="text-danger"> </span>lemon, half of your grated Italian hard cheese (save some for garnish!) and a grind of black pepper then stir it all up – this is your oven-baked saffron, king prawn & pea risotto
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607704906362-x200.jpg)
 
 ### Step 7
 

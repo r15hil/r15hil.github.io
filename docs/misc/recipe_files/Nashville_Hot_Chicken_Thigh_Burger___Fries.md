@@ -24,7 +24,6 @@ Feeling hot, hot, hot. This fiery burger from the Deep South comes with crispy b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1687256438814-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add 80ml<span class="text-danger"> <span class="text-purple">[120ml] </span>[160
 
 Add your chicken thighs to the marinade and give everything a good mix up, then set aside for later (this will help to tenderise your chicken!) – this is your marinated chicken
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1687258328155-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1687258364048-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Slice half your cucumber finely into discs
 
 Cut the remaining cucumber into batons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687256448211-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the cucumber discs and cucumber batons to a bowl with the remaining cider vi
 
 Mix it all together and set aside until serving – this is your quick-pickled cucumber
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687256452210-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add the marinated chicken to the flour mix, then press firmly into the mixture, 
 
 Discard any remaining marinade
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687256457436-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the coated chicken and cook for 9 min on each side or until golden
 
 Reserve the pan and the remaining cooking oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687256460309-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This hake with creamy sun-dried tomato sauce is inspired by rustic Tuscan flavou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1724831861855-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1724831864753-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Crush your garlic cloves by pressing them down with the side of a knife (skins o
 
 Strip your rosemary leaves from their stems and discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1724831867930-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Put the tray[s] in the oven for an initial 15 min or until the potatoes are begi
 
 Meanwhile, boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1724831876014-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Return the tray to the oven for a further 12-15 min or until the fish is cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724831880058-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Bring to the boil over a high heat and cook for 4-5 min or until tender
 
 Once cooked, drain and return them to the pot and cover until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724831883065-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Roughly chop your sun-dried tomatoes
 
 Once hot, add the sliced spring onion, chopped sun-dried tomatoes and tomato paste with 150ml <span class="text-purple">[225ml] </span><span class="text-danger">[300ml]</span> boiled water and cook for 1 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724831885975-x200.jpg)
 
 ### Step 7
 

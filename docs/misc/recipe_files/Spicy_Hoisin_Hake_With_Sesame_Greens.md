@@ -27,7 +27,6 @@ Whip out your wok and serve up crispy fried hake with a sticky-sweet gochujang s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1658224168402-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1658224170197-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cut a large piece of tin foil (or two!) and lay the shredded kale and halved gre
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> cold water and scrunch the edges up to form a tightly sealed parcel[s], put the parcel[s] on a baking tray and put the tray in the oven for 10-15 min or until cooked
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1658224172016-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Sprinkle most of the cornflour (reserve 1 tsp <span class="text-purple">[1 1/2 t
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1658224175401-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the coated hake to the pan and cook for 3-4 min on each side or un
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1658224177889-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Finely slice half your red chilli[es] into rounds and set aside for garnish
 
 Cut the remaining chilli in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658224181166-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Return the pan to a medium heat and once hot, add the chopped garlic, ginger pas
 
 Add your hoisin sauce, remaining cornflour and remaining soy sauce with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[75ml]</span> water and cook for a further 2 min or until the sauce has thickened and becomes sticky – this is your spicy hoisin sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1658224184577-x200.jpg)
 
 ### Step 7
 

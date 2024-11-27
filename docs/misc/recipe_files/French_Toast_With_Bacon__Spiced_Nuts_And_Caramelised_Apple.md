@@ -23,7 +23,6 @@ Treat the family to an indulgent brunch-style dinner with golden, spiced brioche
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707824524681-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Add your smoked streaky bacon to one side of a baking paper-lined baking tray (or two!) and put the tray[s] in the oven for an initial 4 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707824532458-x200.jpg)
 
 ### Step 2
 
@@ -39,13 +37,11 @@ Whilst the bacon is cooking, crack your egg[s] into a large bowl and add 100ml <
 
 Whisk everything together until smooth – this is your French toast mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707824538568-x200.jpg)
 
 ### Step 3
 
 Slice your apple[s] finely (skin on), discarding the core
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707824546245-x200.jpg)
 
 ### Step 4
 
@@ -55,7 +51,6 @@ Drizzle the nuts with half your honey (you'll use the rest later!) and sprinkle 
 
 Tip: Watch the nuts like a hawk to make sure they don’t burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707824555761-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once melted, add the soaked brioche and cook for 3-4 min on each side or until g
 
 Tip: You may need to do this in batches!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707824563481-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Once melted, add the sliced apple with 1 1/2 tsp <span class="text-purple">[2 ts
 
 Tip: Watch these like a hawk to make sure they don't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707824570658-x200.jpg)
 
 ### Step 7
 

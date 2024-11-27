@@ -24,7 +24,6 @@ Beef up your koftas with some sizzling spice. You’ll load warm tortillas with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-5-1678455213356-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide and shape them into 6 koftas per person
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1678455224138-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Meanwhile, peel and chop 3/4 of your red onion[s] into wedges
 
 Slice the remaining onion finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1678455249770-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the onion wedges to the other side and drizzle with a little vegetable oil
 
 Put the tray in the oven for 15 min or until the koftas are cooked through (no pink meat!) and the onion is slightly charred – these are your spiced koftas and roasted onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1678455276394-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ While the koftas are cooking, wash your lettuce, then pat it dry with kitchen pa
 
 Chop your tomato[es] finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1678455284808-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Combine your cider vinegar in a large bowl with 1 tsp <span class="text-purple">
 
 Add the sliced onion, shredded lettuce and chopped tomato and give everything a good mix up – this is your dressed salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1678455299288-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Add your natural yoghurt and harissa paste (can’t handle the heat? Go easy!) t
 
 Stir once or twice to swirl the harissa through the yoghurt – this is your harissa-marbled yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1678455304699-x200.jpg)
 
 ### Step 7
 

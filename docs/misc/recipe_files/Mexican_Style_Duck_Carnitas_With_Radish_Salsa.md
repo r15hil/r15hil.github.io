@@ -28,7 +28,6 @@ Take taco night up a notch with these tender duck carnitas. You’ll braise duck
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-3-1689773647210-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop your tomato[es] into wedges
 
 Cut your orange[s] in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-3-1689773651336-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish (don't have one? St
 
 Once hot, add half the sliced onion (you'll use the rest later!), crushed garlic, tomato wedges and a generous pinch of salt and cook for 2-3 min or until the onion is beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1689773654461-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once the onion has begun to soften, add your ground smoked paprika, ground cumin
 
 Once fragrant, add your chicken stock mix, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water, the juice of half your orange[s] and a generous pinch of salt and give everything a good mix up – this is your carnitas sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1689773660446-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ After 30 min, remove the dish from the oven, and shred the duck meat off the bon
 
 Mix it all together – this is your duck carnitas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-3-1689773664250-x200.jpg)
 
 ### Step 5
 
 While the duck is cooking, add the remaining sliced onion to a bowl with your red wine vinegar and a pinch of salt and sugar and set aside to pickle – this is your quick-pickled red onion
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1689773669183-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Meanwhile, slice your radishes (as finely as you can)
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1689773672601-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Our secret ingredient, Marmite, packs this dish with delicious umami. You’ll c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1601539810654-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1601539826547-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ After 15 min, remove the pot from the heat and keep covered until serving
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601539849375-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the tofu cubes and cook for 5-6 min, turning occasionally until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728912849838-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Crush your roasted peanuts with a rolling pin
 
 Tip: If you don’t have a rolling pin, just chop them roughly!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601539888962-x200.jpg)
 
 ### Step 5
 
@@ -72,13 +67,11 @@ Wait for the pan to cool down a little, then add the Marmite teriyaki sauce
 
 Cook for 1-2 min, stirring occasionally, until a thick, glossy sauce coats the tofu cubes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601539898866-x200.jpg)
 
 ### Step 6
 
 Once the sauce is thick and glossy, add the crushed peanuts to the pan and gently mix until the tofu is coated in the nuts – this is your Marmite teriyaki tofu
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601539925288-x200.jpg)
 
 ### Step 7
 

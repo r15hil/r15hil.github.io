@@ -26,7 +26,6 @@ Hambagu, pronounced ham-ba-goo, is what the Japanese call their version of a ham
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1195.step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1195.step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Meanwhile, boil a kettle
 
 Peel and grate the brown&nbsp;onion<span class="text-danger">[s]&nbsp;</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1195.step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Crumble the beef stock cube<span class="text-danger">[s]</span> into the bowl an
 
 Once smooth, divide the mince into 2 <span class="text-danger">[4]</span> and shape into oval-shaped burgers &ndash; these are your hambagu&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1195.step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of&nbsp;veget
 
 Once hot, add the hambagu and cook for 6-7 min on each side until they're cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1195.step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,13 +78,11 @@ Add the baby&nbsp;leaf&nbsp;spinach&nbsp;to a colander and pour&nbsp;over&nbsp;t
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1195.step-6-x200.jpg)
 
 ### Step 6
 
 Add the wilted spinach, toasted&nbsp;sesame oil, toasted sesame seeds and a pinch of salt to a medium bowl and give everything a good mix up &ndash; this is your spinach gomaae
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1195.step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ The Portuguese marinade, peri peri, combines the zing of lemon and vinegar with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637082368726-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Cut your lemon[s] in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637082385346-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teasp
 
 Dissolve your vegetable stock mix, ground turmeric and half your tomato paste (you'll use the rest later!) in 225ml <span class="text-purple">[300ml]<span class="text-danger"> </span>[450ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637082389790-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion and diced pepper and cook for 3-4 min or until they've softened slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1637082395025-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your spicy rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637082399784-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, combine your white wine vinegar, chipotle paste, remaining chopped ch
 
 Add a drizzle of olive oil and season with a generous pinch of salt, then give everything a good mix up – this is your peri peri sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637082405568-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Heat a separate large, wide-based pan (preferably non-stick) over a medium-high 
 
 Once hot, drain and add your king prawns with the peri peri sauce and cook for 4-5 min or until the prawns are cooked through – these are your peri peri king prawns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637082415707-x200.jpg)
 
 ### Step 7
 

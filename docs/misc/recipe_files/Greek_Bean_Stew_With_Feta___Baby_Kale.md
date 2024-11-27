@@ -23,7 +23,6 @@ An easy, wholesome Greek bean stew that's ready in minutes. You'll pack it with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10mm-Step-1-rotated-1610122962194-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1566.-step-2a-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Boil half a kettle, then add the ciabatta rolls to a baking tray and put the tra
 
 Once done, remove the tray from the oven and cover with a tea towel to keep warm
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1566.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, drain and rinse the butter beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1566.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a 
 
 Chop the cherry tomatoes in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1566.-step-5-x200.jpg)
 
 ### Step 5
 
 Once hot, crumble the Knorr vegetable stock cube<span class="text-danger">[s]</span> into the pan, add the roasted garlic paste and cook for 30 secs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1566.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Wash, then add the baby kale, halved cherry tomatoes, drained butter beans, to
 
 Once boiling, reduce the heat to medium and cook, covered, for 3-4 min or until the baby kale has wilted and the sauce has thickened slightly – this is your Greek bean stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1566.-step-7-x200.jpg)
 
 ### Step 7
 

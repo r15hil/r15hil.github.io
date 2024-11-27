@@ -27,7 +27,6 @@ To whip up this Vietnamese-inspired dish, you'll serve up crispy tofu cubes on a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1865.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Combine your ground cumin and cornflour in a bowl, add a small pinch of salt a
 
 Add the tofu cubes to the bowl and mix until everything is evenly coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1865.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut the base off the pak choi and discard, then slice the rest finely
 
 Peel (scrape the skin off with a teaspoon) and grate your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1865.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add the coated tofu cubes and cook for 6-8 min, turning occasionally u
 
 Once the tofu is crisp, transfer it to kitchen paper and set aside (save the pan!) – this is your crispy tofu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1865.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, add your wholewheat noodles to a pot and cover them with boiled water
 
 Bring to the boil over a high heat and cook for 5 min until tender, then drain and return them to the pot until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1865.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the grated ginger and sliced pak choi and cook for 3-4 min or until the pak choi starts to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1865.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Season with a pinch of salt
 
 Cook for a further 1 min, or until the liquid is well mixed and starts to thicken slightly – this is your pak choi & peanut sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1865.-step-7-x200.jpg)
 
 ### Step 7
 

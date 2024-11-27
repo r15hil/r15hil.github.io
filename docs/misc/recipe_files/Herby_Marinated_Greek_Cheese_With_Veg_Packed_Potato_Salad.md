@@ -24,7 +24,6 @@ Spring into a new season with our vibrant salad, packed full of greens and toppe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649845171768-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a generous pinc
 
 Once boiling, cook for an initial 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649845176277-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Chop the dill roughly, including the stalks
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649845180908-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Season with a generous pinch of salt and pepper and give everything a good mix u
 
 Add the halved Greek cheese to the bowl, ensuring the Greek cheese is fully coated in the marinade, set aside until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649845185957-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Trim, then chop the green beans in half
 
 Add the blanched peas to a colander and rinse under cold water to refresh them
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649845189818-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once tender, drain and return to the pot and keep covered until serving
 
 Chop the hazelnuts roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649845193097-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Remove the herby marinated Greek cheese from the bowl and set aside, leaving the
 
 Add the white wine vinegar to the reserved marinade and mix to combine – this is your salad dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649845197312-x200.jpg)
 
 ### Step 7
 

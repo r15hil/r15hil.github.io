@@ -28,7 +28,6 @@ This one-pot wonder is a cheesy twist on a family favourite. You’ll rustle up 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683028135154-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely dice half your brown onion[s]<span class="text-danger"> </span>a
 
 Combine your lean beef mince and grated onion with half of the grated garlic (you’ll use the rest later!) and a generous pinch of salt and pepper and using clean hands, give everything a good mix up until fully combined
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683028138754-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Once hot, add the lean beef meatballs to the pot and cook for 6-7 min, turning
 
 Once browned, transfer to a plate and wipe the pot and reserve for later (these will finish cooking with the spaghetti later)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-01-24_09h30m46s-APIC-1704383042270-x200.jpg)
 
 ### Step 3
 
 While the meatballs are browning, chop your basil roughly, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683028152884-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once the meatballs are browned, return the reserved pot to a medium heat with a 
 
 Once hot, add the diced brown onion and remaining grated garlic with a pinch of salt and cook for 5-6 min or until softened and slightly caramelised
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683028159561-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Add half of the chopped basil (save the rest for garnish!) with a pinch of salt 
 
 Once boiling, roughly break your spaghetti in half, add it to the pot and mix everything together
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683028165726-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cook for an initial 8-10 min, stirring occasionally to prevent the spaghetti fro
 
 While the spaghetti is cooking, grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683028172998-x200.jpg)
 
 ### Step 7
 

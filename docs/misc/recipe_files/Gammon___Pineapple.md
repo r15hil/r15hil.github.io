@@ -20,7 +20,6 @@ Everyone loves a retro classic, and you can't get much more throwback than gammo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/446.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once hot, add the gammon joint<span class="text-danger">(s)</span> &amp; cook un
 
 Tip: Trim off any fat for a leaner meal
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/446.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Transfer the seared gammon to the centre of the lined tray (reserve the pan for 
 
 Season with plenty of pepper and place in the oven for an initial 15 min until the gammon is releasing its juices
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/446.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and cut the carrots into 3cm chunks, discarding the root ends
 
 Add the potatoes, carrots and salt (optional) to a pot, cover with cold water by 4cm and place over a high heat to boil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/446.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Return the tray of gammon and pineapple to the oven for an additional 20-25 min,
 
 Once the potato and carrot pot is boiling, cook for 5-7 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/446.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Return the gammon pan to a medium heat and melt 30g <span class="text-danger">(6
 
 Once melted, stir in 30g <span class="text-danger">(60g)</span> of flour and the chopped garlic and cook for 2-3 min - this is your roux
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/446.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Cook for 5 min, stirring constantly, or until a smooth, thick sauce remains
 
 Meanwhile, chop the parsley finely (including the stalks)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/446.-step-7-x200.jpg)
 
 ### Step 7
 

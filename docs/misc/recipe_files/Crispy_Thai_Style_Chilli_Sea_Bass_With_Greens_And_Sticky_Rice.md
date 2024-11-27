@@ -30,7 +30,6 @@ You’ll whip up this triple threat with crispy sea bass, fluffy lemongrass rice
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1719400282813-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6, boil half a kettle then bash yo
 
 Rinse your sushi rice in a sieve under cold running water for 30 secs, then add to an oven-proof dish with the outer lemongrass layers and 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[500ml]</span> boiled water, cover with tin foil and put the dish in the oven for 25 min or until all the water is absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1719400286037-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then slice your spring onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1719400289831-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the chopped lemongrass, half of the chopped garlic (you'll use the
 
 Cook for 3-4 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1719400296085-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Rip the leaves off your spring greens, discard the tough stalks, then layer the 
 
 Trim your green beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1719400302293-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Tip: Cooking for 3 or more? Make 2 separate parcels!
 
 Put the tray in the oven for 10-12 min or until the spring greens are tender – these are your soy greens
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1719400307905-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Pat your sea bass fillet[s] dry with kitchen paper
 
 Sprinkle your cornflour all over and rub it into both sides of the fish until fully coated, then set aside for later – this is your coated sea bass
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1719400313325-x200.jpg)
 
 ### Step 7
 

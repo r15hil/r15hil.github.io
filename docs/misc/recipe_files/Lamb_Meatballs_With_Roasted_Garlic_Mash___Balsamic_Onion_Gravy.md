@@ -22,7 +22,6 @@ Push the gravy boat out with these juicy lamb meatballs. You’ll simmer them in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693829692873-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel and finely dice half your red onion[s]
 
 Peel and finely slice the remaining onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693829694973-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide the lamb mix and shape them into 5 meatballs per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693829697818-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693829700451-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once browned, transfer them to a plate and set aside, these will finish cooking 
 
 Drain any excess oil from the pan and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693829703145-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once softened, add your balsamic vinegar, beef stock mix, 1 tsp <span class="tex
 
 Return the browned meatballs to the pan and cook, covered for 12-15 min or until cooked through (no pink meat!) – these are your lamb meatballs and balsamic onion gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693829705997-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the shredded spring greens and sliced carrot to a large piece of tin foil (o
 
 Scrunch the foil around the vegetables to form a tightly sealed parcel[s] and add to a baking tray, put the tray in the oven for 10-12 min or until tender – these are your buttery vegetables
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693829708557-x200.jpg)
 
 ### Step 7
 

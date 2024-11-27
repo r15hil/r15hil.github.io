@@ -23,7 +23,6 @@ Give dinner some welly tonight. You'll stuff chicken breast with ‘Nduja, befor
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657621754417-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the waxy potatoes and halved tomatoes to an oven-proof dish, drizzle with ol
 
 Put the dish in the oven for an initial 25 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657621781027-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Meanwhile, use a sharp knife to cut a deep pocket along the top of the chicken b
 
 Fill the pockets with the 'Nduja (can't handle the heat? Go easy!), then season generously with salt and pepper – these are your 'Nduja stuffed chicken breasts
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657621813164-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Unwrap the puff pastry and roll it out to approx. 0.5cm thickness with a rolling
 
 Line a baking tray with non-stick baking paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657621832789-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Drizzle each parcel with olive oil
 
 Add the parcels to the baking paper-lined tray and put the tray in the oven for 25-30 min or until the pastry is golden and the chicken is cooked through (no pink meat!) – these are your chicken & 'Nduja Wellingtons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657621875860-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Chop the chives finely
 
 Finely chop (or grate!) the garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657621881945-x200.jpg)
 
 ### Step 6
 
 Once the veg has had an initial 25 min, remove the dish from the oven and crush the roasted tomatoes with a fork to release the juice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657621907858-x200.jpg)
 
 ### Step 7
 

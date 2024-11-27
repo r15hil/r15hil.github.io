@@ -31,7 +31,6 @@ Harness the flavour of the Caribbean with this aromatic curry. You’ll handroll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1713857791015-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Peel and finely chop your shallot[s]
 
 Trim, then slice your spring onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1713857794098-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1713857797107-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Once the meatballs have browned, transfer them to a plate and set aside, these w
 
 Reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1713857801747-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Cook for 1 min or until fragrant
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1713857807492-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Once fragrant, return the browned meatballs to the pan with the chicken stock an
 
 Once boiling, reduce the heat to medium and cook, covered, for 12-15 min or until cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1713857810853-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Once fragrant, add your white long grain rice and 225ml <span class="text-purple
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1713857814934-x200.jpg)
 
 ### Step 7
 

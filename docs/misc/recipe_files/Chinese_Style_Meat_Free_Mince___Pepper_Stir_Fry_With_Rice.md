@@ -28,7 +28,6 @@ One try of this stir-fry and you'll be hooked. You'll sizzle meat-free mince wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599749421959-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599749426850-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ While the rice is cooking, peel and roughly dice your brown onion[s]
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and dice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599749433833-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599749438694-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Peel and roughly chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599749444615-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ While the meat-free mince is cooking, add 1 tsp <span class="text-purple">[1 1/
 
 Tip: Try not to stir too often so the mince gets nice and brown!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599749453816-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Tip: Add an extra drizzle of oil if it's looking a little dry!
 
 Add your mirin, hoisin sauce, soy sauce, toasted sesame oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and cook for 2-3 min or until thickened and sticky – this is your Chinese-style meat-free mince & green pepper stir-fry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599749466311-x200.jpg)
 
 ### Step 7
 

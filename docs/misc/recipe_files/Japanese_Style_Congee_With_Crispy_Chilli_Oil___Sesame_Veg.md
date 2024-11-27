@@ -30,7 +30,6 @@ An Asian staple, congee is a rice porridge perfect for colder nights. For this t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-37-1705055040340-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel and finely chop (or grate) your remaining garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-41-1705055044505-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once hot, add sliced garlic, half the sliced shallot, half the chopped ginger (y
 
 Once crispy, carefully pour the oil into a heatproof bowl and set aside, reserving the pot – this is your crispy chilli oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-43-1705055049141-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once hot, add the remaining sliced shallot, remaining chopped ginger and chopped
 
 Combine your vegetable stock mix and soy sauce with 1.2L <span class="text-purple">[1.9L]<span class="text-danger"> </span>[2.5L] </span>boiled water – this is your soy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-42-1705055055269-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once fragrant, add your sushi rice and star anise and cook for 1 min, stirring t
 
 Add the soy stock and cook for 25-30 min, stirring occasionally, or until the stock has thickened and the rice is cooked – this is your Japanese-style congee
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-40-1705055060194-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Wash, then chop the root from your pak choi and separate the leaves, discarding 
 
 Slice your chestnut mushrooms finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-38-1705055064896-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Season with a pinch of salt and pepper then scrunch the foil around the vegetabl
 
 Put the tray in the oven for 12-15 min or until the vegetables are tender – this is your sesame veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-30-1705055069137-x200.jpg)
 
 ### Step 7
 

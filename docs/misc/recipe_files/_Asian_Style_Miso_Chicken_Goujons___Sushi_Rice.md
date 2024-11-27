@@ -27,7 +27,6 @@ Give chicken a zingy fusion twist with crispy miso-marinated goujons and spicy s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678205177986-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678205183925-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Meanwhile, combine your white miso paste and half your rice vinegar (you'll use the rest later!) until you have a loose paste – this is your miso marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678205193598-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add your chicken breast strips to the miso marinade
 
 Give everything a good mix up until the chicken is fully coated, then set aside for later – these are your miso chicken strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678205201989-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Chop your coriander finely, including the stalks
 
 Add your mayo to a small bowl with your shichimi togarashi (can't handle the heat? Go easy!) and a splash of cold water to loosen then stir it all together – this is your shichimi togarashi mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1696425681081-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Place the miso chicken strips onto the floured plate, pressing firmly to coat th
 
 Tip: Coat the chicken in the cornflour one side at a time to avoid stickiness!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1696425684316-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated chicken and cook for 10-12 min, turning halfway or until golden and cooked through (no pink meat!) – these are your miso chicken goujons
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678205229601-x200.jpg)
 
 ### Step 7
 

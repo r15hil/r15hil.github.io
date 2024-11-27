@@ -19,7 +19,6 @@ A nostalgic nod to classic British fare; this dish brings together humble staple
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/254-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Add&nbsp;2-4 tbsp olive oil and half the thyme to an oven tray
 
 Put in the oven for 5 min or until warmed through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/254-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the potatoes to the warmed tray, taking care of spitting oil
 
 Coat&nbsp;the potatoes in the oil, season generously with salt and pepper and return to the oven for 30 min or until golden brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/254-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Meanwhile, peel and slice the onion<span class="text-danger">(s)</span> finely&n
 
 Strip the remaining thyme leaves from their stalks&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/254-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook for 10 min or until starting to brown and caramelise
 
 Tip: Long and slow is best for optimum sweetness, so be patient and stir occasionally
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/254-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Slice the halves finely
 
 Peel and chop (or grate) the garlic finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/254-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once cooked, transfer the meat and onion to a plate and cover, reserving the pan
 
 Tip: Families may need two pans for this step
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/254-step-7-x200.jpg)
 
 ### Step 7
 

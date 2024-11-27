@@ -32,7 +32,6 @@ For this lighter curry the twist is simple: you'll swap cream for yoghurt to mak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625735946380-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <span class="t
 
 Once hot, add the chopped onion with a pinch of salt and cook for 6-7 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1625735954462-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Peel and finely chop (or grate) the garlic and ginger
 
 Dissolve the vegetable stock mix in 250ml <span class="text-purple">[350ml]</span><span class="text-danger"> [450ml] </span>boiled water and add the tomato paste â€“ this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1625735961736-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once the onion has softened, add the chopped garlic, ground paprika, half of the
 
 Add the chopped cherry tomatoes and tomato stock and cook for 10-12 min or until the sauce has thickened and the tomatoes have broken down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1625735970237-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1625735976969-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Add the chopped basa to the bowl and give it a good mix up until fully coated â€
 
 Reboil a full kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625761925265-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ While the fish is cooking, chop the coriander roughly, including the stalks
 
 Wash the spinach, then add it to a colander and pour boiled water all over it so that it starts to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625735999448-x200.jpg)
 
 ### Step 7
 

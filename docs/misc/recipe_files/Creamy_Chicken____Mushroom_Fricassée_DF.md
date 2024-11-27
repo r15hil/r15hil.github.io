@@ -23,7 +23,6 @@ Get this comforting French classic on the table in minutes. You'll cook diced ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622807640336-1637684338897-x200.jpeg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-2-1637684423211-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Combine the red wine vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your vinaigrette
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-3-1637684447443-x200.jpg)
 
 ### Step 3
 
 When the pan is hot, add the diced chicken and cook for 2-3 min and then add 1 tsp <span class="text-danger">[2 tsp] </span>of flour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-4-1637684476208-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Dissolve chicken stock mix and the wholegrain mustard in 50ml <span class="text-
 
 Crumble the chestnut mushrooms into the pan and cook for a further 2 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723-v2-Step-5-1637684529748-x200.jpeg)
 
 ### Step 5
 

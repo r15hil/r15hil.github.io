@@ -25,7 +25,6 @@ These light, zesty tortilla chips are topped with crab meat and a zingy avocado 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595341576302-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely slice your shallot[s]
 
 Dice your tomato[es]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595341583045-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once crisped, set aside to cool a little
 
 Tip: Watch them like a hawk to make sure they don't burn
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595341607098-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Remove the stone[s] using a teaspoon
 
 Scoop out the avocado flesh using a spoon and dice roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595341616216-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Zest half your lime[s] (try to grate lightly with a micro-plane or sharp box gra
 
 Roll the lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595341802423-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add a large drizzle of olive oil and season with a generous pinch of salt and pe
 
 Give it a good mix up and set aside – this is your tomato & avocado salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595341814383-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Combine your mayo, lime zest, remaining chopped coriander, and a little crab mea
 
 Season with a grind of black pepper and mix everything together – this is your zesty crab
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595341828546-x200.jpg)
 
 ### Step 7
 

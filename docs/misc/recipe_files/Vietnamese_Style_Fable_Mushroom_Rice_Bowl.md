@@ -26,7 +26,6 @@ This Vietnamese-inspired dish will bowl you over. You’ll top fluffy steamed ri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682590023596-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682590026767-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Top, tail, peel and chop your carrot[s] into matchsticks
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682590030144-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682590033336-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the bashed Fable pulled mushrooms with a generous pinch of salt and cook for 5-6 min or until browned, breaking them up with a wooden spoon as you go – these are your pulled Fable mushrooms
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682590036747-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Crush your roasted peanuts with a rolling pin
 
 Tip: If you don’t have a rolling pin, just chop them roughly!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682590039602-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the finely chopped chilli (can't handle the heat? Go easy!) to a bowl with t
 
 Give everything a good mix up – this is your Vietnamese-style dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682590042632-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ If you like pesto, you'll love this sesame twist! Sesame seeds add toasty nuttin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1653469439175-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop your tomato[es] into wedges
 
 Add the tomato wedges to a baking tray with your plum tomatoes, cherry tomatoes and garlic clove[s] (skin on)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1653469447920-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Put the tray in the oven for 20 min or until starting to blister and char
 
 Tip: Crowd the tomatoes together for the best blistering!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581515067305-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add your gnocchi and cook for 8-10 min or until beginning to crisp
 
 Tip: Don't stir too often as this will prevent the gnocchi from crisping!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581515071785-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Pulse until roughly blitzed
 
 Tip: If you don't have a food processor, chop the basil leaves very finely and mix with the olive oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581515076303-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Carefully remove the skin from the roasted garlic clove[s] (they will be hot!)
 
 Add the roasted garlic to the food processor (not a fan of garlic? Just add a little!) and pulse again until combined – this is your sesame seed pesto
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581515082067-x200.jpg)
 
 ### Step 6
 
 Remove the rosemary stems and discard, then crush the roasted tomatoes with the back of a fork to release the juices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581515087310-x200.jpg)
 
 ### Step 7
 

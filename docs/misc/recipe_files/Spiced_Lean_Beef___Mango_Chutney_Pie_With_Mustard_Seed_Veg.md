@@ -31,7 +31,6 @@ When Indian flavours meet a bold pie, you know it’s going to be good. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1710861843281-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Top, tail, peel and slice half your carrot[s] into discs
 
 Peel and chop your red onion[s] in half, then cut half into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1710861848227-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Peel and finely dice the remaining carrot
 
 Peel and finely dice the remaining onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1710861851267-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Chop your coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1710861856346-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once the onion and carrot is starting to soften, turn the heat up to high, then 
 
 Once browned, add the chopped garlic, remaining ground turmeric, curry powder, mango chutney and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> flour and cook for 1-2 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1710861860068-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Add your beef stock mix, soy sauce, half the chopped coriander (save the rest fo
 
 Dust your work surface generously with flour, unwrap your puff pastry, roll it out to approx. 0.5cm thickness with a rolling pin and cut to the size of your pie dish[es]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1710861863567-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Lay the puff pastry over the dish[es], trim off any excess (use for fancy pie de
 
 Brush with a little water, add a few black mustard seeds to the top (you’ll use the rest later!), then put in the oven for 15-20 min or until puffed up, golden and the mince is cooked through (no pink meat!) – this is your spiced lean beef & mango chutney pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710861866713-x200.jpg)
 
 ### Step 7
 

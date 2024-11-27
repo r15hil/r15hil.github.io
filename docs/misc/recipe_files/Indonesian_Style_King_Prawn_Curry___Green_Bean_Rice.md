@@ -26,7 +26,6 @@ This Indonesian-style curry is full of punchy, aromatic flavours. To make your o
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1527.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add your basmati rice and 300ml <span class="text-purple">[390ml] </span><sp
 
 Once boiling, reduce the heat to low, and cook, covered until step 2
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1527.-step-2.NEW-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Cook, covered for a further 10 min or until all the water has absorbed and th
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1527.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Break your cardamom pod[s] open and discard the outer green shell
 
 Grind the chopped garlic, chopped ginger, cardamom seeds, 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> black pepper (freshly ground is best!) and a pinch of salt in a pestle & mortar - this is your spice paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1527.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Chop the creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 200 ml <span class="text-purple">[300 ml] </span><span class="text-danger">[400 ml]</span> boiled water then add your fish sauce and chipotle paste (can't handle the heat? Go easy!) – this is your spicy coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1527.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid), with 1
 
 Once hot, add the onion wedges with a pinch of salt and cook for 3 min or until starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1527.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the onion has started to brown, drain, then add your king prawns and spice paste and cook for 2 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1527.-step-7-x200.jpg)
 
 ### Step 7
 

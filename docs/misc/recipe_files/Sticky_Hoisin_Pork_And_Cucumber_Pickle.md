@@ -27,7 +27,6 @@ These pork loin steaks are juicy, succulent and cooked in a sticky-sweet glaze. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/256.step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut your potatoes (skins on) into wedges
 
 Add the wedges to a baking tray (or two!), drizzle with vegetable oil, season generously with salt and pepper and put the tray[s] in the oven for 30 min or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/256.step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ While the wedges are cooking, halve your cucumber lengthways, scrape the seeds o
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/256.step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Add your pork loin steak[s] to the marinade and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/256.step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Meanwhile, combine the sliced cucumber, chilli flakes (can't handle the heat? G
 
 Mix well and set aside – this is your cucumber pickle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/256.step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cook the pork loin for 5-6 min on each side or until browned and cooked through
 
 Once done, transfer the cooked pork to a clean chopping board or plate (reserve the pan), cover with a tea towel and leave to rest for 5 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/256.step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Cook for 3-5 min or until it's approaching a dark, thick and sticky consistency 
 
 Tip: The glaze will continue to thicken when it’s off the heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/256.step-7-x200.jpg)
 
 ### Step 7
 

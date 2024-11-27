@@ -29,7 +29,6 @@ Tuck into this quick and easy masala for curry night. You’ll whip up a richly 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670340553966-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670340566232-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and dice your shallot[s]
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670340570369-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced shallot and a pinch of salt and cook for 2-3 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670340573631-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Dissolve the chopped creamed coconut, vegetable stock mix and tomato paste in 12
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670340577863-x200.jpg)
 
 ### Step 5
 
 Once the shallot has softened, add your curry powder and ginger & garlic paste and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670340582235-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once fragrant, add the drained chickpeas, coconut stock and spinach to the pan
 
 Cook, covered, for 4-5 min or until the spinach has wilted and the sauce has reduced to a curry-like consistency – this is your creamy chickpea & spinach curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1670340775733-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Japanese flavours are often deep, salty, sweet and hot but always balanced. This
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/771.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,13 +38,11 @@ Cut the aubergine<span class="text-danger">[s]</span> in half lengthways 
 
 Score the flesh in a criss-cross pattern, taking care not to cut through to the skin
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/771.-step-2-x200.jpg)
 
 ### Step 2
 
 Combine the chilli flakes (can't handle the heat? Go easy!), miso paste, honey, soy sauce and 1 tbsp <span class="text-danger">[2 tbsp]</span> boiled water until smooth - this is your miso dressing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/771.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Spoon 1 tbsp of miso dressing over each aubergine half, cut-side up (you'll use 
 
 Put the tray in the oven for 20-25 min or until the aubergines are tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/771.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) with a large drizzle of veg
 
 Once hot, add the peppers and cook for 8-10 min or until softened and slightly charred
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/771.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, add the wheat noodles to a pot of boiling water and cook for 4-6 min
 
 Once cooked, drain and add the noodles to the pan with the charred peppers, stir and remove from the heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/771.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Chop the coriander finely, including the stalks 
 
 Trim and chop the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/771.-step-7-x200.jpg)
 
 ### Step 7
 

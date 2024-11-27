@@ -25,7 +25,6 @@ Can you keep a secret? 'Cuz our mouthwatering red pepper sauce will give new lif
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1619776971440-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Deseed the peppers (scrape the seeds and pith out with a teaspoon) and roughly c
 
 Crush the garlic cloves open by squashing with the side of a knife and remove the skin
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1619776971799-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Scrunch the edges of the foil around the pepper to form 1<span class="text-dange
 
 Put the tray in the oven for 15 min or until the pepper has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1619776996985-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving 50ml <span class="text-danger">[100ml]</span> starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1619777023713-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Transfer the toasted almonds to a bowl and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1619777039938-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Return the pan to a high heat with a drizzle of vegetable oil and a pinch of sal
 
 Once hot, add the chopped courgette to the pan and cook for 4-5 min or until softened and lightly charred, then remove the pan from the heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1619777466253-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Then add the tomato paste, smoked paprika, half the toasted almonds (save the re
 
 Add 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and season with a grind of black pepper, then blitz until you have a coarse paste – this is your roasted red pepper sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1619777632051-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This zesty marinade is a Cuban classic. You’ll coat tender basa in a tangy ble
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683103635827-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Strip your coriander leaves from their stalks and chop the stalks finely, then r
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683103639610-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add a drizzle of olive oil and a very generous pinch of salt and pepper
 
 Mix until fully combined – this is your mojo-style marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683103643834-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspo
 
 Add the sliced red onion and sliced pepper to one side of a baking tray (or two!) with a drizzle of olive oil and a pinch of salt, and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683103647804-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat, and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683103650614-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut a large piece of tin foil and place your basa fillets in the centre of the f
 
 Pour the mojo-style marinade over the basa fillets, then scrunch the edges of the foil together around the fish to form a tightly sealed parcel
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683103655516-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Meanwhile, drain and rinse your black beans, then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683103659748-x200.jpg)
 
 ### Step 7
 

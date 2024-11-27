@@ -26,7 +26,6 @@ The Italian stew, cacciatore, is a comforting classic. You'll stir up a rich tom
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1612953233648-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604418466213-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based oven-proof casserole dish with a drizzle of olive oil o
 
 Peel and chop the red onion<span class="text-danger">[s]</span> into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604418477509-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Deseed the Romano pepper<span class="text-danger">[s] </span>(scrape the seeds a
 
 Crush the garlic open by squashing it with the side of a knife and remove the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604418487939-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the pepper rings, red onion wedges and crushed garlic to the dish
 
 Add the black olives with the bay leaf<span class="text-danger">[ves] </span>and<span class="text-danger"> </span>rosemary (keep the rosemary whole, you can pick it out at the end!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604418497398-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Put the dish in the oven for an initial 20 min
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604418517140-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ After 20 min, remove the dish from the oven and top with the chicken thighs
 
 Return the dish to the oven for 20-25 min or until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604418522024-x200.jpg)
 
 ### Step 7
 

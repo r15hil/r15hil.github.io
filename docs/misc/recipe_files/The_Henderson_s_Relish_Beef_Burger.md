@@ -24,7 +24,6 @@ Taste chasers, you asked for it. This is the Henderson's burger, featuring your 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619786962928-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Put the tray[s] in the oven for 30-35 min or until golden and crispy – these are your black pepper chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619786987562-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Tip: Cook the onions over a really low heat so they don't burn!
 
 Once golden, add 3/4 of your Henderson's Relish (save the rest for later!) and cook for 3-4 min further or until dark and soft – these are your Henderson's caramelised onions
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619787072180-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Massage the meat with clean hands for 1 min (this helps them to hold their shape
 
 Divide and shape into 1 patty per person and refrigerate until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619787122803-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Wash your lettuce, then pat dry with kitchen paper and shred
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619787136350-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add the brioche halves to the pan, cut-side down, and cook for 3-4 min
 
 Once golden, transfer to a plate and set aside for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619787156790-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the beef patty[ies] and cook for 5 min on one side, or until nicely browned
 
 Tip: Cooking for 5? You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1619787147657-x200.jpg)
 
 ### Step 7
 

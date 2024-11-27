@@ -31,7 +31,6 @@ Here’s tradition with a twist. To make your Bengali-style macher Jhol basa, st
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1669137797712-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669137731203-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Add the grated onion with a pinch of salt and cook for 4-5 min or until the onion is starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669137737575-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Slice your green chilli[es] in half, lengthways
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669137747502-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the chopped ginger and chopped garlic to the pan with your garam masala, bla
 
 Give everything a good mix up and cook for 2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669137752565-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Mix it all together and cook for 12-15 min, stirring occasionally, or until the 
 
 Reboil a full kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669137757742-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Remove the lid and cook, uncovered, for a final 2 min or until the sauce has thickened – this is your Bengali-style basa curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669137775988-x200.jpg)
 
 ### Step 7
 

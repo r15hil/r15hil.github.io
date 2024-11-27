@@ -21,7 +21,6 @@ Super fast and easy to serve, these white flour tortilla wraps are home to pan-f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/805.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Preheat the oven to 180&deg;C/ 160&deg;C (fan)/ 350&deg;F/ Gas 4
 
 Top and tail the&nbsp;carrots&nbsp;and cut them into rough, bite-size pieces (no need to peel them!)&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/805.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Add the carrots&nbsp;to a pot (with a matching lid) of&nbsp;boiled&nbsp;water ov
 
 Cover and cook for 10-15 min or until they're tender&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/805.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim and chop the spring onions&nbsp;finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/805.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add 1 tbsp <span class="text-danger">[2 tbsp]</span> boiled water&nbsp;and leave
 
 Add the mayonnaise&nbsp;with a pinch of salt and mix together&nbsp;- this is your smoky mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/805.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once hot, toast the cumin seeds for 1-2 min or until they're fragrant, then tran
 
 Pat the halloumi dry, and cut it&nbsp;into six slices&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/805.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Blitz to a rough texture - this is your spiced carrot&nbsp;
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/805.-step-7-x200.jpg)
 
 ### Step 7
 

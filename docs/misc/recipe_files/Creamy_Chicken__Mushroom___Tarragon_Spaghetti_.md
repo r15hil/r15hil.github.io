@@ -22,7 +22,6 @@ The combination of aromatic tarragon with soft cheese and chicken makes for a de
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641913643876-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Boil a full kettle
 
 Pull the chicken skin off the chicken thighs and season the chicken skin generously with salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641913647708-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once hot, add the chicken skin and fry for 7-8 min or until golden and beginning
 
 Tip: Weigh the chicken skin down with a second, smaller pan to make it even crispier!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641913689779-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once the chicken skin is starting to crisp, add it to the tray with the chicken 
 
 Reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641913698259-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Strip the tarragon leaves from their stems and chop them roughly, discard the st
 
 Return the pan to a medium-high heat with a drizzle of olive oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641913707238-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, add the spaghetti to a pot of boiled water with a generous pinch of s
 
 Cook the spaghetti for 8-10 min or until cooked with a slight bite, then drain and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641913724303-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Wash the spinach, then pat it dry with kitchen paper
 
 Once the vegetables have softened, add the washed spinach, chopped tarragon (reserve a little for garnish) and creamy chicken stock to the pan and cook for 5 min further until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641913748985-x200.jpg)
 
 ### Step 7
 

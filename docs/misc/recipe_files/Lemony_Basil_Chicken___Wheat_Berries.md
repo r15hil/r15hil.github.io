@@ -21,7 +21,6 @@ For a tasty boost of fibre, zinc, calcium, iron and vitamins E and B, serve up l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-cherry-tomatoes-1591104049058-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil a kettle
 
 Chop the cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580124957216-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Add the chicken breasts, chopped cherry tomatoes and asparagus to a baking tray
 
 Drizzle with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and season with a pinch of salt and pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580124961436-x200.jpg)
 
 ### Step 3
 
 Put the tray in the oven for 15-20 min or until the chicken is cooked through (no pink meat!) and the vegetables are tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580124965466-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Cook over a high heat for 12-15 min or until tender with a slight bite
 
 Once cooked, add the baby leaf spinach to the pot, stir it all together, then drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580124968944-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Chop the basil roughly, including the stalks
 
 Cut the lemon<span class="text-danger">[s]</span> in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580124972058-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Add the chopped garlic (don't like raw garlic? Go easy!) and chopped basil to a
 
 Add 3 tbsp <span class="text-danger">[6 tbsp]</span> olive oil and the juice of 1/2 <span class="text-danger">[1]</span> lemon and give it a good mix up – this is your basil oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580124976441-x200.jpg)
 
 ### Step 7
 

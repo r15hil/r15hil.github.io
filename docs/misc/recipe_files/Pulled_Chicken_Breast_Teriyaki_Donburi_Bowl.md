@@ -30,7 +30,6 @@ Donburi is a Japanese rice bowl with an array of umami-rich toppings. To make ou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688397440287-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 20-25 min or until it's tender with a slight bite, then once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688397444888-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel your ginger (scrape the skin off with a teaspoon) and chop into thin matchs
 
 Slice your cucumber[s] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688397447850-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Combine 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-d
 
 Add your red wine vinegar, ginger matchsticks and sliced cucumber and set aside to pickle until serving – these are your quick pickled vegetables
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688397451850-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Cook for 3-4 min or until lightly browned on both sides
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688397457041-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once the chicken has browned, add the chopped garlic, tamari soy sauce, mirin, h
 
 Cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened and is sticky in consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688397463604-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Slice your mangetout in half lengthways
 
 Add the sliced mangetout to a large bowl, cover with boiled water and set aside to soften
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688397750987-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ This big, bold salad is all about crunch. For this balanced, tasty meal, you'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1594892231910-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely slice your red onion[s], then peel and finely chop (or grate) yo
 
 Wash, then cut your lettuce into thin wedges, lengthways, and pat dry with kitchen paper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1594892237912-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the sliced pepper and onion with a pinch of salt and cook for 4-5 
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1595325801595-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Coat your chicken breast portion[s] in your curry powder
 
 Once softened, transfer the pepper and onion to a clean plate and return the pan to a medium-high heat (no need to clean!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1595325995690-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1594892251027-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles and return to the large bowl
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1594892255613-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Whisk everything together until you have a smooth paste
 
 Stir your soy sauce, red chilli relish and chopped garlic (not a fan of raw garlic? Try using less!) into the paste – this is your satay dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1594892259087-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Pack heaps of moreish umami goodness into protein-packed tofu with an easy sweet
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586949459950-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Drain your tofu and pat it dry with kitchen paper
 
 Cut the drained tofu into cubes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586949465961-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Cut the white base[s] into bite-sized pieces
 
 Add your blanched edamame beans to a colander and pour boiled water all over them to refresh them, then run under cold water until cool
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586949470951-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop your ginger into matc
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586949477219-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the tofu cubes and a generous pinch of salt and cook for 5-6 min or until browned all over and starting to crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586949486288-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Meanwhile, heat a separate, large, wide-based pan (preferably non-stick) with a 
 
 Once hot, add the sliced spring greens and chopped pak choi base and cook for 2-3 min or until starting to wilt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586949490836-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Drain the refreshed edamame beans, then add them to the pan with the pak choi to
 
 Add your soy sauce and give everything a good mix up – these are your stir-fried ginger greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586949495410-x200.jpg)
 
 ### Step 7
 

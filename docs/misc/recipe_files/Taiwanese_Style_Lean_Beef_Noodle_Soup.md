@@ -26,7 +26,6 @@ For the perfect bowl of rich, fragrant soup, you'll serve crispy lean beef, nood
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-7-1680598832707-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once hot, add the lean beef mince with a generous grind of pepper and cook for 6
 
 Once browned, add the honey, half the soy sauce and half the five-spice (you'll use the rest later!) and cook for 1-2 min further or until crispy (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1680598838214-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Return the reserved pan to a medium heat and once hot, add the sliced onion with
 
 Cook for 6-7 min or until softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-4-1680598852500-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Wash the spring greens then pat it dry with kitchen paper
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1680598856751-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the fine egg noodles to a large bowl, cover them with boiled water and stir 
 
 Set aside to soak for 4 min, then drain and return to the bowl until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1680598860657-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Once the onion has softened, add the chopped tomatoes and garlic to the pan and 
 
 Add the remaining five-spice, the star anise and a generous grind of pepper and cook for 1 min further or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1680598864953-x200.jpg)
 
 ### Step 6
 
 Dissolve the beef stock mix and the remaining soy sauce in 500ml <span class="text-danger">[1L]</span> boiled water – this is your beef stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-5-1680598878212-x200.jpg)
 
 ### Step 7
 

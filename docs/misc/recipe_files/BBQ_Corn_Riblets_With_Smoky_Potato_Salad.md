@@ -24,7 +24,6 @@ Not heard of corn ribs before? Think smoky corn on the cob, meets Mexican street
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627376458861-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a baking tray with the smoked paprika, a generous dr
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until tender but not crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627376470395-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Using your weight, and with your fingers well clear, push down on the knife and
 
 Tip: Make sure your knife is sharp. When slicing, hold the knife firmly and keep both hands above the blade. If you’re worried about slipping, chop the corn into two shorter cobs before slicing in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627376480643-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ As with before, use your weight again with your fingers well clear and push down
 
 Tip: If any naturally break apart, don't worry. They'll taste just as good!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627376487027-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Give everything a good mix up until the riblets are nicely coated in the spices
 
 Put the tray in the oven for 15-20 min or until lightly golden and starting to curl slightly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627376492460-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Chop the coriander finely, including the stalks
 
 Add the chopped tomatoes and coriander to a bowl with a drizzle of olive oil and a pinch of salt and pepper – this is your tomato salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627376498414-x200.jpg)
 
 ### Step 6
 
 Mix the chipotle paste with half the mayo (save the rest for later!) – this is your chipotle mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627376503361-x200.jpg)
 
 ### Step 7
 

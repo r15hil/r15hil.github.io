@@ -27,7 +27,6 @@ Touch down in Thailand for a sticky stir fry made with the nation’s favourite 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690477249777-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Drain the soaked noodles
 
 Tip: Gently separate the noodles with a fork!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690477253539-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ While the noodles are soaking, heat a large, wide-based pan (preferably non-stic
 
 Once hot, add your pork mince (remove the paper if required!) with a pinch of salt to the pan and cook for 3-4 min, breaking it up with a wooden spoon as you go or until starting to brown and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690477257433-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Cut your orange[s] in half, then peel and roughly chop half the orange[s] and se
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690477261020-x200.jpg)
 
 ### Step 4
 
@@ -69,19 +65,16 @@ Combine the chopped orange in a small bowl with your tamarind paste, honey and s
 
 Add your chilli flakes (can't handle the heat? Go easy!) and fish sauce with the juice of the remaining orange and give everything a good mix up – this is your orange nam jim sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690477265026-x200.jpg)
 
 ### Step 5
 
 Once the mince is starting to brown, reduce the heat to medium-high, then add the chopped garlic and sliced spring onion and cook for 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690477268413-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add your drained udon noodles and spinach to the pan with a splash of cold water and cook for 2-3 min or until the spinach has started to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690477273540-x200.jpg)
 
 ### Step 7
 

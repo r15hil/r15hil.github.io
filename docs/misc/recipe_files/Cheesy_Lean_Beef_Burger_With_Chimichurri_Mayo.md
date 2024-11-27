@@ -29,7 +29,6 @@ Inspired by Argentinian cooking, chimichurri mayo is the perfect herby, tangy an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1616673189156-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel half your red onion[s] (you'll use the rest later!) and slice<span class="
 
 Add the onion rings to a bowl with your red wine vinegar and set aside to pickle – this is your quick-pickled onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616673193560-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven for 30 min or until crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616673198839-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Mix thoroughly until fully combined, then shape into 1 lean beef burger patty pe
 
 Add the lean beef burger patty[ies] to a separate, lightly oiled baking tray (or two!) and put the tray[s] in the oven for 15-20 min or until cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616673258736-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your red chilli[es] finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1616673263157-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Grind the mix to a paste, then add your mayo, chopped garlic, chopped red chill
 
 Slice your brioche bun[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1616673267966-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Tip: Cooking for 3 or more? Do this is in batches!
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1616673273125-x200.jpg)
 
 ### Step 7
 

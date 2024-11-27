@@ -23,7 +23,6 @@ Annabel’s Mexican enchiladas are a must-add to this week’s menu. Grab your s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1057_step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely chop the brown&nbsp;onion<span class="text-danger">[s]</span>
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and dice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1057_step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the beef mince with a pinch of salt and cook for 4 min until browned, breaking it up with a wooden spoon as you go&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1057_step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip: add a little more oil if your pan is looking dry!
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1057_step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Meanwhile, chop the basil finely, including the stalks&nbsp;
 
 Peel and finely chop (or grate) the garlic &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1057_step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once the onion and pepper have softened, return the browned beef to the pan with
 
 Add the chopped basil, dried oregano, tomato paste and <span class="text-highlight">half of the</span> chopped tomatoes (save the rest for later!)&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1057_step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once boiling, reduce the heat to medium and cook for 10 min or until thickened t
 
 Meanwhile, grate the cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1057_step-7-x200.jpg)
 
 ### Step 7
 

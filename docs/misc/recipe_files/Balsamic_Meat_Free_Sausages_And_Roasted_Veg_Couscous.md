@@ -22,7 +22,6 @@ Save on washing up with this one-tray wonder. While the meat-free sausages and v
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618227799566-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Top, tail and chop the courgette<span class="text-danger">[s] </span>into bite-s
 
 Cut the red onion<span class="text-danger">[s]</span> into quarters, keeping the skin on and root attached
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618227804380-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the chopped veg and chopped garlic to a large bowl with a large drizzle of
 
 Add the seasoned veg to a baking tray (use tin foil to avoid mess!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618227810075-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Tip: Cooking for 4? Use to 2 trays!
 
 Meanwhile, boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618227814793-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Dissolve the vegetable stock mix in 200ml<span class="text-danger"> [400ml] </sp
 
 Add the couscous to the bowl, then cover and set aside for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618227820538-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tip: Watch the pan like a hawk to make sure the glaze doesn't burn!
 
 Once done, remove the pot from the heat and set aside until serving – this is your balsamic glaze
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618227829360-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Carefully remove the skin from the roasted onions by cutting the root end off 
 
 Chop the roasted pepper into small pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618227839563-x200.jpg)
 
 ### Step 7
 

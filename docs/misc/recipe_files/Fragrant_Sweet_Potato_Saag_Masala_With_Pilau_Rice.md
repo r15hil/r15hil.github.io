@@ -33,7 +33,6 @@ For a tasty take on a curry classic, try this fragrant sweet potato & spinach ma
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1658828798288-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion and cook for 5 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1658828806554-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Once cool, squeeze as much water out of the spinach as you can then chop it roug
 
 Reboil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1658828822829-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Add the sliced garlic, ground fenugreek, garam masala and chilli flakes (can't 
 
 Add the chopped sweet potato to the pan and cook for 3 min further or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1658828851485-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once the sweet potato has browned, add the tomato stock and chopped spinach to t
 
 Reduce the heat to medium-low and cook, covered, for 12-15 min or until the sweet potato is fork-tender – this is your fragrant sweet potato saag masala
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1658828860919-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Melt a knob of butter alternative in a pot with a matching lid over a medium h
 
 Once melted, add the crushed cardamom pods and star anise to the pot and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658828879343-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your pilau rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1658828892178-x200.jpg)
 
 ### Step 7
 

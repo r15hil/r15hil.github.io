@@ -29,7 +29,6 @@ This meaty ragu will melt in your mouth. You’ll simmer pork and beef mince in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1693476147949-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add your dried yeast to a large bowl with 100ml<span class="text-purple"> [150ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693476151762-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Chop your parsley finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693476154821-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add your chopped tomatoes, beef stock mix and red wine stock paste to the pot wi
 
 Once boiling, cover with a lid and put the dish in the oven for an initial 20 min – this is your pork & beef ragu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693476165281-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once crisp, add a knob of butter, remaining chopped garlic, half the chopped par
 
 Once melted, remove the pot from the heat and set aside till serving – this is your ‘Nduja garlic butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693476168969-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Tip the dough out onto a floured work surface and cut into 5<span class="text-da
 
 Toss each dough ball in a light dusting of flour, rounding each ball as you go (no need to knead!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693476175875-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Remove the baking tray[s] from the oven and add the dough balls (be careful the 
 
 Return the tray[s] to the oven for 12-15 min or until the dough balls are puffed up and browned
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693476179964-x200.jpg)
 
 ### Step 7
 

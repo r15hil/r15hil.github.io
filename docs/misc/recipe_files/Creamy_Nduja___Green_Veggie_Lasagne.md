@@ -25,7 +25,6 @@ This fiery lasagne packs a delicious punch. You’ll layer silky smooth ‘Nduja
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666001209183-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Trim the ends off your Brussels sprouts, then chop in half lengthways and chop y
 
 Peel and chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666001212488-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the diced leek to the pan with a generous pinch of salt and cook, 
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666001217926-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once fragrant, remove the pan from the heat and add the chopped Brussels sprouts
 
 Give everything a good mix up – these are your green veggies
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666001220146-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="
 
 Gradually whisk 350ml <span class="text-purple">[525ml]</span> <span class="text-danger">[700ml]</span> milk into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666001225521-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Tear your ‘Nduja (can't handle the heat? Go easy!) into the béchamel sauce
 
 Add your ground smoked paprika and vegetable stock mix to the pot and whisk everything together until well combined – this is your ‘Nduja béchamel
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666001227886-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Tip: You may need to layer differently depending on the size of your dish!
 
 Top with the grated cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1731591907591-x200.jpg)
 
 ### Step 7
 

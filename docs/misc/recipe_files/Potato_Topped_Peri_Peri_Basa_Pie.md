@@ -28,7 +28,6 @@ Fire up a classic fish pie with smoky peri-peri spice. You’ll whip up your fil
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681376451859-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice your potatoes (skins on) into discs and add them to a baking paper-lined b
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681376457082-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Cut your red chilli[es]<span class="text-danger"> </span>in half lengthways, des
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681376463920-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once melted, add the diced onion with a pinch of salt and cook for 4-5 min or un
 
 Meanwhile, combine your tomato paste, chopped chilli (can't handle the heat? Go easy!) ground smoked paprika, chopped garlic, red wine vinegar and dried oregano with a pinch of salt – this is your peri-peri paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681376472544-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once fragrant, add 200ml<span class="text-danger"> <span class="text-purple">[26
 
 Once boiling, reduce the heat to medium and cook for 3-4 min or until slightly thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681376478438-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ While the sauce is thickening, chop your basa fillet[s] into bite-sized pieces
 
 Add the chopped basa to the sauce and give everything a good mix up – this is your peri-peri basa pie filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681376483165-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Put the dish in the oven for 15-20 min or until the fish is cooked through and t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681376488188-x200.jpg)
 
 ### Step 7
 

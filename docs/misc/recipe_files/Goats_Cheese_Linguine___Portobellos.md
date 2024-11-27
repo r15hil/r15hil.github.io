@@ -20,7 +20,6 @@ This linguine is mixed with goats' cheese and pasta to make an instant sauce, fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/501.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and slice the shallots finely
 
 Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="text-danger">(2 tbsp)</span> olive oil and a knob of butter over a medium-high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/501.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cook for 4 min until starting to caramelise, stirring occasionally
 
 Tip: Overcrowding your pan prevents caramelisation, so do this in one layer across two pans if needed
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/501.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Tip: The pasta will finish cooking later on
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/501.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Stir the garlic and balsamic into the pan of browned mushroom and shallots
 
 Reduce the heat to medium and cook for a further 8 min or until the balsamic is sticky
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/501.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop the tarragon finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/501.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Break the goats' cheese up into small pieces
 
 Drain the cooked linguine, reserving 200ml <span class="text-danger">(300ml)</span> pasta water and return it to the pot off the heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/501.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ You’re 5 mins away from the juiciest pork belly to grace your dinner table. Fi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1642160533197-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728465579356-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid, with a drizzle of vegetable oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728465580310-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Season with a pinch of salt and rub it into the criss-cross pattern
 
 Add the scored pork belly, fat-side down, to the dish and cook for 2 min or until the fat is slightly golden, then remove to a plate
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728465585703-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Top, tail and chop your carrot[s] into discs on the diagonal
 
 Add the onion wedges and carrot discs to the dish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728465622932-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Stir in 400ml <span class="text-purple">[525ml]</span> <span class="text-danger"
 
 Put the dish in the oven and cook, uncovered, for an initial 40 min or until the sauce has thickened and the pork is golden brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728465632172-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cover tightly with tin foil and put the dish in the oven for 30 min or until all
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728465639713-x200.jpg)
 
 ### Step 7
 

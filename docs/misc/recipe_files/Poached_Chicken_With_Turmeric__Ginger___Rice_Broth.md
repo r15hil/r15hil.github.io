@@ -31,7 +31,6 @@ Black pepper won't just add a kick, it's there to boost your absorption of turme
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599494090794-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Peel and finely slice (don't chop!) the garlic
 
 Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599494101594-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Season the chicken breast portions with a pinch of salt and add them to a cold, 
 
 Rinse the brown rice, then add the brown rice, sliced shallot, sliced garlic and sliced ginger to the pan with the chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599494117054-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Pour over 500ml <span class="text-danger">[1L]</span> cold water and bring to a 
 
 Once boiling, reduce the heat to low and simmer, turning the chicken half way, for 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599494127309-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the sliced mushrooms to a tray with a drizzle of vegetable oil and a pinch o
 
 Put the tray in the oven for 12-15 min or until the mushrooms are cooked and starting to crisp – these are your roasted mushrooms
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599494137927-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Dissolve the chopped creamed coconut in 200ml<span class="text-danger"> [400ml] 
 
 Add the ground turmeric, cracked black pepper (not a fan of pepper? Go easy!), soy sauce and rice vinegar – this is your turmeric stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599494150598-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add the turmeric stock to the pan, bring to the boil over a high heat, and cook,
 
 Tip: Add a splash more water if the rice has soaked up a lot of broth!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646222161846-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ This delicious chicken & veg broth is a seriously comforting low carb option! Fo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1830.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Boil a kettle
 
 Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1830.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Heat a large wide-based pan (preferably non-stick) with a matching lid, with 1/2
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1830.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Meanwhile, peel and finely chop (or grate) the garlic 
 
 <span class="text-highlight">Dissolve the chicken stock cube<span class="text-danger">[s]</span> in 400ml <span class="text-danger">[750ml]</span> boiled water</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1830.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once the onions are starting to soften, push them to one side of the pan and add
 
 Once the chicken has browned, add the chopped garlic and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1830.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Cut the lemon<span class="text-danger">[s]</span> in half
 
 Cut <span class="text-highlight">half</span> the lemon into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1830.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the chicken is <span class="text-highlight">cooked, remove</span> it from t
 
 Add the <span class="text-highlight">shredded</span> kale and butter beans to the pan and cook, covered, for 3-5 min or until the kale has wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1830.-step-7-x200.jpg)
 
 ### Step 7
 

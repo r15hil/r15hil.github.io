@@ -27,7 +27,6 @@ For these Indian-inspired burritos, you'll stuff tortillas with curried aubergin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1625583713228-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and 
 
 Peel and cut the brown onion<span class="text-danger">[s] </span>into quarters
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1625583764502-x200.jpg)
 
 ### Step 2
 
 Transfer the aubergine wedges and onion quarters to a roasting tray with a drizzle of vegetable oil and a generous pinch of salt and put the tray in the oven for an initial 20 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1625666158280-x200.jpg)
 
 ### Step 3
 
@@ -53,13 +50,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your pilau rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1625583835784-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add the mango chutney, nigella seeds and natural yoghurt to a small bowl and give it a good mix up – this is your mango yoghurt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1625583848587-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once the aubergine has had an initial 20 min, add the curry powder, smoked papri
 
 Cook for 4-5 min further or until the aubergine is cooked through– this is your curried aubergine & onions
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1625583855573-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Wash the gem lettuce, then pat it dry with kitchen paper and shred
 
 Slice the tomato<span class="text-danger">[es] </span>into 6 <span class="text-danger">[12] </span>wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625583879526-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Pop this succulent salmon in the oven and hey pesto, it’s dinner in a flash. Y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678880041172-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut narrow slices (about the width of a pound coin) into your waxy potatoes, mak
 
 Tip: Place chopsticks either side of the potatoes to stop you cutting all the way through!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678880049213-x200.jpg)
 
 ### Step 2
 
@@ -40,13 +38,11 @@ Add the hasselback potatoes to a tin foil-lined baking tray (or two!) and drizzl
 
 Season with a generous pinch of salt and put the tray[s] in the oven for an initial 30-35 min or until tender and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678880058124-x200.jpg)
 
 ### Step 3
 
 While the potatoes are cooking, zest your lemon[s] (try to grate lightly with a microplane or sharp box grater and avoid grating the white pith, as this is very bitter) then chop in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678880070532-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678880082924-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Put the tray in the oven for 14-15 min or until the salmon is cooked through and
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678880094335-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender, then dr
 
 Once drained, add the juice of half your zested lemon[s] (not sure about citrus? Try using less!), a generous knob of butter and a pinch of salt and pepper – these are your buttery green beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678880101772-x200.jpg)
 
 ### Step 7
 

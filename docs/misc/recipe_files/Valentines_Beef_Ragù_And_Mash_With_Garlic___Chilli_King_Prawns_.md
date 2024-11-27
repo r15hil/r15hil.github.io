@@ -32,7 +32,6 @@ Show off your cooking chops this Valentine's. While your rich beef ragù slow-co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1642174141416-x200.jpg)
 
 ### Step 1
 
@@ -48,7 +47,6 @@ Once hot, add your diced beef and cook for 2-3 min or until lightly browned
 
 Peel and finely chop (or grate) half your garlic and grate your chestnut mushrooms
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642174150413-x200.jpg)
 
 ### Step 2
 
@@ -60,7 +58,6 @@ Bring to the boil over a high heat and season with a pinch of salt and pepper
 
 Cover with the lid and put the dish in the oven for 55 min – this is your beef & mushroom ragù
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642174160666-x200.jpg)
 
 ### Step 3
 
@@ -76,7 +73,6 @@ Once done, drain and return to the pot with a knob of butter, a splash of milk a
 
 Mash until smooth and set aside to reheat later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642174177134-x200.jpg)
 
 ### Step 4
 
@@ -90,7 +86,6 @@ Add your ciabatta[s] to a baking tray and put the tray in the oven for 5-6 min o
 
 Carefully slice the ciabatta before serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-admin-1643193344429-x200.jpg)
 
 ### Step 5
 
@@ -104,7 +99,6 @@ Serve the garlic & chilli prawns (and any of the tasty oil!) in a sharing dish w
 
 Dig in and enjoy your starter of garlic & chilli prawns with ciabatta while the ragù is in the oven
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642174219674-x200.jpg)
 
 ### Step 6
 
@@ -112,7 +106,6 @@ Once the beef & mushroom ragù has been in the oven for 55 min, add your Tenders
 
 Put the tray in the oven for 8-10 min or until tender, golden and crisp
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642174229178-x200.jpg)
 
 ### Step 7
 

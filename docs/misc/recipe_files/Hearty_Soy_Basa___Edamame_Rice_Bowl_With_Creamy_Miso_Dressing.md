@@ -26,13 +26,11 @@ Put a Japanese-style twist on your go-to protein bowl. You’ll load rice with g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720168412946-x200.jpg)
 
 ### Step 1
 
 Trim, then chop your green beans into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720168418739-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720168425111-x200.jpg)
 
 ### Step 3
 
 Rinse your edamame beans under cold running water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720168435139-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Mix until fully combined
 
 Add half your soy sauce with half your rice vinegar (you'll use the rest later) and 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water and stir it all together – this is your creamy miso dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720168441324-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Give everything a good mix up – this is your marinade
 
 Add your basa fillet[s] and turn several times in the marinade until nicely coated – this is your coated basa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720168449505-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once hot, add your coated basa and cook for 3-4 min on each side or until lightl
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720168455722-x200.jpg)
 
 ### Step 7
 

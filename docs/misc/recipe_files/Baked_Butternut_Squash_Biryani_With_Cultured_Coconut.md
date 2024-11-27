@@ -31,7 +31,6 @@ Prep this in minutes, then sit back as your warmly spiced biryani bakes in the o
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1614012533105-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606139506949-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add your butternut squash cubes to the dish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606139517110-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Crush your garlic cloves open by squashing them with the side of a knife and rem
 
 Add the tomato wedges and crushed garlic to the dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606139522426-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Crush your cardamom pods open by squashing them with the side of a knife
 
 Slice your ginger in half (no need to peel!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606139532268-x200.jpg)
 
 ### Step 5
 
 Add the crushed cardamom pods and halved ginger to the dish with your ground turmeric, curry powder and bay leaf[ves] and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606139547135-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add your basmati rice with 350ml <span class="text-purple">[525ml]</span> <sp
 
 Cover with a lid and put the dish in the oven for 15-20 min or until all the water has absorbed, the squash is fork-tender and the rice is cooked
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606139563699-x200.jpg)
 
 ### Step 7
 

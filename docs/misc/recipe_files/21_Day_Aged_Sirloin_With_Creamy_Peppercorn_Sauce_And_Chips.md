@@ -22,7 +22,6 @@ French cuisine is famed for its elegance, and this dish is no exception. You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646143231667-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Chop the potatoes (skins on) into chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646143235056-x200.jpg)
 
 ### Step 2
 
@@ -38,7 +36,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a generous pi
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646143238857-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Peel and finely chop (or grate!) the garlic
 
 Boil half a kettle (you'll only need a little!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646143251852-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Season with a pinch of salt and add a splash of boiled water and cook, cove
 
 Once done, keep covered and set aside for later – these are your garlicky green beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646143255319-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min o
 
 Once the steaks are cooked, transfer them to a plate to rest (save the pan!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646143260302-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once the steaks are done, return the pan to a low heat
 
 Add the diced shallot to the pan and cook for 1-2 min or until softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646143264279-x200.jpg)
 
 ### Step 7
 

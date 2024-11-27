@@ -24,7 +24,6 @@ Transport your taste buds to Sorrento with a classic prawn and lemon risotto. Yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2082.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely chop your brown onion[s]
 
 Top, tail and grate your courgette[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2082.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a wide-based pan (preferably non-stick) with a generous drizzle of olive oi
 
 Once hot, add the chopped onion and grated courgette to the pan with a pinch of salt and cook for 6-7 min, stirring frequently, until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2082.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Peel and finely chop (or grate) your garlic
 
 Once the onion and courgette have softened, add the chopped garlic and cook for 2-3 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2082.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Tip: Add a drizzle more oil if your pan is looking a little dry
 
 Add your vegetable stock, a ladle at a time, stirring continuously for 20-25 min or until all the stock is absorbed and the rice is almost cooked with a slight bite
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2082.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Once the rice is almost cooked, drain your jumbo king prawns, then stir them thr
 
 Tip: Your prawns are cooked when they have turned opaque
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1725966195339-x200.jpg)
 
 ### Step 6
 
 Zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter!), then cut the zested lemon in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2082.-step-7-x200.jpg)
 
 ### Step 7
 

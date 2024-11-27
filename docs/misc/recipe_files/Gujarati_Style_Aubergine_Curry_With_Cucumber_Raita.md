@@ -30,7 +30,6 @@ This method of cooking aubergines originates from Gujarat on India's western coa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1878.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add half your aubergine[s]<span class="text-danger"> </span>(you'll use the res
 
 Once done, remove the tray from the oven and carefully (it will be hot!) scoop the flesh out of the blackened aubergine into a bowl and season generously with salt – this is your smoky aubergine
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1878.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) your garlic and your ginger
 
 Peel and dice the remaining aubergine[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1878.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add the chopped garlic, chopped ginger and diced aubergine then continue to 
 
 Tip: If your pan starts to look dry, add a little more oil!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1878.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once fragrant, add your ground coriander, cayenne pepper (can't handle the hea
 
 Reduce the heat to medium and cook, covered, for 8-10 min or until the chopped aubergine is cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1878.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,13 +81,11 @@ Once the chopped aubergine is cooked through, stir the smoky mashed aubergine a
 
 Remove from the heat and set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1878.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add your natural yoghurt and remaining ground cumin with a pinch of salt, pepper and 1/2 tsp <span class="text-purple">[3/4 tsp] </span><span class="text-danger">[1 tsp]</span> sugar to the bowl with the diced cucumber and give everything a good mix up – this is your cumin & cucumber raita
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1687784343710-x200.jpg)
 
 ### Step 7
 

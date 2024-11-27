@@ -23,7 +23,6 @@ Take a bite of this quick and easy stir-fry. You’ll sizzle broccoli florets, c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680536252847-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut your broccoli into small florets
 
 Cut the broccoli stem[s] into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1680536256496-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Peel and cut your brown onion[s]<span class="text-danger"> </span>into quarters,
 
 Top, tail, peel and chop your carrot[s] into batons
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1680536260022-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a dri
 
 Once hot, add the broccoli florets, carrot batons, broccoli stems, onion petals and a very generous pinch of salt and cook for an initial 3-4 min or until the veg is starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1680536263084-x200.jpg)
 
 ### Step 4
 
@@ -57,13 +53,11 @@ While the veg is cooking, peel and finely chop (or grate) your garlic
 
 Combine the chopped garlic and cornflour in a bowl with your soy sauce, hoisin sauce and 150ml<span class="text-purple"> [200ml]</span> <span class="text-danger">[250ml] </span>boiled water – this is your hoisin mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1680536267076-x200.jpg)
 
 ### Step 5
 
 Once the veg is starting to soften, add the hoisin mixture to the pan and cook, covered, for 7-8 min until the veg is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1-1680536271319-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain, reserving a cup of starchy noodle water and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680536275038-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ For a quick tandoori-style dish, you'll char marinated salmon under the grill to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723467140837-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Add your basmati rice, nigella seeds, a pinch of salt and 300ml <span class="te
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723467144395-x200.jpg)
 
 ### Step 2
 
 Remove and discard the skin from your salmon fillet[s], and then chop into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723467148590-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Combine half of your natural yoghurt with your curry powder, chilli flakes (can'
 
 Add the chopped salmon pieces and mix well until they're completely coated – this is your tandoori salmon
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723467152848-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the tandoori salmon to the baking tray[s] and put it under the grill for 6-7
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723467157002-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Peel and chop your shallot[s]
 
 Dice your tomato[es]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723467161031-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ In a bowl combine the diced cucumber, chopped shallot and diced tomato with 1 t
 
 Season with a pinch of salt – this is your kachumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723467166485-x200.jpg)
 
 ### Step 7
 

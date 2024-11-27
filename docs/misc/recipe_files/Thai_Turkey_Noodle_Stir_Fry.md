@@ -25,7 +25,6 @@ The sweet, spicy, sour flavours of Thai street food are all packed into this noo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1621863491483-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2438Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add turkey mince and cook for 2 min, breaking up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2438Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and reserve a cup of the starchy noodle water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2438Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,19 +63,16 @@ Top, tail, peel and grate the carrot<span class="text-danger">[s]</span> directl
 
 Add the mangetout and cook for 1-2 min further or until the turkey is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2438Step-5-x200.jpg)
 
 ### Step 5
 
 Add the red Thai curry paste, sriracha (can't handle the heat? Go easy!), soy sauce and red chilli relish and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2438Step-6-x200.jpg)
 
 ### Step 6
 
 Cut the lime<span class="text-danger">[s]</span> in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2438Step-7-x200.jpg)
 
 ### Step 7
 

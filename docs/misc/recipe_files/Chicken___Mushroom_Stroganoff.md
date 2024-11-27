@@ -24,7 +24,6 @@ This speedy stroganoff is ready in just 10 mins! You'll cook diced chicken thigh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623401291187-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674584424096-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Tear your chestnut mushrooms into rough, bite-size pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674584430891-x200.jpg)
 
 ### Step 3
 
 Once hot, add your diced chicken thigh and torn mushrooms to the pan with your ground smoked paprika and a generous pinch of salt and cook for 4-5 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674584435762-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674584445001-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Cook, covered, for 6-7 min further or until the chicken is cooked through (no pi
 
 Tip: Add another small splash of water to the pan if it's looking dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Microwave-rice-1675068653830-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Tear the top corner of the pouch[es] (just a little!) and put the pouch in the�
 
 Tip: If you're cooking two or more packets, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674584456769-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ For this easy tray bake, you'll marinate free range chicken thighs in smoky spic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Combine your chipotle paste (cant't handle the heat? Go easy), ground smoked paprika and soy sauce in a bowl with a drizzle of vegetable oil – this is your marinade
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-2-x200.jpg)
 
 ### Step 2
 
 Add your free range chicken thighs to the marinade and give everything a good mix up, then set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Chop your sweet potato[es] into wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,19 +56,16 @@ Sprinkle over your ground cumin
 
 Drizzle with vegetable oil and add a generous pinch of salt and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the marinated chicken thighs to the tray[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-6-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 30-35 min or until everything is cooked through (no pink meat!) and tender – this is your Mexican-style chicken thigh tray bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-7-x200.jpg)
 
 ### Step 7
 

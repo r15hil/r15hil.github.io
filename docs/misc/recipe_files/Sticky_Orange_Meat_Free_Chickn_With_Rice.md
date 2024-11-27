@@ -22,7 +22,6 @@ For a stir-fry in no time, you'll sizzle meat-free chick'n and rustle up a stick
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650971080719-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650971027660-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add your meat-free chick'n to a bowl with most of your cornflour (save a little 
 
 Tap off any excess cornflour
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650971030561-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once the pan is very hot, add the coated meat-free chick'n and cook for 6-7 min 
 
 Once crispy, transfer to a plate and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650971034310-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Return the pan to a medium-high heat with a drizzle of vegetable oil
 
 Add the chopped pepper, ginger & garlic paste along with half your soy sauce (save the rest for later!) and cook for 2 min or until the pepper has started to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650971037604-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650971040868-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger"
 
 Meanwhile, peel and slice the remaining orange into triangles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650971044599-x200.jpg)
 
 ### Step 7
 

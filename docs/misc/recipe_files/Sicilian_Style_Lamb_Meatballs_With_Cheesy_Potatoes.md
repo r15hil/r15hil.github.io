@@ -25,7 +25,6 @@ Take your taste buds to Sicily with these sweet & savoury meatballs. You'll make
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683038824946-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil 
 
 Give everything a good mix up then put the tray[s] in the oven for an initial 20-25 min or until lightly golden and tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683038827580-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Grate your remaining onion
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683038831527-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Give everything a good mix up (clean hands are the best way!)
 
 Divide<span class="text-danger"> </span>and shape them into 3 meatballs per person – these are your lamb meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683038834496-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the meatballs have browned, transfer them to a plate and set aside, these w
 
 Discard any excess oil from the pan and return to a medium heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683038839221-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once slightly softened, add the remaining chopped garlic and balsamic sun-dried 
 
 Once fragrant, add your chopped tomatoes to the pan with your beef stock mix, 50ml<span class="text-purple"> [75ml] </span><span class="text-danger">[100ml]</span> cold water and 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683038842745-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cook, covered for 12-15 min, stirring occasionally, or until the meatballs are c
 
 While the meatballs are cooking, wash your salad then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1721749282839-x200.jpg)
 
 ### Step 7
 

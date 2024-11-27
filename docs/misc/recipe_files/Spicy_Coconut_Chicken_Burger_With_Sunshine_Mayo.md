@@ -29,7 +29,6 @@ This tropical burger will have you dreaming of palm trees. You'll char spicy, zi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1654600743853-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ol
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1654600760817-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Peel your garlic
 
 Combine 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar in a bowl with the juice of half the lime[s] and the chilli rounds (can't handle the heat? Go easy!) and set aside – this is your quick-pickled chilli
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1654600780313-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Tip: Don't have a food processor? Chop the ingredients and grind to a paste in a pestle & mortar instead!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1654600803141-x200.jpg)
 
 ### Step 4
 
 Add your mayo to a bowl with half the coconut marinade (you'll use the rest later!) – this is your sunshine mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1654600835861-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut your chicken breast portion[s] in half, as if you were cutting a burger bun
 
 Add the halved chicken to a bowl with the remaining coconut marinade and give everything a good mix up – this is your coconut marinated chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1654600851650-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the coconut marinated chicken and cook for 6 min on each side or u
 
 Tip: Cooking for 5? You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1654600879621-x200.jpg)
 
 ### Step 7
 

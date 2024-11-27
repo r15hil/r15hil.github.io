@@ -25,7 +25,6 @@ This comforting pie is filled with an umami-rich medley of tender leek, Portobel
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-9-1701948850770-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-10-1701948859027-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely chop (or grate) your garlic
 
 Once the onion and leek has softened, add the sliced mushrooms to the pan with a knob of butter and cook for 6 min or until tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-14-1701948865401-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Dust your work surface with a generous sprinkling of flour
 
 Unwrap your puff pastry and roll it out with a rolling pin until it is large enough to cover an oven-proof dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-9-1701948870680-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the carrot batons to a large piece of tin foil (or two!) with a splash of co
 
 Scrunch the foil around the carrot batons to form a tightly sealed parcel[s] and add to a baking tray, put the tray in the oven and cook for 25 min or until tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-10-1701948876518-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Combine 50ml<span class="text-purple"> [75ml] </span><span class="text-danger">[
 
 Once fragrant, add the umami stock with a generous grind of pepper and cook for 3 min or until thickened – this is your pie mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-10-1701948881779-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Top the pie mix with the rolled pastry and crimp round the edge with a fork
 
 Score a cross in the middle of the pastry and put it in the oven for 15-18 min or until puffed up and golden – this is your umami portobello & chestnut mushroom pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-9-1701948887364-x200.jpg)
 
 ### Step 7
 

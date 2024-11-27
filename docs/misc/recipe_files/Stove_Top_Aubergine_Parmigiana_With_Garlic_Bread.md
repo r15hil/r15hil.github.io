@@ -26,7 +26,6 @@ Sound the alarm, this aubergine parm is a stove-top sensation. You’ll simmer s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674575683364-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once hot, add the panko breadcrumbs and cook for 6-8 min or until golden, stirri
 
 Once golden, transfer to a bowl and reserve the pan – these are your crispy breadcrumbs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674575692498-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the aubergine rounds and cook for 5-6 min on each side or until go
 
 Once golden, transfer to a plate and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674575701491-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Drain the mozzarella, then pat and squeeze as much liquid out as you can with ki
 
 Chop half the basil finely, including the stalks (reserve the rest for later!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674575713792-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add the diced onion and half the chopped garlic (you'll use the rest l
 
 Once beginning to soften, add the chopped tomatoes, vegetable stock mix, bay leaf<span class="text-danger">[ves]</span>, half the chopped basil (save the rest for later!) and 50ml <span class="text-danger">[100ml]</span> boiled water and give everything a good mix up – this is your tomato sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674575721422-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the cooked aubergine to the tomato sauce
 
 Season with 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a generous grind of black pepper and cook for 5-6 min further or until the sauce has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674575732397-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Return the reserved breadcrumb pan to a high heat with 1 tbsp <span class="text-
 
 Once hot, add the remaining chopped garlic, remaining chopped basil and toasted ciabattas cut-side down and cook for a further 1-2 min or until fragrant and charred – this is your garlic bread
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674575742874-x200.jpg)
 
 ### Step 7
 

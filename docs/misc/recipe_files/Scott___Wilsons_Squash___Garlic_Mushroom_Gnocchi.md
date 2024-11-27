@@ -23,7 +23,6 @@ Cookstarter finalist, Scott & Wilson, know how to bring the best out of veg. For
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618935204967-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Tip: The water helps to cook the squash quicker!
 
 Put the tray in the oven for 20-25 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618935232464-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Drain the mozzarella, then pat it dry with kitchen paper and tear it into bite-s
 
 Wash the spinach, then pat it dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618935243573-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add the chopped onion with a pinch of salt and cook for 5-6 min or unt
 
 Add the sliced mushroom and chopped garlic to the reserved pan and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618935256277-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once the squash is tender, add it to a blender (or pan if using a stick blender)
 
 Blitz until smooth – this is your squash sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618935286363-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1617198711783-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Top with the spinach & garlic mushrooms and torn mozzarella
 
 Sprinkle over the remaining Italian hard cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618935302862-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Go the whole hog with this BBQ pork roast sando. You’ll load brioche buns with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-7-1688141117263-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Transfer your BBQ pulled pork and any juices to an oven-proof dish
 
 Cover with tin foil and put the dish in the oven for an initial 30 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-7-1688141120792-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chopped waxy potatoes to one side of a baking tray (or two!) with a driz
 
 Put the tray[s] in the oven for an initial 15 min – these are your roast waxy potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-7-1688141124159-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel and finely chop your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-8-1688141127170-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Cook, covered, over a medium heat for 10-12 min or until the apple has softened
 
 Once done, mash the softened apple till smooth and set aside until serving – this is your apple sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-8-1688141131290-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Give everything a good mix up and divide into 1 patty per person – this is you
 
 Once the potatoes have had an initial 15 min, add the smoky stuffing to the other side of the tray[s] and return to the oven for 10-12 min or until everything is golden and crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-8-1688141135090-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Slice your brioche buns in half
 
 Heat a large, wide-based pan (preferably non-stick) over a medium heat and add the brioche halves, cut-side down, and cook for 2-3 min or until toasted and charred, set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-8-1688141139031-x200.jpg)
 
 ### Step 7
 

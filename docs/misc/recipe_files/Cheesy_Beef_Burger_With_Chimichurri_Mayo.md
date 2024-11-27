@@ -29,7 +29,6 @@ Inspired by Argentinian cooking, chimichurri mayo is the perfect herby, tangy an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1237.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel half your red onion[s] (you'll use the rest later!) and slice into thin rin
 
 Add the red onion rings to a shallow bowl with your red wine vinegar and set aside to pickle – this is your quick-pickled onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1237.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven for 30 min or until crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1237.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Mix thoroughly until fully combined, then shape into 1 patty per person
 
 Add the patty[ies] to a separate baking tray and put the tray in the oven for 15-20 min or until cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1237.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your red chilli[es]<span class="text-danger"> </span>finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1237.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Grind the herbs to a paste, then add your mayo, chopped garlic, chopped chilli�
 
 Slice your brioche bun[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1237.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Once hot, add the brioche halves, cut-side down, and cook for 3 min or until toa
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1237.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ For this easy tray bake, you'll marinate chicken thighs in smoky spices and roas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Combine your chipotle paste (can't handle the heat? Go easy), ground smoked paprika and soy sauce in a bowl with a drizzle of vegetable oil – this is your marinade
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-2-x200.jpg)
 
 ### Step 2
 
 Add your chicken thighs to the marinade and give everything a good mix up, then set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Chop your sweet potato[es] into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,19 +58,16 @@ Sprinkle over your ground cumin
 
 Add a drizzle of vegetable oil and a generous pinch of salt and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the marinated chicken thighs to the tray[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1792.-step-6-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 30-35 min or until the chicken is cooked through (no pink meat!) and the vegetables are tender – this is your Mexican-style chicken thigh tray bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-01-24_09h10m00s-APIC-1708973704641-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ Homemade nutty paste is typical of South Indian curries, and adds delicate sweet
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728889246090-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion and chopped garlic with a pinch of salt and cook for 8 min or until softened and starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1728889248891-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your coriander finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728889253269-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once the onion has softened, add your garam masala, tomato paste, most of the ch
 
 Add the chopped tomato and cook for a further 30 secs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1728889257199-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Dissolve your chicken stock mix in 300ml <span class="text-purple">[400ml]</span
 
 Add the chicken stock to the pan and cook, covered, for 3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1728889260910-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Chop your chicken breast portions into bite-sized pieces
 
 Add the chopped chicken to the pan and cook, covered for 12-15 min or until the chicken is tender and cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1728889265020-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1728889269526-x200.jpg)
 
 ### Step 7
 

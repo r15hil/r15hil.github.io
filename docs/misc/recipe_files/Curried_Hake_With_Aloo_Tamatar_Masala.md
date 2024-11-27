@@ -30,7 +30,6 @@ This Indian-style masala is gently spiced and effortlessly aromatic. You’ll pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674825149003-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to medium-high and cook for 10 min or until fork-t
 
 Once done, drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674825160032-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Chop your coriander finely, including the stalks
 
 Trim your green beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674825222923-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Pat your hake fillet[s] dry with kitchen paper
 
 Sprinkle most of your curry powder (you'll use the rest later!) over the hake with a pinch of salt and pepper and rub into both sides until evenly coated – this is your curried hake
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674825230206-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray in the oven for an initial 9 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674831729034-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or unti
 
 Reboil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674825293614-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once starting to soften, add the grated ginger and chopped garlic to the pan wit
 
 Bring to the boil over a high heat, then once boiling, reduce the heat to medium-high, give everything a good mix up and cook for a further 6-7 min or until the sauce has thickened – this is your aloo tamatar masala
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674825300857-x200.jpg)
 
 ### Step 7
 

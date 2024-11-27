@@ -28,7 +28,6 @@ Our Nashville-style hot chicken is a little healthier, and gets a hefty hit of h
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1638525068643-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your ground almonds, half your ground paprika and half your cayenne pepper (
 
 Add 100ml<span class="text-danger"> <span class="text-purple">[150ml]</span> [200ml] </span>milk<span class="text-danger"> </span>to a bowl
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638525072770-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Slice through the thickest part of the chicken breast, being careful not to cut 
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638525076425-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the coated chicken to a baking tray lined with non-stick baking paper with 
 
 Put the tray in the oven for 25 min or until the chicken is cooked through (no pink meat!) – this is your Nashville-style hot chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1638525079946-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ While the chicken is in the oven, trim, then slice your spring onion[s] finely
 
 Combine your shredded red cabbage, sliced spring onion (save a little for garnish!), your wholegrain mustard, half your cider vinegar and 2/3 natural yoghurt (you'll use the rest later!) in a bowl and season generously with salt and pepper – this is your slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1638525083423-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the cucumber batons, chopped dill and remaining cider vinegar to a bowl and 
 
 Stir everything together and set aside – this is your quick-pickled cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638525087007-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Slice your bread roll[s] in half
 
 Once hot, add the sliced bread roll[s], cut-side down, and cook for 3-4 min or until toasted and charred, then set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638525090492-x200.jpg)
 
 ### Step 7
 

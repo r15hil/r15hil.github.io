@@ -29,7 +29,6 @@ In this plant-based twist on the classic Vietnamese sandwich, you'll fill ciabat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581515877859-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581515883900-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Top, tail and grate your carrot[s]<span class="text-danger"> </span>(no need to 
 
 Wash your lettuce, then pat dry with kitchen paper and finely shred
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581515889156-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Stir it all together and set aside to pickle – this is your zingy veg
 
 Combine your mayo with your cayenne pepper (can't handle the heat? Go easy!) in a separate bowl – this is your spicy mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581515893492-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once hot, add the sliced mushrooms and cook for 3 min on each side or until tend
 
 Tip: Try not to stir the mushrooms too much as this will stop them from caramelising
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581515898732-x200.jpg)
 
 ### Step 5
 
@@ -83,13 +78,11 @@ Meanwhile, slice your green chilli[es] finely
 
 Chop your coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581515904060-x200.jpg)
 
 ### Step 6
 
 Put your ciabatta[s] in the oven for 3-4 min or until crusty and warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581515909311-x200.jpg)
 
 ### Step 7
 

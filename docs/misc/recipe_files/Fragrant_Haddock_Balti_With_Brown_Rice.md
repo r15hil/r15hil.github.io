@@ -26,7 +26,6 @@ Get set to recreate one of Britain's best takeaways, the balti. You'll poach had
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1647968158883-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with 2 tbsp <span class="tex
 
 Once hot, add the sliced onion and chopped pepper with a pinch of salt and cook for 6-7 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1647968165850-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1647968174037-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Dice the tomatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1647968180933-x200.jpg)
 
 ### Step 4
 
 Dissolve the vegetable stock mix and tomato paste in 100ml <span class="text-danger">[180ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1647968186886-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once softened, add the chopped garlic and ginger to the pan and cook for a furth
 
 Add the curry powder, ground paprika, ground coriander and ground cumin and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1647968193935-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once fragrant, add the diced tomatoes and cook for 2-3 min or until the tomatoes
 
 Once fragrant, add the tomato stock and cook for an initial 5-6 min or until the sauce is beginning to thicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1647968201840-x200.jpg)
 
 ### Step 7
 

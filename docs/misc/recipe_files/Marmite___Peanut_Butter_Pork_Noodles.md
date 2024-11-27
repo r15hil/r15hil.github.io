@@ -26,7 +26,6 @@ You don't want to miss this one! While your pork mince caramelises in Marmite, y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1731679841411-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604078405715-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your pork mince (remove the paper if required!) to the pan and cook for 3-4 min, breaking it up with a wooden spoon as you go, until starting to brown and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1604078409265-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Once done, drain, stir through a drizzle of vegetable oil and set aside
 
 Tip: The oil will stop the noodles from sticking together!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604078412343-x200.jpg)
 
 ### Step 4
 
 Add half your Marmite to a small bowl with your red chilli relish, peanut butter, soy sauce and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> water and mix until combined – this is your Marmite satay sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604078416870-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add your ginger & garlic paste and remaining Marmite to the pan and cook for 1 m
 
 Wash your spinach
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604078420865-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, slice your spring onion[s] finely
 
 Crush your peanuts with a rolling pin
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604078425464-x200.jpg)
 
 ### Step 7
 

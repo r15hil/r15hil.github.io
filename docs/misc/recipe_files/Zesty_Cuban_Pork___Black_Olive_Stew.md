@@ -27,7 +27,6 @@ Big, bold Cuban flavours have arrived in the form of this pork & orange stew. Th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1132.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 <span class="text-highlight">Remove</span> from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1132.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and cook for 4-5 min or until it's softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1132.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Slice the&nbsp;<span class="text-highlight">R</span>omano pepper<span class="text-danger">[s]</span> into rings, discarding the green stalk<span class="text-danger">[s]</span> and any seeds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1132.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the pork mince and cook for 4-5 min, breaking it up with a wooden spoon as y
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1132.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Add the chicken stock and cook for 8-10 min further or until the sauce has thick
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1132.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Roll the orange<span class="text-danger">[s]</span> and lime<span class="text-da
 
 Chop the coriander finely, including the stalks (save a few leaves for garnish!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1132.-step-7-x200.jpg)
 
 ### Step 7
 

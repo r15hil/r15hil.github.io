@@ -28,7 +28,6 @@ Hit your favourite peri peri flavours with a Mexican twist. For this low carb sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1625561676986-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the tofu cubes to a bowl with your soy sauce and set aside to marinate
 
 Peel and finely slice your shallot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1625561689883-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine your chipotle paste and chilli flakes (can't handle the heat? Go easy!) 
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]<span class="text-danger"> </span>[2 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp] </span>cold water, a pinch of salt and mix to combine – this is your peri peri sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1625561705340-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once very hot, add the marinated tofu cubes and cook for 5-6 min, turning occasionally until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1625561714099-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Wash your lettuce, pat it dry with kitchen paper, then remove 6 <span class="tex
 
 Shred the inner core[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1625561727602-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Add the peri peri sauce to the pan with the tofu and cook over a high heat for 2
 
 Once done, remove from the pan and set aside for later (save the pan!) – this is your peri peri tofu
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1625561778013-x200.jpg)
 
 ### Step 6
 
 Meanwhile, in a separate small bowl combine the juice of the remaining lemon with a drizzle of olive oil and a pinch of salt – this is your tangy lemon dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625561789684-x200.jpg)
 
 ### Step 7
 

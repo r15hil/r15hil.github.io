@@ -24,7 +24,6 @@ Let the oven do the work with this quick and easy tart. You’ll layer flaky puf
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674554595723-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Combine the chopped garlic and soft cheese in a bowl with your ground smoked pap
 
 Stir it all together – this is your soft cheese mix
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674554604329-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Chop your tomato[es] in half
 
 Slice the tomato halves into thin slices
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674554608772-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Dust your work surface with a generous sprinkling of flour
 
 Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin and cut into 1 rectangle per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674554617349-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Prick the inside of the border all over with a fork (this will stop you getting 
 
 Tip: The pastry border will puff up to give you a nice crust!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674554623723-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Spread the soft cheese mix over the pastry, keeping it within the borders
 
 Top with the sliced tomato, then put the tray[s] in the oven for an initial 10 min or until the tomato starts to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674554633182-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ After an initial 10 min, remove the tray[s] from the oven and top the pastry wit
 
 Return the tray[s] to the oven for a final 6-8 min or until the chorizo is crisped, the pastry is golden and cooked through and the edges have puffed up – this is your chorizo & tomato tart
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674554637290-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ You'll be amping up your veggie burger game by making your own sweetcorn patties
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2128.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a generous pi
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2128.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -60,7 +58,6 @@ Chop the basil roughly, including the stalks
 
 Drain the sweetcorn and pat the kernels completely dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2128.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Add the dried sweetcorn, chopped red onion, chopped garlic and chopped basil to 
 
 Pulse for 2-3 secs or until the mixture is roughly chopped
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2128.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Shape the mixture into 2 <span class="text-danger">[4]</span> flat <span class=
 
 Tip: Add a little more flour if your mixture is too wet to handle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2128.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Once the pan is hot, add the burger patties and cook for 2-3 min on each side or
 
 Put the tray into the oven for 10 min or until golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2128.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Put the tray into the oven for 10 min or until golden
 
 Once golden, top each burger patty with the sliced cheese, then return the tray to the oven for 3-4 min further or until the cheese is melted and the burgers are cooked through, these are your <span class="text-highlight">cheesy burger patties</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2128.-step-7-x200.jpg)
 
 ### Step 7
 

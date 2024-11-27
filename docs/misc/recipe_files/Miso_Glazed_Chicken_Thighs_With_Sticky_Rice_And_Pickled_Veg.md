@@ -28,7 +28,6 @@ Heads up, there’s a new glaze in town, and it’s sweet, savoury and packed wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1716979453140-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml<span class="text-purple"> [300ml]</span> <span class="text-danger">[400ml]</span> cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1716979459952-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1716979464795-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Top, tail and slice your radishes (as finely as you can)
 
 Peel your carrot[s], and continue to peel lengths until you end up with a pile of carrot ribbons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1716979475282-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Meanwhile, add the carrot ribbons and sliced radishes to a bowl with your rice v
 
 Give everything a good mix up and set aside for later – this is your quick-pickled veg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1716979480195-x200.jpg)
 
 ### Step 5
 
 Add your white miso paste, honey, ginger & garlic paste and mirin to a bowl with 1/2 tbsp <span class="text-purple">[3/4 tbsp] </span><span class="text-danger">[1 tbsp] </span>boiled water and stir it all together – this is your miso glaze
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1716979485206-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once hot, add your chicken thighs to the pan and cook for 7-8 min on each side o
 
 Once cooked through add the miso glaze and cook for 1-2 min or until thickened slightly – these are your miso-glazed chicken thighs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1716979490625-x200.jpg)
 
 ### Step 7
 

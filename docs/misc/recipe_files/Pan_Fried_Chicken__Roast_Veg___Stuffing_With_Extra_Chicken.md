@@ -27,7 +27,6 @@ Sometimes you just need a classic roast, and this nifty option gives you those f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1731597294978-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Top, tail, peel and slice your carrot[s], then top, tail, peel and chop your par
 
 Dice your potatoes (skins on), then crush 3/4 of your garlic cloves with the side of your knife (keeping the skins on)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1731597298159-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Put the baking tray[s] in the oven for 25-30 min or until the vegetables are te
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731597301160-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel and finely chop (or grate) your remaining garlic
 
 Heat a large, wide-based pan with a large knob of butter over a medium heat, once melted, add the chopped shallot and garlic and cook for 2-3 min or until the shallot has softened, then add your dried sage and cook for a further 30 sec – this is your sage & onion butter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731597304516-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Combine the chicken stock, panko breadcrumbs and the sage & onion butter in a b
 
 Meanwhile, place your hand flat onto your chicken breast portions, then slice in half as if you were cutting a burger bun, so you are left with two thinner pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1731597307636-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once hot, add the chicken breast with a pinch of salt and pepper and cook for 3
 
 Add your Tenderstem broccoli to the baking tray[s] with the vegetables for the last 10-12 min of cooking time
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1731597311099-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Meanwhile, divide the sage & onion stuffing into 2 per person and shape into stu
 
 Add the stuffing balls to a baking tray and put them in the oven for 10-12 min or until they're browned
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1731597729792-x200.jpg)
 
 ### Step 7
 

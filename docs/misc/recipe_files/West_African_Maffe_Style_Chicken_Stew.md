@@ -26,7 +26,6 @@ This West African-style stew is deliciously nutty. For your version of maffe, yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688127619450-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688127624520-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your sweet potato[es] (skins on) into small bite-sized pieces
 
 Chop your tomatoes finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688127627986-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion and chopped sweet potato with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688127633351-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the onion has softened, add the diced chicken thigh to the pan and cook fo
 
 Combine your chicken stock mix and tomato paste with 300ml<span class="text-danger"> <span class="text-purple">[450ml] </span>[600ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688127641234-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ After 5 min, add the chopped tomatoes and ras el hanout to the pan and cook for 
 
 Once fragrant, add the tomato stock and cook, covered, for a further 6-8 min, or until the sweet potatoes are tender and the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688127644526-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Combine your peanut butter with a small splash of boiled water until it's loosen
 
 Add your flaked almonds to a pestle & mortar and grind (or chop if you don't have a pestle and mortar) to a fine powder
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688127648904-x200.jpg)
 
 ### Step 7
 

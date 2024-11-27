@@ -27,7 +27,6 @@ Bento boxes are a staple of Japanese eating, made up of a mixture of salads, pic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1164.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Massage the&nbsp;kale&nbsp;with clean hands so that it&nbsp;is evenly coated in&
 
 Put the baking tray in the oven for 20-25 min or until it's crispy&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1164.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add both the potatoes and carrots to a pot of boiled water with a pinch of salt,
 
 Once tender, drain and leave to steam-dry (reserve the pan for step 6!)&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1164.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Combine 1 tsp&nbsp;<span class="text-danger">[2 tsp]</span>&nbsp;sugar&nbsp;with
 
 Add the&nbsp;red wine vinegar and&nbsp;sliced radishes&nbsp;and set aside until serving&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1164.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Peel and slice the shallot<span class="text-danger">[s] </span>finely
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1164.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Sprinkle the kale with the toasted sesame seeds &ndash;&nbsp;this is your kale s
 
 Return the baking tray to the oven for 5 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1164.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Remove the pan from the heat, add the honey and whisk to combine &ndash; this is
 
 Tip: don't worry if it goes lumpy &ndash; just keep whisking!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1164.-step-7-x200.jpg)
 
 ### Step 7
 

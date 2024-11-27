@@ -29,7 +29,6 @@ These smoky enchiladas are packed with flavour. You'll wrap spiced meat-free min
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618223216901-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Boil half a kettle
 
 Peel and finely chop your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618223223722-x200.jpg)
 
 ### Step 2
 
@@ -47,13 +45,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618223242669-x200.jpg)
 
 ### Step 3
 
 While the onions are cooking, dissolve your vegetable stock mix and tomato paste in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618223253301-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once the onion has softened, add your meat-free mince (remove the paper if requi
 
 Meanwhile, grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618223290462-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Increase the heat to high, add the tomato stock and cook for 3-4 min further or 
 
 Grease an oven-proof dish with a little olive oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618223303751-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Top with the grated cheese and a drizzle of olive oil
 
 Put the dish in the oven for 8-10 min or until the tortillas are beginning to crisp and the cheese has melted – these are your smoky meat-free mince enchiladas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618223334367-x200.jpg)
 
 ### Step 7
 

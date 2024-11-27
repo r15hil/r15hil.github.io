@@ -25,7 +25,6 @@ This Mexican-inspired dish combines smoky pulled chicken breast with fluffy cori
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1623662670337-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the sweetcorn cobettes to a large piece of tin foil and top with a large kno
 
 Scrunch the foil around the corn until tightly sealed and add to a baking tray, then put the tray in the oven for 25-30 min or until the corn is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2192.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2192.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Crumble the feta
 
 Set everything aside for serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623662745752-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the ground cumin, smoked paprika, ground coriander and half the chilli flake
 
 Add the chicken breast portions to the plate and turn them several times until fully coated in all the spices – this is your coated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623662779399-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once hot, add the coated chicken to the pan and cook for 3 min on each side
 
 Add the tomato paste with 100ml<span class="text-danger"> [200ml]</span> cold water, give everything a good mix up and cook, covered, for 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623662835363-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the chicken is cooked, transfer it to a board and shred it apart using two 
 
 Return the pulled chicken to the pan with the sauce and stir it all together – this is your Mexican-style pulled chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Coriander-rice-1623662883992-x200.jpg)
 
 ### Step 7
 

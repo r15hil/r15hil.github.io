@@ -27,7 +27,6 @@ Feeling festive? Time for a cheeky meat-free sausage roll. Pair it with roasted 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1604488733785-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potato[es] (skin on) into bite-sized pieces
 
 Top, tail and chop your carrot[s] and parsnip[s] (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604488739339-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the chopped potato, carrot and parsnip to a baking tray with a drizzle of ve
 
 Put the tray in the oven for 30 min or until golden and crispy – this is your roasted root veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604488749121-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a pot over a medium heat with a drizzle of vegetable oil
 
 Once hot, add the diced onion and apple with a pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604488757159-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Meanwhile, add your meat-free burger patty[ies], dried sage, and panko breadcrum
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your meat-free sausage roll mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604488781583-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Place the pastry on the tray[s], then add the meat-free sausage roll mix and lay
 
 Tip: You may need to make multiple if cooking for more than 2!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604488799539-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Season along the top with a pinch of salt and sprinkle over your black sesame se
 
 Put the tray[s] in the oven for 20 min or until golden and crispy – this is your meat-free sausage roll
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604488812670-x200.jpg)
 
 ### Step 7
 

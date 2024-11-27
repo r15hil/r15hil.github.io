@@ -24,7 +24,6 @@ Top these tasty wedges with smoky mushrooms, tomatoes and black beans, before se
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2495Step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut the sweet potatoes (skins on) into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2495Step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the sweet potato wedges to a large baking tray with a drizzle of vegetable o
 
 Put the tray in the oven for 20 min or until the wedges are tender and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2495Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add the chopped chives and garlic to a bowl along with the mayo and a splash of
 
 Add the chipotle paste to a bowl with 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil and give everything a good mix up – this is your chipotle dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2495Step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Slice the chestnut mushrooms finely
 
 Add the sliced mushrooms to a bowl with the smoked paprika and a drizzle of olive oil and mix well until the mushrooms are fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2495Step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Chop the cherry tomatoes into quarters
 
 Drain and rinse the black beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2495Step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated mushrooms to the pan with a pinch of salt and pepper and cook for 5-6 min or until starting to crisp slightly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2495Step-7-x200.jpg)
 
 ### Step 7
 

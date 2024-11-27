@@ -28,7 +28,6 @@ Valen-time for something different? Switch up this Italian classic with slow-roa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706005274983-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Put the tray in the oven for 20-25 min or until slightly charred – these are y
 
 Once done, remove the tray from the oven, transfer the roasted tomatoes to a plate and reserve the tray for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706005278946-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped shallot with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706005283747-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add the chopped garlic, dried basil and tomato paste and cook for 2 min further 
 
 Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min or until the stock is absorbed and the rice is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706005286686-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Whilst the rice is cooking, chop your basil finely (save a few leaves for garnis
 
 Combine half the chopped basil (you'll use the rest later!) with your crème fraîche – this is your basil crème fraîche
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706005289338-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Chop the drained mozzarella into small cubes
 
 Combine the cubed mozzarella with your sun-dried tomato paste, remaining chopped basil, a drizzle of olive oil and a pinch of salt and pepper – this is your basil mozzarella
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706005292162-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Sprinkle a very thin layer of your grated Italian hard cheese onto the baking tr
 
 Tip: Keep an eye on the heart crisps to make sure they don't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706005295205-x200.jpg)
 
 ### Step 7
 

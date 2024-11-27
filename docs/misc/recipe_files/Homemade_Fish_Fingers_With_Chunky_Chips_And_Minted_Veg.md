@@ -21,7 +21,6 @@ Lightly battered and crisped to perfection, these homemade fish fingers are tend
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599054098412-x200.jpg)
 
 ### Step 1
 
@@ -33,13 +32,11 @@ Add the chunky chips to a baking tray with a drizzle of vegetable oil and a pinc
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599054109325-x200.jpg)
 
 ### Step 2
 
 While the chips are cooking, combine the cornflour and ground turmeric with a very generous pinch of salt and pepper in a large bowl – this is your cornflour mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599054116607-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ Cut the basa fillets into strips
 
 Add the basa strips to the bowl with the cornflour mixture and combine until they’re fully coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599054122362-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Slice the mangetout in half at an angle
 
 Boil a full kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599054127292-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once hot, add the coated basa strips and cook for 3-4 min on each side or until 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599054140002-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Meanwhile, add the sliced mangetout and blanched peas to a pot, covering them wi
 
 Once boiling, cook for 2 min or until tender with a slight bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599054147375-x200.jpg)
 
 ### Step 7
 

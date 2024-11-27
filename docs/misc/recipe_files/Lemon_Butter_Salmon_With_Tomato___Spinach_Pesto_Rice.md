@@ -21,7 +21,6 @@ This buttery salmon is speedy, citrusy and full of garlicky goodness. Serve with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-3-1725448183032-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-3-1725448191093-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Slice 1/4 of your lemon[s] into rounds
 
 Cut the remaining lemon into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-3-1725448196722-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Combine the chopped garlic and the juice of the remaining lemon[s] in a bowl wit
 
 Season with salt and pepper – this is your lemon butter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-3-1725448204476-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-3-1725448213881-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Roughly chop your tomato[es]
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-3-1725448219900-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once the rice is piping hot, add it to a bowl with your traditional Italian pest
 
 Season with salt and pepper and give it a good mix up – this is your tomato & spinach pesto rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-3-1725448225455-x200.jpg)
 
 ### Step 7
 

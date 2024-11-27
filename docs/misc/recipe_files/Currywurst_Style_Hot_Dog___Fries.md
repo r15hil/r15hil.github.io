@@ -26,7 +26,6 @@ Berlin’s iconic currywurst goes head-to-head with an American classic. You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683880548140-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Line a baking tray with non-stick baking paper
 
 Cut the potatoes (skins on) into thin fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683880558462-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 20-25 min or until the sausages are cooked through – these are your sausages and smoky fries
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683880563135-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with splash of cold water, 1 tsp <span class="text-danger">[2 tsp] </span>sugar and half the white wine vinegar (you'll use the rest later!), cook for 8-10 min or until the onion has caramelised, then transfer to a plate and reserve the pan – this is your caramelised onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683880569917-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Combine the carrot & cabbage slaw mix with half the mayo (you'll use the rest la
 
 Combine the remaining mayo and the mustard ketchup in a small bowl with a small splash of cold water – this is your mustard-mayo dip
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683880578157-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once fragrant, add the Henderson's Relish, tomato ketchup and a splash of cold w
 
 Once thickened, remove the pan from the heat and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683880630713-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Cut a slit into the top of each hot dog bun and add them to the tray
 
 Return the tray to the oven for 2-3 min or until the buns are warmed through and the fries are golden
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683880636624-x200.jpg)
 
 ### Step 7
 

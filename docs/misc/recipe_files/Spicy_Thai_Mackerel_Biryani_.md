@@ -22,7 +22,6 @@ Smoky, salty mackerel works well with snappy, fresh flavours. This summery birya
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/419.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Add the rice, 375ml <span class="text-danger">(750ml)</span> water and salt (opt
 
 Check occasionally to prevent over-cooking and once done, drain and rinse with cold water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/419.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add 2-4 tbsp olive oil in a large, wide-based pan (preferably non-stick) over a 
 
 Once hot, add&nbsp;the onion and cook for 5-8 min or until slightly golden and starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/419.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Meanwhile, slice the chilli<span class="text-danger">(es)</span> in half lengthw
 
 Peel the ginger (scrape the skin off with a teaspoon) and finely chop (or grate)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/419.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Cook for a further 1-2 min
 
 Tip: Add more oil if too dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/419.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tip:&nbsp;Cooling the rice stops it clumping together
 
 Cook for 4 min or until the rice has warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/419.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Chop the coriander finely, including the stalks
 
 Peel the skin off the mackerel (discard) and tear it up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/419.-step-7-x200.jpg)
 
 ### Step 7
 

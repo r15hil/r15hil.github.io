@@ -31,7 +31,6 @@ Sold on almost every street corner in Lagos, suya is a Nigerian favourite. Get t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629105155119-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop your creamed coconut roughly (if required!)
 
 Add your white long grain rice, chopped creamed coconut, half your chicken stock mix (save the rest for later!) and 225ml <span class="text-purple">[300ml]</span> <span class="text-danger">[450ml] </span>cold water to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629105162399-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Reserve the pot and heat the grill to medium-high
 
 Take your chicken out of the fridge, open the packet and let it air
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629105169771-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add your roasted peanuts, smoked paprika, cayenne pepper (can't handle the heat?
 
 Add a generous drizzle of vegetable oil with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water and blitz until a paste forms – this is your suya-style marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629105174439-x200.jpg)
 
 ### Step 4
 
@@ -69,19 +65,16 @@ Chop the chicken thighs into small bite-sized pieces and season with a generous 
 
 Add the chopped chicken and suya-style marinade to a large bowl and give everything a good mix up until the chicken is fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629105180541-x200.jpg)
 
 ### Step 5
 
 Thread the marinated chicken onto the soaked skewers and add to a tin foil-lined baking tray – these are your marinated chicken skewers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629105186133-x200.jpg)
 
 ### Step 6
 
 Put the marinated chicken skewers under the grill for 9-10 min on each side or until charred and cooked through (no pink meat!) – these are your suya-style chicken skewers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629105191305-x200.jpg)
 
 ### Step 7
 

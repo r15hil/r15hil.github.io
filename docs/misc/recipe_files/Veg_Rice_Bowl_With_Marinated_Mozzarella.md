@@ -24,7 +24,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/672.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the rice and&nbsp;350ml <span class="text-danger">[700ml]</span> cold water 
 
 Once boiling, reduce the heat to very low, cover and cook for 10-15 min or until the water has absorbed then set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/672.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Meanwhile, top and tail the courgette<span class="text-danger">[s]</span> then s
 
 Chop the courgette halves into bite-size pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/672.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once hot, add the courgette with a pinch of salt and cook for 3-4 min or until s
 
 Meanwhile, slice the cherry tomatoes in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/672.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, finely chop the basil leaves and stalks, keeping the leaves and stalk
 
 Add the basil&nbsp;stalks to the pan (save the chopped leaves for the next step)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/672.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Grind the fennel seeds finely in a pestle and mortar
 
 Combine the fennel seeds, balsamic vinegar, honey,&nbsp;Dijon mustard,&nbsp;basil leaves and a pinch of salt and pepper - this is your dressing&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/672.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cut the mozzarella into small, bite-size pieces then add it to the dressing&nbsp
 
 Toss gently to coat each piece of mozzarella
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/672.-step-7-x200.jpg)
 
 ### Step 7
 

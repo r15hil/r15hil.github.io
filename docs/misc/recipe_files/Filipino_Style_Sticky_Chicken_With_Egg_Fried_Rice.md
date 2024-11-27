@@ -28,7 +28,6 @@ Try our twist on this Filipino favourite. You’ll pan-fry juicy chicken thighs 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1696000457404-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then transfer the cooked rice to a plate, reserving the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1696000461837-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken thighs and cook for 3 min on each side or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1696000466036-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and finely chop (or grate) your garlic
 
 Combine 2/3 of your soy sauce and your rice vinegar in a small bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>sugar<span class="text-danger"> </span>and 75ml <span class="text-purple">[110ml]</span><span class="text-danger"> [150ml] </span>cold<span class="text-danger"> </span>water – this is your Filipino-style tocino sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1696000469720-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the Filipino-style tocino sauce and bring to the boil
 
 Once boiling, cook, covered, for 10 min or until the sauce has thickened to a syrup-like consistency and the chicken is cooked through (no pink meat!) – this is your Filipino-style sticky chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1696000472961-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Heat a separate wide-based pan (preferably non-stick) with a drizzle of vegetabl
 
 Once hot, add the diced onion with a pinch of salt and cook for 3 min or until starting to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1696000476467-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once starting to soften, add the remaining chopped garlic and remaining soy sauc
 
 Stir it all together and cook for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1696000479846-x200.jpg)
 
 ### Step 7
 

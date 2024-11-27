@@ -29,7 +29,6 @@ Take a walk on the mild side with a crispy aubergine katsu curry. You'll serve t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655800447144-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add a small handful of flour to a plate and season with a generous pinch of salt
 
 Add the panko breadcrumbs to another plate with 2 tbsp <span class="text-danger">[3 tbsp]</span> vegetable oil and give everything a good mix up until all the breadcrumbs are coated in the oil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655800451601-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the coated aubergine rounds to a tin foil-lined tray and put in the oven for
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655800456746-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655800461590-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginge
 
 Peel and chop the shallot<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655800467501-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Add the curry powder and cook for a further 2 min
 
 Add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and cook for 1 min, stirring to coat the vegetables evenly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1619443485201-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Cook for 5-7 min or until the sauce has thickened to a curry-like consistency
 
 Once cooked, season with a generous pinch of salt – this is your katsu sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655800472833-x200.jpg)
 
 ### Step 7
 

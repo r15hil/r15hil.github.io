@@ -26,7 +26,6 @@ We’ve revamped this golden oldie into an almost prep-free party. All you’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1631550048559-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631550039699-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Peel and slice your brown onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631550064245-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Top, tail and slice your carrot[s] into discs
 
 Chop your potatoes into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631550101772-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[50
 
 Bring to the boil over a high heat, then top with the chopped potatoes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631550119965-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Put the dish in the oven, covered, for an initial 30 min or until the potatoes a
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636455332403-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, cut a<span class="text-danger"> </span>piece of tin foil (or two!) ap
 
 Wash, then add your shredded spring greens to the middle with a few small knobs of butter and 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636455336760-x200.jpg)
 
 ### Step 7
 

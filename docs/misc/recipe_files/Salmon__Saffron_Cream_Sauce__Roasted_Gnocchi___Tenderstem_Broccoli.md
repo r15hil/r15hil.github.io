@@ -24,7 +24,6 @@ This Italian-inspired dish combines the rich flavour of salmon with beautifully 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1554.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Put the tray in the oven for 20-25 minutes or until golden and crispy.
 
 Tip: give the gnocchi a mix halfway through cooking so that they colour evenly.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1554.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -63,7 +61,6 @@ Peel and finely chop (or grate!) the garlic.
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1554.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -78,7 +75,6 @@ Once melted, add the shallot and garlic and cook for 3-4 minutes or until soften
 
 Once softened, add the saffron stock and cook for 1-2 minutes further.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1554.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -96,7 +92,6 @@ Stir in the juice of 1/4<span class="text-danger"> [1/2]</span> lemon&nbsp;&ndas
 
 Cut the remaining lemon into wedges.
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1554.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -114,7 +109,6 @@ Add a splash of water and cook, covered, for 1-2 minutes further or until&nbsp;t
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1554.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -132,7 +126,6 @@ Once hot, add the&nbsp;salmon fillets&nbsp;<span class="text-highlight">and</spa
 
 Tip: your fish is cooked when it turns opaque and flakes easily.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1554.-step-7-x200.jpg)
 
 ### Step 7
 

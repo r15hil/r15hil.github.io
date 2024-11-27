@@ -23,7 +23,6 @@ This healthy, wholesome noodle soup will warm you up with a big burst of flavour
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650987458360-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650987460967-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and chop the brown onion<span class="text-danger">[s]</span> into wedges an
 
 Once hot, add the onion wedges and halved cherry tomatoes to the pan with a pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650987463468-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650987466440-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once starting to soften, add the ginger & garlic paste and curry powder to the p
 
 Reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650987468317-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Dissolve the creamed coconut and vegetable stock mix in 400ml<span class="text-d
 
 Add the coconut stock to the pan and bring to the boil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650987470878-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Chop the pollock fillets into large, bite-sized pieces
 
 Add the chopped pollock to the pan and cook for an initial 2-3 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650987473164-x200.jpg)
 
 ### Step 7
 

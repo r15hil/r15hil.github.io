@@ -22,7 +22,6 @@ Here's our take on a rich, smoky spaghetti carbonara that's completely plant-bas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690275043784-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel and finely dice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1608551803728-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Cook the  for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690275047113-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ While the spaghetti is cooking, heat a large, wide-based pan (preferably non-sti
 
 Once hot, add your meat-free bacon lardons and cook for 4-5 min or until golden and crispy all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1608551715413-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the diced shallot with a pinch of salt and cook for 2-3 min or until startin
 
 Once starting to soften, add the chopped garlic and cook for 1 min further or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1608551733131-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Meanwhile, combine half of your cider vinegar (save the rest for later!) with 1 
 
 Dice your tomato[es]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1608551742512-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Tip: The miso paste adds an umami flavour to the sauce!
 
 Season with a generous grind of black pepper and cook for 2-3 min or until thickened to a creamy consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690274960702-x200.jpg)
 
 ### Step 7
 

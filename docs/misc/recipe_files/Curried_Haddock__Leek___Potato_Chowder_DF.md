@@ -22,7 +22,6 @@ Warm your cockles with a fragrant haddock chowder with sweet leeks, fish and a m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637677853267-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Top, tail, peel and finely dice the carrot<span class="text-danger">[s]</span>
 
 Wash the leek<span class="text-danger">[s]</span> thoroughly to remove any grit from between the leaves, then top, tail and slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637677918701-x200.jpg)
 
 ### Step 2
 
@@ -38,7 +36,6 @@ Heat a large, wide-based pot with a drizzle of olive oil over a medium heat
 
 Once hot, add the diced carrot and sliced leek with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641295802886-x200.jpg)
 
 ### Step 3
 
@@ -46,13 +43,11 @@ Meanwhile, boil a full kettle
 
 Chop the potatoes (skins on) into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641295808569-x200.jpg)
 
 ### Step 4
 
 Dissolve the vegetable stock mix in 350ml <span class="text-danger">[700ml] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641295815163-x200.jpg)
 
 ### Step 5
 
@@ -60,13 +55,11 @@ Once the leeks have softened, add the curry powder, ground turmeric and 1 t
 
 Add the vegetable stock, chopped potatoes and the single soya and cook for 15-18 min or until the potatoes are almost fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641295823859-x200.jpg)
 
 ### Step 6
 
 Once the potatoes are almost fork-tender, wash the spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641295831519-x200.jpg)
 
 ### Step 7
 

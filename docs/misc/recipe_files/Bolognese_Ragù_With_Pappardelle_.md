@@ -24,7 +24,6 @@ This dish needs no introduction (but we’ll do one anyway). Authentic ragù all
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2090.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely dice the brown onion<span class="text-danger">[s]</span>
 
 Top, tail and finely dice the carrot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2090.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the diced onion and carrot with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2090.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ While the onion and carrots are cooking, peel and finely slice (don't chop!) th
 
 Chop the cherry tomatoes in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2090.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the sliced garlic, halved cherry tomatoes and dried oregano and cook for 4-5
 
 Tip: Crush the tomatoes with a wooden spoon as you stir
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2090.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Stir in 50ml <span class="text-danger">[100ml]</span> milk – this is your stoc
 
 Once the tomatoes have started to break down, add the stock to the pan and cook for 15-20 min or until the sauce has thickened to a rich, bolognese-like consistency – this is your Bolognese ragù
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2090.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Cook for 10-12 min or until tender with a slight bite (this is known as al dent�
 
 Once done, drain the cooked pappardelle, reserving a cup of the starchy pasta water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2090.-step-7-x200.jpg)
 
 ### Step 7
 

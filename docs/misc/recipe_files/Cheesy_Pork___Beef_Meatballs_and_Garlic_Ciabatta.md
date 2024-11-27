@@ -25,7 +25,6 @@ For this delicious crowd pleaser, you'll prep then bake succulent mozzarella-top
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695658300496-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop half your<span class="text-danger"> </span>brown onion[s]
 
 Grate the remaining onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695658313509-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Combine your pork & beef mince, grated onion, panko breadcrumbs and a pinch of�
 
 Divide the meatball mixture and shape them into 7 meatballs per person.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695658324675-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your beef stock mix in 70ml <span class="text-purple">[90ml]</span><span class="text-danger"> [120ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695658343578-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or unt
 
 Add half the chopped garlic (save the rest for later!) and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695658349133-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Increase the heat to medium-high, then return the browned meatballs to the pan a
 
 Meanwhile, drain your mozzarella and tear it into rough pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695658353626-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Top with the torn mozzarella and put the dish in the oven for 8-10 min or until 
 
 Meanwhile, combine the remaining balsamic vinegar with 2 tbsp<span class="text-purple"> [3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your balsamic dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695658356763-x200.jpg)
 
 ### Step 7
 

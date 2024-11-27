@@ -26,7 +26,6 @@ This veggie stir-fry is packed with pepper, carrot and oodles of udon. You'll co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-Step-1-1621271096752-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1583418193886-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspo
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583418197300-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced pepper[s] and your ginger & garlic paste to the pan with a pinch of salt and cook for 1-2 min or until the pepper starts to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583418200755-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once hot, add your black sesame seeds, then crack your egg[s] into the pan over 
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1583418204498-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Once the pepper has softened, add your udon noodles and grated carrot to the pan
 
 Tip: Gently separate the noodles with a fork!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583418208419-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add your soy sauce to a bowl with your mirin, sriracha (can't handle the heat? Go easy!), cornflour and 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp]</span> cold water and mix until smooth – this is your spicy soy sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583418212519-x200.jpg)
 
 ### Step 7
 

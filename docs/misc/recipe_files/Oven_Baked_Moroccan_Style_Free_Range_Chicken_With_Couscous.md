@@ -27,7 +27,6 @@ This cinch of a chicken recipe will fill your home with the aromas and tastes of
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1707824964535-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1707824967348-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Chop your tomato[es] into wedges
 
 Peel and cut your red onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1707824970803-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your ras el hanout, half your ground turmeric (save the rest for later!), 1 
 
 Give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1707824974683-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, peel and grate (don't chop!) your garlic
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1707824978589-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once hot, add your giant couscous, chicken stock mix, remaining ground turmeric,
 
 Give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1707824982367-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Bring to the boil over a high heat, cover with a lid, then put the dish in the o
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1707824986438-x200.jpg)
 
 ### Step 7
 

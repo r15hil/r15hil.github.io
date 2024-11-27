@@ -25,7 +25,6 @@ Tuck into this smoky Spanish-inspired soup. You’ll roast pepper and tomatoes w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678292541795-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Chop your tomatoes into quarters
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678292545441-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large pot (with a matching lid) over a medium-high heat with a drizzle of
 
 Once hot, add the the diced onion and half the chopped garlic (you'll use the rest later!) and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678292552032-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add half your ground smoked paprika (you'll use the rest later!), a pinch of sal
 
 Put the tray[s] in the oven for 12-15 min or until the vegetables have softened and are beginning to char – this is your roasted pepper & tomato
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678292559578-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Chop your potato[es] (skins on) into bite-sized pieces
 
 Once the onion has softened, add the remaining ground smoked paprika and ground coriander to the pot and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678292563457-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once fragrant, add the chopped potatoes and vegetable stock mix to the pot with 
 
 Once boiling, reduce the heat to medium-low and cook, covered, for 15-18 min or until the potatoes are fork-tender – this is your smoky soup base
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678292574466-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Meanwhile, combine the remaining chopped garlic (not a big garlic fan? Try using
 
 Slice your ciabatta[s] in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678292587252-x200.jpg)
 
 ### Step 7
 

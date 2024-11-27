@@ -27,7 +27,6 @@ Give yourself some TLC with this comforting stew. You’ll simmer beef mince in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1713867975114-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1713867977764-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713867980759-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the shallot wedges and sliced carrot with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1713867984409-x200.jpg)
 
 ### Step 4
 
 Whilst the veg is softening, dissolve your beef stock mix, tomato paste and red wine paste in 250ml <span class="text-purple">[320ml]</span> <span class="text-danger">[420ml]</span> boiled water – this is your red wine stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713867988535-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the carrot and onion has slightly softened, add your beef mince to the pan 
 
 Once browned, reduce the heat to medium-high, add the chopped garlic and 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> flour and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713867993033-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once boiling, reduce the heat to medium and cook for 4-5 min or until the sauce 
 
 Chop your parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713867996421-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ For this bowlful of classic Tex-Mex flavours, you’ll toss together spiced faji
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695735612967-x200.jpg)
 
 ### Step 1
 
@@ -41,13 +40,11 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695735617452-x200.jpg)
 
 ### Step 2
 
 While the rice is cooking, combine your ground cumin, ground smoked paprika and chilli flakes (can't handle the heat? Go easy!) on a plate – this is your fajita seasoning
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695735627998-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the pepper strips and onion wedges to a baking tray (or two!) with half the 
 
 Put the tray[s] in the oven for 15 min or until the vegetables are tender – these are your roasted vegetables
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695735632553-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Wash your lettuce, then pat dry with kitchen paper and tear into bite-sized piec
 
 Chop your coriander finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695735636674-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Tip: Add a splash of water if the dressing is looking a little thick!
 
 Slice your halloumi into thick strips, then add to the remaining fajita seasoning and give everything a good mix up until fully coated in all the spices – this is your coated halloumi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695735640882-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once hot, add the coated halloumi and cook for 2-3 min on each side or until the
 
 Once cooked, remove the pan from the heat and add the remaining honey – this is your halloumi fajita
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695735644482-x200.jpg)
 
 ### Step 7
 

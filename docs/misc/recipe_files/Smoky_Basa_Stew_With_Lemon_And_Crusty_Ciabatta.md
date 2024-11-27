@@ -23,7 +23,6 @@ Sometimes a steaming bowl of fish stew with crusty ciabatta is just what the doc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1409.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil a kettle
 
 Peel and finely chop your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1409.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-6 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1409.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Chop your dill finely, including the stalks
 
 Dissolve your vegetable stock mix in 350ml<span class="text-danger"> <span class="text-purple">[500ml]</span> [650ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1409.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Cut your smoked basa fillet[s] into large bite-sized pieces
 
 Wash your shredded kale then pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1409.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Add the chopped basa to the pan with the shredded kale and cook for 4-5 min or
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Ciabatta-in-toaster-1669739229157-x200.jpg)
 
 ### Step 6
 
 Meanwhile, slice your ciabatta[s] in half and place in the toaster for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1409.-step-7-x200.jpg)
 
 ### Step 7
 

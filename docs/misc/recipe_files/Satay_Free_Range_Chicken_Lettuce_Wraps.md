@@ -25,7 +25,6 @@ Get the summer season rolling with nutty, zingy satay chicken, stuffed in crunch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-16-1693841948720-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-16-1693841951512-x200.jpg)
 
 ### Step 2
 
 While the noodles are soaking, peel and finely slice your red onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-16-1693841954867-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 
 
 Once hot, add the sliced onion and a pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-16-1693841958382-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Cook for 3 min on each side or until browned
 
 Once browned add a splash of water and cook, covered, for 10-12 min or until cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-15-1693841962318-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Strip your mint leaves from their stems and chop them finely, discard the stems
 
 Grate your carrot[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-14-1693841966047-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add your soy sauce and the juice of half your lime[s] and stir it all togethe
 
 Cut the remaining lime into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-18-1693841969335-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ The history of this iconic salad dates back to 1896 when the Waldorf Hotel in Ne
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1098.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once hot, add the chicken thigh fillets with the dried&nbsp;oregano and a pinch 
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1098__step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Add the mayonnaise to a bowl with the juice of 1/2&nbsp;<span class="text-danger
 
 Season with a pinch of salt and pepper - this is your creamy dressing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1098.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the chicken is golden, reduce the heat to low, add a splash of water, cover with a lid and&nbsp;cook for 10-12 min or until it's cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1098.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tip: the lemon juice&nbsp;prevents the apple from going brown!
 
 Add the sultanas to a small bowl and cover them with&nbsp;boiled water (this plumps them up)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1098.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add the ciabatta&nbsp;to one side of the baking tray with a drizzle of olive oil
 
 Add the walnuts to the other side of the baking tray and put the tray in the oven for 5-6 min or until they've darkened slightly in colour and toasted&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1098.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Cut the red grapes in half&nbsp;
 
 Tear the cosberg lettuce&nbsp;into rough, bite-size pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1098.-step-7-x200.jpg)
 
 ### Step 7
 

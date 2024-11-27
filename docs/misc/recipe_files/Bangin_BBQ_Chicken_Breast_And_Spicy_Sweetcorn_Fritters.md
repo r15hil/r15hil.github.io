@@ -29,7 +29,6 @@ Switch up your low carb dinner roster with smoky chicken breast portions, and fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Flattened-Chicken-Breast-1729849628781-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your chicken breast portion[s] to a chopping board and slice through the thi
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729849513033-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ While the chicken is grilling, peel and finely chop (or grate) your garlic
 
 Drain your sweetcorn
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729849442020-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chopped garlic, drained sweetcorn, chilli flakes (not a fan of spice? Ju
 
 Crumble in your feta, season with a pinch of salt and pepper and stir to combine – this is your fritter mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729849448950-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, spoon the fritter mixture into the pan, roughly divided into 2 per person<span class="text-danger"> </span>and cook for 4 min on one side then 2 min on the other until golden and cooked through – these are your spicy sweetcorn fritters
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729849459926-x200.jpg)
 
 ### Step 5
 
 While the fritters are cooking, chop your chives finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729849464948-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Combine most of the chopped chives (save some for garnish!) with the mayo
 
 Add a little splash of cold water to loosen and season with a crack of black pepper – this is your chive mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729849470605-x200.jpg)
 
 ### Step 7
 

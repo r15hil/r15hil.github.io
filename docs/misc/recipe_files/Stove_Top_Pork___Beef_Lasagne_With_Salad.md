@@ -28,7 +28,6 @@ Thought you need an oven for lasagne? Think again. You’ll rustle up a rich por
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695738567155-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop your brown onion[s], then top, tail, peel and finely dice y
 
 Remove the base of your lettuce, then wash under cold running water and cut away the core, then pat dry with kitchen paper and tear the lettuce leaves from the stem until you are left with a pile of leaves (set these aside for later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695738574679-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the chopped onion and diced carrot to the pan with a pinch of sa
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695738578883-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cook for 3-4 min or until browned all over, breaking it up with a wooden spoon a
 
 Dissolve your beef stock mix, tomato paste, half your balsamic vinegar, Henderson's relish, bay leaves and a pinch of sugar in 350ml <span class="text-purple">[525ml]</span><span class="text-danger"> [700ml] </span>boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695738582880-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once fragrant, add the tomato stock to the pan with the remaining lasagne sheets
 
 Once boiling, reduce the heat to medium, and cook for a initial 7 min, stirring occasionally – this is your pasta mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695738586869-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once melted, add 15g <span class="text-purple">[25g]</span> <span class="text-da
 
 Add 200ml <span class="text-purple">[300ml]</span><span class="text-danger">[400ml]</span> milk gradually and whisk for 5 min or until a smooth, thick sauce remains
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695738589972-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ After an initial 7 min, top the pasta mixture with the béchamel (reserve the pa
 
 Drain the soaked lasagne sheets
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695738593898-x200.jpg)
 
 ### Step 7
 

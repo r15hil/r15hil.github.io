@@ -25,7 +25,6 @@ Warm your cockles with a fragrant haddock chowder with sweet leeks, fish and a m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1309.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Top, tail, peel and finely dice your carrot[s]
 
 Wash your leek[s] thoroughly to remove any grit from between the leaves, then top, tail and slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1309.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,25 +39,21 @@ Heat a large, wide-based pot (with a matching lid) with a large knob of butter o
 
 Once melted, add the diced carrot and sliced leek with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728473078994-x200.jpg)
 
 ### Step 3
 
 Meanwhile, boil a full kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1309.-step-4-x200.jpg)
 
 ### Step 4
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1309.-step-5-x200.jpg)
 
 ### Step 5
 
 Dissolve your vegetable stock mix in 550ml <span class="text-purple">[700ml]</span><span class="text-danger"> [950ml]</span> boiled water and 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[200ml]</span> milk
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1309.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,7 +63,6 @@ Add the vegetable stock and chopped potatoes and cook for 15-18 min or until
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1309.-step-7-x200.jpg)
 
 ### Step 7
 

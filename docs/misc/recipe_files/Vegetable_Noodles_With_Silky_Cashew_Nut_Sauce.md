@@ -27,7 +27,6 @@ These noodles are packed with vegetables and nutty flavour. You'll sizzle carrot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/472.step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, set them aside to cool slightly and save the pan for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/472.-step-2.new-x200.png)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Top, tail and finely dice your courgette[s]
 
 Slice your chestnut mushrooms finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/472.step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely slice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/472.step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the diced carrot, diced courgette, sliced onion, sliced mushroo
 
 Cook for 10-15 min or until everything is starting to caramelise
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/472.step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles, reserving a cup of the starchy noodle water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/472.step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add your maple syrup, remaining chopped garlic, 3 tbsp <span class="text-purple"
 
 Tip: Don't have a pestle & mortar? Use a food processor!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/472.step-7-x200.jpg)
 
 ### Step 7
 

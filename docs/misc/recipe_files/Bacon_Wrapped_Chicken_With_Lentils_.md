@@ -24,7 +24,6 @@ Wrapping chicken in bacon not only keeps the meat moist – it also acts as a se
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/650.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Preheat&nbsp;the grill to a high heat&nbsp;
 
 Cut the chicken breast<span class="text-danger">[s]</span> in half down the centre
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/650.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Lay each piece of chicken over the bacon and wrap it up (see picture)
 
 Put the tray directly under the grill and cook for 10-15 min or until the bacon has cooked, crisped and the chicken is cooked through (the juices run clear when cooked)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/650.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel and dice the carrots
 
 Peel and dice the red onion<span class="text-danger">[s]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/650.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the diced celery, carrot, onion and bay leaf<span class="text-dang
 
 Cook for 5-10 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/650.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, chop the parsley roughly, including the stalks&nbsp;
 
 Peel and finely chop (or grate) the garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/650.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the Shaoxing wine and cook for 1 min further
 
 Add the lentils (no need to drain) and cook for a further 2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/650.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Although this rich, spicy tomato and egg dish is said to have its origins in Nor
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/780.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/780.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Once hot, add the shallot,&nbsp;garlic&nbsp;and&nbsp;a pinch of salt and cook fo
 
 Meanwhile, dissolve the&nbsp;stock cube<span class="text-danger">[s]</span>&nbsp;in 100ml <span class="text-danger">[200ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/780.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Drain and rinse the butter&nbsp;beans
 
 Add the butter&nbsp;beans and 50ml <span class="text-danger">[100ml]</span> water to the pan and cook over a medium-low heat for 15-20 min &ndash; this is your tomato-bean mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/780.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -86,7 +82,6 @@ Add the spring onion and half of the parsley (you'll use the rest later) and mix
 
 Season with salt and pepper &ndash;&nbsp;this is your feta&nbsp;filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/780.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,7 +93,6 @@ Divide the feta filling between half of the tortillas, then sandwich the remaini
 
 You should end up with 3 <span class="text-danger">[6]</span> feta-dilla sandwiches&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/780.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -113,7 +107,6 @@ Carefully flip the feta-dilla with a spatula&nbsp;(you might need to use your ha
 
 Place them in the oven to keep warm while you repeat the process with the remaining&nbsp;feta-dillas&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/780.-step-7-x200.jpg)
 
 ### Step 7
 

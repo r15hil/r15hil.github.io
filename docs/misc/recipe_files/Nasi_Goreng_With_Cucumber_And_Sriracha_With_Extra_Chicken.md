@@ -29,7 +29,6 @@ Fire up your wok for an Indonesian street food favourite. Smoky stir-fried brown
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729494677960-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729494680944-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729494685317-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Cook for a further 10-12 min or until the chicken is cooked through (no pink mea
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729494688670-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Wash your shredded kale, then pat it dry with kitchen paper
 
 Trim, then slice your spring onion[s] roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729494691936-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once the pan is hot, remove it from the heat, then add the brown rice with your
 
 Return the pan to the heat, then add your toasted sesame oil, soy sauce, chilli flakes (can't handle the heat? Go easy!) and 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp] </span>sugar and cook for 2-3 min or until fully combined
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729494694998-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once hot, crack your egg[s] into the pan and cook, covered, for 3 min or until c
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729494698187-x200.jpg)
 
 ### Step 7
 

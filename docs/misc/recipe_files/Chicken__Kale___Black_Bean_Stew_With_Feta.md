@@ -27,7 +27,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1739.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 t
 
 Once hot, add the chicken breast<span class="text-danger">[s]</span> and cook for 2-3 min on each side, or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1739.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Dissolve 1/2 <span class="text-danger">[1]</span><span class="text-highlight"> Knorr</span> chicken stock cube in 650ml <span class="text-danger">[1L]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1739.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Once browned, add the ground cumin, smoked paprika, cayenne pepper<span class="t
 
 Cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1739.-step-4-x200.jpg)
 
 ### Step 4
 
 <span class="text-highlight">When fragrant, add</span> the chicken stock and giant couscous and cook, covered, for 10-15 min or until the chicken is cooked through (no pink meat!) and the couscous is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1739.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
 Chop the coriander roughly, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1739.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Give it a good mix up and cook, covered, for 2-3 min or until the kale is wilted
 
 Meanwhile, shred the chicken apart using two forks – this technique is known as 'pulling'
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1739.-step-7-x200.jpg)
 
 ### Step 7
 

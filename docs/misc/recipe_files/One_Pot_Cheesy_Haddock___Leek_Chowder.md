@@ -22,7 +22,6 @@ Enjoy a creamy, comforting chowder with sweet leeks, tender haddock and melty ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1454.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Boil a kettle
 
 Chop your leek[s] in half lengthways, wash thoroughly then top, tail and slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1454.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,19 +36,16 @@ Heat a large, wide-based pot with a large knob of butter over a medium heat
 
 Once melted, add the sliced leek with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1454.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, chop your potatoes (skins on) into small, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1454.-step-4-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 550ml <span class="text-purple">[775ml]<span class="text-danger"> </span>[1L]</span> boiled water and 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[200ml]</span> milk – this is your creamy vegetable stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1454.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -58,7 +53,6 @@ Once the leek has softened, add 1 tsp <span class="text-purple">[1 1/2 tsp] </
 
 Add the creamy vegetable stock and chopped potatoes and cook for 15-18 min or until the potatoes are almost fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1454.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -70,7 +64,6 @@ Season to taste with a pinch of salt and pepper
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1454.-step-7-x200.jpg)
 
 ### Step 7
 

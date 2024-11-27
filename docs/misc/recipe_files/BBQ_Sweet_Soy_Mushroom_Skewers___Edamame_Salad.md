@@ -26,7 +26,6 @@ Nothing levels up a plant-based BBQ like these mighty mushroom skewers. Contrast
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627979806129-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Skewers-soaking-1627981823668-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
 Meanwhile, soak the skewers in cold water (this prevents them from burning whilst cooking)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627979819710-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel and grate the ginger into a large bowl
 
 Add the larger soy sauce sachet<span class="text-danger">[s] </span>to a bowl with the agave and half the rice vinegar (save the rest for later!) and give everything a good mix up – this is your sweet soy marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627979834025-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Chop the chestnut mushrooms in half through the stalks
 
 Add the halved chestnut mushrooms to the sweet soy marinade and give everything a gentle mix for 30 secs or until the mushrooms are evenly coated in the marinade – these are your sweet soy mushrooms
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627979842970-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Drizzle the remaining marinade over the mushroom skewers
 
 Put the tray under the grill for 10-12 min or until they're tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627979848296-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ While the mushroom skewers are grilling, combine the sriracha with the remaining
 
 Tip: Re-use the mushroom marinade bowl for less washing up!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627979860386-x200.jpg)
 
 ### Step 7
 

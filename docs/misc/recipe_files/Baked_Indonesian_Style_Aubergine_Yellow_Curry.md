@@ -31,7 +31,6 @@ Leave it to the oven and relax with this fragrant Indonesian-style dinner, packe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1684850236289-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1684850244095-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Trim the green stalk[s] off your aubergine[s] and cut, lengthways into wedges
 
 Once hot, add the aubergine wedges to the dish and cook for 2-3 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1684850248400-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Roughly chop your creamed coconut (if required!)
 
 Dissolve the chopped creamed coconut in 250ml <span class="text-purple">[325ml]</span><span class="text-danger"> [425ml]</span> boiled water – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1684850251781-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Add the onion wedges and half your red chilli (can't handle the heat? Go easy!),
 
 Give everything a good mix up then cover with a lid and put it in the oven for 30 min or until the aubergine is tender – this is your baked Indonesian-style aubergine yellow curry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1684850257123-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once the curry is in the oven, add your white long grain rice to an oven-proof d
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1684850260611-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ When the curry has about 15 min left, trim your green beans
 
 Roughly chop the remaining red chilli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1684850264930-x200.jpg)
 
 ### Step 7
 

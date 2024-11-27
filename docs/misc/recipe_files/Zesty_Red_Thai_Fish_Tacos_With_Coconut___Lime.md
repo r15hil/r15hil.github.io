@@ -25,7 +25,6 @@ Put a twist on classic Thai fish tacos with aromatic red curry basa, zesty lime 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1723197726816-x200.jpg)
 
 ### Step 1
 
@@ -35,13 +34,11 @@ Once hot, add your coconut flakes and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723197730463-x200.jpg)
 
 ### Step 2
 
 Wash then remove the outer leaves (3 per person!) from your lettuce and set aside, shred the inner core[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723197734389-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Zest half your lime[s] (try to grate lightly with a micro-plane or sharp box gra
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723197738192-x200.jpg)
 
 ### Step 4
 
@@ -57,13 +53,11 @@ Combine the lime zest and mayo with a pinch of sugar and a squeeze of lime juice
 
 Season with a generous pinch of salt and pepper – this is your zesty mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723197742140-x200.jpg)
 
 ### Step 5
 
 Add your carrot & cabbage slaw mix and shredded lettuce to your zesty mayo and toss together – this is your zesty slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723197746067-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Once lightly golden, add your red Thai curry paste and cook for a further 2 min 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723197750934-x200.jpg)
 
 ### Step 7
 

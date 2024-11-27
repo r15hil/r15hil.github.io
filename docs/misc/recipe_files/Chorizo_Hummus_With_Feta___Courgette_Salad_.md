@@ -22,7 +22,6 @@ Get ready for a Mediterranean feast! You'll serve smoky chorizo hummus alongside
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1610.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Boil a kettle
 
 Add the bulgur wheat to a pot with plenty of boiled water and cook over a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1610.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ While the bulgur wheat is cooking, heat a large, wide-based pan (preferably non-
 
 Once hot, add the diced chorizo and cook for 6-8 min or until crisped (save the chorizo oil for later!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1610.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ While the chorizo is cooking, add the flaked almonds to a baking tray and put in
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1610.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Trim and finely slice the spring onion<span class="text-danger">[s]</span>,<span
 
 Combine the juice of 1/2 <span class="text-danger">[1] </span>lemon with 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your lemon dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1610.-step-5-x200.jpg)
 
 ### Step 5
 
 Drain and rinse the chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1610.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Add 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and half of the c
 
 Add a pinch of salt and blitz until fully combined and smooth – this is your chorizo hummus
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1610.-step-7-x200.jpg)
 
 ### Step 7
 

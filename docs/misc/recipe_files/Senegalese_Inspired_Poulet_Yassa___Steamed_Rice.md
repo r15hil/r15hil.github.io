@@ -28,7 +28,6 @@ The inspiration for this recipe comes from Poulet Yassa, a chicken dish from the
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602083939251-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Give everything a good mix up, then leave in the fridge for at least 30 minutes 
 
 Tip: If you can, marinate overnight for maximum flavour!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602084044996-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Peel and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602084072004-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, heat a wide-based pan (preferably non-stick) with a generous drizzle 
 
 Once hot, add the marinated onion (remove the chicken thighs and set aside for later!) with the bay leaves, sliced yellow pepper<span class="text-danger">[s] </span>and a generous pinch of salt and sugar<span class="text-danger"> </span>and cook for 10-12 min or until golden brown and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602084097058-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Pat the marinated chicken thighs dry and season generously on both sides with sa
 
 Add to the baking tray, skin side up, drizzle with vegetable oil and grill for 5-6 min or until the skin is golden brown then remove from the oven (you'll finish cooking these in the pan later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602084185816-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602084202818-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Chop the parsley roughly, including the stalks, and set aside for later
 
 Once the onions have caramelised, add the chopped ginger and garlic and cook for a further 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602084214542-x200.jpg)
 
 ### Step 7
 

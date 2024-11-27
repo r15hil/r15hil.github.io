@@ -30,7 +30,6 @@ This mouthwatering oven bake is prepped in a snap. You'll fry beef with honey, s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1636379861596-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1720527190380-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Boil a full kettle
 
 Top, tail and chop your carrot[s] roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1698917453849-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add your beef mince and the chopped carrot to the dish with your cornf
 
 Give everything a stir, breaking the mince up with a wooden spoon and cook for 2 min or until very lightly browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1698917459607-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your white long grain rice to an oven-proof dish with your toasted sesame oi
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your sesame rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1698917465479-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Cover with the lid and put the dish in the oven for an initial 15 min
 
 After 15 min add your Tenderstem broccoli and cook covered for a further 10 min or until the beef is cooked through (no pink meat!) and the sauce has thickened – this is your oven-baked honey & soy beef
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1698917470313-x200.jpg)
 
 ### Step 6
 
 Trim, then chop your spring onion[s] roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1698917474371-x200.jpg)
 
 ### Step 7
 

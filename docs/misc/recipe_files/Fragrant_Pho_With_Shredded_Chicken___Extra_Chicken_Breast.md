@@ -26,7 +26,6 @@ Venture to Vietnam for a taste of the country’s favourite soul-warming noodle 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1730468354815-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a h
 
 Season your chicken breast portions with a pinch of salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1730468346984-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Reduce the heat to medium-high, add 80ml <span class="text-purple">[100ml]</span
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1730468359966-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Dissolve your pho broth paste and chicken stock mix in 600ml <span class="text-p
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1730468366856-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once softened, drain the noodles and set aside
 
 Once the chicken is cooked, transfer it to a clean board and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1730468372590-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ While the onion is cooking, shred the chicken apart using two forks - this techn
 
 Set the pulled chicken aside for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1730468378714-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Strip most of your mint leaves from their stems, leave some on the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1730468383142-x200.jpg)
 
 ### Step 7
 

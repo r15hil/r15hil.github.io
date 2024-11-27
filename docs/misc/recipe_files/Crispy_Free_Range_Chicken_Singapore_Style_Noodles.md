@@ -28,7 +28,6 @@ With a signature curry flavour and vibrant yellow hue, our Singapore noodles are
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1722250031342-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Pat the free range chicken thighs dry with kitchen paper and season them generously on both sides with salt, add them to a baking tray and drizzle with vegetable oil (use tin foil to avoid mess!), then put the tray in the oven and cook for 17-18 min or until the chicken is cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-7-1691491866534-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Trim, then slice your green beans finely
 
 Slice your button mushrooms finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-7-1691491873848-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the sliced onion and green beans and cook for 4-5 min or until 
 
 Once starting to soften, add the sliced mushrooms and cook for a further 2-3 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-6-1691491877836-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Whilst everything is cooking, peel (scrape the skin off with a teaspoon) and fin
 
 Add the chopped ginger, ground turmeric and curry powder to the pan and cook for 2-3 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-5-1691491881082-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Once fragrant, add your soy sauce and chopped chilli (can't handle the heat? Go easy!) to the pan and cook for 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1691491885820-x200.jpg)
 
 ### Step 6
 

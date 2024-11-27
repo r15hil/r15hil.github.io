@@ -23,7 +23,6 @@ These peppers are roasted with a filling of tomato, rosemary and lemon then topp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/509.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the halves cut-side up to an oven-proof baking dish
 
 Dice the tomatoes finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/509.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Strip the rosemary leaves from their stalks and chop the leaves finely, discardi
 
 Halve the lemon<span class="text-danger">(s)</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/509.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Put the dish in the oven for 25 min or until tender
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/509.-step_4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Chop the capers coarsely
 
 Meanwhile, peel and chop (or grate) the garlic finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/509.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Season generously with salt and pepper - this is your salsa verde
 
 Boil a kettle for your couscous
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/509.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Drain and cut the mozzarella into 4 <span class="text-danger">(8)</span> pieces
 
 When the peppers are nearly tender, add the couscous to a shallow bowl with 200ml <span class="text-danger">(400ml)</span> boiled water, cover and set aside until serving&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/509.-step-7-x200.jpg)
 
 ### Step 7
 

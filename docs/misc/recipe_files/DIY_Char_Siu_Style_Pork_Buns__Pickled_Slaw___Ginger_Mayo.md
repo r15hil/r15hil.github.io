@@ -30,7 +30,6 @@ Got buns, hun? You’ll pack homemade Chinese buns with a sticky hoisin and soy 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684510386181-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add your dried yeast to the bowl with the warmed milk and 1 tsp <span class="tex
 
 Mix it all together and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684510392622-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely grate your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684510398403-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Trim, then slice your spring onion[s]
 
 Once fragrant, add the sliced spring onion and set aside for later – this is your char siu-style pork
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684510402993-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Tip the dough ball out onto a work surface with a dusting of flour
 
 Toss the dough ball in the flour until coated, rounding the ball as you go and knead it, with floured hands, for 2 min or until smooth and softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684510406964-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Divide the char siu-style pork between the rolled dough balls
 
 Bring the edges of the dough together and firmly pinch until fully sealed – these are your buns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684510414107-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Brush the buns with milk and top with half your toasted sesame seeds (you'll use
 
 Put the tray[s] in the oven and cook for 12-18 min or until the buns are puffed up and browned – these are your char siu-style pork buns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684510418605-x200.jpg)
 
 ### Step 7
 

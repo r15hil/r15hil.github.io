@@ -27,7 +27,6 @@ Our ‘Thairish’ Cookstarter finalist Mc & Sons has cooked up a khao soi (or �
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617206148964-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Remove the tough outer layer<span class="text-danger">[s]</span> of the lemongra
 
 Peel and roughly chop 1 <span class="text-danger">[2]</span> red onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1617206181455-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chopped onion, garlic and lemongrass to a food processor with the chilli
 
 Add 2 tbsp <span class="text-danger">[4 tbsp]</span> vegetable oil and 1 tbsp <span class="text-danger">[2 tbsp]</span> cold water and blitz into a smooth paste – this is your Khao Soi curry paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1617206222223-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Add the sliced shallot to a small bowl and squeeze over the juice of 1/2<span class="text-danger"> [1]</span> lime and set aside to pickle – this is your pickled shallot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1617206255551-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once hot, add the sliced red onion and chopped chicken and cook for 2-3 min or u
 
 Once the onion has started to soften, add the Khao Soi curry paste and cook for 2-3 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1617206272842-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Dissolve the chopped coconut cream in 350ml <span class="text-danger">[600ml]</s
 
 Once fragrant, add the coconut stock to the pan and cook for 10-12 min or until the chicken is cooked through (no pink meat!) – this is your chicken Khao Soi curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1617206306445-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ After 1 min, remove approx. 1/4 of the noodles and transfer them to kitchen pape
 
 After 3 min further, drain the remaining soaked noodles, and set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1617206370064-x200.jpg)
 
 ### Step 7
 

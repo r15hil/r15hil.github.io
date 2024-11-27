@@ -24,7 +24,6 @@ May we introduce our Spiced Lamb Burger. We've flavoured the patties with ginger
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/434.step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and finely chop (or grate) the garlic
 
 Dice the tomato<span class="text-danger">[es]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/434.step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Pour 1 tbsp <span class="text-danger">[2 tbsp]</span>&nbsp;vegetable oil onto a 
 
 Add the potatoes to the spiced oil and mix to coat them evenly, then&nbsp;put the tray in the oven for 25-30 min or until the potatoes are crispy - these are your spiced potatoes&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/434.step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Season the mix with 1 tsp <span class="text-danger">[2 tsp]</span>&nbsp;salt and
 
 Mix well with clean hands, divide into 2 <span class="text-danger">[4]</span>&nbsp;patties and refrigerate until step 6
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/434.step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Once hot, add the remaining diced&nbsp;onion and a pinch of salt and cook for 4-
 
 Add the diced&nbsp;tomato, remaining chopped&nbsp;ginger and garlic, half the white wine&nbsp;vinegar (keep the rest for step 7) and cook for 10-12 min or until reduced to a chutney-like consistency
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/434.step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Once hot, add the brioche, cut-side-down and toast them for 3 min or until colou
 
 Once toasted, set them&nbsp;aside until serving, reserving the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/434.step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,7 +99,6 @@ Once hot, add the patties and cook for 4-5 min on each side or until cooked, pre
 
 Tip:&nbsp;once browned, lower the heat to cook through which will prevent the patties drying out
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/434.step-7-x200.jpg)
 
 ### Step 7
 

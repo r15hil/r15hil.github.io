@@ -21,7 +21,6 @@ Our original recipe chicken fakeover is lip-smackin’ good. You’ll marinate j
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681818353082-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Cut the potatoes (skins on) into fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681818358446-x200.jpg)
 
 ### Step 2
 
@@ -41,13 +39,11 @@ Add the fries to a baking tray with a drizzle of vegetable oil
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681818363851-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add the carrot & cabbage slaw mix to a large bowl with the mayo and a pinch of salt and sugar and give everything a good mix up – this is your creamy slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681818368649-x200.jpg)
 
 ### Step 4
 
@@ -55,7 +51,6 @@ Dissolve the beef stock mix, chicken stock mix and a pinch of sugar in 200ml <sp
 
 Peel and grate (don't chop!) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681818373807-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Once hot, add the grated garlic, 1 tbsp <span class="text-danger">[2 tbsp]</span
 
 Whisk in the stock, then bring to the boil over a high heat and cook for 4-5 min or until thickened – this is your gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681818378019-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Add the southern fried seasoning to a large bowl with 4 tbsp <span class="text-d
 
 Add the chicken thighs to the bowl with 2 tsp <span class="text-danger">[4 tsp]</span> cold water and give everything a good mix up so the chicken is evenly coated – this is your coated chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681818383726-x200.jpg)
 
 ### Step 7
 

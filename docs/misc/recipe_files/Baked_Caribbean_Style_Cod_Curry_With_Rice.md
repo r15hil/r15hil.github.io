@@ -28,7 +28,6 @@ Jet off to the Caribbean with only 5 mins prep. You’ll pack this island-inspir
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-5-1701780983204-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-32-1701780900271-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop r
 
 Slice your red chilli[es] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-35-1701780904714-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid,
 
 Add the chopped pepper and onion wedges to the dish with half the sliced chilli (can't handle the heat? Go easy!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-34-1701780909610-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add your curry powder and dried thyme with 1 tbsp <span class="text-purple">[1 1
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-32-1701780914313-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, put the dish in the oven for 20 min, uncovered, or until the pepper is tender – this is your curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-30-1701780920221-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Cover tightly with tin foil and put the dish in the oven for 30 min or until all
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-22-1701780925260-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ The idea behind this dish is that you cook your linguine in a measured amount of
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/259-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the stock cube<span class="text-danger">[s]</span>&nbsp;and 700ml <span clas
 
 Place the pot over a high heat and bring to the boil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/259-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Chop the cherry tomatoes in half
 
 Grate the cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/259-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add&nbsp;the tomatoes, onion, garlic, dried oregano and the chilli flakes (can't
 
 Add half the cheese and half the basil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/259-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Cover and cook for 5 min or until half of the water has absorbed
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/259-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,13 +77,11 @@ After 5 min, remove the lid and stir continuously until the linguine has cooked 
 
 Tip:&nbsp;stirring the sauce releases the starch from the pasta, making it creamier
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/259-step-6-x200.jpg)
 
 ### Step 6
 
 Once cooked, add the remaining cheese and basil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/259-step-8-x200.jpg)
 
 ### Step 7
 

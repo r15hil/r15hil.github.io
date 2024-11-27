@@ -27,19 +27,16 @@ For this fragrant fried rice, you'll toss Scottish crab and rice in a punchy Tha
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1674125191587-x200.jpg)
 
 ### Step 1
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC940Step-2-x200.jpg)
 
 ### Step 2
 
 Combine the red Thai curry paste, fish sauce, sriracha (can't handle the heat? Go easy!), the juice of 1/2 <span class="text-danger">[1] </span>lime, 1 tsp <span class="text-danger">[2 tsp]</span> sugar with 225ml<span class="text-danger"> [450ml]</span> boiled water and stir until the sugar has dissolved – this is your Thai-style stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC940Step-3v2jpg-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a
 
 Once hot, add the chopped ginger and garlic and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC940Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Tip: Add a splash more water if it's looking a little dry and the rice isn't cooked yet!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC940Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Meanwhile, cut the red chilli<span class="text-danger">[es]</span> in half lengt
 
 Chop the coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/940.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Cut the remaining lime into wedges
 
 Trim, then slice the spring onions finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC940Step-7-1-x200.jpg)
 
 ### Step 7
 

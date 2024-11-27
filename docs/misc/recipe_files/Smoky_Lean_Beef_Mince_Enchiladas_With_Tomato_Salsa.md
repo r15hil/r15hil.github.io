@@ -32,7 +32,6 @@ These smoky enchiladas are packed with flavour. You'll wrap spiced lean beef min
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609260219654-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Boil half a kettle
 
 Peel and finely chop your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609260224376-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609260240523-x200.jpg)
 
 ### Step 3
 
 While the onion is cooking, dissolve your beef stock mix and tomato paste in 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml] </span>boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609260253208-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once the onion has softened, add your lean beef mince, ground cumin, ground smok
 
 Meanwhile, grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609260261538-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the tomato stock and cook for 4 min further or until the sauce has thickened
 
 Grease an oven-proof dish with a little olive oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609260276344-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Top with the grated cheese and a drizzle of olive oil
 
 Put the dish in the oven for 8-10 min or until the tortillas are beginning to crisp and the cheese has melted – these are your smoky lean beef mince enchiladas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1609260296678-x200.jpg)
 
 ### Step 7
 

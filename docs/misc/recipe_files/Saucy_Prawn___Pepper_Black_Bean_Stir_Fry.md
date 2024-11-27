@@ -21,7 +21,6 @@ This Chinese-style noodle stir-fry is a weeknight winner. Cook your juicy prawns
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1654603379601-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1654603419125-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds a
 
 Peel and finely slice (don't chop!) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1654603413957-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the wheat noodles to a large bowl, cover them with boiled water and stir for
 
 Set aside to soak for 5-6 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1654603441964-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ While the noodles are soaking, heat a large, wide-based pan (preferably non-stic
 
 Once hot, add the sliced yellow pepper to the pan and cook for 2-3 min or until slightly softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1654603469767-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Once the pepper has softened, add the sliced garlic to the pan and cook for 1-2 
 
 Meanwhile, drain the softened wheat noodles, reserving 50ml <span class="text-danger">[100ml] </span>starchy noodle water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1654603701865-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once fragrant, add the king prawns with the black bean paste, Chinese rice wine 
 
 Season with a pinch of salt and a grind of black pepper and cook for 2-3 min or until the sauce has slightly thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1654603714618-x200.jpg)
 
 ### Step 7
 

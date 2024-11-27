@@ -24,7 +24,6 @@ Time for a cheeky Chinese fakeaway. You’ll fry succulent king prawns with spri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1732013391356-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678378482496-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Trim, then chop your spring onion[s] into thirds
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678378485988-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the chopped spring onion and sliced pepper with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678378489729-x200.jpg)
 
 ### Step 4
 
@@ -58,19 +54,16 @@ Bring to the boil over a high heat and cook for 4-5 min until they're tender wit
 
 Once done, drain the noodles and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678378493043-x200.jpg)
 
 ### Step 5
 
 Once the veg has softened, drain, then add your king prawns to the pan with the chopped garlic and ginger paste and cook for 4-5 min or until the prawns are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678378495980-x200.jpg)
 
 ### Step 6
 
 Add your toasted sesame oil to the drained noodles and give everything a good mix up – these are your sesame noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678378499046-x200.jpg)
 
 ### Step 7
 

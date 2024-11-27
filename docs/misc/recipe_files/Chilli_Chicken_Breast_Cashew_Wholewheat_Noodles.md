@@ -30,7 +30,6 @@ Like your noodles extra spicy? This dish brings the heat in 10 with chicken, Ten
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1678271309315-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678271316641-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Add your wholewheat noodles to a pot with a pinch of salt and cover them with bo
 
 Bring to the boil over a high heat and cook for an initial 3-5 min or until cooked with a slight bite
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678271321825-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ While the noodles are cooking, heat a large, wide-based pan (preferably non-stic
 
 Once hot, add your diced chicken breast and cook for an initial 5-6 min, then add your ginger & garlic paste for 1 min further and cook until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678271326082-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Chop your Tenderstem broccoli in half
 
 Once the chicken is starting to brown, add the chopped spring onion and cook for a further 5-6 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678271329729-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ After an initial 3-5 min, add the halved Tenderstem broccoli to the pot with the
 
 Once cooked, drain the noodles and Tenderstem and reserve a cup of the starchy noodle water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678271334756-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add your sriracha, chilli flakes (can't handle the heat? Go easy!), tomato ketch
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>vegetable oil with a splash of the reserved starchy noodle water and a pinch of sugar and give everything a good mix up – this is your chilli sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678271339594-x200.jpg)
 
 ### Step 7
 

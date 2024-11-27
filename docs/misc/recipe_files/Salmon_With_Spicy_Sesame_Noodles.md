@@ -28,7 +28,6 @@ Sit down to this super-quick salmon dish in no time! You'll make a zingy, spicy 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622805086976-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1905.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once hot, add your salmon fillet[s] with a pinch of salt and pepper and cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1905.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Trim, then chop your green beans in half
 
 Tip: Chop them in one bunch for speed!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1905.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once the water is boiling, add the halved Tenderstem broccoli and halved green b
 
 Once starting to soften, add your fine egg noodles and cook for 2 min or until both the noodles and veg are cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1905.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Squeeze the juice of half your lime[s] into a bowl, and cut the remaining lime i
 
 Add your toasted sesame oil, soy sauce, sriracha and chilli flakes (can't handle the heat? Go easy!) to the bowl and give everything a good mix up – this is your spicy sesame dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1905.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once cooked, drain the veg & noodles, then drizzle over some vegetable oil and r
 
 Tip: This stops the noodles from sticking together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1905.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Wholesome, moreish and deliciously full flavoured, these spicy harissa-roasted M
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1742.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop the red onion<span class="text-danger">[s]</span> into wedges, leaving the 
 
 Trim the green stalk off the aubergine<span class="text-danger">[s]</span> and cut lengthways into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1742.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Put the tray in the oven for 25-30 min or until softened and golden
 
 Once done, cut off the onion root to remove the skins
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1742.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,7 +69,6 @@ Tip: watch the seeds like a hawk to make sure they don't burn!
 
 Once done, transfer them to a plate and set aside, reserving the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1742.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Add the bulgur wheat to the reserved pot with plenty of <span class="text-highli
 
 <span class="text-highlight">Cook over</span> a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1742.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,13 +88,11 @@ Combine the juice of 1/2 <span class="text-danger">[1]</span> lemon and the nat
 
 Cut the remaining lemon into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1742.-step-6-x200.jpg)
 
 ### Step 6
 
 Strip the mint leaves from their stems and chop them roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1742.-step-7-x200.jpg)
 
 ### Step 7
 

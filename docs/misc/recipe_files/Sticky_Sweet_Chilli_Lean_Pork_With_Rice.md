@@ -30,7 +30,6 @@ Whip up a steaming bowl of sweet and sour lean pork, fluffy rice, red peppers an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-32-1715075876593-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to low and cook, covered, for 12-15 min or until a
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-31-1715075880083-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add your lean pork mince (remove the paper if required!) with a pinch 
 
 Tip: Add a drizzle of vegetable oil if the pan is looking a little dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-37-1715075884082-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, trim, then chop your green beans into small pieces
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-32-1715075888254-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the chopped green beans and diced pepper to the pork mince and cook for 4-5 
 
 Trim, then slice your spring onion[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-33-1715075891775-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 In a bowl combine the chopped garlic, chopped ginger, Chinese rice wine, soy sauce, a splash of cold water, your red chilli relish and a generous pinch of sugar – this is your sweet chilli sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-33-1715075895940-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the sweet chilli sauce, most of the sliced spring onion (save the rest for g
 
 Cut the remaining lime into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-33-1715075899716-x200.jpg)
 
 ### Step 7
 

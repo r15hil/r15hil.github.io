@@ -23,7 +23,6 @@ To turn your gnocchi into crispy-outside, tender-inside morsels, you'll roast th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1726064114166-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Add half the sage leaves (you'll use the rest later!) to a baking paper-lined baking tray with your gnocchi and your butternut squash cubes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1726064133944-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Drizzle half your balsamic vinegar over the butternut squash
 
 Put the tray in the oven for 25 min or until the butternut squash is tender and the gnocchi is crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1726064257010-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop the remaining sage leaves roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1726064263789-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a little drizzle of oli
 
 Once hot, add the chopped shallot and cook for 3 min or until slightly softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1726064268020-x200.jpg)
 
 ### Step 5
 
@@ -71,13 +66,11 @@ Once softened, add your chorizo to the pan with the chopped garlic and sage
 
 Cook for 4-5 min or until the chorizo has crisped
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1726064272928-x200.jpg)
 
 ### Step 6
 
 Once crisped, stir through your double cream with a grind of pepper, then remove the pan from the heat and set aside until the gnocchi is ready
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1726064276600-x200.jpg)
 
 ### Step 7
 

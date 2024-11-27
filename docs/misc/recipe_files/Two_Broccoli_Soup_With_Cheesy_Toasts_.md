@@ -26,7 +26,6 @@ Warm up with a bowl of green goodness and melty cheese toasts. You'll make a bro
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1607609248679-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and roughly chop your garlic
 
 Take some butter out of the fridge and set aside to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1607609255929-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large pot (preferably non-stick with a matching lid) with a drizzle of ol
 
 Once hot, add the chopped onion and garlic and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1607609332496-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and roughly chop your potato[es]
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[1.2L]</span> <span class="text-danger">[1.5L] </span>boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1607609340261-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the onion and garlic have softened, add the chopped potato, broccoli stems,
 
 Bring to the boil over a high heat and cook, covered, for 8-10 min or until everything is tender and cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1607609350669-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Put the tray[s] in the oven for an initial 5 min
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1607609361247-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Remove the tray[s] from the oven and add the sliced ciabatta to the other side, 
 
 Return the tray[s]<span class="text-danger"> </span>to the oven for a further 10-12 min or until everything is cooked through and the cheese has melted – these are your cheesy toasts and roasted Tenderstem broccoli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1607609376160-x200.jpg)
 
 ### Step 7
 

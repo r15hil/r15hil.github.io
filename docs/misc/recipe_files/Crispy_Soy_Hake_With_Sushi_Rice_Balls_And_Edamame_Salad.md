@@ -28,7 +28,6 @@ Bento-no-we-didn't! If you love sushi, this'll be right up your street. For this
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697453789233-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Cover tightly with tin foil and put the dish in the oven for 25 min or until all
 
 Once cooked, transfer the rice to a plate and set aside for 10 min or until the rice is cooled
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697453785400-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the sliced cucumber to a small bowl with your rice vinegar and a pinch of su
 
 Stir everything together and set aside – this is your quick-pickled cucumber
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697453781768-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and grate your garlic
 
 Combine half your soy sauce and the grated garlic in a bowl with your chilli flakes (can't handle the heat? Go easy!) and a pinch of sugar – this is your dipping sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697453777640-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Chop your hake fillet[s] into large, bite-sized pieces
 
 Add the chopped hake to a large bowl with the remaining soy sauce, then set aside to marinate
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697453772783-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Rinse your blanched edamame beans under cold running water
 
 Add the blanched edamame beans to a bowl with half of the sriracha mayo (save the rest for garnish!) and a good grind of black pepper and give everything a good mix up – this is your edamame salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697453768636-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add your cornflour to the marinated hake and give everything a good mix up until
 
 Once hot, add the coated hake and cook for 3-4 min on each side or until cooked through – this is your crispy soy hake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697453764372-x200.jpg)
 
 ### Step 7
 

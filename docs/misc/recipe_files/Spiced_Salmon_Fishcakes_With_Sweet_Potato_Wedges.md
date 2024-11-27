@@ -28,7 +28,6 @@ Add some Caribbean flavours to a classic with these tasty fishcakes. You'll load
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666709627386-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the wedges to a large baking tray with a drizzle of vegetable oil, your grou
 
 Put the tray in the oven for 20 min or until the wedges are tender and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666709631618-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Cover with cling film, pierce a few holes in the top with a fork and put the bow
 
 Once cooked, carefully remove the cling film and leave the potatoes to cool for 2-3 min then mash together
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666709634884-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cut 1 wedge per person from the zested lime[s] and set aside for later
 
 Trim, then finely slice your spring onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666709638146-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add your salmon flakes and sliced spring onion to the bowl with the mashed potat
 
 Add the lime zest, egg[s], mango chutney, your ground allspice, your cayenne pepper (can’t handle the heat? Go easy!), 2 tbsp<span class="text-danger"> <span class="text-purple">[3 tbsp]</span> [4 tbsp]</span> flour and a very generous pinch of salt and pepper and give everything a good mix up – this is your fishcake mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666709642220-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add your panko breadcrumbs to a plate
 
 Divide the fishcake mixture into 2 per person and shape them into fishcakes, then press into the breadcrumbs firmly to evenly coat all over – these are your spiced fishcakes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666709646125-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, gently add the spiced fishcakes and cook for 4-5 min on each side, turning carefully halfway, or until golden brown
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666709649081-x200.jpg)
 
 ### Step 7
 

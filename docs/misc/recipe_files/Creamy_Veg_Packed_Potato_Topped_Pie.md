@@ -24,7 +24,6 @@ Packed with veg and an oh-so-creamy sauce, this delicious, hearty pie ticks off 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677604466818-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your broccoli into florets, then add to a baking tray (or two!) with a driz
 
 Tip: Roasting the broccoli will help to remove excess moisture before adding to your sauce!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632759173670-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cook for 12-15 min or until fork-tender, then drain and return to the pot to ste
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632759177932-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with 15g <span class="text-p
 
 Once melted, add the diced onion and diced carrot with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632759183047-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once the vegetables have softened, add half the chopped garlic (you’ll use the
 
 Bring to the boil over a high heat and cook for 3-4 min or until thickened – this is your creamy sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632759188241-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Season with a generous pinch of salt and pepper and mash until smooth
 
 Add the drained sweetcorn and roasted broccoli to the creamy sauce with a generous grind of black pepper and give everything a good mix up – this is your creamy pie filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632759191243-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Tip: Use individual oven dishes for fancy presentation!
 
 Once the pie is almost done, heat a separate large, wide-based pan (preferably non-stick) with a knob of butter over a medium heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710163829524-x200.jpg)
 
 ### Step 7
 

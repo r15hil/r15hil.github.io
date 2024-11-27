@@ -21,7 +21,6 @@ A light dish you can enjoy for lunch or as your main meal in the evening. The ho
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and top and tail the carrot<span class="text-danger">(s)</span>
 
 Quarter the apple and discard the inner core (leaving the skin on)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Tip: Ensure that the sieve rests above the bottom of the bowl for proper drainag
 
 Grate the beetroot, carrot, and apple into the sieve
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Squeeze the juice out of all of the grated goods with your hands
 
 Discard the juice (or drink it for an immune boost!) and set aside the grated goods in the sieve until step 7
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Mix well to form a dressing
 
 Slice the spring onion<span class="text-danger">(s)</span> finely, discarding the root<span class="text-danger">(s)</span> and set aside for garnish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Spread half of the honey mustard dressing on top of the trout fillets, reserving
 
 Set aside until serving&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Transfer the reserved honey mustard dressing to a mixing bowl (large enough to m
 
 Add 50ml <span class="text-danger">(100ml)</span> of the sour cream (save the rest for tomorrow's lunch) to the honey mustard and mix well
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This bacon-loaded burger is the perfect stack. First, load juicy Jolly Hog patti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715609677918-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Put the tray in the oven and cook for an initial 20 min
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715609696255-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chips to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715609700282-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Combine a drizzle of olive oil in a bowl with your white wine vinegar and a gene
 
 Add the shredded lettuce to the dressing and toss – this is your dressed salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715609707174-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the onion discs to a bowl with a handful of flour and give everything a good
 
 Combine your cornflour and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> flour in a small bowl with 45ml <span class="text-purple">[70ml]</span> <span class="text-danger">[90ml] </span>water and a pinch of salt and pepper – this is your batter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715609714935-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add your smoked streaky bacon to the other side of the tray[s] and drizzle over 
 
 Return the tray[s] to the oven for a further 10 min or until the bacon is starting to crisp and the burger is cooked through (no pink meat!) – this is your burger and BBQ glazed bacon
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715609720507-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the pan is hot, reduce the heat to medium-high, then dip the floured onion 
 
 Add the coated onion to the pan and cook for 3-4 min on each side or until cooked through, golden and crispy – these are your onion rings
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715609724621-x200.jpg)
 
 ### Step 7
 

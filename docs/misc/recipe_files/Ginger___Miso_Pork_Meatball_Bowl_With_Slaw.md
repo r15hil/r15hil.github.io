@@ -32,7 +32,6 @@ Melt-in-your-mouth miso meatballs with a Japanese twist. You’ll fry caramelise
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679399954461-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel (scrape the skin off with a teaspoon) and finely grate your ginger, then pe
 
 Add your pork mince (remove the paper if required!) and grated onion to a bowl with half the chopped garlic (you'll use the rest later!), your ground coriander and a pinch of pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679399959361-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the meatballs and cook for 3-4 min, turning occasionally, until browned all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679399969239-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679399977108-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ While the rice is cooking, slice your chestnut mushrooms finely
 
 Dissolve your white miso paste and soy sauce in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your miso stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679399985138-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the sliced onion and sliced mushrooms and cook for 5-6 min or until starting
 
 Once softened, add the grated ginger and remaining chopped garlic with your toasted sesame oil and cook for a further 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679399995803-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once fragrant, stir in your cornflour and miso stock and bring to the boil over 
 
 Once boiling, reduce the heat to medium-high and return the browned meatballs to the pan and cook, covered, for a final 13-15 min or until the meatballs are cooked through (no pink meat!) – this is your ginger & miso pork meatball sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679400000855-x200.jpg)
 
 ### Step 7
 

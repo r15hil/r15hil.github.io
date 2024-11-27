@@ -26,7 +26,6 @@ This deconstructed rice bake is a cheat’s answer to sushi. You’ll bake stick
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690355592003-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690355600326-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add your sushi rice to an oven-proof dish with a small pinch of salt and 250ml <
 
 Cover tightly with tin foil and put the dish in the oven for 25 min or until all the water is absorbed and the rice is cooked – this is your sticky rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690355605575-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Add half your shichimi togarashi (can't handle the heat? Go easy!) and give eve
 
 Set aside to marinate
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690355612250-x200.jpg)
 
 ### Step 4
 
 Combine your sriracha (not a fan of spice? Just add a little!) with your mayo and a splash of cold water in a small bowl – this is your sriracha mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5.-1690356527439-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Drizzle your rice vinegar over the sliced avocado
 
 Trim, then slice your spring onion[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690355623375-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7.-1690356538997-x200.jpg)
 
 ### Step 7
 

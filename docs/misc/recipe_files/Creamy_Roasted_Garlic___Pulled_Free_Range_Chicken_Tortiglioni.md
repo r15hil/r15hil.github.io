@@ -23,7 +23,6 @@ Roasted garlic steals the show in this deliciously easy pasta dish. You’ll add
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-42-1706541650127-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add your garlic cloves to a piece of tin foil with a pinch of salt and a drizzle
 
 Add the parcel to a baking tray and put the tray in the oven for 15-20 min or until the garlic has softened – this is your roasted garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1706541652819-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your free range chicken thighs with a generous pinch of salt and pepper and cook for 3 min on each side or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-5-1706541657775-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once the chicken has browned, add the creamy garlic stock to the pan
 
 Reduce the heat to medium and cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-4-1706541661439-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1706541665076-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Dice your tomato[es]
 
 Combine your white wine vinegar with a drizzle of olive oil in a small bowl with a pinch of salt and sugar – this is your salad dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1706541669298-x200.jpg)
 
 ### Step 6
 
 Carefully squeeze the roasted garlic out of the skins and mash with a fork, discard the skins
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-7-1706541672421-x200.jpg)
 
 ### Step 7
 

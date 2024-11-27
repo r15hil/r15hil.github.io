@@ -22,7 +22,6 @@ For a nourishing bowl that's healthy and quick, you'll pile herby marinated tuna
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595263766125-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595263776618-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once boiling, cook for exactly 8 min for perfect, mid-boiled eggs, then fill a b
 
 Set aside to cool
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595263792909-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Whilst the eggs are boiling, add the cherry tomatoes and Tenderstem broccoli to 
 
 Put the tray in the oven for 7-8 min or until the Tenderstem is lightly charred and the tomatoes have blistered slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595263810905-x200.jpg)
 
 ### Step 4
 
@@ -62,19 +58,16 @@ Combine the drained tuna and oregano with 2 tbsp <span class="text-danger">[4 tb
 
 Give everything a good mix up and set aside – this is your marinated tuna
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595263830819-x200.jpg)
 
 ### Step 5
 
 Meanwhile, peel the carrot<span class="text-danger">[s]</span>, then continue to peel lengths until you end up with a pile of carrot 'ribbons'
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595263838124-x200.jpg)
 
 ### Step 6
 
 Combine the cider vinegar and Dijon mustard with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your Dijon dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595263846406-x200.jpg)
 
 ### Step 7
 

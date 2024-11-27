@@ -26,7 +26,6 @@ For this quick, easy twist on a creamy korma, you'll simmer succulent king prawn
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599060453765-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a pot with a lid, with a knob of butter over a medium heat
 
 Once hot, add the crushed cardamom pods and cook for 1 min or until fragrant
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599060459145-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add your basmati rice and a pinch of salt to the pot and cook for a further 1 mi
 
 Once boiling, reduce the heat to very low and cook, covered, for an initial 10 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599060463768-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Trim, then chop your green beans into thirds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599060475869-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the diced onion and a generous pinch of salt and cook for 3-5 min
 
 Once soft, add the chopped ginger, chopped garlic and curry powder and cook for a further 1 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599060490492-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 250ml<span class="text-purple"> [375ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599060500872-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once the rice has been cooking for 10 min, add the chopped green beans to the po
 
 Cover with the lid and cook for a further 5 min or until tender with a slight bite – this is your cardamom & green bean rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599060506148-x200.jpg)
 
 ### Step 7
 

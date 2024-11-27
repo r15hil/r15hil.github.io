@@ -30,7 +30,6 @@ Tuck into two all-American classics for the price of one with meaty, cheesy, bur
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1696606963546-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1696606968924-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your pork & beef mince with a pinch of salt and pepper and cook for 2 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1696606971437-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1696606974883-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once the mince is starting to brown, add the onion wedges, chopped tomato, slice
 
 Season with a pinch of salt and pepper and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1696606978432-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once fragrant, add your macaroni, beef stock mix, grated cheese, 100ml <span cla
 
 Nestle the pasta into the water as much as you can, then stir everything together and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1696606982218-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Cover with a lid and put the dish in the oven for 25-30 min or until the pasta a
 
 Tip: Give everything a stir halfway through for evenly cooked pasta!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1696606986314-x200.jpg)
 
 ### Step 7
 

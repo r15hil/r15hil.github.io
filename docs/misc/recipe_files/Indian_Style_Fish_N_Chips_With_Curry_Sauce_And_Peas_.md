@@ -29,7 +29,6 @@ What's better than a classic? This Indian-style twist. You'll flavour fish with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641306749800-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut your potato[es] and sweet potato[es]<span class="text-danger"> </span>(skins
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641306754252-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut the lime[s] into wedges
 
 Add your basa fillet[s] to a large bowl with a squeeze of lime<span class="text-danger"> </span>juice, the lime zest, nigella seeds, ground turmeric, a drizzle of vegetable oil and a generous pinch of salt – these are your marinated basa fillets
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641306759751-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Put the tray[s] in the oven for 12-15 min or until the fish is cooked through �
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641306765209-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Peel and grate (don't chop!) your garlic
 
 Dissolve your vegetable stock mix, cornflour and 2 tsp<span class="text-purple"> [3 tsp]</span> <span class="text-danger">[4 tsp]</span> sugar in 75ml <span class="text-purple">[110ml]</span> <span class="text-danger">[150ml]</span> boiled water and 75ml <span class="text-purple">[110ml]</span> <span class="text-danger">[150ml]</span> milk and whisk well – this is your cornflour mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1642760644655-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add your blanched peas, chopped creamed coconut, a small splash of cold water an
 
 Cover the bowl with cling film and pierce a few holes in the top
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1642760668727-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once hot, mash the peas with a squeeze of<span class="text-danger"> </span>lime 
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1642760620456-x200.jpg)
 
 ### Step 7
 

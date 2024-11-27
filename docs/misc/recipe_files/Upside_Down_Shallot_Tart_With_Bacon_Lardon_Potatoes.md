@@ -25,7 +25,6 @@ If you love a tasty baking hack, try this. You’ll add shallots, bacon lardons,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693573996460-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Strip your thyme leaves from their stems and chop them roughly, discard the stem
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693573999726-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Spread your soft cheese evenly over the pastry rectangle[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693574002935-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Drizzle a little olive oil onto the baking paper
 
 Drizzle half your balsamic vinegar (save the rest for later!) over the olive oil, then make 1 pile of thyme leaves per person and top with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693574006153-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Top with 1/3 of your bacon lardons (you'll use the rest later!) and drizzle over
 
 Season with a grind of black pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693574009843-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Brush the puff pastry with a little milk
 
 Put the tray[s] in the oven for 30 min or or until the filling is cooked through, the pastry is golden and the edges are puffed up– this is your upside down shallot tart
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693574014076-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once boiling, cook for 12-15 min or until fork-tender, then drain and set aside,
 
 While the potatoes are cooking, chop your cherry tomatoes in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693574017223-x200.jpg)
 
 ### Step 7
 

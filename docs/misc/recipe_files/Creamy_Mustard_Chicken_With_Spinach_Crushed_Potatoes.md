@@ -24,7 +24,6 @@ A classic cooked well is the height of culinary excellence. In just 10 min, you'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-4-1702367634507-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-11-1702367642412-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your chicken breast strips and cook for 1 min on each side or until lightly golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-15-1702367647228-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add your waxy potatoes to a heatproof bowl, then cover the bowl with cling film 
 
 Put the bowl in the microwave for 6-8 min<span class="text-danger"> </span>or until the potatoes are fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702396222766-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Crumble your chestnut mushrooms directly into the pan with the chicken and cook 
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702396229674-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-11-1702367675814-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the mustard sauce to the pan, reduce the heat to medium-high and cook for 4-
 
 Tip: If it looks a little dry, add a splash of water!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-10-1702367681365-x200.jpg)
 
 ### Step 7
 

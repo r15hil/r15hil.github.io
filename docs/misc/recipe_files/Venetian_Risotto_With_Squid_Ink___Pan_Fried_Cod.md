@@ -21,7 +21,6 @@ Risòto col néro is a signature dish of Venetian cuisine. The dramatic colourin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2089.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2089.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Meanwhile, peel and finely slice (don't chop!) the garlic
 
 Dissolve the Knorr vegetable stock cube<span class="text-danger">[s]</span> in 700ml <span class="text-danger">[1.3L]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2089.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the onion has softened, add the sliced garlic and arborio rice and cook for 1-2 min or until coated in the oil and lightly toasted (this is known in Italian as tostatura!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2089.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Once the rice has toasted, add the vegetable stock, a ladle at a time, then ad
 
 Tip: Add a splash more water and keep cooking if the rice needs more time!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2089.-step-5-x200.jpg)
 
 ### Step 5
 
 While the rice is cooking, cut the lemon<span class="text-danger">[s]</span> in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2089.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once hot, add the cod fillets to the pan and cook for 4 min, carefully flippin
 
 Tip: Your fish is cooked once it flakes easily!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2089.-step-7-x200.jpg)
 
 ### Step 7
 

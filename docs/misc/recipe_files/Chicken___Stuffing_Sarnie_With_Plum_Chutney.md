@@ -27,7 +27,6 @@ Leftovers are the best part about Christmas. For this crusty sarnie, you’ll lo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2383Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potatoes (skins on) into wedges, then add the wedges to a baking tray
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2383Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chopped shallot to a bowl with your panko breadcrumbs, dried sage, a lar
 
 Season with a generous pinch of salt and pepper, give everything a good mix up and set aside – this is your sage & onion stuffing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-32-1699354425368-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Tip: Smaller pieces of stuffing will crisp up more!
 
 Return the tray[s] to the oven for 15-20 min or until the wedges are golden and the stuffing is beginning to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-31-1699354428544-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with a driz
 
 Once hot, add your chicken breast strips and cook for 10-12 min or until cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-15-1731515643399-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Chop your cherry tomatoes in half
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2383Step-6-x200.jpg)
 
 ### Step 6
 
 Put your ciabatta[s] in the oven for 3-4 min or until crusty and warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2383Step-7-x200.jpg)
 
 ### Step 7
 

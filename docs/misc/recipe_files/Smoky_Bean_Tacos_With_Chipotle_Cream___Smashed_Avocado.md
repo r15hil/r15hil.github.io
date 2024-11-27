@@ -29,7 +29,6 @@ Tacos in 10 – who’d have thought it? You'll serve up a killer combo of spicy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1622807698241-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1970-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once your pan is hot, add the sliced pepper and cook for 3 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1666366777496-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ While the pepper is softening, boil half a kettle
 
 Add your chipotle paste (can't handle the heat? Go easy!) to a bowl with your soured cream and give it a good mix up – this is your chipotle cream
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1666366766605-x200.jpg)
 
 ### Step 4
 
 Drain and rinse your black beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1666366789800-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the drained black beans, your tomato paste, ground cumin and ground smoke
 
 Add your soy sauce, 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>boiled water and a generous pinch of salt and cook for 3 min or until thickened – these are your smoky beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1714123119766-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ While the smoky beans are cooking, add your tortillas to a plate
 
 Put the plate in the microwave and cook for 20 secs on high or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1970-v2-Step-7-x200.jpg)
 
 ### Step 7
 

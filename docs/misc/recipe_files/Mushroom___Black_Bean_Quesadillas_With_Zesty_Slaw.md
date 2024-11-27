@@ -26,7 +26,6 @@ Quesadillas made easy! You'll stuff tortilla wraps with smoky, spiced pulled mus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626951088014-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once hot, add the portobello mushrooms and cook for 2-3 min on each side or unt
 
 Meanwhile, drain and rinse the black beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626951094168-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Reduce the heat to medium, add the drained black beans, soy sauce and 100ml <sp
 
 Cover with a lid and cook for 10-12 min or until the mushrooms are cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626951098688-x200.jpg)
 
 ### Step 3
 
 Whilst the mushrooms are cooking, grate the cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626951102166-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once the mushrooms are cooked, transfer them to a clean board and shred  apart, 
 
 Mash the cooked black beans until smooth – these are your refried beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626951106238-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Divide the mushroom & black bean mix between the tortilla wraps
 
 Fold each tortilla wrap over so you're left with 6 <span class="text-danger">[12]</span> half moon-shaped sandwiches
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626951110113-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Place a second baking tray on top of the tortilla baking tray to weigh it do
 
 Put the stacked baking trays in the oven and cook for 15 min or until the tortillas are slightly browned and the cheese is melted – these are your mushroom & black bean quesadillas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626951113871-x200.jpg)
 
 ### Step 7
 

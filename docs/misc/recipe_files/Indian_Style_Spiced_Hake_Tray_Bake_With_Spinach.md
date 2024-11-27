@@ -29,7 +29,6 @@ For this easy, one-pan traybake, you'll marinate hake fillets in ginger, yoghurt
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1729510752736-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chopped ginger to a large bowl with your curry powder, half your natura
 
 Add your hake fillet[s] and give everything a good mix up until the hake is fully coated in the marinade
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729510765793-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and chop your red onion[s] into wedges
 
 Crush your garlic with the side of a knife, keeping the skins on
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729510773004-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Sprinkle over your ground turmeric and yellow mustard seeds
 
 Season with a generous pinch of salt and pepper and stir it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729510798504-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Put the tray[s] in the oven for an initial 20 min
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729510884244-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729510889747-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Return the tray[s] to the oven for 12-15 min or until the spinach has wilted and
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729510895854-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ This Vietnamese-style dish has it all. You'll pair sticky rice with a crunchy, c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1654009301249-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]<span class="text-danger"> </span>[400ml] </span>cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1654009309743-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1654009314488-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Peel (scrape the skin off with a teaspoon) and grate (don't chop!) your ginger
 
 Chop your meat-free chick'n into smaller, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1654009321261-x200.jpeg)
 
 ### Step 4
 
 Combine your soy sauce, with the juice of your lime[s], 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar, 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>olive oil, your chilli flakes (can't handle the heat? Go easy!), grated garlic and grated ginger in a bowl and give everything a good mix up – this is your Vietnamese-style marinade
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1654009326028-x200.jpeg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1654009331274-x200.jpeg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Combine the halved cherry tomatoes, sliced cucumber and carrot ribbons in a bowl
 
 Add the remaining Vietnamese-style marinade and chopped meat-free chick'n to a bowl and mix to fully combine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1654009338328-x200.jpg)
 
 ### Step 7
 

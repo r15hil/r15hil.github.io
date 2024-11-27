@@ -24,7 +24,6 @@ This rich noodle soup is easy peasy. You’ll simmer carrots and green beans wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676374665276-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Top, tail, peel and chop your carrot[s] into quarters lengthways, then into thin
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676374670237-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the halved green beans and carrot batons to the pan and cook for 7-8 min or until the vegetables are slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676374674549-x200.jpg)
 
 ### Step 3
 
 Once slightly softened, add your red Thai curry paste and chopped garlic to the pan and cook for a further 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676374678633-x200.jpg)
 
 ### Step 4
 
@@ -58,13 +54,11 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and soy sauce in 500ml <span class="text-purple">[650ml]</span><span class="text-danger"> [900ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676374681912-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>flour to the pan and cook for 30 secs until a sandy paste has formed
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676374686587-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Once a sandy paste has formed, add the coconut stock and medium egg noodles to t
 
 Once loosened, cook for 5-6 min or until the noodles are cooked with a slight bite and the sauce has thickened – these are your veggie Thai-style curry noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676374690735-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Coating your fish in turmeric and cornflour makes it beautifully golden and extr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1642581559193-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop your tomato[es] roughly
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642581570110-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Once hot, add the diced onion, chopped tomato, ginger & garlic paste<span clas
 
 Once softened, add your ras el hanout and cook for a further 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642581574029-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve your vegetable stock mix in 225ml <span class="text-purple">[300ml]</span> <span class="text-danger">[450ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642581576880-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Tip: Stir the rice occasionally to stop it from sticking!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1642581580300-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Whilst the rice is cooking, pat your basa fillet[s] dry with kitchen paper and
 
 Add the chopped basa to a large bowl with your cornflour, ground turmeric and a pinch of salt and pepper and give everything a good mix up until the fish is evenly coated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642581582762-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add the coated basa to the pan and cook for 3-4 min on each side or u
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642581586525-x200.jpg)
 
 ### Step 7
 

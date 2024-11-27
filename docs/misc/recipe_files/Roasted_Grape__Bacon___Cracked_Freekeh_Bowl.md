@@ -20,7 +20,6 @@ For this wholesome bowlful, you'll toss balsamic-roasted grapes, smoky British b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1589819705646-x200.jpg)
 
 ### Step 1
 
@@ -28,7 +27,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop the grapes and Tenderstem broccoli in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Cracked-freekeh-1646237156394-x200.jpg)
 
 ### Step 2
 
@@ -36,7 +34,6 @@ Rinse the freekeh, then add it to a pot with plenty of cold water and bring to t
 
 Cook for 20-25 min or until tender but with a bite, then drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646237159789-x200.jpg)
 
 ### Step 3
 
@@ -46,7 +43,6 @@ Drizzle half the balsamic vinegar over the grapes and drizzle the Tenderstem bro
 
 Season both with a pinch of salt and put the tray in the oven for 12-15 min or until the broccoli has lightly charred
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646237162983-x200.jpg)
 
 ### Step 4
 
@@ -54,7 +50,6 @@ Add the smoked streaky bacon to a separate baking tray
 
 Put the tray in the oven for 15-20 min or until golden and crispy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1589819724163-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Tip: Cooking for 2? Save the remaining wholegrain mustard for another recipe!
 
 Give everything a good mix up – this is your balsamic-mustard dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1589819728805-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Add the roasted Tenderstem broccoli to the pot with the drained freekeh
 
 Season with a generous pinch of salt and pepper, add a drizzle of olive oil and mix everything together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1589819732796-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Steal the show with a stir-fried feast. You'll cook lean beef, sweetcorn, spring
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1702976383699-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Wash your spinach, then add to a colander and pour boiled water all over it so t
 
 Rinse the wilted spinach under cold running water until it's cool and once cool, squeeze as much water out of the spinach as you can and chop roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702976386243-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add your roasted peanuts and cook for 1-2 min or until beginning to to
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1702976389829-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once caramelised, transfer the peanuts to a plate to cool into a brittle and res
 
 Reboil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1702976394360-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add your lean beef mince with a generous pinch of salt and cook for 3-
 
 Cook for a further 4 min or until cooked through and browned (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1702976397835-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles, reserving 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml]</span> starchy noodle water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1702976401275-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the beef has browned, add 2/3 of the sliced spring onion (save the rest for
 
 Once softened, add your cornflour, remaining honey and soy sauce with the reserved starchy noodle water and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702976404631-x200.jpg)
 
 ### Step 7
 

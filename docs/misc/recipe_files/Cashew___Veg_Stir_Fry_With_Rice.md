@@ -24,7 +24,6 @@ Rustle up dinner in a flash with this sizzling stir-fry. You’ll cook red peppe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676915410652-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676915418732-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot, add your cashew nuts and cook for 2-3 min or until toasted and lightly
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676915426511-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Slice your chestnut mushrooms finely
 
 Trim, then chop your green beans into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676915443423-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the chopped pepper, chopped green beans and sliced mushrooms and cook for 4-5 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676915454239-x200.jpg)
 
 ### Step 5
 
 Once starting to soften, add your toasted sesame oil, ginger & garlic paste and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour and cook for 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676915465891-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once fragrant, add 150ml <span class="text-purple">[225ml]</span><span class="te
 
 Once boiling, reduce the heat to medium-high and cook for 3-4 min or until starting to thicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676915474163-x200.jpg)
 
 ### Step 7
 

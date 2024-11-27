@@ -22,7 +22,6 @@ Think mash has to mean potatoes? Think again! For this comforting low-carb versi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1858.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop (or grate) the garlic
 
 Chop the cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1858.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Heat a wide-based pan (preferably non-stick) with 1/2 tbsp <span class="text-dan
 
 Once hot, add the sliced onion with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1858.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve 1/2 <span class="text-danger">[1]</span> vegetable stock cube i<span class="text-highlight">n 150ml <span class="text-danger">[250ml]</span> </span>boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1858.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once softened, add half the chopped garlic and tomato paste and cook for 1-2 min
 
 Once fragrant, add the chopped cherry tomatoes, vegetable stock and balsamic vinegar and cook, covered, for 5-6 min or until the cherry tomatoes are starting to break down
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1858.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Cook, covered, for a further 6-8 min or until the fish is cooked through
 
 Tip: your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1858.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once hot, add the remaining chopped garlic and the drained cannellini beans and 
 
 Once warmed through, mash until smooth and season with a generous pinch of salt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1858.-step-7-x200.jpg)
 
 ### Step 7
 

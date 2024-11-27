@@ -26,7 +26,6 @@ Pile your plate with these lean pork patties. You’ll pan-fry ginger, garlic an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690888438862-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the sweet potato fries to a large baking tray (or two!) with a drizzle of ve
 
 Put the tray[s] in the oven for 25-30 min or until the sweet potato fries are tender and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690888442858-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Divide the pork mixture and shape into 2 oval patties per person
 
 Pop them in the fridge until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690888446468-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Slice your red chilli[es]<span class="text-danger"> </span>finely
 
 Peel and finely slice your shallot[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690888450244-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the juice of half your lime[s] – this is your spicy sambal
 
 Tip: Don't have a pestle & mortar? Use a food processor instead!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690888457161-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chilled patties and cook for 4-5 min on each side or until browned on both sides and cooked through (no pink meat!) – these are your Sri-Lankan-style lean pork patties
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690888461149-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ While the patties are cooking, chop your coriander finely, including the stalks
 
 Combine your natural yoghurt and chopped coriander in a bowl with the juice of the remaining lime and a pinch of salt – this is your raita-style dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690888465351-x200.jpg)
 
 ### Step 7
 

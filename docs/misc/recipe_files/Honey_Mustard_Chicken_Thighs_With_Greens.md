@@ -23,7 +23,6 @@ The best part about preparing chicken en papillote (meaning in a closed parcel) 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/376.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Trim, then chop your green beans in half
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/376.step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Chop each chicken thigh in half
 
 Add the chicken thigh pieces to the honey mustard mixture and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/376.step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the coated chicken thigh pieces to the pan, shaking any excess hon
 
 Cook for 3 min on each side or until lightly browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/376.step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Lay the browned chicken in the middle of the foil and pour the reserved honey mu
 
 Scrunch the edges of the foil around the chicken to form a sealed parcel and place on a baking tray
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/376.step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Place the tray in the oven for 15-20 min or until the chicken is cooked through 
 
 While the chicken is in the oven, trim, then finely slice your spring onion[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/376.step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once boiling, cook for an initial 10 min, then add the green beans to the pot an
 
 Once done, drain everything and add your cider vinegar, a drizzle of olive oil and the sliced spring onion
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/376.step-7-x200.jpg)
 
 ### Step 7
 

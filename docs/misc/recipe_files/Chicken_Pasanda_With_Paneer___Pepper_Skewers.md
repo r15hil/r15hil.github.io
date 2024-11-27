@@ -28,7 +28,6 @@ This is the ultimate Indian fake-away. For this feast from the east, you'll cook
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657003578885-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Deseed the pepper<span class="text-danger">[s] </span>(scrape the seeds and pith
 
 Cut the paneer into bite-sized cubes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657003581919-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 3/4 of the sliced onion (you'll use the rest later!) with a pinch of salt and cook for 6-7 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657003585104-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657003588891-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Put the tray in the oven for 13-15 min or until the paneer is slightly charred �
 
 Chop the chicken breast portions into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657003591827-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Add the chicken stock mix with half the ground almonds (you'll use the rest lat
 
 Once the chicken is cooked through, add the cultured coconut – this is your creamy chicken pasanda
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657003594888-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Spread the almond butter mix equally over the garlic & coriander naans, then tra
 
 Put the tray in the oven for 7-8 min or until golden – these are your almond naans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657003597641-x200.jpg)
 
 ### Step 7
 

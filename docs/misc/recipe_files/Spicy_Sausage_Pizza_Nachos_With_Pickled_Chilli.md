@@ -26,7 +26,6 @@ We’re making magic with two fast-food favourites. Load crispy tortilla chips w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664883798458-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Squeeze your sausage meat from the skins (clean hands is the best way!) and discard the skins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664883805086-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the sausage meat to the pan and cook for 5-7 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664883809516-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Give everything a good mix up, then spread them out and put the tray[s] in the o
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664883814113-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice f
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664883818892-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the sausage meat has browned, add the sliced shallot and diced pepper to th
 
 Add 1/3 of the chopped garlic (you'll use the rest later!) with your chilli flakes (can't handle the heat? Go easy!) and cook for 30 secs further, then add your chopped tomatoes with 150ml <span class="text-purple">[195ml]</span><span class="text-danger"> [250ml] </span>boiled water and a pinch of salt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664883824119-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Combine the sliced green chilli and half your white wine vinegar (save the rest
 
 Mix it all together and set aside – this is your quick-pickled chilli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664883830280-x200.jpg)
 
 ### Step 7
 

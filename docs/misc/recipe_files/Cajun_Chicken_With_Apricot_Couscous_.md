@@ -26,7 +26,6 @@ This super simple chicken dish is awash with colour thanks to yellow apricots, p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/923.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the onion wedges to a baking tray, drizzle with a little vegetable oil and s
 
 Put the tray in the oven for 15-20 min or until they're tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/923.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Meanwhile, combine the ground cumin, ground coriander, smoked paprika, dried ore
 
 Mix all the spices together &ndash; this is your Cajun seasoning&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/923.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the chicken strips to your Cajun seasoning and make sure they're fully coate
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/923.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Add the couscous and diced apricots to the bowl, cover with a tea towel or plate
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into bite-sized pieces&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/923.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Once hot, add the Cajun spiced chicken,&nbsp;green beans and red pepper&nbsp;and
 
 Add a splash of water to the pan, cover with a lid and cook for a further 2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/923.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Remove the roasted onion wedges from the oven and carefully remove the skins by 
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/923.-step-7-x200.jpg)
 
 ### Step 7
 

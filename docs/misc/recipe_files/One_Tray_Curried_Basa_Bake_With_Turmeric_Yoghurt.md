@@ -24,7 +24,6 @@ This Indian-inspired bake is the perfect easy dinner. You’ll top lightly curri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595943272428-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 12-15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595943283524-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Sprinkle 2/3 of your curry powder (save the rest for later!) over the basa and r
 
 Season with a pinch of salt and pepper and set aside – this is your curried basa
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595943292420-x200.jpg)
 
 ### Step 3
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595943299099-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once the potatoes have had an initial 12-15 min, add the pepper strips and cherr
 
 Sprinkle over the remaining curry powder and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595943308698-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Return the tray[s] to the oven for a further 12-15 min or until the fish is cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641395570513-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your natural yoghurt with your ground turmeric, a small splash of cold water and a pinch of salt in a small bowl – this is your turmeric yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595943319666-x200.jpg)
 
 ### Step 7
 

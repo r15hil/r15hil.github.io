@@ -27,7 +27,6 @@ Show off with a luxury fish pie filled with tender salmon and succulent king pra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1611674262933-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potatoes (skins on) into large, bite-sized pieces, then add them to a 
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1611674273989-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your dill and chives finely, keeping them separate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1611674283716-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[42
 
 Add the juice of half your lemon[s] and a generous grind of black pepper, then give everything a good mix up and cook for 3-4 min or until thickened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1611674374803-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Cook for 1-2 min further until fully combined – this is your fish pie mix
 
 Transfer the fish pie mix to an oven-proof dish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1611674395705-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Tip: Don't worry if you're left with a crumbly mixture, this helps add texture t
 
 Top the fish pie mix evenly with the mashed potatoes and put the dish in the oven for 20-25 min or until the prawns are cooked through and the topping is lightly golden – this is your salmon & king prawn fish pie
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1611674406195-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Use a fork to mix everything together evenly by pressing the mixture against the
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611674415853-x200.jpg)
 
 ### Step 7
 

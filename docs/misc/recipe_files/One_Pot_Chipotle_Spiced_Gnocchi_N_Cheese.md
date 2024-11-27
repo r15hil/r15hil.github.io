@@ -24,7 +24,6 @@ Get your easy cheesy fix with a one pot twist on a comfort food classic. You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708350736129-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice f
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708350739408-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once hot, add your gnocchi, diced pepper and halved cherry tomatoes and cook for
 
 Tip: Cooking for 4 or more? You may need 2 pans!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708350742806-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Trim, then slice your spring onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708350745996-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cook for 1-2 min or until the butter is melted and give everything a good mix up
 
 Once melted, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>flour and cook for 30 secs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708350749795-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[20
 
 Cook for 6-8 min further or until the sauce has thickened and the pepper is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708350752627-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cook for a final 1 min or until the cheese has melted
 
 Add the juice of half of the lime wedges (save the rest for a garnish!) and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708350755910-x200.jpg)
 
 ### Step 7
 

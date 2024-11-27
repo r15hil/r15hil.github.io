@@ -25,7 +25,6 @@ Spice up a simple combo with this summery twist. You’ll prep your fish in a cu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1703175880659-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the potatoes to a pot of boiling water with a pinch of salt, bring to the bo
 
 Once cooked, drain, and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1703175894869-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Chop your coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1703175906930-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large wide-based pan (preferably non-stick) with 1 tbsp <span class="text
 
 Once hot, add the coated hake and cook for 4-5 min on each side or until cooked through – this is your curried hake
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1703175939658-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ While the fish is cooking, chop your cucumber in half, then slice finely
 
 Peel and slice your shallot[s]<span class="text-danger"> </span>(as finely as you can!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1703175958264-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Combine your cider vinegar and chopped ginger in a bowl with the sliced cucumber
 
 Season with a pinch of salt and sugar – this is your quick-pickled cucumber salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1703175972117-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add the chopped mint and chopped coriander to the drained potatoes with a genero
 
 Season with a pinch of salt and pepper – these are your herb butter potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1703175989607-x200.jpg)
 
 ### Step 7
 

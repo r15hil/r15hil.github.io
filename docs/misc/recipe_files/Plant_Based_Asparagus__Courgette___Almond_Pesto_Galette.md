@@ -27,7 +27,6 @@ This take on the French classic is the perfect centrepiece. Spread tomato and ga
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684420779291-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Boil a kettle
 
 Crush your garlic open by squashing them with the side of a knife and discard the skins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684420782488-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Wash your spinach, then add to a colander and pour boiled water all over it so t
 
 Rinse the wilted spinach under cold running water until it's cool, and once cool, squeeze as much water out of the spinach as you can – this is your blanched spinach
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684420785794-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the blanched spinach and half the peeled garlic (you'll use the rest later!)
 
 Add a very generous pinch of salt and a generous drizzle of olive oil and blitz until smooth – this is your almond pesto
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684420789269-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Peel lengths off your courgette[s] with a peeler until you end up with a pile of
 
 Trim the woody ends off your asparagus
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684420792853-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the rolled pastry to the tray[s] and prick it all over with a fork (this wil
 
 Spread the tomato sauce over the pastry, leaving a 2cm round border
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684420796118-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Lay the asparagus top to tail over the pesto and season with a pinch of salt and
 
 Put the tray[s] in the oven for 25-30 min or until the pastry is golden and cooked through and the edges have puffed up – this is your asparagus, courgette & almond pesto galette
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684420799157-x200.jpg)
 
 ### Step 7
 

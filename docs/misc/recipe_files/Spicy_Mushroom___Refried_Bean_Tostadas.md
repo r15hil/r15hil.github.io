@@ -26,7 +26,6 @@ Get a loada these tostadas. You’ll layer crispy tortillas with smoky refried b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632824457967-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely chop (or grate) the garlic
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632824463677-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Chop the chestnut mushrooms into quarters
 
 Drain and rinse the black beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632824467874-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the diced onion and half the chopped garlic and cook for 3-4 min o
 
 Once beginning to soften, add the ground smoked paprika, drained black beans, soy sauce and 150ml <span class="text-danger">[300ml]</span> boiled water and cook, covered, for 10 min or until the beans are very soft
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632824471717-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the tortillas to a baking tray and place a second baking tray on top to we
 
 Put the stacked baking trays in the oven in the oven for 12-15 min or until the tortillas are golden and crisp – these are crispy tortillas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632824475523-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add the chopped mushrooms and cook for 4-5 min or until beginning to s
 
 Once softened, add the chipotle paste (can't handle the heat? Go easy!) and a pinch of salt and pepper and cook for a further 5-6 min or until tender – these are you smoky mushrooms
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632824480665-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Remove the stone<span class="text-danger">[s]</span> using a spoon, then scoop o
 
 Add the diced avocado to a large bowl with half the chopped coriander (save the rest for garnish!), the juice of 1/2 <span class="text-danger">[1]</span> lime and a pinch of salt and pepper and give everything a good mix up – this is your avocado salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632824484318-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Kick back and relax with this Mexican beachside favourite. You’ll stuff butter
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678180636527-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potato to a heatproof bowl, then cover the bowl with cling film 
 
 Put the bowl in the microwave for 3-4 min or until the potato is fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678180642070-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Chop the coriander finely, including the stalks
 
 Wash the baby leaf salad, then pat it dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678180645566-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the ground smoked paprika and crab meat to the mashed potato with half the c
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your crab filling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678180649041-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Cut into 4 <span class="text-danger">[8]</span> rectangles and add them to a bak
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678180652285-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Fold the pastry over the empanada filling so that both short sides of the rectan
 
 Press the pastry together with your fingers to seal in the crab filling with as little air trapped inside as possible
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678180655469-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Use a fork to crimp the edges of the pastry – these are your crab empanadas
 
 Put the crab empanadas in the oven for 15-20 min or until the pastry is golden and cooked through and the edges have puffed up – these are your smoky crab empanadas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678180658906-x200.jpg)
 
 ### Step 7
 

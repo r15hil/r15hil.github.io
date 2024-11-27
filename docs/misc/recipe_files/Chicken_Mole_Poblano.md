@@ -27,7 +27,6 @@ Famed from the region of Puebla, mole is Mexico's national dish. We've recreated
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1592911714069-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Dissolve 1 tsp <span class="text-danger">[2 tsp] </span>sugar and a pinch of sal
 
 Add the sliced red onion and set aside to pickle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1592911725951-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 18-20 min or un
 
 Once cooked, add the blanched peas, remove from the heat and keep covered until the peas are warmed through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1592911737927-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chicken thighs and give them a good mix up until they're fully coated in
 
 Add the dried ancho chilli<span class="text-danger">[es]</span> and sultanas to a bowl, cover them in 200ml <span class="text-danger">[400ml]</span> boiled water and set aside for 5 min to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1592911754215-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the coated chicken thighs and cook for 4-5 min on each side or until golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1592911763910-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Tip: Cooking for 2? Save the remaining dark chocolate fo another recipe!
 
 Dissolve the Knorr chicken stock cube<span class="text-danger">[s]</span> in 200ml <span class="text-danger">[350ml]</span> boiled water with the tomato paste, chopped chocolate, peanut butter and white wine vinegar – this is your mole stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1592911787498-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add the chopped ancho chilli and sultanas to a food processor and blitz until sm
 
 Slowly pour in the reserved soaking liquid whilst blitzing – this is your ancho chilli sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1592911812414-x200.jpg)
 
 ### Step 7
 

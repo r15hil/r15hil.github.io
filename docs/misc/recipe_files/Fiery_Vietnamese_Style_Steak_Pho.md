@@ -28,7 +28,6 @@ This fiery pho is a Vietnamese-style gem. You’ll load your broth with soy, sri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688736776573-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688736779388-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once very hot, add the seasoned steak to the pan
 
 For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on each side; for medium, cook for 3-4 min on each side
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688736782041-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once the steak is cooked, transfer to a plate to rest, reserve the pan
 
 Dissolve your pho broth base and beef stock mix in 600ml<span class="text-purple"> [750ml] </span><span class="text-danger">[900ml]</span> boiled water – this is your pho stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688736785007-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688736787888-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Strip your mint leaves from their stems, discard the stems
 
 Slice your red chilli[es]<span class="text-danger"> </span>finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688736790408-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once fragrant, add the drained noodles to the pan with the pho stock, fish sauce
 
 Once boiling, reduce the heat to medium and cook for 1-2 min or until the noodles are completely tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688736792949-x200.jpg)
 
 ### Step 7
 

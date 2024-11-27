@@ -22,7 +22,6 @@ Try this comforting jacket on for size. You’ll roast red potatoes till perfect
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697644493692-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Pierce your red potato[es] a few times with a fork, then cook in the microwave f
 
 Add the softened potato[es] to a baking tray (or two!) with a drizzle of olive oil and a pinch of salt, put the tray[s] in the oven for 20-25 min or until crispy on the outside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697644497627-x200.jpg)
 
 ### Step 2
 
@@ -40,25 +38,21 @@ Whilst the potato[es] is cooking, trim, then slice your spring onion[s]
 
 Drain your tuna
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697644501078-x200.jpg)
 
 ### Step 3
 
 Drain your sweetcorn
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697644505112-x200.jpg)
 
 ### Step 4
 
 Combine the drained tuna and sliced spring onion in a bowl with your mayo, drained sweetcorn, a pinch of salt and a generous grind of black pepper – this is your tuna mayo & sweetcorn mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697644509234-x200.jpg)
 
 ### Step 5
 
 Chop your tomato[es] into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697644513384-x200.jpg)
 
 ### Step 6
 
@@ -68,7 +62,6 @@ Wash your baby leaf salad, then pat dry with kitchen paper
 
 Add the baby leaf salad and tomato wedges to the bowl with the dressing and give everything a good mix up – this is your dressed salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697644518482-x200.jpg)
 
 ### Step 7
 

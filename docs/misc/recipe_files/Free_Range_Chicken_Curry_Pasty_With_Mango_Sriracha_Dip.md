@@ -26,7 +26,6 @@ Cornwall meets Calcutta in our spicy twist on the humble pasty. You’ll stuff p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1706616028144-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely slice your brown onion[s]
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium-high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1706616031714-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once golden, reduce the heat to medium and add your curry powder, chicken stock 
 
 Cook for a further 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1706616034998-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Cut the puff pastry into 1 rectangle per person and add the pastry to a non-stick baking paper-lined baking tray (or two!), then set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1706616038735-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 25-30 min or until the chips are golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1706616041446-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Return the pulled chicken to the pan with the onion, season generously with salt
 
 Divide the pulled curry chicken between the pastry, covering only one half of the rectangle[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1706616044925-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Fold the pastry over the filling and seal firmly together then use a fork to cri
 
 Brush the pastry with a little milk and top with half the nigella seeds (you'll use the rest later!), then put the tray[s] in the oven for 17-20 min or until golden and cooked through – this is your free range chicken curry pasty
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1706616047651-x200.jpg)
 
 ### Step 7
 

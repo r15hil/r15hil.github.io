@@ -28,7 +28,6 @@ Get ready to take a bite out of Bali. You’ll marinate chicken in a punchy mari
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1726571083780-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and roughly chop your garlic, ginger and shallot[s]
 
 Bash your lemongrass with a rolling pin and remove the tough outer layer[s], then chop the softer inner lemongrass core[s] roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630487693539-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped chilli (can't handle the heat? Go easy!), garlic, ginger, shallo
 
 Season with a pinch of salt, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water and blitz until you're left with a smooth paste – this is your ayam betutu paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630487704984-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add 3/4 of the ayam betutu paste (you'll use the rest later!) to the chicken and
 
 Put the tray[s] in the oven for 30 min or until cooked through (no pink meat!) and golden – this is your Balinese-style ayam betutu chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630487725377-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the drained rice with 200ml <span class="text-purple">[300ml] </span><span c
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630487741650-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ After 15 min, remove the pot from the heat and keep covered until serving
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630487753549-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the chicken has been in the oven for 20 min, heat a large, wide-based pan (
 
 Once hot, add the remaining ayam betutu paste and cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630487767598-x200.jpg)
 
 ### Step 7
 

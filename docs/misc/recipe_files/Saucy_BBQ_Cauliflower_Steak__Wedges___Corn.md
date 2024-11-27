@@ -21,7 +21,6 @@ You'll rub your cauli with paprika and cumin and smother it in our smoked barbec
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721749998168-x200.jpg)
 
 ### Step 1
 
@@ -33,13 +32,11 @@ Tip: Save any extra florets for another meal!
 
 Add your ground smoked paprika, ground cumin and a generous pinch of salt to a plate and mix to combine
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721750007526-x200.jpg)
 
 ### Step 2
 
 Brush the steaks all over with a drizzle of vegetable oil, then add them to the plate with the spices and turn them several times until evenly coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721750016452-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ Add the spiced cauliflower steak[s] to a baking tray (or two!) and put in oven f
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721750028958-x200.jpg)
 
 ### Step 4
 
@@ -55,7 +51,6 @@ Cut your potatoes (skins on) into wedges
 
 Add your sweetcorn cobettes to a piece of tin foil with a knob of butter and seal the foil tightly around them
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721750039662-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Add the foil-wrapped cobettes to the tray
 
 Put the tray in the oven for 20-25 min or until the wedges are crispy and the corn is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721750049436-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ While everything's cooking, add your cider vinegar to a large bowl with 2 tbs
 
 Add your salad and gently toss – this is your dressed salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721750057497-x200.jpg)
 
 ### Step 7
 

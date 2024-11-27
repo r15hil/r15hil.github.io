@@ -27,7 +27,6 @@ This hearty pie is a cosy, comforting delight! You'll simmer your meat-free minc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1636391249656-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Top, tail and slice your carrot[s] into thin discs
 
 Strip your rosemary leaves from their stems, discard the stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636391256141-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1636391263308-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Tip: If your carrots are still a bit crunchy don't worry, these will be baked in
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1636391272737-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Add 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[45
 
 Bring to the boil over a high heat and cook for 3-4 min<span class="text-danger"> </span>or until slightly thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1636391281534-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Lightly crush the potatoes with a masher or fork and then give everything a good
 
 Tip: Don't press too hard, you only want to crush them!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1636391302444-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Top the meat-free mince mixture with the rosemary potatoes and sprinkle over the
 
 Put the dish in the oven for 20 min<span class="text-danger"> </span>or until golden and bubbling – this is your hearty meat-free mince, carrot & mustard pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1636391342164-x200.jpg)
 
 ### Step 7
 

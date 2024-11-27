@@ -24,7 +24,6 @@ Replicate rich Tuscan flavours with this delicious pasta in a hearty lentil and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617709449841-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the diced red onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617709499881-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Add the chopped courgette to a baking tray (or two!) with a drizzle of olive o
 
 Put the tray[s] in the oven for 25-30 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617709849659-x200.jpg)
 
 ### Step 3
 
 Add your beluga lentils to the onion and cook for 3-4 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617709860550-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Meanwhile, dissolve your vegetable stock mix in 200ml <span class="text-purple">
 
 Add your tomato paste and balsamic vinegar to the pan and cook for 2-3 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617709878921-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Add the vegetable stock and a pinch of salt and sugar to the pan and cook for 
 
 Chop your basil finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617709924333-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Bring to the boil over a high heat and cook for 8-12 min or until cooked with a 
 
 Once cooked, drain the cooked tortiglioni and reserve a cup of the starchy pasta water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617710013053-x200.jpg)
 
 ### Step 7
 

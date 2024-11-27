@@ -31,7 +31,6 @@ Taste the flavours of Nigeria with our West African-style fried rice. Simmer ric
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1689672408355-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Combine your ground smoked paprika and dried oregano in a small bowl with a gene
 
 Give everything a good mix up – this is your smoky dressing
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689672414676-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Spread the smoky dressing over the cut side of the aubergine
 
 Put the baking tray[s] in the oven for 30-35 min or until the aubergine is cooked through and tender – this is your smoky aubergine
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689672417510-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689672420901-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Whilst the onion is softening, slice half your green chilli[es] into rounds and 
 
 Finely chop the remaining green chilli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689672423790-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Dissolve your vegetable stock mix in 300ml <span class="text-purple">[450ml]</sp
 
 Once the onion has slightly softened, add the chopped garlic and chopped chilli (can't handle the heat? Go easy!) with your ground turmeric and curry powder to the pan and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689672426765-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add the diced pepper, your basmati rice and bay leaf[ves] to the pan with the ve
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689672429886-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Deck your dining table with this super simple galette. Once you've added the her
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636549634579-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a large, wide-based pan (preferably non-stick) with a little drizzle of oli
 
 Add your sausage meat (remove the paper if required!) and cook for 4-5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636549638254-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Whilst the sausage meat is cooking, chop your leek[s] in half lengthways, wash t
 
 Peel and finely slice your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636549641892-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Cook for 4-5 min or until the leek has softened
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636549647865-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the chopped garlic and dried thyme to the pan and cook for 1 min or until fr
 
 Once fragrant, add your soft cheese and chicken stock mix and cook for 1-2 min further or until the cheese has melted and everything's combined – this is your galette filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636549652406-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Dust your work surface with a generous sprinkling of flour, unwrap your puff pas
 
 Add the rolled pastry to the tray[s] and prick it all over with a fork (this will stop it getting a soggy bottom!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636549657118-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Tip: Start from one corner and work around in one direction, overlapping the pas
 
 Tip: Cooking for 3 or more? You may need to make multiple galettes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636549660960-x200.jpg)
 
 ### Step 7
 

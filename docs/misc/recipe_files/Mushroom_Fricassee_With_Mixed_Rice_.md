@@ -24,7 +24,6 @@ This silky two type mushroom sauce, flavoured with tarragon and thickened with C
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/927.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the black rice to a pot of plenty of boiled water and cook over a high heat 
 
 Once cooked, drain and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/927.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the vegetable&nbsp;stock cube<span class="text-danger">[s]</span> in 150ml <span class="text-danger">[300ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/927.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Meanwhile, add the basmati rice and 175ml <span class="text-danger">[350ml]</spa
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/927.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Tear&nbsp;the chestnut mushrooms into bite-size pieces&nbsp;
 
 Strip the tarragon leaves from their stems, discarding the stems
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/927.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add both the portobello and chestnut&nbsp;mushrooms&nbsp;and cook for 5-8 min
 
 Add the chopped garlic, 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and cook for a further 1 min or until&nbsp;browned
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/927.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once browned, add the Shaoxing wine, vegetable stock, Dijon mustard&nbsp;and clo
 
 Once the sauce has thickened, add the&nbsp;tarragon leaves and season with salt and pepper&nbsp;- this is your mushroom fricassee&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/927.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Head to the Med for a deliciously rich tomato and pepper stew. Top it with crisp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1718804154278-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1718804160578-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once hot, add the sliced onion, diced carrot, chopped tomatoes, sliced pepper an
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/06-06-24_08h01m13s-APIC-1718804802792-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add the turmeric stock and bring to the boil over a high heat, once boiling, red
 
 Tip: If you like it more saucy add a splash more water!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1728568553689-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Meanwhile, chop your parsley finely, including the stalks
 
 Stir most of the chopped parsley (save the rest for garnish!) through the cooked stew – this is your Mediterranean stew
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_09h18m01s-APIC-1718804827357-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once hot, add your sea bass fillet[s], skin side down and cook for 5 min, then f
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_13h49m35s-APIC-1718804839563-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Meanwhile, combine the remaining ground turmeric with 1 tsp <span class="text-pu
 
 Add your mayo with a drizzle of olive oil and a pinch of salt and pepper and whisk together – this is your sunny mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1728568954924-x200.jpg)
 
 ### Step 7
 

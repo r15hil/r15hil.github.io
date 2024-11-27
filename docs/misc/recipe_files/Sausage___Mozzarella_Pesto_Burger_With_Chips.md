@@ -26,7 +26,6 @@ Give your burger some sun-kissed zing, Italian style. You’ll spread toasted ci
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682101709673-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray (or two!) with your dried oregano, a drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your oregano chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682101714289-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide and shape into 1 patty per person, then refrigerate until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682101718135-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Slice your tomato[es]<span class="text-danger"> </span>into rounds
 
 Combine your sun-dried tomato pesto and mayo in a bowl – this is your pesto mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682101723769-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add the sausage patty[ies] and cook for 5 min on one side or until bro
 
 Tip: Press the patty down with a spatula to keep nice and flat throughout cooking
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682101767465-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once browned, flip the sausage patty[ies] and top with the halved mozzarella
 
 Cook, covered, for 5 min further or until the cheese has melted and the sausage meat is cooked through (no pink meat!) – this is your cheesy patty
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682101772723-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, wash your lettuce then pat dry with kitchen paper, and roughly shred
 
 Add the shredded lettuce to a bowl with your balsamic vinegar and a generous drizzle of olive oil and toss it all together – this is your balsamic salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682101777546-x200.jpg)
 
 ### Step 7
 

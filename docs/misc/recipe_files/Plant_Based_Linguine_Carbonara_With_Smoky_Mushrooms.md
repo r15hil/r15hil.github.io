@@ -27,7 +27,6 @@ Want to have your carbonara and eat it too? Then switch some of your linguine wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1638259919970-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the sliced mushrooms to a baking tray (or two!) with 1/2 tbsp <span class="t
 
 Put the tray[s] in the oven for 15-20 min or until tender and crisp – these are your smoky mushrooms
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638259923472-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely dice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638259927353-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add your linguine to a pot of boiled water with a large pinch of salt and bring 
 
 Cook the linguine for 8-10 min or until cooked with a slight bite then drain, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1638259931352-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the diced shallot with a pinch of salt and cook for 2-3 min or unt
 
 Once starting to soften, add the chopped garlic and cook for 1 min further or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1638259935850-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Tip: The miso adds an umami flavour to the sauce!
 
 Season with a generous grind of black pepper and cook for 2-3 min or until thickened to a double cream-like consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638259944433-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Peel lengths of the sliced courgette[s] until you have a pile of ‘courgetti’
 
 Tip: Have a spiraliser? Use this instead!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638259949213-x200.jpg)
 
 ### Step 7
 

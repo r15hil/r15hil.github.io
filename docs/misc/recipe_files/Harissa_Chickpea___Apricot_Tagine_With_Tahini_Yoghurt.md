@@ -29,7 +29,6 @@ For this 10 minute twist on tagine, you’ll add sweetness and spicy warmth to c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610816800474-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2054-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Boil a kettle
 
 Trim, then slice your spring onion[s] finely, keeping the whites and greens separate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650380305785-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650380314071-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the pan is hot, add the sliced spring onion whites, diced pepper, baharat, 
 
 Cook for 2-3 min or until fragrant and the pepper has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650380322036-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add your couscous and a generous drizzle of olive oil, then stir, cover and set
 
 Drain and rinse your chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650380330450-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once fragrant, add the drained chickpeas, remaining vegetable stock mix, your di
 
 Cook for a further 2-3 min or until the sauce has thickened and the chickpeas have warmed through – this is your harissa chickpea & apricot tagine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650380338639-x200.jpg)
 
 ### Step 7
 

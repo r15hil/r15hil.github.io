@@ -30,7 +30,6 @@ This veg-packed wonder is fragrant, rich and packed with nutty flavour. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1639415338622-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, add in your mango chutney, give everything a good mix and cook for 1 min or until the peanuts are evenly coated, then transfer to a plate (save the pan!) and place in the fridge – these are your mango-glazed peanuts
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1639415341258-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-onion-and-sliced-garlic-in-a-pan--1646222530630-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Slice half your red chilli[es]<span class="text-danger"> </span>into rounds (sav
 
 Once the onion has softened, add the chopped garlic, chopped ginger and chopped chilli (can’t handle the heat? Go easy!) to the pan and cook for 2-3 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1639415347151-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ While the garlic and ginger is softening, peel and chop your sweet potato[es] in
 
 Add the chopped sweet potato to the pan and cook for 2-3 min or until beginning to lightly brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1639415350596-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Dissolve your vegetable stock mix, chopped creamed coconut and peanut butter in 
 
 Add your curry powder to the pan with the nutty coconut stock and 1/2 tsp<span class="text-danger"> <span class="text-purple">[3/4 tsp] </span>[1 tsp]</span> sugar, mix everything together and cook for 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1639415352642-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop r
 
 Add the chopped pepper to the pan, give everything a good mix up and cook, covered, for 10 min or until the sweet potato has softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1639415355571-x200.jpg)
 
 ### Step 7
 

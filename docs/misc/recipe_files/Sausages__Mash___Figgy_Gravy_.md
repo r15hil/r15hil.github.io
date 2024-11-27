@@ -22,7 +22,6 @@ This British classic has a couple of little twists to make it a bit more excitin
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/716.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut the potatoes (skins on) into bite-sized pieces&nbsp;
 
 Peel and slice the&nbsp;red onion<span class="text-danger">[s]</span> finely&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/716.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once hot, add the onion with a pinch of salt and sugar
 
 Cook for 20 min, until softened and caramelised&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/716...step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once cooked, drain and&nbsp;return to the pot
 
 Place the sausages onto a lightly oiled baking tray and put them into the oven for an initial 10 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/716.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Grate the cheddar cheese
 
 Chop the chives finely&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/716...step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Scrunch&nbsp;up the edges of the foil slightly, then add 1 tbsp <span class="tex
 
 Once the sausages have had 10 min oven time, add&nbsp;the parcel to the tray and put it back into the oven for a further 15 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/716.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Cook for 30 sec or until the Shaoxing wine has evaporated&nbsp;
 
 Stir 1/2 tsp <span class="text-danger">[1 tsp]</span> flour&nbsp;into the onions until evenly coated, then add the fig stock&nbsp;and cook for 5 min or until the sauce has thickened to a gravy-like consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/716.-step-7-x200.jpg)
 
 ### Step 7
 

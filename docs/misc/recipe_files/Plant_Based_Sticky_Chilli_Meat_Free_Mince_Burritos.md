@@ -26,7 +26,6 @@ A meat-free twist on a Mexican classic. Wrap up your aromatic meat-free mince, w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660650720328-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660650789775-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free mince with a pinch of salt and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660650811948-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Combine the juice of half your lime[s] with your mayo and a drizzle of olive oil
 
 Season with a pinch of salt and pepper – this is your lime mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660650820495-x200.jpg)
 
 ### Step 4
 
@@ -62,19 +58,16 @@ Once the meat-free mince is browned, reduce the heat to medium-high and add your
 
 Add your agave and cook for 2-3 min or until the meat-free mince becomes crispy and sticky – this is your sticky chilli meat-free mince
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1676967540183-x200.jpg)
 
 ### Step 5
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660650858158-x200.jpg)
 
 ### Step 6
 
 Wash your lettuce, then pat dry with kitchen paper and shred it finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660650865108-x200.jpg)
 
 ### Step 7
 

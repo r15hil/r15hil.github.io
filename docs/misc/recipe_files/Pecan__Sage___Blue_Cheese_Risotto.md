@@ -21,7 +21,6 @@ Although risotto is a staple of Italian cuisine, the flavours in this version ar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/283.step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Boil a kettle
 
 Preheat the oven to 220°C/ 200°C (fan)/ 425°F/ Gas 7
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/283.step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Place the sweet potato on a baking tray, drizzle with <span class="text-highligh
 
 Put them in the oven for 30 min or until crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/283.step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Peel and dice the brown onion<span style="color:#e86754;">[s]</span> finely
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/283.step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add <span class="text-highlight">1 tbsp <span class="text-danger">[2 tbsp]</span
 
 Once hot, add the diced onion and a pinch of salt and cook for 3 min until soft but not coloured
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/283.step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Add <span class="text-highlight">1/3 </span>of the stock and stir continuously w
 
 Continue to add the stock a ladle at a time, stirring continuously for 15-20 min, until all the stock is absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/283.step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add the pecans to the sweet potato tray and put it back in the oven for 5 min or until they have slightly darkened in colour
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/283.step-7-x200.jpg)
 
 ### Step 7
 

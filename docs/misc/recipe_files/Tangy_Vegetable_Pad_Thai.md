@@ -27,7 +27,6 @@ Come in from the cold for these punchy plant-based noodles that transport you st
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585752839559-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your butternut squash cubes to a baking tray with a small pinch of salt an
 
 Put the tray into the oven for 20-25 min or until cooked with a slight bite
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585752840788-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the pepper strips with a pinch of salt and cook for 3-4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585752844222-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once softened, drain the noodles, run them under cold water, then return to the
 
 Tip: The oil prevents the noodles from sticking together!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585752847708-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Peel and finely slice your garlic
 
 Add your tamarind paste to a bowl with your soy sauce, mirin, sriracha (can't handle the heat? Go easy!), the juice of half your lime and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and give it all a good mix up – this is your pad Thai sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585752853110-x200.jpg)
 
 ### Step 5
 
 Once the pepper has softened, add the courgette ribbons and sliced garlic to the pan and cook for 1-2 min until fragrant, then remove from the heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1585752856906-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Chop your basil and coriander roughly, including the stalks
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1585752861010-x200.jpg)
 
 ### Step 7
 

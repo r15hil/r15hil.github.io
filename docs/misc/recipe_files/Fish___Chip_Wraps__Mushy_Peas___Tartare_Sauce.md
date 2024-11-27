@@ -22,7 +22,6 @@ For a fish and chip butty with a twist, you'll wrap crispy haddock bites, oven-b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2475Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch o
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2475Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the juice of 1/2 <span class="text-danger">[1]</span> lemon to a bowl with 3
 
 Give it a good mix up until the lemon and oil have combined – this is your lemon & olive oil mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2475Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Pat the haddock bites dry with kitchen paper
 
 Coat the haddock bites in the lemon & olive oil mix, then roll them on the plate of breadcrumbs to coat everything evenly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2475Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, slice the remaining lemon into 2 <span class="text-danger">[4]</span>
 
 Chop the dill roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2475Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the cooked peas to a food processor along with a knob of butter, 2 tbsp <spa
 
 Pulse until blitzed but not smooth – these are your mushy peas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2475Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the chopped capers to a bowl with the mayo and a generous grind of black
 
 Squeeze in the juice of 1 <span class="text-danger">[2] </span>lemon wedge<span class="text-danger">[s]</span> and stir it all together – this is your tartare sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2475Step-7-x200.jpg)
 
 ### Step 7
 

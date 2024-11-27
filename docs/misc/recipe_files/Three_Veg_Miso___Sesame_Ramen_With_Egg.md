@@ -30,7 +30,6 @@ This simple, miso-infused ramen is packed with umami flavour, noodles and oodles
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1659007753041-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the sliced mushrooms and chopped aubergine to a baking tray with a drizzle o
 
 Put the tray in the oven for 15-18 min or until everything is slightly browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1659007757601-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once boiling, cook for exactly 8 min for a perfect, mid-boiled egg, then fill a 
 
 Reboil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1659007761805-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your gin
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659007766351-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a 
 
 Add the chopped garlic and chopped ginger and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1659007800121-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, dissolve your miso paste, soy sauce and vegetable stock mix in 750ml 
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1659007789283-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the miso stock to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and add the spinach and fine egg noodles and continue cooking for 2-3 min or until the noodles are tender and the spinach has wilted – this is your miso noodle broth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1659007809650-x200.jpg)
 
 ### Step 7
 

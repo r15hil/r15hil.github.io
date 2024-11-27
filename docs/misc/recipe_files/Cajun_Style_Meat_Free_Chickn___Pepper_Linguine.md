@@ -30,7 +30,6 @@ Louisiana meets Liguria in this fiery fusion dish. You’ll fry up meat-free chi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675158997052-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675159002278-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion, chopped garlic, pepper strips and a pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675159009711-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Season with a pinch of sugar and salt, add a generous grind of black pepper and 
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675159026531-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving a cup of starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675159032499-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Reboil half a kettle
 
 Once fragrant, add your meat-free chick'n to the pan with the vegetables and cook for 4-6 min further or until warmed through and starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675159036361-x200.jpg)
 
 ### Step 6
 
 Dissolve your vegetable stock mix and tomato paste in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml] </span>boiled water – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675159040851-x200.jpg)
 
 ### Step 7
 

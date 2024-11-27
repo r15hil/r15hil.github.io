@@ -29,7 +29,6 @@ To recreate this curry's rich sauce, you'll sizzle onions, tomato and succulent 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1583501612563-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1649782291513-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Chop your meat-free chick'n into smaller, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583501621220-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583501624873-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add your cumin seeds and cook for 1 min or until starting to sizzle
 
 Once sizzling, add your basmati rice, stirring to coat the grains in the oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1583501629286-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your jeera rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583501633476-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the onion has softened, add the chopped meat-free chick'n, sliced pepper an
 
 Meanwhile, dissolve your vegetable stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water and stir in your tomato paste and a pinch of sugar – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583501638362-x200.jpg)
 
 ### Step 7
 

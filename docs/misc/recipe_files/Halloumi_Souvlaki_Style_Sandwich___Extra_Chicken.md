@@ -26,7 +26,6 @@ All hail halloumi. For your version of this Greek street food staple, you’ll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730995073024-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your potatoes (skins on) into fries
 
 Add the fries to a baking tray (or two!) with a drizzle of olive oil and your dried oregano, give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp – these are your herby fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1730995081040-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Meanwhile, slice half your cucumber[s] into discs, cut the remaining cucumber in
 
 Add your chicken breast portion to a baking paper-lined tray with a drizzle of olive oil and a pinch of salt and pepper, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730995086031-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the grated cucumber to a bowl with half the chopped garlic (not a big garlic
 
 Give everything a good mix up – this is your tzatziki
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1730995090004-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Slice your tomato[es] into rounds
 
 Slice your halloumi into 2 strips per person lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1730995094326-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Combine the sliced halloumi and your ground cumin in a bowl with your ground smo
 
 Give everything a good mix up and season with a generous grind of black pepper – this is your marinated halloumi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1730995099308-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the marinated halloumi and cook for 1-2 min on each side or until crispy and golden brown on both sides – this is your crispy halloumi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730995103090-x200.jpg)
 
 ### Step 7
 

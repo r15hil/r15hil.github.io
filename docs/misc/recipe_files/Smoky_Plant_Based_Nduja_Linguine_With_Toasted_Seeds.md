@@ -28,7 +28,6 @@ Veg is the star of the show in this plant-based pasta. You’ll sautée red pepp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686322001886-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Top, tail and chop your courgette[s] in half lengthways, then slice finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686322012917-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the diced onion, chopped pepper and chopped courgette to the pan w
 
 Once browned, reduce the heat to medium and cook, covered, for 15 min or until the vegetables are softened, stirring occasionally
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686322016542-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once toasted, transfer them to a plate and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686322020310-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686322884377-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once hot, add the chopped garlic to the pan with your dried oregano and tomato p
 
 Once fragrant, add your Chinese rice wine and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686322923220-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ While the sauce is thickening, add 20g<span class="text-purple"> [30g]</span> <s
 
 Once melted, add your plant based 'Nduja (can't handle the heat? Go easy!) and a pinch of salt to the bowl and give everything a good mix up – this is your smoky plant based 'Nduja butter
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686322751541-x200.jpg)
 
 ### Step 7
 

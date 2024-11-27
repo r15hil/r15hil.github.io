@@ -23,7 +23,6 @@ This classic soup is packed with deliciously sweet peas and fresh herbs. Serve w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1580806868301-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580806960320-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Cooking for 4? Use 2 trays!
 
 Meanwhile, boil a full kettle and set some butter aside near a warm place to get to room temperature for easy spreading later on
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580806964121-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the sliced onion with a generous pinch of salt and pepper and coo
 
 Add the chopped potato, chopped garlic and bay leaf<span class="text-danger">[ves]</span> and cook for 1-2 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580806967931-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Slice the cheddar cheese into 8 <span class="text-danger">[16]</span> thin slice
 
 Slice the ciabattas in half and butter both bases
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580806971629-x200.jpg)
 
 ### Step 5
 
@@ -83,13 +78,11 @@ Add both the ciabatta bases and lids (cut side up) to the other side of the tray
 
 Return the tray to the oven for 5-6 min or until the cheese has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580806975568-x200.jpg)
 
 ### Step 6
 
 Once the potatoes are fork-tender, add the mint leaves and blanched peas to the pot and cook for 2-3 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580806980370-x200.jpg)
 
 ### Step 7
 

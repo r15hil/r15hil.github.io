@@ -29,7 +29,6 @@ This meat-free keema bake is our Indian-inspired twist on cottage pie. You'll to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1649151647140-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the halved potatoes to a pot of plenty of boiled water with a pinch of salt 
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1649151652456-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) over a medium-hi
 
 Once hot, add your meat-free mince and cook for 5-6 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1649151658693-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once the mince has browned, add the chopped onion and carrot to the pan with a g
 
 Cook for a further 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1649151669007-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Add the vegetable stock mix into the pan with your curry powder, chopped garlic,
 
 Cook for 2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649151704339-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Wash your spinach, pat dry with kitchen paper, then add to the pan and cook for 
 
 Add your blanched peas and cook for 1 min further or until the sauce has thickened – this is your meat-free mince keema
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649151721266-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Meanwhile, return the cooked potatoes to the pot with your ground turmeric, a ge
 
 Gently mix the potatoes until they're evenly coated – these are your turmeric potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649151752451-x200.jpg)
 
 ### Step 7
 

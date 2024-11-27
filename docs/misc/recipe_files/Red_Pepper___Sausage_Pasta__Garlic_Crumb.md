@@ -24,7 +24,6 @@ This homemade pasta sauce is a real crowd-pleaser. Delicious Cumberland sausage,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1174.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once hot, add the garlic, panko breadcrumbs and a pinch of salt and cook for 3-
 
 Once done, transfer to a bowl and set aside for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1174.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Wipe the pan clean and return to a medium-high heat with a drizzle of olive oil
 
 Once hot, add the chopped sausages and cook for 4-5 min or until they're browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1174.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1174.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once browned, transfer the sausages to a plate and set them aside 
 
 Return the pan to a medium heat, add the sliced onion and pepper and cook for 5-6 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1174.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Cook the pasta for 10-12 min or until cooked with a slight bite
 
 Once done, reserve 100ml <span class="text-danger">[200ml]</span> of the starchy pasta water and drain the pasta
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1174.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Return the sausages to the pan and crumble in 1/2 <span class="text-danger">[1]
 
 Add the chopped tomatoes, a pinch of sugar and a good grind of black pepper and cook for 6-7 min or until a thick pasta sauce remains
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1174.-step-7-x200.jpg)
 
 ### Step 7
 

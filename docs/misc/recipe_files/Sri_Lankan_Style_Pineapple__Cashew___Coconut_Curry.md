@@ -30,7 +30,6 @@ Time to put your feet up, this sweet-savoury curry is ready before you know it. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-5-1704990653882-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702996030800-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add your white long grain rice to an oven-proof dish with 300ml <span class="tex
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1702996037206-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Peel and chop your brown onion[s] into wedges
 
 Drain your pineapple slices (save the juice!) and chop roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1702996040168-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once hot, add the onion wedges and yellow mustard seeds with your curry powder, 
 
 Cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1702996043502-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Add your cashews, lime leaf[ves], vegetable stock mix, ginger & garlic paste, cr
 
 Bring to the boil, then cover with a lid and put the dish in the oven for 22 min or until the butternut squash is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1702996045935-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702996050213-x200.jpg)
 
 ### Step 7
 

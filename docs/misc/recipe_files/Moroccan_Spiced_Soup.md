@@ -26,7 +26,6 @@ This is a super-satisfying homemade soup, thickened with chickpeas and garnished
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/106.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Crush the garlic with the side of a knife, peel it and chop finely
 
 Peel the brown onion and chop coarsely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/106.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once the oil is hot, add the chopped&nbsp;onion and garlic and cook for 3 min or
 
 Add the ground cumin, ground coriander and chilli flakes (Can't handle the heat? Go easy!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/106.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the vegetable stock cube<span class="text-danger">[s]</span> and stir to dis
 
 Reduce the heat and simmer for 20 min or until the carrots and potato are tender, stirring occasionally
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/106.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Combine the contents of the pot using a (stick) blender for a smooth soup
 
 Tip: let the soup cool down a bit first and if you are not using a stick blender, only half fill the blender and hold the lid down firmly with a tea towel
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/106.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Meanwhile, warm the ciabatta rolls in the oven for 6-8 min
 
 Once done, remove from the oven and set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/106.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once the pan is hot, add the pumpkin seeds and toast for 3 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/106.-step-7-x200.jpg)
 
 ### Step 7
 

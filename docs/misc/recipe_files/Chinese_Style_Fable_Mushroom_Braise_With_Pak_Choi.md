@@ -28,7 +28,6 @@ These mushrooms are so good they’ll braise the roof. You’ll sizzle fable mus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1670925456205-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670925468870-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your fable mushrooms and cook for an initial 4-5 min or until beginning to char
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670925482748-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Cut the pak choi in half, separating the white base and green tops
 
 Cut the white base into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670925488095-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once the fable mushrooms are charred, reduce the heat to medium-high
 
 Add the sliced shallot, chilli flakes (can't handle the heat? Go easy!), ginger & garlic paste and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour and cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670925519752-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Once fragrant, add your soy sauce, 150ml <span class="text-purple">[200ml]</span
 
 Add your hoisin sauce, tomato paste, vegetable stock mix, star anise, 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp] </span>sugar and a very generous grind of black pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670925524923-x200.jpg)
 
 ### Step 6
 
 Add the chopped pak choi and whole leaves to the pan and cook, covered, for 2-3 min or until the pak choi is tender and the sauce has thickened – this is your Chinese-style fable mushroom braise
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670925528435-x200.jpg)
 
 ### Step 7
 

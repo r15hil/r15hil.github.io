@@ -27,7 +27,6 @@ This minimal prep beany beauty of a bake is as simple as pie to make. You'll cov
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1560.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Grate (no need to peel!) the carrot<span class="text-danger">[s]</span> 
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1560.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a wide-based pan (preferably non-stick) with a drizzle of olive oil and a 
 
 Once hot, add the chopped onion and grated carrot with a pinch of salt and cook for 3-5 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1560.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Dissolve the vegetable stock cube<span class="text-danger">[s]</span> in 150ml <
 
 Drain and rinse the kidney beans and butter beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1560.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,13 +71,11 @@ Once the onion has softened, add the chopped garlic and cook for 1 min or until
 
 Once fragrant, add the red wine vinegar and tomato paste and cook for a further 1-2 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1560.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the chopped cherry tomatoes, drained beans and vegetable stock and cook for a further 2-3 min or until thickened slightly – this is your tomato bean stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1560.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Meanwhile, tear the ciabatta and mozzarella into rough bite-sized pieces
 
 Roughly chop the basil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1560.-step-7-x200.jpg)
 
 ### Step 7
 

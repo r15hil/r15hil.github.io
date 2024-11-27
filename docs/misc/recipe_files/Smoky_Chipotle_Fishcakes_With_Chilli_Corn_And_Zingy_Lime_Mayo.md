@@ -26,7 +26,6 @@ Transport your taste buds with our smoky Mexican-style fishcakes, flavoured with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644331162951-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and run the potatoes under cold water until cool, then return to the pot and crush
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644331166578-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Put the tray in the oven for 12-15 min or until the smoked basa is cooked throug
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644331176349-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Chop your coriander roughly, including the stalks
 
 Add your panko breadcrumbs and ground smoked paprika to a large plate – these are your smoky breadcrumbs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644331201289-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Divide the mixture into 2 per person<span class="text-danger"> </span>and shape 
 
 Add the smoky chipotle fishcakes to a tin foil-lined baking tray (or two!), drizzle with olive oil and put in the oven for 15-20 min or until golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644331210129-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Meanwhile, zest half your lime[s] (try to grate lightly with a micro-plane or sh
 
 Add your mayo, lime zest, a squeeze of lime juice and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water to a bowl and mix well – this is your zingy lime mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644331215353-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once hot, add the drained sweetcorn to the pan and cook for 4-5 min or until sta
 
 Once staring to char, add the chopped tomato and diced onion and cook for 3-4 min further or until starting to soften
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644331226213-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ Fabulously flavoursome and a little bit fancy (but simple to cook), our bacon-wr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/294.new.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Crush the garlic with the side of a knife, keeping the skins on&nbsp;
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/294.new.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Give everything a good mix up and put the tray in the oven for 15-20 min (approx
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/294.new.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,13 +63,11 @@ Add the chopped cranberries, orange zest, 200ml <span class="text-danger">[400ml
 
 Once boiling, reduce the heat to low and cook for 20-25 min or until the cranberries have broken down and the liquid has reduced &ndash; this is your cranberry sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/294.new.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile,&nbsp;cut the&nbsp;chicken breast<span class="text-danger">[s] </span>in half lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/294.new.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Wrap the chicken in&nbsp;the&nbsp;bacon rashers&nbsp;tightly&nbsp;
 
 &nbsp;&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/294.new.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once hot, add the&nbsp;bacon-wrapped chicken&nbsp;and cook for 3 min, turning oc
 
 Tip: use a pair of tongs to roll the chicken so that the bacon stays nicely wrapped around it!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/294.new.-step-7-x200.jpg)
 
 ### Step 7
 

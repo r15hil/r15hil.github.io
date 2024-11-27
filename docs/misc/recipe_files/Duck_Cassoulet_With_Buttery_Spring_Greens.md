@@ -27,7 +27,6 @@ Dish up a rustic duck cassoulet that’ll leave you craving a trip across the ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688113195939-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Boil a kettle
 
 Separate the duck legs from the white fat and duck jelly (you'll use these in different parts of the recipe!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688113199321-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely slice (don't chop!) the garlic
 
 Drain and rinse the cannellini beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688113202769-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Tip: Make sure your dish is oven-proof and safe to use on the hob. Don't have on
 
 Once hot, add the diced onion and diced carrot with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688113207423-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once fragrant, add the drained cannellini beans, tomato paste, bay leaf<span cla
 
 Add the red wine paste, chicken stock mix and 300ml <span class="text-danger">[550ml] </span>boiled water and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688113212415-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once boiling, put the dish in the oven and cook, uncovered, for an initial 25 mi
 
 Meanwhile, combine the panko breadcrumbs, grated Italian hard cheese, 1 tbsp <span class="text-danger">[2 tbsp] </span>olive oil and a generous grind of black pepper – these are your cheesy breadcrumbs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688113216449-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Scrunch the foil around the spring greens to form a tightly sealed parcel, add t
 
 Tip: Cooking for 4? Make 2 separate parcels!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688113223484-x200.jpg)
 
 ### Step 7
 

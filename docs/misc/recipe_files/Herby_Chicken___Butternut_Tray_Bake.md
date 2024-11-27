@@ -21,13 +21,11 @@ On busy nights, tray bakes are easy to make, and even easier to wash up! You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2346-step-1-x200.jpg)
 
 ### Step 1
 
 Preheat the oven to 200°C/ 180°C (fan)/ 400°F/ Gas 6<br /><br />Pat the chicken thighs dry with <span class="text-highlight">kitchen paper</span> and season them generously on both sides with salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2346-step-2-x200.jpg)
 
 ### Step 2
 
@@ -36,7 +34,6 @@ Top and tail the butternut squash and carefully slice in half
 
 Scoop out the seeds with a spoon and discard<br /><br />Slice the butternut squash (skins on) into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2346-step-3-x200.jpg)
 
 ### Step 3
 
@@ -45,7 +42,6 @@ Peel the <span class="text-highlight">red onions</span> and slice into wedges
 
 Chop the potatoes (skins on) into small, bite-sized pieces<br /><br />Chop the Tenderstem broccoli in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2346-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,7 +50,6 @@ Add the sliced butternut squash, chopped potatoes, red onion wedges and garlic 
 
 Give everything a good mix up and top with the chicken thighs (skin side up)<br /><br /><br /><br /><br />
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2346-step-5-x200.jpg)
 
 ### Step 5
 
@@ -63,7 +58,6 @@ Squeeze over the juice of 1/2 <span class="text-danger">[1]</span> lemon then ad
 
 Roughly strip the rosemary and thyme leaves from their stems and sprinkle the leaves all over<br /><br />Put the tray<span class="text-danger">[s]</span> in the oven for an initial 30-35 min or until the vegetables have started to brown and soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2346-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Remove the roasted garlic cloves and add the chopped Tenderstem broccoli
 
 Return the tray<span class="text-danger">[s]</span> to the oven for a further 10-15 min or until the vegetables are fork-tender and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2346-step-7-x200.jpg)
 
 ### Step 7
 

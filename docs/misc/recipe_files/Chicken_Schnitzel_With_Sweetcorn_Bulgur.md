@@ -22,7 +22,6 @@ For this simple and satisfying take on the classic schnitzel, you'll bread succu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/589.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ 425°F/ Gas 7
 
 Add the bulgur wheat to a pot with plenty of salted boiled water (the same as you would for pasta) and cook over a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/589.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Meanwhile, place your hand on the chicken breast<span class="text-danger">[s]</
 
 Slice in half as if you were cutting a burger bun, so you are left with <span class="text-highlight">2 <span class="text-danger">[4]</span> t</span>hinner pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/589.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the panko breadcrumbs to a plate
 
 Dip the chicken in the flour, tap off the excess, then into the egg and finally press it into the breadcrumbs firmly to evenly coat all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/589.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once very hot, add the panko crusted chicken and cook for 2-3 min each side or
 
 Transfer the golden chicken to a baking tray (keep the pan for the next step) and put it in the oven for 6-10 min or until cooked through <span class="text-highlight">(no pink meat!)</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/589.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, wipe the pan clean and return it to a medium-high heat with a knob of
 
 Once hot, add the drained sweetcorn with a pinch of salt and cook for 4 min until it starts to brown slightly and smell sweet
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/589.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Combine the chilli jam, red wine vinegar and mayonnaise with 1 tbsp <span class=
 
 Meanwhile, trim then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/589.-step-7-x200.jpg)
 
 ### Step 7
 

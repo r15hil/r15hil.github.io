@@ -26,7 +26,6 @@ Our speedy Spanish-style salad keeps it lean and low-carb with charred peppers, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1615294968525-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Preheat the grill to medium-high
 
 Deseed your peppers (scrape the seeds and pith out with a teaspoon) and cut into chunky strips (don't cut them too thin!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1615294979164-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the pepper strips to a baking tray (use tin foil to avoid mess!) with a driz
 
 Put the tray under the grill for 7-8 min or until the peppers are lightly charred – these are your charred peppers
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1615294989830-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) over a medium-hig
 
 Once hot, add your diced chorizo and cook for 3-4 min or until crispy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1615294996147-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ While the chorizo is cooking, peel and finely chop (or grate) your garlic
 
 Drain and rinse your cannellini beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1615295005295-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Once the chorizo has been cooking for 3-4 min add the chopped garlic, drained ca
 
 Give everything a good mix up and cook for 1-2 min or until the garlic has softened and the water has evaporated – these are your chorizo beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1615295014383-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Drain your mozzarella then pat and squeeze as much liquid out as you can with ki
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1615295021189-x200.jpg)
 
 ### Step 7
 

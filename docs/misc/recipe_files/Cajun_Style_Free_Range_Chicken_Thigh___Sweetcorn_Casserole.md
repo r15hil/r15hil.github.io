@@ -27,7 +27,6 @@ Spice up your night with a Cajun-style casserole. You'll sizzle spiced free rang
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-20-1702976934076-x200.jpg)
 
 ### Step 1
 
@@ -35,13 +34,11 @@ Boil a kettle, then take your chicken out of the fridge, open the packet and let
 
 Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!), ground coriander, dried oregano, ground cumin, a pinch of sugar and salt and a generous grind of black pepper to a plate and give it a good mix up – this is your Cajun-style spice blend
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-27-1702976999708-x200.jpg)
 
 ### Step 2
 
 Add your free range chicken thighs to the Cajun-style spice blend and turn them several times until they're fully coated in all the spices – these are your Cajun-style spiced chicken thighs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-24-1702977006248-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the Cajun-style spiced chicken thighs to the pan and cook for 3 min on each side
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-23-1702977012251-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ While the chicken is cooking, trim, then chop your green beans into bite-sized p
 
 Add the chopped green beans to the pan with the chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-22-1702977016998-x200.jpg)
 
 ### Step 5
 
@@ -65,13 +60,11 @@ Peel and grate your garlic
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water with your soft cheese and grated garlic – this is your creamy garlic stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-20-1702977021731-x200.jpg)
 
 ### Step 6
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour to the pan and stir it into the sauce around the chicken, so the flour soaks up the juices, then add the creamy garlic stock and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-9-1702977026678-x200.jpg)
 
 ### Step 7
 

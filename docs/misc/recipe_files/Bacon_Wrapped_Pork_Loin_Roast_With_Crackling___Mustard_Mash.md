@@ -26,7 +26,6 @@ Crispy crackling is the star of the show in this easy take on a pork roast. You�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688481957038-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Pat your pork loin steak[s] with kitchen paper and cut the rind off the steak[s]
 
 Add the scored rind to a baking paper-lined baking tray with a drizzle of vegetable oil and a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688481960686-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, wrap the pork loin steak[s] in your smoked streaky bacon – this is 
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688481963905-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return them to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688481968220-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add your butternut squash cubes to one side of a separate baking paper-lined bak
 
 Give everything a good mix up and put the tray in the oven for an initial 12 min – this is your sage roasted squash
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688481972024-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add the bacon wrapped pork loin steak[s] and cook for 3 min on each si
 
 Once the squash has been in the oven for 12 min, transfer the browned steak[s] to the other side of the baking tray, then return to the oven for a final 8-10 min or until the pork is cooked through (no pink meat!) and the squash is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688481976670-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add your chicken stock mix, Marmite and onion marmalade to the pan with 300ml <s
 
 Cook for 4-5 min or until thickened – this is your onion gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688481981604-x200.jpg)
 
 ### Step 7
 

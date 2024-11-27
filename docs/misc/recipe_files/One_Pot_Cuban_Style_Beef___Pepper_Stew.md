@@ -31,7 +31,6 @@ Havana, here we come. This twist on Cuban ‘ropa vieja’ is slow-cooked for ul
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1672853184196-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672853187379-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a drizzle of olive oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672853191003-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add your diced beef to the dish with a generous pinch of salt
 
 Cook for 2-3 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672853193959-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Crush your garlic open by squashing it with the side of a knife and remove the s
 
 Drain and rinse your black beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672853198507-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add the onion wedges and chopped pepper to the dish with 1 tsp <span class="text
 
 Add 500ml<span class="text-danger"> </span><span class="text-purple">[750ml]</span><span class="text-danger"> [1L]</span> boiled water, your beef stock mix, tomato paste and red wine paste and stir it all together
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672853201828-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Season with a pinch of salt and pepper and bring to the boil over a high heat
 
 Cover with the lid and put the dish in the oven for 1 hour or until the sauce is rich and the beef is tender – this is your Cuban-style beef & pepper stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672853204840-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ To make this easy chilli, you'll tip beans into a slow cooker with tomato, chipo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1678206550998-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Before you begin...
 
 This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so get your slow cooker and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678206561453-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Boil half a kettle
 
 Turn on your slow cooker to high
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678206567944-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Crush your garlic open with the side of a knife and remove the skins
 
 Drain and rinse your red kidney beans, butter beans and black beans all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678206576394-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the drained beans and crushed garlic to the dish with your ground smoked pap
 
 Sprinkle in your vegetable stock mix with 90ml <span class="text-purple">[120ml]</span> <span class="text-danger">[150ml]</span> boiled water and cook for 3 hours on high – this is your slow cooker three bean chilli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678206593838-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Slice your green chilli[es] roughly
 
 Add the sliced chilli to a small bowl with your white wine vinegar and a pinch of sugar and set aside to pickle – this is your quick-pickled green chilli
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678206600483-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Drizzle them with olive oil and season with a generous pinch of salt and pepper
 
 Put the potatoes in the microwave for 15 min until tender and fluffy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678206608699-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ For our twist on taquitos, delicious Mexican rolled tacos, you'll fry smoky blac
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1627388309078-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick), with a drizzle of olive oil
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1627388315569-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Drain and rinse your black beans
 
 Dissolve your tomato paste in 100ml <span class="text-purple">[130ml] </span><span class="text-danger">[150ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1627388319829-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the tomato stock to the pan and cook for 1-2 min or until the sauce has slig
 
 Once done, mash the beans to a rough paste – this is your black bean mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1627388324416-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Roll each filled tortilla up and arrange them into an oven-proof dish
 
 Drizzle with olive oil and put the dish in the oven for 15 min or until beginning to crisp – these are your black bean taquitos
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1627388330565-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ While the black bean taquitos are cooking, chop your coriander roughly, includin
 
 Trim, then slice your spring onion[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1627388338975-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Grind to a paste, then add your mayo and stir it all together – this is your 
 
 Tip: Don't have a pestle and mortar? Just chop the coriander finely and mix it with the mayo!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1627388345056-x200.jpg)
 
 ### Step 7
 

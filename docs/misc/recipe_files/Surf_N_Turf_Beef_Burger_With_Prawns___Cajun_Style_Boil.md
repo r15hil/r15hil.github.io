@@ -27,7 +27,6 @@ Punch up your surf 'n' turf with Louisiana spices and zesty coriander prawns. Yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650385077119-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Carefully chop the sweetcorn cobettes into thirds with a sharp knife, so you end
 
 Chop the waxy potatoes in half, lengthways
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650385086813-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the sweetcorn rounds and chopped potatoes to the pan with half the oregano, 
 
 Add 300ml <span class="text-danger">[500ml] </span>boiled water and cook, covered, for 10-12 min or until the potatoes have begun to soften – this is your Cajun-style boil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650385141906-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Season with a generous pinch of salt, then using clean hands give everything a g
 
 Roll the burger mixture into 2 <span class="text-danger">[4] </span>meatballs and press down with your hands to form patties – these are your Cajun-style beef patties
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650385146021-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Zest 1/2 <span class="text-danger">[1]</span> lime (try to grate lightly with a 
 
 Chop the coriander finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650385149991-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, combine the lime zest with half the mayo (you'll use the rest later!)
 
 Season with a pinch of salt and whisk everything together – this is your zesty lime mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650385155939-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Slice the brioche buns in half and once the patties have 3 min left add the brio
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650385159614-x200.jpg)
 
 ### Step 7
 

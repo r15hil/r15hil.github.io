@@ -28,7 +28,6 @@ Try plant-based dining with a Korean twist. For this easy oven-baked winner, you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-5-1714729691627-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1714729698262-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, hob-safe oven-proof casserole dish with a generous drizzle of vege
 
 Once hot, add your Fable pulled mushrooms and cook for 2-3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1714729707081-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Meanwhile, top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Peel and chop your brown onion[s] into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1714729712094-x200.jpg)
 
 ### Step 4
 
 Once browned, add the sliced carrot and onion wedges with your cornflour, Chinese rice wine ginger & garlic paste, soy sauce and gochujang paste (can't handle the heat? Go easy!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1714729717268-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Season with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="te
 
 Stir everything together and bring to the boil, then cover and put in the oven for 25-30 min or until the sauce has thickened – this is your baked Korean-style BBQ Fable mushrooms
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1714729770091-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add your white long grain rice to an oven-proof dish with 300ml <span class="tex
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1714729776993-x200.jpg)
 
 ### Step 7
 

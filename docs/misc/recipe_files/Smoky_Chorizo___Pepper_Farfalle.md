@@ -24,7 +24,6 @@ This speedy pasta dish is packed with smoky Spanish spice. You’ll sizzle chori
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670340078166-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670340082557-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Cook for 4-5 min or until beginning to crisp
 
 Once crispy, transfer to a small bowl and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670340086884-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ While the chorizo is cooking, deseed your pepper[s] (scrape the seeds and pith o
 
 Peel and slice (don't chop!) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670340090495-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Return the reserved pan to a medium-high heat with a drizzle of olive oil
 
 Once hot, add the chopped pepper and a generous grind of black pepper and cook for 8-9 min or until beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670340093845-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Dissolve your soft cheese and chicken stock mix in 100ml <span class="text-purpl
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670340097761-x200.jpg)
 
 ### Step 6
 
 Once the pepper is soft, add the sliced garlic, your ground smoked paprika and a small pinch of salt to the pan and cook for 30 secs or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670340102154-x200.jpg)
 
 ### Step 7
 

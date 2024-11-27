@@ -31,7 +31,6 @@ Try your hand at this aromatic Somali-style one-pot. You’ll cook rice with gar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691058823604-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691058826267-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Peel and chop your brown onion[s] into wedges
 
 Once hot, add the onion wedges to the dish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691058832382-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Crush your cardamom pods open by squashing them with the side of a knife
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon), then gently bash with a rolling pin until the skin has broken down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691058835508-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the tomato wedges and crushed cardamom pods to the dish with most of your ga
 
 Add your vegetable stock mix, half your white wine vinegar (save the rest for later!), a pinch of salt and pepper and 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[600ml] </span>boiled water and give everything a good mix up, then bring to the boil over a high heat, once boiling, cover with a lid and put the dish in the oven for an initial 20 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691058837997-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ Meanwhile, add the crushed chilli (can't handle the heat? Go easy!) to a small b
 
 Mix it all together and set aside – this is your green chilli mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691058841849-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691058845973-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ This Indian-inspired lamb pie needs next to no prep. You'll tear naan bread over
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1638.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and finely slice your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1638.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the sliced onion and your lamb mince with a pinch of salt
 
 Cook for 6-7 min or until the onion is starting to soften and the mince has browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1638.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Dissolve your chicken stock mix, tomato paste and mango chutney in 400ml <span class="text-purple">[600ml]</span> <span class="text-danger">[800ml]</span> boiled water – this is your stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1638.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once the mince has browned, add your garam masala, cayenne pepper (can't handle 
 
 Once fragrant, add the tomato wedges and stock and give everything a good mix up - this is your lamb rogan josh
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1638.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Transfer the lamb rogan josh to an oven-proof dish
 
 Put the dish in the oven and cook for an initial 10-15 min or until the stock is starting to thicken and the tomatoes have softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1638.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Meanwhile, roughly tear your naan[s]
 
 Pick your coriander leaves from their stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1638.-step-7-x200.jpg)
 
 ### Step 7
 

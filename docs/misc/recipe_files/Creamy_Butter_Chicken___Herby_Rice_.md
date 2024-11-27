@@ -25,7 +25,6 @@ Butter chicken or 'murgh makhani' is a popular Indian dish of chicken in a mildl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/433_step--1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Meanwhile, combine the cinnamon, ground&nbsp;cumin, ground coriander and plenty of salt and pepper in a mixing bowl
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/433_step--2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a pan (preferably non-stick) with a matching lid with a drizzle&nbsp;of veg
 
 Once hot, add the spice-coated chicken and cook for 2 min or until the chicken has browned a little, then transfer the browned chicken to a plate and keep the pan for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/433_step--3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/433_step--4-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Cook for 4-5 min, or until the onions have softened slightly
 
 Meanwhile, chop the tomatoes finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/433_step--5-x200.jpg)
 
 ### Step 5
 
@@ -91,7 +86,6 @@ Cook for a further 3-5 min
 
 Tip: loosen the mixture with a couple of splashes of water if it's too dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/433_step--6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Meanwhile, chop the parsley&nbsp;finely, including the stalks&nbsp;
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/433_step--7-x200.jpg)
 
 ### Step 7
 

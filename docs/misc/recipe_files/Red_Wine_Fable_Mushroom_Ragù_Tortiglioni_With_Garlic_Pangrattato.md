@@ -24,7 +24,6 @@ Treat yourself to an Italian dinner with a plant-based twist. You’ll pan-fry f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681305369337-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Top, tail, peel and dice the carrot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681305372781-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced carrot and sliced shallot to the pan and cook for 3-4 min or until the veg is slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681305376676-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681305383283-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Shred the Fable pulled mushrooms apart using two forks
 
 Once the veg is slightly softened, add the shredded mushrooms to the pan and cook for 3-4 min further or until the mushrooms are browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681305388601-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once fragrant, add the red wine paste and vegetable stock mix with the chopped t
 
 Cook for 5-7 min further or until the sauce has thickened and the carrot is completely softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681305392204-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once fragrant, add the panko breadcrumbs and a small pinch of salt and cook, sti
 
 Once golden, transfer to a small bowl and set aside – this is your garlic pangrattato
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681305396090-x200.jpg)
 
 ### Step 7
 

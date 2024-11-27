@@ -26,7 +26,6 @@ These mouthwatering quesadillas are packed with homemade refried beans, sweetcor
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1591198466016-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop (or grate) your garlic
 
 Drain and rinse your kidney beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1591198470899-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the drained kidney beans with 100ml<span class="text-purple"> [125ml]</span
 
 Cook for 4-5 min or until the beans are beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1591198473657-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Drain your sweetcorn and add it to the bowl
 
 Grate your cheddar cheese into the bowl, season with a generous pinch of salt and pepper and mix thoroughly – this is your cheesy sweetcorn mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1591198479398-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the kidney beans are beginning to break down, season with a generous pinch 
 
 Remove the beans from the heat and mash into a semi-smooth paste – these are your refried beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1591198485205-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Divide the refried beans and cheesy sweetcorn mixture between your tortillas, c
 
 Fold each tortilla over and press down firmly so you're left with 3 half moon-shaped sandwiches per person – these are your quesadillas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1591198491034-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Place a second baking tray[s] on top to weigh them down slightly
 
 Put the stacked trays in the oven for 10 min or until the quesadillas are slightly browned and the cheese has melted – these are your refried bean & corn quesadillas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1591198495815-x200.jpg)
 
 ### Step 7
 

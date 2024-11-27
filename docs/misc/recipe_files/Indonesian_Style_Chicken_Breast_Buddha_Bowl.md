@@ -24,7 +24,6 @@ Treat yourself to feel-good food with crunchy, colourful veg and juicy oven-bake
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678719414747-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the sliced radishes to a bowl with your rice vinegar and a pinch of salt
 
 Give everything a good mix up and set aside – these are your quick-pickled radishes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678719480433-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678719484211-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Put the tray[s] in the oven for 18-20 min or until cooked through (no pink meat!
 
 Once done, transfer the cooked chicken breast[s] to a clean board and slice finely into strips (careful, they may be hot!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678719488152-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ While the chicken is cooking, peel and finely slice your red onion[s]
 
 Wash your spring greens and pat dry with kitchen paper, then rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678719491597-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once hot, add the sliced onion with a pinch of salt and sugar and cook for 5-7 m
 
 Once done, transfer to a plate and reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678719495199-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Return the reserved pan to a medium heat with a knob of butter
 
 Once hot, add the sliced spring greens with half the chopped garlic (you'll use the rest later!) and a pinch of salt to the pan and cook for 3-4 min or until tender with a bite – these are your garlicky spring greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678719498498-x200.jpg)
 
 ### Step 7
 

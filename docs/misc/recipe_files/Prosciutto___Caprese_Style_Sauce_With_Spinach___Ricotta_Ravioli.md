@@ -20,7 +20,6 @@ Go crazy for Caprese and the classic flavours of Southern Italy. You’ll whip u
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1663669607003-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663669611305-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add your prosciutto slices to a plate and put in the microwave for 4-5 min, then
 
 Tip: Check your prosciutto slices every 30 secs to prevent them from burning, as microwave temperatures vary!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663669616058-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Peel and slice (don't chop!) your garlic
 
 Chop your basil roughly, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663669620489-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Cook the ravioli for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked spinach & ricotta ravioli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663669625182-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once fragrant, add your chopped tomatoes and half the chopped basil (save the re
 
 Cook for 2-3 min or until the sauce has started to thicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663669629595-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Chop the drained mozzarella into rough, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663669633501-x200.jpg)
 
 ### Step 7
 

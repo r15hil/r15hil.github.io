@@ -24,7 +24,6 @@ Inspired by Tartiflette from the French Alps, our bacon and potato gratin is smo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580294463794-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the potato discs to a baking tray with a drizzle of olive oil and a pinc
 
 Put the tray in the oven for 15-20 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580294487892-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your smoked streaky bacon roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580294492187-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once the bacon is crisp, add the chopped garlic to the pan and cook for 1-2 min 
 
 Meanwhile, grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580294498801-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger"
 
 Gradually add 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml] </span>milk, a little at a time, and stir everything together until the sauce begins to thicken slightly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580294502834-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Stir through your double cream and most of the grated cheese (save some for la
 
 Season with a generous grind of black pepper – this is your cheesy bacon sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580294508985-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Repeat this process until you have a final layer of sauce and top with any left
 
 Sprinkle over the reserved grated cheese and put the dish in the oven for 15-20 min or until bubbling and golden – this is your Alpine cheesy bacon & potato gratin
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580294513269-x200.jpg)
 
 ### Step 7
 

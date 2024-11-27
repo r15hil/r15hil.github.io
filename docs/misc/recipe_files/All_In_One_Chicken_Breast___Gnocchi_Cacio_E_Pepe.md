@@ -25,7 +25,6 @@ Cacio e pepe, meaning ‘cheese and pepper’, is a favourite in Rome for a reas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1732718720252-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1710936001787-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add your diced chicken breast to one side of the dish[es]
 
 Coat your gnocchi in a little olive oil and add it to the other side of the dish[es]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1710936006844-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Put the dish[es] in the oven for an initial 30 min or until the chicken is cooke
 
 Tip: Check your gnocchi after 25 min and give it a stir for even crispiness!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1710936011598-x200.jpg)
 
 ### Step 4
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1710936019621-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Drizzle over half your balsamic vinegar (save the rest for later!)
 
 Put the tray in the oven for 12-15 min or until tender – this is your roasted balsamic tomato
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1710936023283-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once the gnocchi and chicken are almost done, mix your grated Italian hard chees
 
 Add 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water, your chicken stock mix, soft cheese and cracked black pepper – this is your cacio e pepe sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710936027216-x200.jpg)
 
 ### Step 7
 

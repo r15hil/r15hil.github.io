@@ -29,7 +29,6 @@ Spicy ‘nduja parsnips and a creamy garlic and oregano sauce make this rich orz
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1689771564281-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1689771379871-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Add the sliced parsnip to a heatproof bowl
 
 Put the bowl in the microwave and cook for 5-6 min or until fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1689771384491-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once melted, add the chopped leek and cook for 3 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1689771387914-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Cook the orzo for 6-8 min or until cooked with a slight bite
 
 Once done, drain the orzo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1689771391862-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once tender, add the cooked parsnip to the pan with your 'Nduja (can't handle th
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1689771397151-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once fragrant, add your soft cheese and roasted garlic paste to the pan with you
 
 Add 150ml<span class="text-purple"> [200ml]</span> <span class="text-danger">[250ml]</span> boiled water and cook for 1 min or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1689771400638-x200.jpg)
 
 ### Step 7
 

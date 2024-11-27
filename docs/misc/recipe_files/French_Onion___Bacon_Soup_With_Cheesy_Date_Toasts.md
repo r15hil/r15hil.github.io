@@ -26,7 +26,6 @@ This indulgent soup is the perfect Christmas cracker. You’ll simmer caramelise
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636047393221-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pot with a drizzle of olive oil over a medium-high heat
 
 Meanwhile, peel and finely slice the brown onions and garlic clove[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636047396727-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Use one thyme sprig (or a piece of string) to tie a knot around your thyme and r
 
 Cook for 15 min or until the onion is very soft, stirring frequently
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636047399525-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Put the tray in the oven and cook for 7-8 min or until the ciabatta is toasted a
 
 Once done, remove the tray from the oven and set aside until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636047402391-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Slice your cheddar cheese into 5 thin slices per person
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636047406020-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Cook for 10-12 min further or until caramelised
 
 Tip: Watch them like a hawk and stir frequently to make sure they don't burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636047408949-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add 700ml<span class="text-purple"> [1.1L] </span><span class="text-danger">[1.4
 
 Once boiling, reduce the heat to medium-high and simmer for 5 min or until the soup has thickened, then take the pot off the heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636047412064-x200.jpg)
 
 ### Step 7
 

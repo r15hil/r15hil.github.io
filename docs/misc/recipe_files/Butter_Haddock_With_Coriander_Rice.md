@@ -33,7 +33,6 @@ This is our fish take on a curry house favourite. To make your own, you'll simme
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670336399110-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670336402484-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Peel your ginger (scrape the skin off with a teaspoon) and finely chop (or grate
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670336406802-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 t
 
 Once the butter has melted, add the diced onion with a pinch of salt and cook for 5 min or until softened and starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670336413043-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add your vegetable stock mix with 250ml <span class="text-purple">[325ml]</span>
 
 Bring to the boil then cook for 3 min or until reduced to a curry-like consistency
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670336417937-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once reduced, top the sauce with your haddock bites (unevenly sized haddock bit
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670336421387-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Meanwhile, chop your coriander finely, including the stalks
 
 Fluff the basmati rice with a fork, stir through the chopped coriander and season with a pinch of salt – this is your coriander rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670336424730-x200.jpg)
 
 ### Step 7
 

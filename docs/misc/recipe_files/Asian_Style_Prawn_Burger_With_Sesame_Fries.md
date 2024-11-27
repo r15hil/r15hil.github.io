@@ -25,7 +25,6 @@ Were you prawn to be wild? Try this Gousto twist on the humble hamburger. You'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1727875091476-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil, a pinc
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727875094875-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ While the fries are cooking, slice your cucumber[s] into discs
 
 Slice each individual cucumber disc into matchsticks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727875098828-x200.jpg)
 
 ### Step 3
 
 Combine your mayo and red chilli relish in a small bowl – this is your chilli mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727875102547-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Crack your egg[s] into a shallow bowl and beat with a fork
 
 Add your panko breadcrumbs, the remaining black sesame seeds and a pinch of salt to another plate and mix it all up – this is your sesame panko mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727875106062-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add the king prawns to the flour and mix them up until nicely coated (tap off an
 
 Add the floured prawns to the beaten egg, then add them to the sesame panko mix, pressing down firmly to coat them all over – these are your breaded prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727875110063-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Slice your brioche bun[s] in half
 
 Once hot, add the brioche halves, cut-side down, and cook for 3 min or until toasted and charred, then set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727875114548-x200.jpg)
 
 ### Step 7
 

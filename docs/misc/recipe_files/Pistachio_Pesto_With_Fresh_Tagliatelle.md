@@ -22,7 +22,6 @@ You say perfection, we say perfetto. For the speediest, greenest Italian pasta s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1684234447095-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684234453288-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Boil a kettle and peel your garlic
 
 Strip your mint leaves from their stems, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684234462879-x200.jpg)
 
 ### Step 3
 
 Set aside a few basil leaves and mint leaves and half of your grated Italian hard cheese (you'll use the rest later!) for garnish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684234467856-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Cook for 3-4 min or until the tagliatelle is cooked with a slight bite
 
 Once done, drain the tagliatelle & peas, reserve the pot and a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684234471641-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Tip: No food processor? Chop everything up as finely as you can and mix it toget
 
 Add the juice of half your lemon[s], 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-danger">[6 tbsp] </span>olive oil and a generous pinch of salt and pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684234477312-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Blitz until you are left with a smooth paste – this is your pistachio pesto
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684234482728-x200.jpg)
 
 ### Step 7
 

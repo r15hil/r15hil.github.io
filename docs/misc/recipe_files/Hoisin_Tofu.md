@@ -25,7 +25,6 @@ Anything as tasty as hoisin sauce shouldn’t be solely the reserve of meat eate
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/355.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to medium and cook with the lid on for 15-20 min o
 
 Check occassionally and once done, drain and set aside until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/355.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop the garlic cloves
 
 Cut the tofu block in two and pat it dry with a clean teatowel or kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/355.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Mix the hoisin sauce, soy sauce, honey and grated ginger together with a good gr
 
 This is your marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/355.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ When hot, add the tofu and cook over a high heat for 2 min on each side until go
 
 Remove the tofu from the heat and transfer it to a plate, then wipe the pan clean with kitchen towel (reserve it for step 7)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/355.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Lay each tofu steak in the middle of 2 <span class="text-danger">(4)</span> piec
 
 Spoon the marinade over the tofu and scrunch the edges of the foil together to form a sealed parcel, then place them on a baking tray and put then in the oven for 15 min&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/355.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Chop the spring onions finely, discarding the roots
 
 Cut the pack choi in half, lengthways
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/355.-step--7-x200.jpg)
 
 ### Step 7
 

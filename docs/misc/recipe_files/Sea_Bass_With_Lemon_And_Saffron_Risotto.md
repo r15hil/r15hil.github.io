@@ -25,7 +25,6 @@ Level up your risotto game with a side of crispy pan-fried sea bass. You’ll wh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721725757472-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721725761199-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, dissolve your vegetable stock mix and saffron in 750ml <span class="t
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721725765754-x200.jpg)
 
 ### Step 3
 
@@ -53,13 +50,11 @@ Once the onion is beginning to soften, add your arborio rice and chopped garlic 
 
 Add your white wine vinegar and cook for a further 30 secs or until it has evaporated, then reduce the heat to medium-low
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721725769641-x200.jpg)
 
 ### Step 4
 
 Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721725779629-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Grate your cheddar cheese
 
 Wash your salad, then pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721725789114-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once hot, add your sea bass fillet[s], skin side down and cook for 5 min, then f
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721725795107-x200.jpg)
 
 ### Step 7
 
@@ -93,7 +86,6 @@ Season very generously with pepper and give everything a good mix up – this is
 
 Tip: Add a splash of water if the risotto is looking a little dry!
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_08h20m06s-APIC-1718808359763-x200.jpg)
 
 ### Step 8
 

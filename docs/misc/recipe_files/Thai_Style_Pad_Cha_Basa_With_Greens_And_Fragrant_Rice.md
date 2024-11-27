@@ -28,7 +28,6 @@ Give your go-to Thai dinner some extra sizzle. Whip up this homestyle take on pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687533529167-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Tip: Like it hot? Keep the seeds in!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687533533030-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Strip your coriander leaves and basil leaves from their stalks
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687533537410-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the peeled garlic to a pestle & mortar with the coriander & basil stalks (th
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687533542790-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687533548052-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Scrunch the foil around the vegetables to form a tightly sealed parcel and add t
 
 Put the tray in the oven for 10-12 min or until the Tenderstem broccoli is tender with a slight bite – these are your greens
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687533552125-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add your chilli paste to the pan and cook for 2-3 min, stirring freque
 
 Boil half a kettle
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687533556187-x200.jpg)
 
 ### Step 7
 

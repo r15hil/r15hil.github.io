@@ -26,7 +26,6 @@ Taste the luck of the Irish with this cheesy, pork & beef burger. You’ll smoth
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707211583034-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707211586648-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide and shape into 1 patty per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707211589556-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the chopped tomato and chopped sultanas to a pot with your tomato paste, whi
 
 Once boiling, reduce the heat to low and cook for 10-15 min, stirring frequently, or until thickened to a jam-like consistency – this is your Irish-style tomato relish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707211598600-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add the brioche halves to the pan, cut-side down, and cook for 2-3 min
 
 Once golden, transfer to a plate and set aside for later, reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707211606693-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Trim, then slice your spring onion[s]
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707211614042-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once browned, turn the heat down to medium-high and flip the pork & beef patty[i
 
 Tip: Cooking for 5? You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707211621098-x200.jpg)
 
 ### Step 7
 

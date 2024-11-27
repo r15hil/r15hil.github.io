@@ -23,7 +23,6 @@ A fabulously tasty curry in a hurry! Our curry powder gives authentic flavour in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622803353564-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635935807752-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Boil half a kettle
 
 Chop your tomato[es] into large bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635935812534-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add your diced chicken breast and chopped tomato to the pan with a pinch of salt and cook for 3-4 min until the tomato has started to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635935819074-x200.jpg)
 
 ### Step 4
 
 Add your curry powder, ground paprika and ginger & garlic paste to the pan and cook for 1 min further or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635935832896-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[15
 
 Once boiling, reduce the heat to medium-high and cook, covered, for 6 min further, or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635935837894-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635935842632-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Studded with sweet chopped apricots and spring onion and oven baked for ease, th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641811519237-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Put the tray in the oven for 6-8 min or until the cashews are lightly toasted, t
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641811523875-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop your parsley finely, including the stalks, keeping the stems and leaves sep
 
 Cut your red pepper[s] in half (scrape the seeds and pith out with a teaspoon) then chop into large, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641811528301-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your beef mince to a large bowl with the chopped spring onions, diced aprico
 
 Mix thoroughly with clean hands, then divide and shape into meatballs (3 per person!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641811532850-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the meatballs to one side of your reserved baking tray (use tin foil to avoi
 
 Add the chopped red pepper to the other side of the tray and put the tray in the oven for 15 min or until the meatballs are cooked through (no pink meat!) and the pepper has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641811537134-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Meanwhile, dissolve your beef stock mix and the remaining harissa paste in 200ml
 
 Add your couscous, cover and set aside until all of the stock has absorbed
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641811541417-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add your cultured coconut to a bowl with a drizzle of olive oil and a pinch of s
 
 Chop the roasted cashew nuts coarsely (only once they are cool enough to handle!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641811545397-x200.jpg)
 
 ### Step 7
 

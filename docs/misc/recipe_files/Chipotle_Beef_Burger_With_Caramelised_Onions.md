@@ -22,7 +22,6 @@ We can't get enough of this beef burger with Tex-Mex style chipotle mayo, crisp 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/390_step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/390_step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot, add the sliced onion with a pinch of salt and sugar
 
 Reduce the heat to very low and cook the onion until ready to serve or until they have softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-19-1732538556820-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Massage the meat with clean hands for 1 min (this helps the patty[ies] to hold t
 
 Shape the mince into 1 patty per person and refrigerate until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/390_step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Slice your brioche bun[s] in half
 
 Heat a separate large, dry, wide-based pan (preferably non-stick) over a medium heat and add the brioche halves, cut-side down, and cook for 2-3 min or until toasted (save the pan for later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/390_step-5-x200.jpg)
 
 ### Step 5
 
 Combine your mayo with your chipotle paste (can't handle the heat? Go easy!) in a small bowl and season with salt and pepper – this is your chipotle mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/390_step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Tear the remaining lettuce into bite-sized pieces
 
 Add the torn lettuce leaves to a bowl and mix with a drizzle of olive oil and season lightly with salt and pepper – this is your crisp lettuce salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/390.-step-7.2-x200.jpg)
 
 ### Step 7
 

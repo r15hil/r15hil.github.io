@@ -27,7 +27,6 @@ Take a leaf out of France’s book with this melt-in-your-mouth beef bourguignon
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680174989968-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Boil a kettle
 
 Season your diced beef with a pinch of salt and pepper and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp] </span>flour and give everything a good mix up until fully coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680174994394-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have o
 
 Once hot, add the coated diced beef to the dish and cook for 3-4 min or until browned all over, then remove from the dish and set aside, reserve the dish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680174999601-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Top, tail, peel and chop your carrot[s] roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680175003541-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook for a further 2-3 min or until browned
 
 Meanwhile, dissolve your beef stock mix, red wine paste and tomato paste in 475ml <span class="text-purple">[600ml] </span><span class="text-danger">[800ml]</span> boiled water – this is your red wine stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680175242063-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the red wine stock, bay leaf[ves] and dried thyme and bring to the boil over
 
 Once boiling, cover the dish with a lid and put in the oven for 1 hour or until the sauce has thickened and the beef is cooked through – this is your beef bourguignon
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680175245706-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Peel your potatoes and chop them into large, bite-sized pieces
 
 Add the chopped potatoes to a pot with plenty of boiled water and a pinch of salt and bring to the boil over a high heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680175249680-x200.jpg)
 
 ### Step 7
 

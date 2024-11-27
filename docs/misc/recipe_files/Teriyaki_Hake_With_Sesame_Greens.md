@@ -23,7 +23,6 @@ For this easy cook's trick, you'll season your hake in soy, honey and chilli to 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723038482591-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723038486294-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Boil a kettle
 
 Trim, then slice your spring onion[s] finely (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723038490792-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Set aside to soften
 
 In a small bowl combine your soy sauce, honey and chilli flakes (can't handle the heat? Go easy!) – this is your teriyaki sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723038494415-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your hake fillet[s] to the pan and cook for an initial 1-2 min on each side
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723038497598-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Tear the top corner of the pouch[es] (just a little!) and put the pouch in the�
 
 Tip: If you're cooking two packets, pop them in together but increase the microwave cook time accordingly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723038501541-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Cook for 2-3 min on each side further or until the hake is cooked through and th
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723038504845-x200.jpg)
 
 ### Step 7
 

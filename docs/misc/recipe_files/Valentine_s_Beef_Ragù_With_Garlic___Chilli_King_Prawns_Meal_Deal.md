@@ -30,7 +30,6 @@ Curl up this Valentine’s with a slow-cooked beef ragù that’ll leave you fee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706005282415-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706005285183-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and slice your brown onion[s], peel and finely chop (or grate) half your ga
 
 Once the beef is browned, add the sliced onion with the chopped garlic, grated mushroom and a knob of butter and cook for 3 min further, then add your beef stock mix with 400ml<span class="text-purple"> [520ml]</span><span class="text-danger"> [680ml] </span>boiled water, your tomato paste and Henderson's Relish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706005288176-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ While the ragù is in the oven, boil a full kettle
 
 Peel your potatoes and chop them into large, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706005291829-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Return the pot to a low heat with a knob of butter, a splash of milk and season with a pinch of salt, then mash until smooth and set aside to reheat later - this is your mash
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706005295838-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Slice your ciabatta[s], then add to a baking tray and put the tray in the oven f
 
 Heat a large, wide-based pan (preferably non-stick) with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a knob of butter over a medium heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706005299192-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once fragrant, drain, then add your king prawns and cook for 4-5 min or until co
 
 While the ragù is still cooking, enjoy the garlic & chilli prawns starter in a sharing dish with the toasted ciabatta
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706005302709-x200.jpg)
 
 ### Step 7
 

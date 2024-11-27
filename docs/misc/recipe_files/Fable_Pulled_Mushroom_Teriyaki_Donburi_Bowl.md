@@ -28,7 +28,6 @@ Donburi is a Japanese rice bowl with an array of toppings. To make our version, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1705075178434-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then slice your spring onion[s] finely, separating the white parts from the green parts
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1705075186829-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add a small drizzle of vegetable oil to a pot with a lid over a medium heat
 
 Once hot, add the chopped garlic and the sliced spring onion whites with a pinch of salt and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1705075192041-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your garlic rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1705075204500-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Finely slice your radishes
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1705075208840-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add your Fable pulled mushrooms with a pinch of salt and pepper and cook for an initial 4-5 min or until crisp and brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1705075213921-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Meanwhile, add your red wine vinegar, half of your ginger & garlic paste (you'll
 
 Give everything a good mix up and set aside to pickle until serving – these are your quick-pickled vegetables
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1705075221046-x200.jpg)
 
 ### Step 7
 

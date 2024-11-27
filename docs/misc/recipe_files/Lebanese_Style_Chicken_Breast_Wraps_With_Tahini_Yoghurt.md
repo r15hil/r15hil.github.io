@@ -25,7 +25,6 @@ These Lebanese-style wraps are fast and packed full of flavour. Just pan-fry you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1721210154218-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721210247462-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and ground sumac with a pinch of salt and pepper and cook for 10-12 min or until cooked through (no pink meat!) – this is your Lebanese-style chicken breast
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721210263780-x200.jpg)
 
 ### Step 3
 
 While the chicken is cooking, add your shredded red cabbage to a bowl with your cider vinegar and a pinch of salt and mix well – this is your quick-pickled red cabbage
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721210282483-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add your tahini to a bowl with your natural yoghurt and honey and whisk until sm
 
 Season with a pinch of salt and pepper – this is your tahini yoghurt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721210292419-x200.jpg)
 
 ### Step 5
 
@@ -71,13 +66,11 @@ Finely dice your tomato[es]
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721210320831-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721218434992-x200.jpg)
 
 ### Step 7
 

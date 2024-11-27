@@ -27,7 +27,6 @@ For this takeaway classic, you'll coat portobello mushroom strips in cornflour a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1625592949856-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the rice to a plate and spread it out flat to help it cool down
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625592964513-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ While the rice is cooking, add your cornflour to a bowl along with 1 tsp <span 
 
 Slice your portobello mushrooms into strips, then add to the bowl and give everything a good mix up until all the mushroom strips are coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625592988119-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of
 
 Once the pan is hot, add the coated mushroom strips and cook for 6-7 min on each side until golden and crispy on the outside and tender on the inside – these are your crispy mushroom strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1625593049526-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Peel and finely chop (or grate) your garlic
 
 Finely slice your red chilli[es] into rounds
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625593090867-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once the mushrooms are crispy, add the spring onion batons, most of the chilli r
 
 Once done, transfer everything to a plate (save the pan!) and set aside until serving – these are your salt & pepper mushrooms
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625593119460-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the cooled rice, blanched peas, toasted sesame oil and soy sauce then stir everything together until combined and cook for 2-3 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1625593129482-x200.jpg)
 
 ### Step 7
 

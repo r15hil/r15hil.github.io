@@ -26,7 +26,6 @@ Bring on The BBQ Banger. This American triple threat is part creamy mac ‘n’ 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691672983859-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your hot dog sausage[s] to one side of a tin foil-lined baking tray (or two!
 
 Put the tray[s] in the oven for 25 min or until the sausage is cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691672988834-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the sliced shallot to a small bowl with your white wine vinegar and set asid
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691672994165-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cook for 7 min or until it's cooked with a slight bite
 
 Once done, drain the macaroni, reserving the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691672998995-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add your panko breadcrumbs, chopped garlic and a small pinch of salt a
 
 Cook for 6-8 min or until golden, stirring frequently – this is your garlic breadcrumbs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691673003695-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once hot, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="
 
 Gradually add 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> milk into the roux with your soft cheese and whisk for 3-4 min or until a smooth, thick sauce remains
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691673009350-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Give it a good mix up until fully coated and the cheese has melted – this is y
 
 Once the sausages have had 25 min, add your hot dog bun[s] to the other side of the baking tray[s] and cook for 3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691673014850-x200.jpg)
 
 ### Step 7
 

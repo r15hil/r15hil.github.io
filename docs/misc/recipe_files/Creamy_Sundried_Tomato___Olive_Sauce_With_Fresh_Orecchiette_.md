@@ -24,7 +24,6 @@ Time to live your Italian dream with this antipasti-inspired pasta. You’ll sim
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1705050386152-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-39-1705050339646-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your black olives in half
 
 Grate your Italian hard cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-41-1705050347157-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the halved cherry tomatoes with a pinch of salt and cook for 4-5 min or until beginning to soften and blister
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-40-1705050351283-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-38-1705050355284-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Dissolve your vegetable stock mix and soft cheese in 125ml<span class="text-purp
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-36-1705050359625-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the tomatoes have softened, reduce the heat to medium, add your roasted gar
 
 Once fragrant, add the creamy stock with the spinach and cook for 1-2 min or until the sauce has thickened and the spinach has wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-28-1705050365028-x200.jpg)
 
 ### Step 7
 

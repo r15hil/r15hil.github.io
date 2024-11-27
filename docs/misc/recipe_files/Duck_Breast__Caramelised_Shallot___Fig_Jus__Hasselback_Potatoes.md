@@ -23,7 +23,6 @@ Alongside succulent Gressingham duck breast, you'll serve a rich caramelised sha
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2068.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut narrow slices (the width of a pound coin) into the waxy potatoes, but do
 
 Add the hasselback potatoes to a baking tray, drizzle with vegetable oil and season with salt and pepper. Strip the thyme leaves, discarding the stems and sprinkle the leaves over the potatoes. Put the tray in the oven for an initial 20 minutes.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2068.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the scored duck, skin-side down, to a cold, dry pan over a low-medium heat.
 
 Cook for 10-15 minutes, skin-side down only, or until the skin is golden and crispy and the fat under the skin rendered. Reserve the duck fat for your potatoes.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2068.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -71,7 +68,6 @@ Once cooked, set the duck aside, cover, and leave rest for at least 10 minutes.
 
 Once the potatoes have been in for 20 minutes, drizzle the reserved duck fat over and return them to the oven for 15-20 minutes or until tender and crispy.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2068.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Start the caramelised shallot &amp; fig jus
 
 Dissolve the Knorr chicken stock cube<span class="text-danger">[s]</span> in 200ml <span class="text-danger">[350ml] </span>boiled water.
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2068.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,7 +93,6 @@ Once the pot is hot, add the shallot halves, cut side down cook for 3-4 minute
 
 Add the balsamic vinegar with the bay leaves and rosemary and season with a pinch of black pepper and cook for 30 seconds.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2068.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -113,7 +107,6 @@ Cook for 6-8 minutes or until the sauce has reduced by half and coats the back o
 
 Stir in the fig relish and a large knob of butter and cook for 1 minute or until thick and glossy – this is your caramelised shallot &amp; fig jus.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2068.-step-7-x200.jpg)
 
 ### Step 7
 

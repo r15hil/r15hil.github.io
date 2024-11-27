@@ -31,7 +31,6 @@ There's no butter in sight in our plant-based twist on murgh makani. Instead, yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1608563007543-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, add your cardamom pods and reduce the heat to very low and cook, c
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1608563012522-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-6 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728316246423-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dice your tomato[es] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1608562968120-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the onion has started to soften, add the chopped garlic, ginger paste, curr
 
 Once fragrant, add the diced tomato and cook for 3-4 min or until the veg has broken down to make a thick sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1608562956828-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Dissolve the chopped creamed coconut, tomato paste and vegetable stock mix in 15
 
 Once the veg has broken down, add the creamy tomato stock and most of your creamy single soy (save a small splash for serving!) and cook for 4-5 min or until the sauce is starting to thicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1608562951510-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Whilst the sauce is thickening, chop your meat-free chick'n into small bite-size
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1608562945502-x200.jpg)
 
 ### Step 7
 

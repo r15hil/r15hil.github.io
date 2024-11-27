@@ -22,7 +22,6 @@ Take your sausages and beans up a notch with this rather posh twist! You'll roas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581674178029-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Chop the potatoes (skins on) into small bite-sized pieces
 
 Strip the rosemary leaves from their stems, discard the stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581674184181-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the chopped potato to one side of a baking tray with a drizzle of vegetable 
 
 Sprinkle the rosemary leaves all over and give everything a good mix up – these are your rosemary roast potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581674191739-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Add the pigs in blankets to the other side of the tray and put everything in th
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581674196290-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Drain and rinse the cannellini beans
 
 Wash the rocket, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581674200866-x200.jpg)
 
 ### Step 5
 
@@ -68,13 +63,11 @@ Heat a pot with a drizzle of olive oil over a medium heat
 
 Once hot, add the chopped garlic and drained cannelini beans and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581674205531-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add in the chicken stock mix and 100ml <span class="text-danger">[160ml] </span>boiled water and stir to combine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581674213213-x200.jpg)
 
 ### Step 7
 

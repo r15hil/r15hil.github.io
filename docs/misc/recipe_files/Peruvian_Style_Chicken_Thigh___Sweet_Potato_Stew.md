@@ -25,7 +25,6 @@ This Peruvian inspired dish is a warming cumin-infused one-pot with chicken, qui
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654594034187-x200.jpg)
 
 ### Step 1
 
@@ -37,19 +36,16 @@ Dice your tomato[es]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Frying-pan-oil-1691500889703-x200.jpg)
 
 ### Step 2
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691494759393-x200.jpg)
 
 ### Step 3
 
 Once hot, add your ground cumin and ground coriander and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691494764478-x200.jpg)
 
 ### Step 4
 
@@ -59,19 +55,16 @@ Once browned, add the diced tomato and chopped garlic and cook for a further 1-
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691494770286-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your chicken stock mix, tomato paste and chipotle paste (can't handle the heat? Go easy!) in 700ml <span class="text-purple">[900ml]</span> <span class="text-danger">[1.2L] </span>boiled water – this is your spicy stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691494776143-x200.jpg)
 
 ### Step 6
 
 Once the tomato has softened, add the chopped sweet potato, spicy stock and quinoa to the pan and cook for 15-20 min or until the sweet potato is tender and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691494783172-x200.jpg)
 
 ### Step 7
 

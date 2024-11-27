@@ -27,7 +27,6 @@ For this open-faced tikka sandwich, you’ll marinate king prawns in yoghurt and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1623670094535-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Lemon-quarters-1676386291200-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Now, let’s get started!
 
 Cut your lemon[s] into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623667366666-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil, season with a pinch of salt and give everything a good mix up – this is your tikka marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623667372997-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Meanwhile, drain your king prawns, then add them to the tikka marinade and give everything a good mix up until fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623667381678-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Note: Please make sure you cook your prawns thoroughly (until piping hot!) as co
 
 Add your naan[s] to a toaster for 1-2 min or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623667388819-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the diced cucumber and grated carrot to a bowl with your nigella seeds, a pi
 
 Give everything a good mix up – this is your Indian-style salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623667396997-x200.jpg)
 
 ### Step 7
 

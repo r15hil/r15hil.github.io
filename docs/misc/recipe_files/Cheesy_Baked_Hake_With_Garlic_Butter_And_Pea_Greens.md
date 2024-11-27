@@ -22,7 +22,6 @@ You’ll bake hake fillets in a cheesy panko breadcrumb before serving up with b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1698922554900-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1698922558778-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Grate your cheddar cheese finely
 
 Chop your parsley as finely as you can, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1698922561598-x200.jpg)
 
 ### Step 3
 
 Combine your panko breadcrumbs and grated cheese in a small bowl with a pinch of salt – these are your cheesy breadcrumbs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1698922565239-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Add the chopped potatoes to a tray (or two!) with a drizzle of olive oil, seaso
 
 Put the tray[s] in the oven for 20-25 min or until the potatoes are crisp – these are your mini roast potatoes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1698922569009-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ When the potatoes have 12-15 min left, put the tray[s] in the oven until the br
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1698922572515-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once hot, add the sliced leek and cook for 7-8 min or until softened
 
 Once softened, add half the chopped garlic (you'll use the rest later!) with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml] </span>cold<span class="text-danger"> </span>water and cook for 1-2 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1698922577885-x200.jpg)
 
 ### Step 7
 

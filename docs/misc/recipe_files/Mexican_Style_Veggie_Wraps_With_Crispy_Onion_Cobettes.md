@@ -27,7 +27,6 @@ Quick and easy is the dish of the day with this Mexican-style crowd-pleaser. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-3-1688642902046-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Scrunch the tin foil around the corn until tightly sealed and add to a baking tr
 
 Put the tray[s] in the oven for 20-25 min or until the corn is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-3-1688642910985-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Deseed your peppers (scrape the seeds and pith out with a teaspoon) and slice in
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-4-1688642915834-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Crush your crispy onions in their bag
 
 Combine most of the chopped parsley (save a little for garnish!) and crushed crispy onions in a small bowl – this is your crispy onion crumb
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-2-1688642920416-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add the onion wedges to the pan and cook for 2-3 min or until slightly
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-2-1688642924610-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once slightly softened, add the sliced peppers and chopped garlic to the pan wit
 
 Once beginning to soften, add your ground coriander, ground smoked paprika and tomato paste and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-2-1688642929227-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once fragrant, add 150ml <span class="text-purple">[200ml]</span> <span class="t
 
 Once boiling, reduce the heat to medium and cook, covered, for 8-9 min or until the sliced peppers are tender and the sauce has thickened – these are your smoky peppers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-2-1688642933348-x200.jpg)
 
 ### Step 7
 

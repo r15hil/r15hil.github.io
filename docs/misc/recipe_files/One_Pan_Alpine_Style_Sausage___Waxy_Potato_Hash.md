@@ -22,7 +22,6 @@ Go all in for this alpine-inspired one-pan. You’ll sizzle sausage and onion wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693826039920-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693826042988-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Put the bowl in the microwave for 6-8 min<span class="text-danger"> </span>or un
 
 Chop your brown onion[s] into thin wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693826045403-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add your sausage meat (remove the paper if required!) and onion wedges to the pa
 
 Tip: Cooking for 3 or more? Use 2 pans!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693826048071-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Grate your cheddar cheese finely
 
 Wash your salad and pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693826050669-x200.jpg)
 
 ### Step 5
 
 Combine your red wine vinegar and wholegrain mustard with 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>sugar and a drizzle of<span class="text-danger"> </span>olive oil in a large bowl – this is your mustard dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693826053238-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add the crushed potatoes to the pan with your roasted garlic paste, a small knob
 
 Season with a pinch of salt and cook for 1 min or until the butter has melted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693826056733-x200.jpg)
 
 ### Step 7
 

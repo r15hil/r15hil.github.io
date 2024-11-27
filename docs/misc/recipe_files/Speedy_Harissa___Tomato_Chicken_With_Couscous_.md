@@ -22,7 +22,6 @@ This couldn't be easier, and it's packed with punchy harissa, cherry tomatoes an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1585746174054-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Boil half a kettle
 
 Chop the chicken breast portions<span class="text-danger"> </span>into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1585746179010-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Trim, then chop the green beans in half
 
 Roughly chop the cherry tomatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1585746184038-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped chicken and halved green beans and cook for 3-4 min or until the chicken has browned all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585746249247-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Whilst the chicken is browning, add the couscous to a heatproof bowl
 
 Add half the chicken stock mix (you'll use the rest later!) and 200ml<span class="text-danger"> [400ml] </span>boiled water, give everything a good mix up then cover and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1585746196004-x200.jpg)
 
 ### Step 5
 
@@ -64,13 +59,11 @@ Dissolve the remaining chicken stock mix in 100ml <span class="text-danger">[175
 
 Stir in the tomato paste and harissa paste (can't handle the heat? Go easy!) – this is your harissa stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1585746201706-x200.jpg)
 
 ### Step 6
 
 Once the chicken is browned, add the chopped cherry tomatoes and harissa stock to the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1585746211647-x200.jpg)
 
 ### Step 7
 

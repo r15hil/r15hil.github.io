@@ -24,7 +24,6 @@ All the ingredients in our lamb moussaka are true to the classic. The lamb is sp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/223.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat and 
 
 Cook for 4-5 min, breaking it up with a spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/223.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Peel and finely chop (or grate) the garlic
 
 Add the onion, garlic, cinnamon and dried oregano to the lamb mince and cook for 10 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/223.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add them to a baking tray and drizzle with olive oil and a large pinch of salt a
 
 Put the tray in the oven for 15 min, or until cooked through, turning halfway through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/223.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Reduce the heat to medium and cook for 10-15 min or until most of the water has 
 
 Season with a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/223.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Meanwhile, pop a tbsp of&nbsp;natural yoghurt&nbsp;into a mixing bowl with a dri
 
 Tear the&nbsp;little gem<span class="text-danger">[s]</span>&nbsp;into bite-size pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/223.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ When ready, add half of the sliced potato to a suitably sized oven-proof dish in
 
 Layer over half of the sliced aubergine&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/223.-step-7-x200.jpg)
 
 ### Step 7
 

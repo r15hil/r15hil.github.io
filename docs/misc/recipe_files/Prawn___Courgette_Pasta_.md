@@ -18,7 +18,6 @@ Juicy king prawns meet tangy courgette ribbons beneath a smattering of oregano i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/358.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -27,13 +26,11 @@ Boil a kettle (used in step 2)
 
 Drain the prawns and pat completely dry with kitchen roll
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/358.-step-2-x200.jpg)
 
 ### Step 2
 
 Add the pasta to a pot of boiling water with salt (optional) for 7-9 min, until the pasta is nearly cooked with a slight bite, stirring occasionally
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/358.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -45,7 +42,6 @@ Peel lengths off of the courgette halves to form long ribbons, reserving the inn
 
 Set the courgette ribbons aside for step 6
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/358.-step-4-new-x200.jpg)
 
 ### Step 4
 
@@ -54,7 +50,6 @@ Chop the inner courgette flesh into 1cm pieces for step 6
 
 Crush the garlic with the side of a knife, peel it and chop finely (or grate)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/358.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Once the oil is hot, add the garlic and oregano and cook for 1 min, or until jus
 
 Tip: Don't walk away as it can burn quite quickly!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/358.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Meanwhile, return to the pasta pot and once nearly finished cooking, submerge th
 
 Drain both, and reserve the pasta water for step 7
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/358.-step-7-x200.jpg)
 
 ### Step 7
 

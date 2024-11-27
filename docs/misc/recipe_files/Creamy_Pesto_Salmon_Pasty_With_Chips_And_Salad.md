@@ -24,7 +24,6 @@ Here’s a stuffed, puffed homemade crust you won’t be able to put down. You�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1663752104405-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a non-stick baking paper-lined baking tray (or two!) with a dri
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663752112198-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Blitz until smooth – this is your creamy pesto
 
 Tip: Don't have a food processor? Chop the ingredients and grind to a paste in a pestle & mortar instead!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663752120582-x200.jpg)
 
 ### Step 3
 
 Combine the creamy pesto and salmon flakes in a bowl – this is your pasty filling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663752131121-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Cut the puff pastry into 1 rectangle per person and add to a non-stick baking paper-lined baking tray (or two!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663752136338-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Fold the pastry over the mixture and press it together with your fingers to seal
 
 Prick air holes into the centre of the pasty[ies] evenly with a fork and press the remaining pumpkin seeds into the pastry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663752142232-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 17-20 min or until puffed up, golden and cooked through – this is your creamy pesto salmon pasty
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663752147247-x200.jpg)
 
 ### Step 7
 

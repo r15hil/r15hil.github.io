@@ -25,7 +25,6 @@ You're one step away from a next-level sandwich. You'll top ciabatta with sliced
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2299Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut your potatoes (skins on) into chips, then add to a baking tray (or two!) 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2299Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 10-15 min or
 
 While the onions are cooking, strip your rosemary leaves from their stems and chop them finely, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2299Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the chopped rosemary and a pinch of salt to a small bowl and set aside fo
 
 Combine your wholegrain mustard (not a big fan of mustard? Go easy!) and mayo in a separate bowl, stir it all together and set aside for later – this is your mustard mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2299Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the onions are caramelised, add your balsamic vinegar and 1 tbsp <span clas
 
 Once done, remove the pan from the heat, cover with a lid to keep warm, and set aside for later – these are your balsamic onions
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2299Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the halved cherry tomatoes and salad to a bowl with 1 tbsp <span class="text
 
 Pat your rump steak[s] dry with kitchen paper, then drizzle with vegetable oil and season with a pinch of salt and pepper on both sides
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2299Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Transfer the cooked steak[s] to a clean chopping board, cover with a clean tea towel and leave to rest (save the pan for the next step!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2299Step-7-x200.jpg)
 
 ### Step 7
 

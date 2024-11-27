@@ -27,7 +27,6 @@ Try this speedy take on Italian hunter’s stew with crispy thyme-infused chicke
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695988811621-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695988815744-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of v
 
 Once hot, add your chicken thighs, skin-side down with a pinch of salt and half your dried thyme (save the rest for later!) and cook for 3-4 min or until browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695988825577-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695988831224-x200.jpg)
 
 ### Step 4
 
 Dissolve your tomato paste, red wine paste and chicken stock mix in 250ml<span class="text-danger"> <span class="text-purple">[325ml]</span> [450ml]</span> boiled water – this is your red wine stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695988835916-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the chicken has browned, remove it from the dish and add the chopped onion,
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695988839906-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Bring to the boil over a high heat, then return the browned chicken to the dish,
 
 Put the dish in the oven, lid off, for 35-40 min or until the chicken is cooked through (no pink meat!) and the vegetables are tender – this is your one-pot chicken & pepper cacciatore
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695988843948-x200.jpg)
 
 ### Step 7
 

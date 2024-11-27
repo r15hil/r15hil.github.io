@@ -28,7 +28,6 @@ The US meets Mexico in this tasty taco delight. With a dollop of smoky sauce, li
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1661184618090-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the fries to a baking paper-lined tray with your ground smoked paprika, a li
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp – these are your smoky fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1661184620410-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely slice your red onion[s]
 
 Combine your white wine vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar in a small bowl with the sliced onion and 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> boiled water – this is your quick-pickled onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1661184624319-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Chop your tomato[es] finely
 
 Wash your lettuce, then pat it dry with kitchen paper and shred it very finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1661184626674-x200.jpg)
 
 ### Step 4
 
 Combine your tomato ketchup, mayo and chipotle paste (can't handle the heat? Go easy!) in a small bowl – this is your spicy burger sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661184629479-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add your beef mince and cook for 3-4 min or until beginning to brown, 
 
 Season with a generous pinch of salt and pepper and cook for a further 6 min or until cooked through and slightly crisp (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1661184633605-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once cooked through and slightly crisp, gently push the cooked mince into the ce
 
 Top the mince with the grated cheddar and cook, covered, for a final 2-3 min or until the cheese has melted – this is your cheesy beef
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661184636615-x200.jpg)
 
 ### Step 7
 

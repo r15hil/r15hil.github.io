@@ -22,7 +22,6 @@ Bish, bash butternut squash. You’ll roast golden squash before drizzling with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1667904786985-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Tip: Be careful! Drizzle the knife with a little vegetable oil for easier choppi
 
 Scoop out the seeds with a spoon and discard
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667904790955-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Transfer the hasselback butternut squash to a baking tray with a drizzle of oliv
 
 Put the tray in the oven for an initial 40 min or until the butternut squash is soft
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667904795475-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Chop your pistachios and your dried cranberries finely
 
 Combine the chopped pistachios and cranberries – this is your jewel mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667904799174-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Roll the goats' cheese pieces in the jewel mix until fully coated, then set asid
 
 Reserve any remaining jewel mix for a garnish later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667904802804-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the torn ciabatta to a baking tray with a drizzle of olive oil and a pinch o
 
 Put the tray in the oven for 6-8 min or until golden and crisp – these are your croutons
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667904806369-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the butternut squash is softened, remove the tray from the oven and top wit
 
 Return the tray to the oven and cook, uncovered, for 8-10 min further or until the 'nduja is cooked and slightly charred – this is your 'nduja butternut squash
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667904810606-x200.jpg)
 
 ### Step 7
 

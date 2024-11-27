@@ -27,7 +27,6 @@ To serve up a plant-based twist on pasta puttanesca, you'll simmer cherry tomato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611071463207-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2417Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Boil a kettle
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2417Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once the pan is hot, add your roasted garlic paste and halved cherry tomatoes and cook for 3-4 min until the tomatoes have started to break down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1605778904590-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Cook for 2-3 min or until the spaghetti is cooked with a slight bite
 
 Remove from the heat and drain, reserving a cup of the starchy pasta water, then return to the pot with a drizzle of olive oil and set aside until later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1605778691878-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Give it all a good mix up and put the tray in the oven for 3-4 min until lightly
 
 Dissolve your vegetable stock mix and the tomato paste in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2417Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add a pinch of sugar and grind of black pepper – this is your tomato & olive s
 
 Tip: Add a splash of starchy pasta water if the sauce is looking a little dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2417Step-7-x200.jpg)
 
 ### Step 7
 

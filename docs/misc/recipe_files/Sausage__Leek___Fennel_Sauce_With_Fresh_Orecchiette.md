@@ -22,7 +22,6 @@ Fennel fans, right this way. For a speedy supper inspired by Tuscan flavours, yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1692348226411-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1692348232084-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add your sausage meat (remove the paper if required!) to the pan and cook for 2-3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1692348242466-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Peel and slice (don't chop!) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1692348246049-x200.jpg)
 
 ### Step 4
 
 Add the sliced leek, fennel seeds and sliced garlic to the pan with the sausage meat and cook for 4-5 min or until the leek is beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1692348249250-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1692348252743-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once the leek is beginning to soften, add 1 tsp <span class="text-purple">[1 1/2
 
 Add the creamy stock to the pan and cook for 1-2 min further or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1692348257955-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Warm your Seoul with this spicy stew. You’ll pan-fry chicken and garlicky veg 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699375545691-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel (scrape the skin off with a teaspoon) and finely grate your ginger
 
 Top, tail, peel and chop your carrot[s] into quarters lengthways, then into thin batons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699375549260-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs, then set 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water to a pot with a lid and bring to the boil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699375553851-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699375560536-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your diced chicken breast and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> flour and cook for 3-4 min on each side or until starting to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699375564459-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once starting to brown, add the carrot batons and chopped pepper to the pan with
 
 Meanwhile, dissolve your chicken stock mix, gochujang paste and soy sauce in 300ml<span class="text-purple"> [390ml]</span> <span class="text-danger">[510ml]</span> boiled water – this is your spiced stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699375568593-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the vegetables have softened, add the spiced stock and 1 tsp <span class="t
 
 Once boiling, reduce the heat to medium-high and cook, covered, for 5-6 min or until the veg is tender and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699375572757-x200.jpg)
 
 ### Step 7
 

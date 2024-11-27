@@ -25,7 +25,6 @@ You can’t go wrong with this classic. You’ll simmer chicken breasts in a but
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680164304337-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680164311811-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ While the chips are cooking, peel and finely dice half your red onion[s]
 
 Slice the remaining onion finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680164325569-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the diced onion with a knob of butter and a pinch of salt and cook
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680164336793-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Once the onion has softened, add your curry powder and ginger & garlic paste and
 
 Once fragrant, increase the heat to high, then add your diced chicken breast and cook for 3-4 min further or until the chicken is coated in all of the spices and is beginning to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680164342570-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your chicken stock mix, tomato paste and a pinch of sugar in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml] </span>boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680164350511-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Reduce the heat to medium-high and cook for 6-8 min or until the sauce has thick
 
 Once thickened, add a knob of butter and mix until fully combined – this is your chicken curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680164356073-x200.jpg)
 
 ### Step 7
 

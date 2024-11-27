@@ -27,7 +27,6 @@ A potato salad like you've never tasted before. This fragrant twist is smothered
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595258284163-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the seasoned chicken thighs, skin-side down, and cook for 10 min or until the skins have browned and crisped
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1595258294233-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595258301543-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Transfer the crispy chicken to a baking tray (skin side up) and put the tray in 
 
 Reserve the pan and any remaining juices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595258316752-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Chop your coriander finely, including the stalks
 
 Reboil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595258367674-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender
 
 Add your blanched peas and cook for 1 min further, then drain and set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595258389100-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Tip: Add a drizzle of oil if your pan is looking a little dry!
 
 Once fragrant, remove the pan from the heat and add the drained potatoes with your white wine vinegar, mayo, sliced shallot and most of the chopped herbs (save some for garnish!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595258423671-x200.jpg)
 
 ### Step 7
 

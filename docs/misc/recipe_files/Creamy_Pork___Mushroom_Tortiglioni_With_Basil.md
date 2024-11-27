@@ -25,7 +25,6 @@ End your day with a comforting bowl of tortiglioni pasta with golden caramelised
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1443.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once hot, tear your chestnut mushrooms into the pan and add a pinch of salt
 
 Cook for 3-4 min, stirring occasionally until golden and caramelised
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Tortiglioni-draining-1727873384584-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a large cup of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1443.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once the mushrooms are golden, add your pork mince (remove the paper if required
 
 Cook for 3-4 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1443.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix and tomato paste in 300ml <span class="text-purple">[425ml]</span> <span class="text-danger">[550ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1443.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once the pork is browned, add the chopped garlic and cook for 30 secs
 
 Add the tomato stock and cook for 4-5 min or until thickened to the consistency of a ragù and the pork mince is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1443.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ While the ragù thickens, grate your cheddar cheese
 
 Chop your basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1443.-step-7-x200.jpg)
 
 ### Step 7
 

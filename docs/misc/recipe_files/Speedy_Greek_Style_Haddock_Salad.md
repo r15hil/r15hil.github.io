@@ -24,7 +24,6 @@ For this speedy twist on the tasty taverna classic, you’ll toss chunky Greek v
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1623680103295-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1623680115139-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Dissolve the vegetable stock mix in 130ml <span class="text-danger">[260ml]</sp
 
 Add the couscous to a heatproof bowl with the vegetable stock, cover and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1623680134639-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <s
 
 Cut the lemon<span class="text-danger">[s]</span> in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1623680144998-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Pat the haddock bites dry with kitchen paper
 
 Once hot, add the haddock bites to the pan and cook for 2-3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1623680162375-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Chop the baby plum tomatoes in half
 
 Roughly chop the black olives
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1623680176247-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the dried oregano, garlic paste and juice of 1/2 <span class="text-danger">
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1623680181283-x200.jpg)
 
 ### Step 7
 

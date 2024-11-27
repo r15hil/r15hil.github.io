@@ -20,7 +20,6 @@ This Greek inspired gigantic lamb meatball is stuffed with creamy, salty feta. S
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/834.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 200&deg;C/ 180&deg;C (fan)/ 400&deg;F/ Gas 6
 
 Add the bulgur&nbsp;to a pot with plenty of boiled water and a pinch of salt&nbsp;and cook over a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/834.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the lamb mince to a bowl and season generously with salt and pepper
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/834.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Seal up the outside with mince to form a sealed meatball
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/834.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Transfer the meatballs&nbsp;to a baking tray (use tin foil to avoid mess!) and p
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/834.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 Grate the cucumber&nbsp;and squeeze out any liquid with your hands
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/834.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Add the onion&nbsp;and 1 tsp<span class="text-danger"> [2 tsp]</span>&nbsp;sugar
 
 Once softened, remove the pan from the heat, add&nbsp;the cooked, drained bulgur&nbsp;and mix through - this is your red onion bulgur
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/834.-step-7-x200.jpg)
 
 ### Step 7
 

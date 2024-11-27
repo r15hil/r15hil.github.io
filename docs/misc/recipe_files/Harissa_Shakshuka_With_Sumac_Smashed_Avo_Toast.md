@@ -26,7 +26,6 @@ Turn up the heat with this spiced up shakshuka. Whip up a tomato and harissa sau
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684423393127-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and cut your red onion[s]<span class="text-danger"> </span>into quarters, t
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684423396302-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the onion petals and diced pepper
 
 Cook for 5-6 min or until softened and starting to char
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684423399472-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Chop your orange[s] in half
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684423402952-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once fragrant, add the juice of the orange[s]<span class="text-danger"> </span>w
 
 Add 100ml <span class="text-purple">[130ml]</span><span class="text-danger"> [175ml]</span> boiled water with your vegetable stock mix and bring to a boil, then once boiling, reduce the heat to medium and cook for 10 min or until the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684423405924-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Remove the stone[s]<span class="text-danger"> </span>using a spoon, then scoop o
 
 Add the diced avocado to a small bowl with half your ground sumac (you'll use the rest later!), a drizzle of olive oil and a pinch of salt and pepper and mash until a little chunky – this is your smashed avo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684423409183-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the spinach has wilted, make 1 well per person in the pan and crack your eg
 
 Tip: Give your egg a little shake before you crack for perfectly centred yolk!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684423412464-x200.jpg)
 
 ### Step 7
 

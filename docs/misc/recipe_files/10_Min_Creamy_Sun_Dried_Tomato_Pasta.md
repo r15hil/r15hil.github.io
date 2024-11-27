@@ -20,7 +20,6 @@ Want to save time? This plant-based pasta isn't just fast, it's all done in one 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1601375381049-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1601375423784-x200.jpg)
 
 ### Step 2
 
@@ -46,19 +44,16 @@ Once hot, add the pine nuts and cook for 1-2 min or until toasted
 
 Once toasted, transfer them to a bowl and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601375428958-x200.jpg)
 
 ### Step 3
 
 Whilst the pine nuts are toasting, halve the cherry tomatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1601375438181-x200.jpg)
 
 ### Step 4
 
 Dissolve the sun-dried tomato paste and coconut yoghurt in 300ml<span class="text-danger"> [500ml] </span>boiled water – this is your sun-dried tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1601375446937-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Add the sun-dried tomato stock, halved cherry tomatoes, quick-cook amorini and a
 
 Cook, covered, for an initial 2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1601375455366-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Meanwhile, drain and rinse the cannellini beans
 
 Wash the baby leaf spinach
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1601375487009-x200.jpg)
 
 ### Step 7
 

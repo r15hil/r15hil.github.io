@@ -26,7 +26,6 @@ For a 10-minute dinner that’ll satisfy your takeaway cravings, toss egg noodle
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623407516381-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1584987424680-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetabl
 
 Once hot, add your beef mince with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1584987428551-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Set aside to soak for 5-6 min
 
 Drain the soaked noodles
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1584987432332-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Chop the white base into rough, large pieces
 
 Slice your red chilli[es] into rounds
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1584987435945-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Once the beef mince has browned slightly, add your ginger & garlic paste and coo
 
 Once fragrant, add the chopped pak choi white base and cook for 2-3 min or until softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1584987439861-x200.jpg)
 
 ### Step 6
 
 Combine your rice vinegar, soy sauce, red chilli relish and cornflour in a small bowl with 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[175ml]</span> boiled water – this is your stir-fry sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1584987443927-x200.jpg)
 
 ### Step 7
 

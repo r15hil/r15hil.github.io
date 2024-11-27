@@ -31,7 +31,6 @@ Brighten your plate with a rainbow of roasted veg, served with jewelled couscous
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/442.-step-1.new-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and cut your red onion[s] into quarters
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/442.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Top, tail and chop your courgette[s]<span class="text-danger"> </span>into quar
 
 Top, tail, peel and chop your carrot[s]<span class="text-danger"> </span>into quarters lengthways, then into small, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/442.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Drizzle with olive oil and season with a generous pinch of salt and pepper and
 
 Put the tray[s] in the oven for 20-30 min or until the veg is tender and starting to colour – this is your chunky roast veg
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/442.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Peel and grate (or very finely chop) your garlic
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/442.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a 
 
 Once hot, add your ground turmeric and ras el hanout and cook for 1 min, or until fragrant – this is your spiced oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/442.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add your couscous and vegetable stock to the pan and give everything a good mix
 
 Remove the pan from the heat and cover with a lid, then set aside until all of the stock has been absorbed and the couscous has softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/442.-step--7-x200.jpg)
 
 ### Step 7
 

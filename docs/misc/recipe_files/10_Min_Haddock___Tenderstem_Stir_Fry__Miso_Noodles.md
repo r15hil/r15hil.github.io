@@ -23,7 +23,6 @@ Get this tasty fish stir-fry on the table in minutes. You'll combine tender hadd
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1538.-step-1-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Meanwhile, chop the Tenderstem broccoli in half (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1538.-step-2-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once hot, add the garlic paste and chilli flakes (Can't handle the heat? Go 
 
 Add the chopped Tenderstem broccoli and cook for 2 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1538.-step-3-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Meanwhile, add the fine egg noodles to a large bowl, cover them with boiled w
 
 Set aside to soak for 4 min, or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1538.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Combine the miso paste, honey and soy sauce with 1 tbsp<span class="text-da
 
 Tip: use a small whisk to mix it up!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1538.-step-7-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add the haddock bites to the pan with the vegetables and cook for 1-2 min furthe
 
 Note: please ensure you cook your fish thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1538.-step-6-x200.jpg)
 
 ### Step 7
 

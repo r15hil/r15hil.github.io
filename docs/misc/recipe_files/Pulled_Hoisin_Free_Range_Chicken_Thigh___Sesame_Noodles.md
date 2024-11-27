@@ -27,7 +27,6 @@ Get your wok sizzling! In this dish, you'll smother tender free range chicken th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-6-1690285387132-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a
 
 Once hot, add your free range chicken thighs with a pinch of both salt and pepper and cook for 3 min on each side or until they're browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-5-1690285390587-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Slice half your red chilli[es] into rounds, then cut the remaining red chilli[es
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-5-1690285394059-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Boil a kettle
 
 Once the chicken has browned, reduce the heat to medium-high and add a splash of water and cook, covered, for 10 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-5-1690285397419-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles, and reserve the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1690285271925-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Wash your spring greens, then rip the leaves off, discard the tough stalks, and 
 
 Trim, then slice your spring onion[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1690285402079-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the chicken is cooked, remove the pan from the heat and shred the chicken
 
 Once pulled, return the pan to a medium heat and add the chopped ginger, chopped chilli (can't handle the heat? Go easy!), hoisin sauce, half your soy sauce (you'll use the rest later!) and 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[75ml] </span>water and cook for 3-4 min or until the chicken is coated in a sticky sauce – this is your pulled hoisin free range chicken thigh
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-5-1690285406274-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Here’s a classic stir-fry when you need some fast flavour. You’ll infuse noo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1705413171052-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1705413175120-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add your lean pork mince (remove the paper if required!) with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1705413178294-x200.jpg)
 
 ### Step 3
 
 While the lean pork mince is cooking, dissolve your honey, mirin, rice vinegar, ginger & garlic paste and soy sauce in 100ml<span class="text-danger"> <span class="text-purple">[150ml]</span> [200ml] </span>boiled water – this is your soy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1705413182347-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Once the lean pork mince is beginning to brown, crumble your chestnut mushrooms 
 
 Cook for 2-3 min or until the mushrooms are starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1705413185876-x200.jpg)
 
 ### Step 5
 
 Meanwhile, trim, then slice your spring onion[s] finely, keeping the whites and greens seperate
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1705413189458-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add the spring onion whites, your udon noodles, soy stock and a grind of pepper 
 
 Cook, covered for 2-3 min, stirring occasionally until the noodles are soft and the pork is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1705413192433-x200.jpg)
 
 ### Step 7
 

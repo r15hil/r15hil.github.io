@@ -23,7 +23,6 @@ In this wholesome dish, you'll blend Middle Eastern-inspired ras el hanout-spice
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1717428620745-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Rinse the wilted spinach under cold running water until cool
 
 Squeeze the water out of the spinach, then chop it roughly and reboil half a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1717428625931-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your bulgur wheat and cook for 1 min or until it's lightly toasted
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1717428631699-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once boiling, reduce the heat to low and cook, covered, for 10-15 min or until a
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1717428636972-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Sprinkle over your dried oregano and ras el hanout and season with a big pinch o
 
 Press the spices into the chicken until thoroughly coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1717428643541-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 12-15 min or until the chicken is cooked through (no pink meat!) – this is your spiced chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1717428647003-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Strip your mint leaves from their stems and chop them finely, discard the stems
 
 Combine the chopped tomato and chopped mint with a drizzle of olive oil and a pinch of salt in a small bowl – this is your tomato & mint salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1717428652203-x200.jpg)
 
 ### Step 7
 

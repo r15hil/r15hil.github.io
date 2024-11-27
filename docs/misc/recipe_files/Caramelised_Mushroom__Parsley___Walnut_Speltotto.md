@@ -24,7 +24,6 @@ For this wholesome speltotto (risotto but with spelt grains), you'll flavour spe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2442Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once hot, add a knob of butter to the pan
 
 Once melted, add the sliced shallot with a pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2442Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the vegetable stock and cook, covered, for 25-30 min, stirring occasionally
 
 Tip: Add a splash more water if it's looking a little dry!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1594716912453-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Chop the leek<span class="text-danger">[s]</span> in half lengthways, wash thoro
 
 Roughly chop the walnuts
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2442Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, transfer the walnuts to a plate and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2442Step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add the sliced mushrooms and cook for 4-5 min or until golden and cara
 
 Tip: Try not to move the mushrooms around too much as this will stop them from caramelising!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1594716918900-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once caramelised, add the chopped garlic and sliced leek to the pan and cook for
 
 Chop the parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1594716926819-x200.jpg)
 
 ### Step 7
 

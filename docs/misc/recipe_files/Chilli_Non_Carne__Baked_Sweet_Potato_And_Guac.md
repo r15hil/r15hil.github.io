@@ -26,7 +26,6 @@ This rich plant-based chilli is packed with spices, red pepper and black beans. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2354Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Transfer the softened sweet potatoes to a baking tray with a drizzle of vegetab
 
 Put the tray in the oven and cook for 12-15 min or until the skin is crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2354Step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Chop the coriander finely (including the stalks), reserving some leaves for gar
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2354Step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped garlic and 3/4 of the chopped red onion (save the rest for later!) to the pan and cook for 4 min or until the onion has started to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2354Step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Remove the stone<span class="text-danger">[s]</span> using a teaspoon
 
 Scoop the avocado out of the skin<span class="text-danger">[s]</span> using a spoon, discard the skin<span class="text-danger">[s]</span> and stone<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2354Step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once the onion is soft, add the ground cumin, smoked paprika, chilli flakes (c
 
 Add the chopped pepper, drained black beans, vegetable stock and chopped tomatoes and cook over a low heat for 15-20 min or until the sauce has thickened – this is your chilli non carne
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2354Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Blitz it all up until smooth – this is your guac
 
 Cut the remaining lime into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2354Step-7-x200.jpg)
 
 ### Step 7
 

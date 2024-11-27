@@ -31,7 +31,6 @@ This comforting orzo dish is bursting with flavour from roasted pepper, onion, g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688466959189-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel and cut your red onion[s] into wedges
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688466962507-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the pepper strips, onion wedges and chopped tomatoes to a baking tray (or tw
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until softened and beginning to colour – these are your roasted vegetables
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688466965248-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[1L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688466967909-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add the chopped garlic and chilli flakes (can't handle the heat? Go ea
 
 Add your orzo and tomato paste and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688466970796-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ After 10 min, drain, then add your king prawns, then increase the heat to medium
 
 Tip: Stir the orzo occasionally to prevent it from sticking!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688466973718-x200.jpg)
 
 ### Step 6
 
 While the orzo is cooking, chop your basil finely, including the stalks (save a few leaves for garnish)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7.jpg-1728487328631-x200.jpg)
 
 ### Step 7
 

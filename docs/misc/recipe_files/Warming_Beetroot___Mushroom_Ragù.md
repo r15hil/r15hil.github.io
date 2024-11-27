@@ -26,7 +26,6 @@ This plant-based ragù is simple, hearty and comforting! Let the beetroot, mushr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2398Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely dice the brown onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2398Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped carrot, onion and garlic and cook for 6-8 or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2398Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2398Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Drain, then chop the beetroot finely
 
 Dissolve the Knorr vegetable stock cube<span class="text-danger">[s]</span> in 250ml <span class="text-danger">[500ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2398Step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the tomato paste, bay leaf<span class="text-danger">[ves]</span>, tomato f
 
 Add the vegetable stock, season with a generous pinch of salt and pepper and cook for 8-10 min or until the sauce has thickened to a ragù-like consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2398Step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Whilst the ragù is thickening, add the green beans to a pot, cover them with bo
 
 Bring to the boil over a high heat and cook for 3-4 min or until tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2398Step-7-x200.jpg)
 
 ### Step 7
 

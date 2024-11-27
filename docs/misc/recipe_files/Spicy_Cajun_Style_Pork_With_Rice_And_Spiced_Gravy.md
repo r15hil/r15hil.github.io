@@ -28,7 +28,6 @@ Tonight you're in New Orleans, where the succulent pork is Cajun-style, stupendo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1659886948297-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Top, tail, peel and finely dice your carrot[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and finely dice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1659886954656-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion, diced pepper and diced carrot with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1659886959275-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Combine your ground smoked paprika and dried oregano in a bowl with your ground 
 
 Season with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a generous pinch of salt and pepper – this is your smoky spice mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659886963622-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Once fragrant, add your white long grain rice and 175ml <span class="text-purple
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1659886967599-x200.jpg)
 
 ### Step 5
 
 Meanwhile, pat your pork loin steak[s] dry with kitchen paper and season both sides with a pinch of salt and half the smoky spice mix (save the rest for later!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1659886971540-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once hot, add the seasoned steak and cook for 5-6 min on each side or until they
 
 Once done, transfer the cooked steak to a clean chopping board, cover with a clean tea towel and leave them to rest for 2 min, reserve the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659886975252-x200.jpg)
 
 ### Step 7
 

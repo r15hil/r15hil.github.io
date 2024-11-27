@@ -27,7 +27,6 @@ Patatas bravas meets burger with this Spanish-inspired twist on our ultimate veg
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1729780116162-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Deseed the pepper[s] (scrape the seeds and pith out with a teaspoon) and cut int
 
 Dice your tomato[es] roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729780119138-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the potato wedges and sliced pepper to a large baking tray (or two!) with a 
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are golden and the pepper is beginning to char
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729780122560-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot add the sliced shallot and half the grated garlic (you'll use the rest later!) and cook for 1-2 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729780126783-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, add your meat-free patty[ies] to a separate tin foil-lined baking tra
 
 Put the tray[s] in the oven for 10-12 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729780130482-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add your tomato paste and 100ml <span class="text-purple">[130ml]</span> <span c
 
 Once done, remove from the heat and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729780134165-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Combine your mayo, remaining grated garlic and most of the chopped parsley (save
 
 Add a little splash of cold water to loosen, season with a grind of black pepper and give everything a good mix up – this is your herby aioli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729780138054-x200.jpg)
 
 ### Step 7
 

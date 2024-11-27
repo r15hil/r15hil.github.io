@@ -30,7 +30,6 @@ This easy Portuguese-inspired dinner is quick, punchy and full of flavour. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1616427100816-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Skim through these steps, then wash your fruit and veg and take your steak out o
 
 Note: Equipment and pan sizes vary, and if you like your steak well-done, it may take you a little longer than 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2124.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Pat your rump steak[s] dry with kitchen paper, drizzle with vegetable oil and season with a generous pinch of salt
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2124.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak is cooked, transfer to a plate to rest
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2124.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Trim, then chop your spring onion[s] roughly
 
 Once hot, add the chopped spring onion, ground smoked paprika, cayenne pepper (can’t handle the heat? Go easy!), soy sauce and tomato paste and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2124.-step-6-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Squeeze your pouch[es] of the cooked white long grain rice, making sure to separ
 
 Once fragrant, add the cooked white long grain rice with a pinch of salt to the pan and cook for 2-3 min or until warmed through – this is your spicy rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2124.-step-5-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, combine your tomato ketchup, chipotle paste, chilli flakes (not a fa
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp]</span> olive oil and a generous pinch of salt – this is your peri peri sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2124.-step-7-x200.jpg)
 
 ### Step 7
 

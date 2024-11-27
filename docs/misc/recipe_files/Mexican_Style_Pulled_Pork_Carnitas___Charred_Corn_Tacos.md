@@ -30,7 +30,6 @@ These tacos are a food truck icon. Stuffed with carnitas, which translates as �
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629303111394-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut your orange[s] in half, then peel and finely chop (or grate) your garlic
 
 Combine the grated garlic, your ground cumin, dried oregano and chicken stock mix in a bowl, then add a squeeze of orange juice, half your chipotle paste (can't handle the heat? Go easy!) and a pinch of sugar and mix everything together – this is your carnitas seasoning
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629303115894-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Transfer your BBQ pulled pork to an oven-proof dish draining away half of the ju
 
 Cover with tin foil and put the dish in the oven for an initial 30 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629303120801-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Trim, then slice your spring onions finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629303125866-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Add your chopped tomato, chopped chilli (not a fan of spice? Just add a little!)
 
 Season with a pinch of salt and mix everything together – this is your salsa con jugo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629303130320-x200.jpg)
 
 ### Step 5
 
 Combine your mayo with the remaining chipotle paste (can't handle the heat? Go easy!) and a splash of the salsa con jugo liquid in a small bowl – this is your chipotle mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629303147543-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Pull the pork apart using two forks and mix everything through the carnitas seas
 
 Return the dish to the oven for 5-6 min further or until the sauce has been absorbed and the pork has started to crisp a little – this is your pulled pork carnitas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629303142244-x200.jpg)
 
 ### Step 7
 

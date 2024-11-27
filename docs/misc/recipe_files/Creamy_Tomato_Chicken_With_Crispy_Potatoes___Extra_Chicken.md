@@ -22,7 +22,6 @@ Plate up the ultimate comfort meal with a healthy veg-filled twist. You'll top j
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729495038244-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Chop your potatoes (skins on) into bite-sized pieces, then add them to a baking 
 
 Drizzle with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil, season with a pinch of salt and give it a good mix up
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729495042101-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ After 10-15 min, move the tomatoes and potatoes to one side of the tray[s], then
 
 Return the tray[s] to the oven for a further 18-20 min or until the chicken is cooked through (no pink meat!) and the potatoes are crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729495045405-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Dissolve your chicken stock mix in 150ml <span class="text-purple">[195ml]</span
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729495048420-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729495052735-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp<span class="te
 
 Once hot, add the sliced garlic and cook for 2-3 min or until softened but not browned
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729495056699-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add the chicken stock and cook for 2-3 min or until thickened
 
 Once thickened, add your soft cheese and stir it all together – this is your creamy sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729495060000-x200.jpg)
 
 ### Step 7
 

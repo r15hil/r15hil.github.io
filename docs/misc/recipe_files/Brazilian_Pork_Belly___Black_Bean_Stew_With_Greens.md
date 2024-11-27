@@ -27,7 +27,6 @@ Treat yourself to a stew inspired by a traditional Brazilian 'feijoada.' Our eas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1335.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a
 
 Season with a very generous pinch of salt and rub it deep into the criss-cross pattern
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1335.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once very hot, add the pork belly, fat side down and cook for 4 min or until co
 
 Once done, transfer the pork to a tin foil lined baking tray and put the tray in the oven for 40 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1335.-step-3a-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 6-8 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1335.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it is te
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1335._step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Cut the orange<span class="text-danger">[s]</span> in half
 
 Drain and rinse the black beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1335.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the drained black beans, tomato paste, and chicken stock mix with 450ml <sp
 
 Wash the shredded kale
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1335._step-7-x200.jpg)
 
 ### Step 7
 

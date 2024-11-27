@@ -29,7 +29,6 @@ Y’all better ready your taste buds for the ultimate Louisiana BBQ experience. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1683104673745-x200.jpg)
 
 ### Step 1
 
@@ -39,13 +38,11 @@ Transfer your BBQ pulled pork to an oven-proof dish, draining away half of the j
 
 Sprinkle over your ground smoked paprika, dried oregano, ground coriander, cayenne pepper (can't handle the heat? Go easy!) and a pinch of salt and rub it into the pork, using the back of a spoon, then cover with tin foil and put the dish in the oven for an initial 30 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1683104679907-x200.jpg)
 
 ### Step 2
 
 While the pork is cooking, pierce your red potato[es] with a fork, then add to a plate and cook in the microwave for 10-12 min or until cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1683104687650-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Grate your cheddar cheese
 
 Add your shredded red cabbage to a large bowl with half your soured cream (you'll use the rest later!), your cider vinegar and a pinch of salt and sugar and mix it all together – this is your cabbage slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1683104707453-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the potato[es] is cooked through, carefully slice the potato[es] in half (i
 
 Combine the potato flesh with half the grated cheese (you'll use the rest later!), your chipotle paste (not a fan of spice? Just add a little!) and remaining soured cream and mash it all together with a fork – this is your cheesy chipotle filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1683104711678-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Transfer the potato skins to a baking tray and divide the cheesy chipotle fillin
 
 Put the tray in the oven for 15 min or until golden brown – these are your cheesy potato skins
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1683104717193-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Pull the BBQ pulled pork apart using two forks, then add your honey and give eve
 
 Return the dish to the oven for a final 5-6 min or until the sauce has reduced and the pork has started to crisp – this is your smoky Cajun-style pulled pork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1683104721400-x200.jpg)
 
 ### Step 7
 

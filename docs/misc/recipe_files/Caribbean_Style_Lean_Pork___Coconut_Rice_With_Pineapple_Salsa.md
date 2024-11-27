@@ -30,7 +30,6 @@ Bask in the sweet-savoury flavours of the island sun. You’ll pack this Caribbe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701777402182-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your basmati rice and chopped creamed coconut to a pot with 300ml<span c
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your coconut rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701777408092-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Strip your thyme leaves and chop them finely, discarding the stalks
 
 Peel and dice your shallot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701777413049-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a s
 
 Add the pineapple rings to the pan and cook for 3-4 min further, turning once until charred and caramelised, then transfer to a bowl and set aside to cool – this is your caramelised pineapple
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701777418525-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Carefully wipe the pan clean and return to a high heat with a drizzle of vegetab
 
 Once the mince is starting to brown, add the chopped garlic, grated ginger, ground paprika, ground allspice, chopped thyme and half of the diced shallot (save the rest for later!) and cook for 2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701777423742-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add 50ml<span class="text-purple"> [65ml]</span> <span class="text-danger">[75ml
 
 Cook, covered, for a further 5 min or until the pork is cooked through (no pink meat!) – this is your Caribbean-style lean pork
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1701777429851-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, cut your green chilli[es] in half lengthways, deseed (scrape the seed
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1701777436957-x200.jpg)
 
 ### Step 7
 

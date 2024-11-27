@@ -22,7 +22,6 @@ Celebrate sausage roll day with this classic! Caramelised onion & Cumberland sau
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629301966574-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 8-10 min or until softened and starting to caramelise
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629301978158-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven for 30 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629301986295-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: You should have 1.5 sausages per pastry rectangle
 
 Press the sausage meat down a little with your fingers to flatten it slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629301991719-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Fold the pastry over the mixture and press it together with your fingers to seal
 
 Crimp the seal edges with a fork – these are your sausage rolls
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629301993939-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Top the sausage rolls with the grated cheese and sprinkle over the nigella seeds
 
 Put the tray in the oven for 15-20 min or until the sausage is cooked through and the pastry is puffed up and golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629301995610-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once melted, add 1/2 tbsp<span class="text-danger"> [1 tbsp]</span> flour and co
 
 Add the chicken stock mix and 200ml <span class="text-danger">[350ml]</span> boiled water and cook for 8-10 min or until thickened – this is your gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629301998807-x200.jpg)
 
 ### Step 7
 

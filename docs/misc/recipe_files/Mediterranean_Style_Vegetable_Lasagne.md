@@ -24,7 +24,6 @@ This easy ratatouille lasagne is the perfect excuse to veg out! You'll whip up a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/902..-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Trim the green stalk[s] off your aubergine[s] and cut into bite-sized pieces
 
 Top, tail and chop your courgette[s] and cut into bite-sized pieces, then peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/902.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the chopped pepper, aubergine and courgette with a large pinch of 
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/902.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ While the vegetables are cooking, melt 30g <span class="text-purple">[45g]</span
 
 Once melted, add 30g <span class="text-purple">[45g]</span> <span class="text-danger">[60g]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/902.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Grate your Italian hard cheese
 
 Once the sauce has thickened, remove from the heat, season with salt and pepper and stir through half the grated Italian hard cheese (save the rest for later!) – this is your cheese sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/902.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Cook for 3-4 min or until thickened to a pasta sauce consistency – this is you
 
 Chop your basil stalks (save the leaves for garnish!) and add them to the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/902.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Repeat this process until you end up with a final layer of lasagne sheets
 
 Tip: You may need to layer differently depending on the size of your dish!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/902.-step-7-x200.jpg)
 
 ### Step 7
 

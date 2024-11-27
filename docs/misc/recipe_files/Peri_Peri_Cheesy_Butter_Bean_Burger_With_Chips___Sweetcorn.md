@@ -30,7 +30,6 @@ Swap beef for a juicy butter bean patty in this veggie twist on burger night. Yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695715654763-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel and grate half your red onion[s]
 
 Peel and finely slice the remaining red onion and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695715659062-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Divide the bean mixture into 1 flat patty per person
 
 Line a tray with baking paper, add the peri peri butter bean patty[ies] to the tray and put in the oven for an initial 25 min until starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-9-1695717264585-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, cut your potatoes (skins on) into chips
 
 Add the chips to one side of a separate baking tray (or two) with a drizzle of vegetable oil and a pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695715707752-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add a small pinch of salt and scrunch the tin foil around the corn until tightly
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until the chips are golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695715711404-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the sliced red onion to a bowl with your red wine vinegar and a pinch of sal
 
 Add your ground paprika to a bowl with your mayo – this is your paprika mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695715719051-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Tear the remaining lettuce into rough, bite-sized pieces
 
 Add the torn lettuce leaves to a bowl and mix with a drizzle of olive oil – this is your salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695715727621-x200.jpg)
 
 ### Step 7
 

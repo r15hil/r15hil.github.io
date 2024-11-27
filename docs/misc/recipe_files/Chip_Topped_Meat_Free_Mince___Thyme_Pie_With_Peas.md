@@ -23,7 +23,6 @@ A pie that's a feast for the eyes, and a breeze to make. You'll simmer up a meat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632300872323-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for an initial 20 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632300880112-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Meanwhile, peel and finely dice the brown onion<span class="text-danger">[s]</sp
 
 Top, tail and finely dice the carrot<span class="text-danger">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632300921277-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and carrot with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632300951121-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the vegetable stock mix in 300ml<span class="text-danger"> [500ml] </span>boiled water and stir in the tomato paste and Marmite – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632300986157-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add the chopped garlic with the tomato stock and bring to the boil over a high h
 
 Strip the thyme leaves into the pan and cook for 3-4 min or until thickened slightly – this is your meat-free mince & thyme mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632300998328-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Tip: Try to put the crispiest chips at the bottom and balance the rest over the 
 
 Put the dish in the oven for 15-20 min or until the chips are crispy and cooked through – this is your chip-topped meat-free mince & thyme pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631893235541-x200.jpg)
 
 ### Step 7
 

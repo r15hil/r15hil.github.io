@@ -27,7 +27,6 @@ This comforting veggie dish will make you forget traditional meatballs ever exis
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1690281576295-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Trim the green stalk off the aubergine<span class="text-danger">[s]</span> and c
 
 Drain and rinse the green lentils
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690281536937-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Meanwhile, add the chopped aubergine and walnuts to a food processor and pulse f
 
 Roll the lemon<span class="text-danger">[s] </span>with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1690281543290-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once browned, transfer to a large mixing bowl and reserve the pan
 
 Tip: Transferring the mixture to a large bowl will help it cool down before shaping into balls!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690281547105-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Divide the mixture into 8 <span class="text-danger">[16]</span> and shape into b
 
 Add the lemony aubergine balls to a baking tray (drizzle the tray with olive oil to avoid sticking!) and put it in the oven to cook for 20-25 min or until golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690281552732-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once hot, add the remaining chopped onion and cook for 3-4 min or until starting
 
 Dissolve the vegetable stock mix in 100ml<span class="text-danger"> [150ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690281555929-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Once fragrant, add the chopped tomatoes and vegetable stock with a good grind of
 
 Grate the cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690281558936-x200.jpg)
 
 ### Step 7
 

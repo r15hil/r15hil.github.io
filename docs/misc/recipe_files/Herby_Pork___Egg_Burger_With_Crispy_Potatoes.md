@@ -28,7 +28,6 @@ This decadent sandwich is the breakfast, lunch and dinner of champions. You'll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1965.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your potatoes (skins on) into bite-sized cubes, then add the cubed potato
 
 Put the tray[s] in the oven and cook for 20-25 min or until the potatoes are brown and crispy – these are your crispy paprika potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1965.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Divide the mixture and shape into 1 patty per person, press them down with your 
 
 Tip: Chilling the patty[ies] helps it hold it's shape whilst cooking
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1965.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the salad to a bowl with your cider vinegar, 2 tbsp <span class="text-purpl
 
 Give everything a good mix up – this is your dressed salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1965.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the herby pork patty[ies] and cook for 3-4 min on each side or u
 
 Tip: Keep pressing the patty down with a spatula to keep it flat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1965.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, remove the tray[s] with the potatoes from the oven and push the potat
 
 Slice your brioche bun[s] in half and add them, cut side down, to the other side of the tray[s] and put back in the oven for 4-5 min to warm through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1965.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the herby pork patty[ies] is cooked, transfer to a plate and cover to kee
 
 Keep the pan (and any remaining oil from the burger!) for the next step
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1965.-step-7-x200.jpg)
 
 ### Step 7
 

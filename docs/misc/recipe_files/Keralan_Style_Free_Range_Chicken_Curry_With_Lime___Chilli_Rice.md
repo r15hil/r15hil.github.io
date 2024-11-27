@@ -30,7 +30,6 @@ This vibrant Kerala-inspired curry is filled with bright colours and bold flavou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1639400860881-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once hot, add your coriander seeds and fennel seeds and cook for 1-2 min or unti
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1639400868422-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once browned, add your ground turmeric and cook for a further 1 min
 
 Transfer the browned chicken to a plate, reserve the pan and juices
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1639400873079-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Peel (scrape the skin off with a teaspoon) and roughly chop your ginger
 
 Peel and roughy chop your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1639400878986-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chicken stock mix and chopped creamed coconut in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1639400885721-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1639400890594-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Whilst the spice paste is cooking, trim and chop the green beans in half
 
 Once fragrant, add the browned chicken, halved green beans and coconut stock and cook for 6-8 min or until thickened to a curry-like consistency and the chicken is cooked through (no pink meat!) – this is your Keralan-style free range chicken curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1639400899844-x200.jpg)
 
 ### Step 7
 

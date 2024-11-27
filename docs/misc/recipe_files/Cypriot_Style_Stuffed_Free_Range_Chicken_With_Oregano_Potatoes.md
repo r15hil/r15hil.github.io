@@ -22,7 +22,6 @@ This Cypriot-style free range chicken is the stuff of dreams. You’ll pack your
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714733946224-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Chop your potatoes (skins on) into bite-sized pieces, then add them to a baking 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your oregano potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714734020217-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Crumble your Greek cheese into small bite-sized pieces
 
 Chop your parsley finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714734033167-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Combine the chopped garlic, crumbled Greek cheese and chopped parsley with your 
 
 Season with a pinch of salt and pepper – this is your sun-dried tomato stuffing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714734036068-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Use a sharp knife to cut a deep pocket along the side of your free range chicken
 
 Open the chicken out like a book and fill the pocket[s] with the sun-dried tomato stuffing, then press firmly to seal the chicken – this is your stuffed chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714734043411-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the stuffed chicken with a pinch of salt and pepper and cook for 3 min on each side or until lightly browned
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714734049225-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Transfer the browned chicken to a baking paper-lined baking tray
 
 Put the tray in the oven for 12-14 min or until the chicken is cooked through (no pink meat!) and the juices run clear – this is your Cypriot-style stuffed free range chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714734055128-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ You’ll whip up a rich tomato sauce before stirring through torn pasta sheets, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673431350364-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely slice your red onion[s]
 
 Trim the green stalk[s] off your aubergine[s] and cut into quarters lengthways, then slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673431355075-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cook for 5-7 min stirring occasionally, until slightly tender but not soft
 
 Once done, drain the lasagne pieces, rinse under cold running water, gently separate the pieces, then leave to drain fully
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673431359348-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 6-7 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673431366104-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Stir in your tomato paste, chopped tomatoes, Henderson's Relish and a pinch of s
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673431374768-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once soft, add the chopped garlic, dried oregano, spinach and a splash of cold w
 
 Give everything a good mix up and cook, covered, for 2-3 min or until the spinach is beginning to wilt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673431382178-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Tip: Stir occasionally to stop the pasta from sticking together!
 
 Meanwhile, preheat the grill to high
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673431387449-x200.jpg)
 
 ### Step 7
 

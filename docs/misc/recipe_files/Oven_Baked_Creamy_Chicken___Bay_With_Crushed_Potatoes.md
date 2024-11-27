@@ -22,7 +22,6 @@ This French fancy is the créme de la créme. You’ll simmer chicken thighs in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687533121271-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687533124567-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil a full kettle
 
 Add the potatoes to a baking tray and prick them a few times with a sharp knife, add a drizzle of olive oil and put the tray in the oven for 45 min or until cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687533128215-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Peel and halve the shallot<span class="text-danger">[s]</span>
 
 Crush the garlic open by squashing them with the side of a knife and discard the skins
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687533131771-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once the dish is hot, add the chicken thighs with a generous pinch of salt and p
 
 Add the halved shallot<span class="text-danger">[s]</span> and peeled garlic with 1 tbsp <span class="text-danger">[2 tbsp] </span>flour and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687533136724-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Cover with a lid and put the dish in the oven for an initial 35 min or until the
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687533140529-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Scrunch the foil around the Tenderstem broccoli to form a tightly sealed parcel,
 
 Tip: Cooking for 4? Make 2 separate parcels!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687533144378-x200.jpg)
 
 ### Step 7
 

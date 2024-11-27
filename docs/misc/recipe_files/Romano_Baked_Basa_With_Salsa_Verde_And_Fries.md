@@ -25,7 +25,6 @@ This is simplicity at its best. You'll bake cherry tomatoes, Romano pepper, garl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1620223148750-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop r
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1620223154371-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Peel and chop your brown onion[s] into thick slices
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1620223164372-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Cover the dish with tin foil and put it in the oven for an initial 20 min
 
 Tip: Cooking for 4? You may need to use 2 dishes!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1620223507435-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1620223533428-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Meanwhile, chop your parsley finely, including the stalks
 
 Chop your capers finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1620223543542-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Combine the chopped parsley (save a little for garnish) and capers with your whi
 
 Season with a pinch of salt and mix thoroughly – this is your salsa verde
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1620223577427-x200.jpg)
 
 ### Step 7
 

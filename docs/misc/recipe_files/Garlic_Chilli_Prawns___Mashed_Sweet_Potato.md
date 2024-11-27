@@ -22,7 +22,6 @@ Serve a steamy bowl of flavour, with fiery chilli prawns, mashed sweet potatoes 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1405.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil a kettle
 
 Peel and chop the sweet potato<span class="text-danger">[es]</span> into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1405.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Cook for 10-15 min or until fork-tender
 
 Once done, drain the sweet potatoes,&nbsp;return them to the pot and cover them to keep warm
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1405.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and finely slice (don't chop!) the garlic<br /><br />Cut the cherry tomatoes in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1405.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the cherry tomatoes and cook for 3-4 min or until beginning to break down
 
 Re-boil a full kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1405.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Once the tomatoes have broken down, add the chipotle paste (Can't handle the hea
 
 Add the prawns and cook for a further 3-4 min or until cooked through &ndash; these are your garlic chilli prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1405.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add the shredded spring greens to a colander over the sink and pour over all of the boiled water&nbsp;until bright green and wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1405.-step-7-x200.jpg)
 
 ### Step 7
 

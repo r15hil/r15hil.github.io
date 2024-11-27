@@ -21,7 +21,6 @@ Tray bake: two words that light up any busy person’s heart, and especially so 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1460.-step-1.new-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and cut the red onion into wedges 
 
 Slice the courgette<span class="text-danger">[s]</span> into rounds
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1460.-step-2.new-x200.jpg)
 
 ### Step 2
 
@@ -48,19 +46,16 @@ Add the chopped sweet potato, pepper, courgette and red onion to a tray (or two
 
 Season with a pinch of salt and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1460.-step-3.new-x200.jpg)
 
 ### Step 3
 
 Put the tray in the oven for an initial 20 min or until the vegetables are starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1460.-step-4.new-x200.jpg)
 
 ### Step 4
 
 Cut the Cypriot halloumi into 6<span class="text-danger"> [12]</span> slices
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1460.-step-5.new-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Add 2-3 tbsp <span class="text-danger">[4-5 tbsp]</span> olive oil or enough t
 
 Tip: if you don't have a pestle &amp; mortar, chop the basil leaves very finely and mix with salt and olive oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1460-step-6.new-x200.jpg)
 
 ### Step 6
 
 After 20 min lay the halloumi slices over the roast vegetables and return to the oven for 10 min or until the vegetables are cooked and the halloumi is starting to brown
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1460.-step-7.new-x200.jpg)
 
 ### Step 7
 

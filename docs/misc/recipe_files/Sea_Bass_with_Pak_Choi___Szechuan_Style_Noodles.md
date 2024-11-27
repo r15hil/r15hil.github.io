@@ -23,7 +23,6 @@ Spice up your sea bass with some fiery flavour. You’ll cook pak choi with egg 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723203198041-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash, then chop the roots from your pak choi and separate the leaves, discarding
 
 Chop any larger leaves in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723203203237-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until the noodles are
 
 Once done, drain and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1723203206970-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Transfer the cooked sea bass to a plate and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723203210817-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the chopped garlic and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723203215199-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml] </span>boiled water with 1 tsp <span class="text-purple">[2 tsp] </span><span class="text-danger">[3 tsp]</span> flour in a measuring jug and mix until fully combined
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723203219120-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the Szechuan-style sauce to the pan and bring to the boil
 
 Once boiling, cook for 1-2 minutes or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723203223142-x200.jpg)
 
 ### Step 7
 
@@ -95,7 +88,6 @@ Cook for 1-2 min further or until the noodles and pak choi are warmed through
 
 Season with a generous grind of pepper – these are your Szechuan-style noodles
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25-06-24_14h13m28s-APIC-1720194860827-x200.jpg)
 
 ### Step 8
 

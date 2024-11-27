@@ -28,7 +28,6 @@ For a fragrant take on a classic, look no further. For this mouthwatering one-po
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637828598992-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pot with a lid, with a drizzle of olive oil over a medi
 
 Once hot, add the diced chicken thigh with the chopped potato and red Thai curry paste and cook for 6 min or until the chicken is lightly coloured
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637828604257-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Top, tail, peel and cut your carrot[s]<span class="text-danger"> </span>in half 
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637828609778-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once the chicken is lightly coloured, add your cornflour to the pot with the cho
 
 Stir everything together and cook for 1-2 min or until the shallot has slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637828614258-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chopped creamed coconut in 700ml <span class="text-purple"><span class="text-danger">[910ml]</span> [1.2 L]</span> boiled water with your lime leaf[ves] and fish sauce – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637828619559-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Once the shallot has slightly softened, add the coconut stock to the pot with a 
 
 Once boiling, lower the heat to medium-low and cook, covered, for 25 min or until the chicken is cooked through (no pink meat!) and the potatoes are tender – this is your Thai-style spiced chicken thigh, leek & potato soup
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637828624372-x200.jpg)
 
 ### Step 6
 
 Chop your coriander finely, including the stalks (save some leaves for garnish!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637828628848-x200.jpg)
 
 ### Step 7
 

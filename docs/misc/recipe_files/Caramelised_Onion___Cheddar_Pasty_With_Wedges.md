@@ -23,7 +23,6 @@ Here's our cheesy twist on a Cornish classic. You'll stuff buttery puff pastry w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618925059879-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of s
 
 Put the tray in the oven for 30 min or until golden and cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618925216594-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over a
 
 Once hot, add the sliced onion with a pinch of salt and cook for 8-10 min or until softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618925230138-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Combine the grated cheddar with the soft cheese and chopped parsley
 
 Season with a very generous grind of black pepper – this is your cheese mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618925256465-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Set both aside for serving
 
 Once the onion has caramelised, add 1 tbsp<span class="text-danger"> [2 tbsp]</span> flour and cook for 30 secs, then add 2 tbsp<span class="text-danger"> [4 tbsp] </span>milk and cook for a further 30 secs or until a thick paste has formed – this is your onion mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618925264413-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Cut the puff pastry into 2 <span class="text-danger">[4]</span> rectangles and a
 
 Divide the cheese & onion mixture between the pastry rectangles, covering only one half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618925283175-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Fold the pastry over the mixture and press it together with your fingers to seal
 
 Prick air holes into the centre of the pasties evenly with a fork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618925293300-x200.jpg)
 
 ### Step 7
 

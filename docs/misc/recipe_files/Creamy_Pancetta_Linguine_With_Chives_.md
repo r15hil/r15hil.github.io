@@ -22,7 +22,6 @@ This classic Italian linguine dish should be in everyone’s repertoire. Why? Be
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/507._step-1-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Grate the Italian hard&nbsp;cheese
 
 Chop the chives finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/507._step-1-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving 300ml <span class="text-danger">[600ml]</span> of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/507._step-1-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add the pancetta&nbsp;lardons and cook for 3 min or until they're star
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/507._step-1-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once hot, add the pancetta&nbsp;lardons and cook for 3 min or until they're star
 
 <span class="text-highlight">Cook for a further 1 min, stirring constantly, then remove from the heat&nbsp;</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/507._step-1-5-x200.jpg)
 
 ### Step 5
 
@@ -91,7 +86,6 @@ Once hot, add the pancetta&nbsp;lardons and cook for 3 min or until they're star
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/507._step-1-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Add the drained linguine to the pancetta pan with a few splashes of the starchy 
 
 Cook for a further 2 min or until most of the water has evaporated, stirring often
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/507._step-1-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Give dinner the green light with this veg-packed pasta. You’ll blend spinach, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670331519995-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop (or grate) the remaining garlic
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670331527948-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once golden, transfer the garlic to kitchen paper, set aside and reserve the pan
 
 Meanwhile, trim, then slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670331583996-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Drain the tortiglioni and return to the pot, reserving a cup of the starchy past
 
 While the pasta is cooking, chop the basil finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670331746518-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add half the blanched peas, half the grated Italian hard cheese (save the rest f
 
 Season with a generous pinch of salt and black pepper and blitz until smooth – this is your creamy green cashew sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670331750905-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once boiling, reduce the heat to medium-high and add the tortiglioni, sliced spr
 
 Give everything a good mix up and cook, covered, for 4-5 min, stirring occasionally, or until the pasta is fully coated and creamy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670331754585-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Divide the remaining grated Italian hard cheese into 2 <span class="text-danger"
 
 Set aside to cool and harden – these are your cheese crisps
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670331758068-x200.jpg)
 
 ### Step 7
 

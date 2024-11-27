@@ -23,7 +23,6 @@ This Yorkshire pudding wrap is the stuff of dreams. You’ll fill your golden Yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680168092152-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Whisk the liquid into the flour a little at a time until you end up with a smoot
 
 Tip: Adding the liquid gradually helps prevent a lumpy batter!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680168095628-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a small drizzle of vege
 
 Once hot, add the diced onion with 1 tsp <span class="text-danger">[2 tsp]</span> sugar and cook for 4-5 min or until softened and starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680168099080-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Top, tail, peel and chop the carrot<span class="text-danger">[s] </span>into bat
 
 Strip the sage leaves from their stems and chop them roughly, discard the stems
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680168102985-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide into 6 <span class="text-danger">[12]</span> and shape them into meatballs – these are your pork stuffing balls
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680168106694-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the pork stuffing balls to the other side of the baking tray
 
 Put the tray in the oven for 20-25 min or until the potatoes are golden and crisp and the pork stuffing balls are cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680168110587-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Put the tray<span class="text-danger">[s]</span> in the oven for 20-25 min or un
 
 Meanwhile, wash the spinach and pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680168114582-x200.jpg)
 
 ### Step 7
 

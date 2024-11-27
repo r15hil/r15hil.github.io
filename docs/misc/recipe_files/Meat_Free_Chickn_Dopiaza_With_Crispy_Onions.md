@@ -30,7 +30,6 @@ Legend has it, the dopiaza was born from a happy accident, when a chef added too
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612276430238-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612276443806-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the chopped onion, curry powder, ground cumin and ground coriander to a food
 
 Blitz until smooth or very finely chopped – this is your dopiaza base
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612276456495-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Chop your tomato[es] into wedges
 
 Chop any larger meat-free chick'n pieces in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612276463282-x200.jpg)
 
 ### Step 4
 
@@ -70,19 +66,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the dopiaza base and cook for 2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612276471222-x200.jpg)
 
 ### Step 5
 
 Add the chopped tomato and onion wedges to the pan with the meat-free chick'n and cook for 4-5 min or until the onion is beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612276476118-x200.jpg)
 
 ### Step 6
 
 Meanwhile, dissolve your vegetable stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml] </span>boiled water and stir in your tomato paste – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612276489393-x200.jpg)
 
 ### Step 7
 

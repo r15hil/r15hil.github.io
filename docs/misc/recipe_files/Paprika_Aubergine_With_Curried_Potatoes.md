@@ -27,7 +27,6 @@ For this colourful Indian-inspired dish, you'll top fragrant curried potatoes an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614006134039-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt, bring t
 
 Once cooked, drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1614006142629-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the scored aubergine quarters to a baking tray, cut-side up
 
 Drizzle with olive oil, sprinkle over the smoked paprika and season with a generous pinch of salt, then put the tray in the oven for 25-30 min or until softened – this is your paprika aubergine
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614006161156-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Squeeze any excess water out of the grated cucumber
 
 Combine the grated cucumber, chopped mint and half the cultured coconut (you'll use the rest later!) in a bowl with a small pinch of salt and pepper – this is your coconut raita
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1614006193206-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Chop most of the coriander finely, including the stalks (save a few leaves for g
 
 Add the diced tomatoes and chopped coriander to a bowl with a drizzle of olive oil and a pinch of salt and pepper and set aside – this is your tomato salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614006206821-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the drained potatoes and sliced onion with a generous pinch of salt and cook for 8-10 min or until the onion has softened and the potatoes are starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1614006222363-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Drain and rinse the chickpeas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1614006237252-x200.jpg)
 
 ### Step 7
 

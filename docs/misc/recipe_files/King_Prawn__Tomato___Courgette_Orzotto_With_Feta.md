@@ -26,7 +26,6 @@ Here’s an easy twist on an Italian classic. You’ll swap rice for orzo pasta,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1638273354326-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Dice your tomatoes roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1638273380132-x200.jpg)
 
 ### Step 2
 
@@ -44,25 +42,21 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the sliced garlic and diced tomato with a pinch of salt and pepper and cook for 7-8 min or until the tomato has completely softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1638273406347-x200.jpg)
 
 ### Step 3
 
 Meanwhile, top, tail and slice your courgette[s] into discs on the diagonal
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1638273440382-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 400ml <span class="text-purple">[520ml]</span> <span class="text-danger">[680ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1638273425204-x200.jpg)
 
 ### Step 5
 
 Once softened, add your tomato paste and orzo to the pan with a pinch of salt and give everything a good mix up until the grains are fully coated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1638273494769-x200.jpg)
 
 ### Step 6
 
@@ -70,7 +64,6 @@ Add the courgette discs with the vegetable stock and bring to the boil over a hi
 
 Once boiling, reduce the heat to medium-low and cook for 12-15 min, stirring continuously, or until the stock is almost fully absorbed and the orzo is cooked with a slight bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1638273522327-x200.jpg)
 
 ### Step 7
 

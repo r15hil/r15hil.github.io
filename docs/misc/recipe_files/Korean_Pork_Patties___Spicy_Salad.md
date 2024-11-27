@@ -27,13 +27,11 @@ These Korean pork patties are inspired by tteok-galbi, small oblong beauties fla
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1167.-step-1-x200.jpg)
 
 ### Step 1
 
 Peel and grate the&nbsp;brown onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1167.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Pop them in the fridge until later
 
 Tip: chilling the patties will help them hold their shape when you cook them
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1167.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1167.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the chilled patties and cook for 4-5 min on each side or until browned on both sides
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1167.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, combine the mayonnaise, chipotle paste (Can't handle the heat? Go eas
 
 Combine the soy sauce and honey in a separate bowl
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1167.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Peel the carrot<span class="text-danger">[s]</span>, then continue to peel lengt
 
 Trim, then slice the spring onions finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1167.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Korean corn cheese is a creamy casserole full of ooey-gooey cheesy goodness. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660662489931-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Grate your cheddar cheese
 
 Drain your sweetcorn
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660662501946-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Once boiling, cook for 8-10 min, then drain and return to the pot with half your
 
 Season with a pinch of salt and pepper and set aside to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660662513879-x200.jpg)
 
 ### Step 3
 
 Add the diced pepper and grated cheese to a bowl with the chilli flakes (not a fan of spice? Just add a little!), the drained sweetcorn and half your mayo (you'll use the rest later) – this is your cheesy corn mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660662524776-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Add the cheesy corn mixture to an oven-proof dish
 
 Put the dish in the oven and cook for 20 min or until the cheese has melted – this is your Korean-style cheesy corn
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660662542733-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Tip: You only want the potatoes lightly crushed, not mashed!
 
 Put the tray[s] in the oven and cook for 10-15 min or until crispy – these are your gochujang potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660662577418-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Trim, then slice your spring onion[s] finely
 
 Wash your baby leaf salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660662584410-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ It’s all in the wrist with this wok-sizzled favourite. You’ll smother tender
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681808880511-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your duck leg[s] with the white fat and duck jelly to a tin foil-lined bakin
 
 Season with a pinch of salt and pepper then put in the oven for 28 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681808883632-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Slice a few chilli rounds (set them aside for garnish) then cut your remaining r
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681808886392-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles, and reserve the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681808889084-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Wash your spring greens, then rip the leaves off, discard the tough stalks, and 
 
 Trim, then slice your spring onions finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681808892323-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once hot, add the sliced spring greens, chopped garlic, chopped ginger and a ge
 
 Add a splash of water and cook, covered, for 3-4 min or until completely wilted, then stir in the cooked noodles, half your soy sauce (you'll use the rest later!) and toasted sesame oil – these are your sesame noodles
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681808900694-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the duck legs are golden and crispy, remove the tray from the oven and tran
 
 Shred the duck meat apart with two forks, discard the bones – this technique is known as 'pulling' – this is your pulled duck
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681808904136-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Smoky cauli steak – it’s time for a knockout chimichurri marinade. Add more 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626786579418-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut 2 <span class="text-danger">[4] </span>thick steaks from the centre of the c
 
 Add the cauliflower steaks to a baking tray, then drizzle the tamari soy sauce all over and put the tray in the oven for 30-35 min or until golden and tender, turning once halfway
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626786596779-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Chop the waxy potatoes in half and add them to one side of a separate baking tra
 
 Give everything a good mix up and put the tray in the oven for an initial 15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626786605148-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Trim, then chop the spring onions in half
 
 Cut the red pepper<span class="text-danger">[s]</span> in half (scrape the seeds and pith out with a teaspoon), then chop each half into 3 pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626786628926-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the potatoes have had 15 min, remove the tray from the oven and add the cho
 
 Return the tray to the oven for 15 min further or until the peppers are softened and charred and the potatoes are crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626786650572-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Grind to a course paste, then add 2 tbsp<span class="text-danger"> [4 tbsp]</spa
 
 Season with a pinch of salt and give everything a good stir – this is your chimichurri
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626786664635-x200.jpg)
 
 ### Step 6
 
 Combine the chopped garlic (not a fan of raw garlic? Just add a little!) with the mayo – this is your garlic mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626786674087-x200.jpg)
 
 ### Step 7
 

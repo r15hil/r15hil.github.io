@@ -25,7 +25,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2250-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Top and tail the aubergine<span class="text-danger">[s]</span>, then slice into 
 
 Add both to a baking tray with a generous drizzle of vegetable oil and a pinch of salt and put into the oven for 18-20 min or until tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2250-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the drained rice with 200ml<span class="text-danger"> [400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2250-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get perfectly fluffy rice!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2250-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -82,7 +78,6 @@ Peel and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2250-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,7 +89,6 @@ Once the pan is hot, add the sliced onion and grated apple with a pinch of salt
 
 Meanwhile, add the cornflour and 1 tbsp<span class="text-danger"> [2 tbsp] </span>cold water to a small bowl and stir it all together
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2250-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -106,7 +100,6 @@ Add the tamari and 250ml<span class="text-danger"> [450ml]</span> boiled water
 
 Cook for a further 3-4 min, whisking continuously, until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2250-Step-7-x200.jpg)
 
 ### Step 7
 

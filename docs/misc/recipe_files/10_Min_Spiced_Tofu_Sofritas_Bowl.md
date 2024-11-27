@@ -25,7 +25,6 @@ This satisfyingly spicy sofritas bowl combines scrambled tofu with rice, kidney 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583339617232-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583339621465-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add the ground cumin, smoked paprika, ground coriander and cayenne pepper (can't handle the heat? Go easy!) and cook for 30 secs or until the spices are fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1583339625717-x200.jpg)
 
 ### Step 3
 
@@ -57,19 +54,16 @@ Once fragrant, add the tomato paste and stir everything together
 
 Drain the tofu, then crumble it into the pan in rough bite-sized pieces and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1583339629652-x200.jpg)
 
 ### Step 4
 
 Add the soy sauce and 100ml <span class="text-danger">[180ml]</span> boiled water to the pan, mix everything together and cook for 2-3 min or until the tofu begins to soak up the sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1583339633605-x200.jpg)
 
 ### Step 5
 
 Meanwhile, drain and rinse the kidney beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1583339637008-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Squeeze the pouch<span class="text-danger">[es]</span> of steamed brown basmati 
 
 Add the steamed basmati rice and kidney beans to the pan with a splash of water, stir everything together and cook for 3-4 min or until the rice is warmed through – this is your spiced tofu sofritas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1583339640639-x200.jpg)
 
 ### Step 7
 

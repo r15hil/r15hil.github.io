@@ -28,7 +28,6 @@ Pump up the flavour of your chicken with chermoula, a smoky, parsley-packed past
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654005229895-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel your garlic
 
 Cut the chicken breast strips into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654005239340-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Blitz until smooth – this is your chermoula
 
 Tip: If you don’t have a food processor, use a pestle & mortar!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654005247276-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Roughly chop your sultanas
 
 Add the chopped sultanas to a bowl, cover them with boiled water and set them aside to soak
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Couscous-1654076822605-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add your giant couscous to a pot of boiled water with a pinch of salt and bring 
 
 Cook the giant couscous for 8 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654005266079-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the onion petals with a pinch of salt and cook for 5-8 min or until starting to caramelise
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654005274628-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Add the onion petals (save the pan), grated carrot, drained sultanas, chipotle 
 
 Give everything a good mix up – this is your spiced giant couscous
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654005286523-x200.jpg)
 
 ### Step 7
 

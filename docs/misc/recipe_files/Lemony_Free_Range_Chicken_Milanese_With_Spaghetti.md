@@ -25,7 +25,6 @@ For this healthier Milanese you'll coat flattened free range chicken breast with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691484725808-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6 and boil a kettle
 
 Cover your free range chicken breast portion[s] in cling film and bash with a rolling pin until evenly flattened and approx. 1cm in thickness
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691484730808-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box gr
 
 Add the lemon zest to the breadcrumbs and give everything a good mix up – these are your lemony breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691484737656-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Dip the flattened chicken in the lemon & olive oil, then press into the lemony
 
 Add the coated chicken to an oiled baking tray (or two!) and put in the oven for 20 min or until cooked through (no pink meat!) – this is your lemony free range chicken Milanese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691484743008-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Peel and finely chop (or grate) your garlic
 
 Finely chop your basil leaves
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691484749542-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add your chopped tomatoes with 50ml<span class="text-danger"> <span class="text
 
 Reduce the heat to medium-low and cook for 15 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691484757485-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once done, drain the spaghetti, reserving the pot
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691484775503-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ These Chinese-style wraps are perfect when you’re craving a takeaway. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1677937737035-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add your duck leg[s] (including the white duck fat and duck jelly!) to a baking 
 
 Put the dish in the oven for 28-30 min or until the duck is golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1677937743970-x200.jpg)
 
 ### Step 2
 
@@ -42,19 +40,16 @@ Whilst the duck is cooking, slice your cucumber into discs
 
 Slice each individual cucumber disc into matchsticks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1677937752435-x200.jpg)
 
 ### Step 3
 
 Trim, then slice your spring onion[s] lengthways into thirds, then slice each third into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1677937758184-x200.jpg)
 
 ### Step 4
 
 Wash your lettuce, then pat dry with kitchen paper and shred finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1677937764033-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Shred the duck apart using two forks – this technique is known as 'pulling'
 
 Discard all the bones
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677937772218-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Return the shredded duck to the dish with your hoisin sauce and soy sauce
 
 Give everything a good mix up – this is your shredded hoisin duck
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1677937781408-x200.jpg)
 
 ### Step 7
 

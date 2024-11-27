@@ -26,7 +26,6 @@ Our secret blend of herbs spices are now in your hands! Juicy chicken breasts ar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1628782750178-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1628782837701-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add a generous pinch of salt and a few grinds of black pepper and give it a good
 
 Crack the egg<span class="text-danger">[s]</span> into a separate bowl and beat with a fork
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1628782976800-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Coat the chicken strips in the flour & spice mix, tap off the excess, then add t
 
 Once all the chicken pieces are coated in the egg, return them to the remaining flour & spice mix to coat in a second layer – this is your coated chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1628783048144-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated chicken and cook for 8-9 min on each side or until the chicken is crispy and cooked through (no pink meat!) – this is your Southern fried chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1628783436622-x200.jpg)
 
 ### Step 5
 
 While the chicken is cooking, dissolve the chicken stock mix and Marmite in 250ml <span class="text-danger">[450ml] </span>boiled water – this is your Marmite stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1628783522529-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once melted, add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and co
 
 Add the Marmite stock and cook for 4-5 min, stirring occasionally, until thickened to a gravy-like consistency – this is your gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2484Step-7-x200.jpg)
 
 ### Step 7
 

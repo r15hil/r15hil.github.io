@@ -23,7 +23,6 @@ If you love tuna on your pizza, this one's for you. You'll sprinkle your topping
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1934.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Put a<span class="text-danger"> </span>large baking tray[s] in the oven to heat 
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1934.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp] </span>cold water and stir it all together – this is your tomato sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1934.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,13 +48,11 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Drain your tuna
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1934.-step-4-x200.jpg)
 
 ### Step 4
 
 Slice your black olives in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1934.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,13 +62,11 @@ Divide the tomato sauce between the pizza bases and spread it evenly all ove
 
 Top the pizzas with the torn mozzarella, drained tuna, halved olives and dried oregano
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1934.-step-7-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 15 min or until the cheese has melted and the pizza bases are crispy – these are your tuna & olive pizzas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1934.-step-6-x200.jpg)
 
 ### Step 7
 

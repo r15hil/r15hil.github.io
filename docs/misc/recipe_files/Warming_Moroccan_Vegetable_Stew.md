@@ -26,7 +26,6 @@ For this delicious stew, chickpeas provide a low-carb source of slow-release ene
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1853.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and 
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thick strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1853.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Drizzle with olive oil and season with a pinch of salt and give it a good mix up
 
 Put the tray in the oven for 25-30 min or until everything is cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1853.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Chop the cherry tomatoes in half
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1853.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Once hot, add the chopped red onion and cook for 5-6 min or until softened
 
 Once the onion has softened, add the ground coriander and ground cumin to the pan with the tomato paste and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1853.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve 1/2 <span class="text-danger">[1]</span> vegetable stock cube in 300ml <span class="text-danger">[500ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1853.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Drain and rinse the chickpeas
 
 Once the sauce has thickened add the drained chickpeas and cook for a further 2-3 min until combined
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1853.-step-7-x200.jpg)
 
 ### Step 7
 

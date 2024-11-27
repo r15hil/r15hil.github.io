@@ -27,7 +27,6 @@ This dish is packed full of flavour, and so easy to make. You'll cook potato, to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1702987904275-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potatoes (skins on) into small bite-sized cubes
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium-high heat, then once hot, add the cubed potatoes with a pinch of salt and cook for 4-5 min or until lightly browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702987907778-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Chop your tomato[es] roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1702987911795-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once the potatoes are lightly browned, add the chopped garlic and ginger to the 
 
 Give everything a good mix and cook for 3-4 min or until the garlic has softened and the tomato has begun to break down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1702987915624-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Trim, then chop your green beans into bite-sized pieces
 
 Once the tomato has begun to break down, add the coconut stock to the pan and cook, covered, for an initial 8-10 min or until the potatoes are tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1702987920291-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Slice through the thickest part of the chicken breast being careful not to cut a
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1702987924151-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Drizzle over a little olive oil and put the nigella chicken in the oven for an i
 
 Wash your spinach and pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702987927569-x200.jpg)
 
 ### Step 7
 

@@ -20,7 +20,6 @@ Pronounced ‘cah-choh e pe-pe’, we’ve given this speedy ‘cheese and peppe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1642681933397-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643217207901-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, crumble in the chestnut mushrooms using your hands and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643217217641-x200.jpg)
 
 ### Step 3
 
@@ -54,25 +51,21 @@ Cook the ravioli for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked spinach & ricotta ravioli, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643217222746-x200.jpg)
 
 ### Step 4
 
 Once the mushrooms are beginning to soften, add the cracked black pepper and a pinch of salt to the pan and cook for 1-2 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643217233128-x200.jpg)
 
 ### Step 5
 
 Add the vegetable stock mix and clotted cream to the mushrooms and cook for 1 min or until the cream has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643217248572-x200.jpg)
 
 ### Step 6
 
 Add 50ml <span class="text-danger">[100ml]</span> of the reserved starchy pasta water to the sauce and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643217254403-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Transport yourself to sunny Italy with this protein-packed twist on the classic 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683200999359-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Tear your ciabatta[s] into bite-sized pieces and add to a baking tray with a dri
 
 Put the tray in the oven for 6-7 min or until golden and crisp, then leave to cool – these are your crispy ciabatta croutons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683201004509-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Peel and slice your shallot[s]<span class="text-danger"> </span>finely
 
 Dice your cucumber finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683201009605-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add your balsamic vinegar, half your pesto (you'll use the rest later!), 1.5 tbs
 
 Give everything a good mix up and set aside – this is your tomato salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683201013304-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683201017626-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Wash your lettuce, then pat it dry with kitchen paper and tear into rough, bite-
 
 Drain and rinse your cannellini beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683201021022-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add the remaining pesto to a small bowl with a drizzle of olive oil and 1/2 tbsp
 
 Stir it all together – this is your pesto dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683201024934-x200.jpg)
 
 ### Step 7
 

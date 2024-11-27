@@ -27,7 +27,6 @@ For a nutrient-packed green dressing, you'll whizz spinach with coriander, chill
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634024202149-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered, until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634024210979-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the smoked paprika, cayenne pepper (can't handle the heat? Go easy!), gr
 
 Add the basa fillets to the paste and turn until well coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634024251718-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until cooke
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-Shallot-1634719668109-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Slice the red chilli<span class="text-danger">[es]</span> into rounds
 
 Peel and finely chop (or grate) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634024306404-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the spinach, chopped garlic and half of the chilli rounds (not a fan of spic
 
 Add the juice of the lime<span class="text-danger">[s]</span> with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, 1 tbsp <span class="text-danger">[2 tbsp]</span> water and a generous pinch of salt then blitz until smooth – this is your zingy spinach dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634024314177-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Remove the stone<span class="text-danger">[s]</span> using a teaspoon
 
 Scoop the avocado out of the skin<span class="text-danger">[s] </span>using a spoon and slice it finely, lengthways
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634024353873-x200.jpg)
 
 ### Step 7
 

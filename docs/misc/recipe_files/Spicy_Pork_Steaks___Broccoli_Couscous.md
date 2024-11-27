@@ -20,7 +20,6 @@ Harissa is sometimes described as the main condiment of Tunisia. Here, this Nort
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/550.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Pat the pork steaks dry with kitchen towel and season both sides generously with
 
 Coat the steaks evenly on both sides with the harissa paste&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/550.step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the couscous and thyme leaves to a heatproof bowl with 225ml <span class="te
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/550.step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with 2 
 
 Once hot, add the steaks, cover with a lid and cook for 4 min (without turning) until nicely charred
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/550.step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Chop the dried cranberries roughly
 
 Grate the apple<span style="color: #e86754;">[s]</span>, (skin on) discarding the core<span style="color: #e86754;">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/550.step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the broccoli to the pan&nbsp;
 
 Cover and cook for a further 5 min or until the pork is cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/550.step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the&nbsp;couscous, cranberries and apple with 50ml <span class="text-danger"
 
 Stir to combine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/550.-step-7-x200.jpg)
 
 ### Step 7
 

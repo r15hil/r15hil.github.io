@@ -23,7 +23,6 @@ These low-prep, bean-packed cheesy melts take the hassle out of quesadillas! You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1667.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the&nbsp;wedges&nbsp;to a baking tray with a drizzle of&nbsp;vegetable oil&n
 
 Put the tray in the oven for 25-30 min or until the&nbsp;wedges&nbsp;are golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1667.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Meanwhile, grate the cheddar cheese
 
 Drain and rinse the kidney beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1667.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Tip: <span class="text-highlight">you</span> can use a bowl with a flat bottom i
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1667.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the grated cheese to the pot and give everything a good old mix up &ndash; this is your bean mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1667.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Divide the bean mix&nbsp;between the tortilla wraps and spread it out&nbsp;
 
 Fold each&nbsp;tortilla&nbsp;wrap&nbsp;over so you're left with 6 crescent-shaped sandwiches&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1667.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Put the stacked baking trays in the oven and cook for 15-20 min further or until
 
 Tip: <span class="text-highlight">once</span> the tortillas have 5 min left, remove the sweet potato tray from the tortilla tray and return both trays to the oven separately, allowing the tortillas to crisp slightly&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1667.-step-7-x200.jpg)
 
 ### Step 7
 

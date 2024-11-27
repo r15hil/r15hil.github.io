@@ -24,7 +24,6 @@ Hearty, warming and 100% meat-free! These veggie sausages work so well in this s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661246345462-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped meat-free sausages to a lightly oiled tray and put the tray in t
 
 Tip: Make sure the pieces have space between them!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2468Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Peel and finely slice (don't chop!) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2468Step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cook for 4-5 min or until softened
 
 Tip: Add a splash more oil if your pan is looking a little dry!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2468Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,13 +66,11 @@ Add the tomato paste – this is your tomato stock
 
 Drain and rinse the butter beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2468Step-5-x200.jpg)
 
 ### Step 5
 
 Once the onion and pepper have softened, add the sliced garlic, smoked paprika and ground cumin and cook for 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2468Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the cooked meat-free sausages to the pan and give it a good mix up
 
 Season with a pinch of salt and pepper – this is your smoky sausage & bean stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2468Step-7v2-x200.jpg)
 
 ### Step 7
 

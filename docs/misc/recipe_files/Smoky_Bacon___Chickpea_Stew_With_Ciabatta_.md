@@ -27,7 +27,6 @@ This smoky stew is a hearty delight. You’ll sizzle streaky bacon with red onio
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678972661597-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a pot with a matching lid with a drizzle of vegetable oil over a high heat
 
 Once hot, add the chopped bacon and cook for 4-5 min or until starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678972665116-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your potato[es] (skin on) into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678972668484-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once the bacon is crisp, reduce the heat to medium-high, then add the sliced oni
 
 Cook for a further 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678972672365-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Meanwhile, dissolve your chicken stock mix and tomato paste in 300ml <span class
 
 Drain and rinse your chickpeas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678972675697-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add the chopped garlic, ground smoked paprika and dried thyme and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678972678808-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add the tomato stock, drained chickpeas and chopped potato to the pot with a pin
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-18 min or until the potato is tender and the sauce has thickened – this is your smoky bacon & chickpea stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678972682337-x200.jpg)
 
 ### Step 7
 

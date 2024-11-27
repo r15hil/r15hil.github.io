@@ -28,7 +28,6 @@ This mid-week warmer is the belle of the meatball. You’ll sauté mushrooms in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1668502812286-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chopped potatoes to an oven-proof dish with a drizzle of vegetable oil a
 
 Give everything a good mix up and put the tray in the oven for an initial 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668502816906-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped mushrooms and diced onion and cook for 3-4 min or until slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668502821632-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely chop (or grate) your garlic
 
 Once the mushroom and onion has softened, add them to a bowl (reserve the pan) with half your smoked paprika (save the rest for later!), your meat-free burger patties and your panko breadcrumbs and give everything a good mix up until fully combined – this is your meat-free stroganoff mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668502825178-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Divide the meat-free stroganoff mixture<span class="text-danger"> </span>and sh
 
 Add the meat-free stroganoff meatballs to a baking paper-lined baking tray (or two!) and put it in the oven for 12-15 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1668502829669-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Return the reserved pan to a medium-high heat with the sliced onion and sliced m
 
 Whilst softening, chop your parsley finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668502833774-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once fragrant, add your vegetable stock mix, soy sauce and creamy single soy and
 
 Once thickened, stir through the chopped parsley – this is your stroganoff sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1668502837807-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ You'll coat chicken breasts in cornflour and fry until golden, then for extra fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1605094351360-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once done, transfer the rice to a plate and spread it out flat to help it cool down
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1605094357490-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your cornflour to a bowl along with 1 tsp <span class="text-purple">[1 1/2 
 
 Add the chicken strips to the bowl and give everything a good mix up until all the chicken is coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1605094392532-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of
 
 Once the pan is hot, add the coated chicken strips and cook for 5-6 min on each side until golden and crispy and the chicken is cooked through (no pink meat!) – this is your crispy chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1605094401282-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Finely slice your red chilli[es] into rounds
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1605094412988-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once the chicken is crispy, add the spring onion batons, most of the chilli roun
 
 Once done, transfer everything to a plate (save the pan!) and set aside until serving – this is your salt & pepper chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1605094430794-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the cooled rice, your blanched peas, toasted sesame oil and soy sauce then stir everything together until combined and cook for 2-3 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1605094437573-x200.jpg)
 
 ### Step 7
 

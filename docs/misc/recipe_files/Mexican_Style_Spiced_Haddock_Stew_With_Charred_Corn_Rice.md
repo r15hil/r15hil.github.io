@@ -30,7 +30,6 @@ Get a taste of home-style cooking with a Mexican twist. You’ll coat haddock bi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676308041752-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676308092653-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once hot, add the drained sweetcorn with a pinch of salt and cook for 5-6 min or
 
 Once done, transfer to a bowl and set aside for later (reserve the pan!) – this is your charred corn
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676308101892-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Chop your coriander finely, including the stalks
 
 Dissolve your tomato paste, chipotle paste (can't handle the heat? Go easy!) and vegetable stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[400ml] </span>boiled water – this is your chipotle stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676308113679-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Return the reserved pan to a medium-high heat with a generous drizzle of vegetab
 
 Once hot, add the sliced onion with a pinch of salt and cook for 5-6 min or until lightly golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676308134129-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook for 5-7 min or until thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676308143210-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Add your haddock bites to the bowl and give everything a good mix up until fully
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676308153008-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Give this pizza some Boo-sto! Mozzarella cobwebs and olive creepy crawlies bring
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2350-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chorizo and cook for 4-5 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2350-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chopped garlic to a bowl with the squid ink, tomato paste with 5 tbsp <
 
 Add the cooked chorizo and stir it all together – this is your spooky pizza sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2350-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Tip: To make a spider, cut your black olives in half lengthways, using one hal
 
 These are your olive spiders
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2350-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Drain and pat the mozzarella really dry with kitchen paper (squeeze as much li
 
 Tear the drained mozzarella into long shreds – these are your mozzarella cobwebs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2350-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Remove the heated tray<span class="text-danger">[s</span><span class="text-dange
 
 Divide the spooky pizza sauce between the pizza bases and spread it evenly all over them with the back of a spoon
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2350-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Top with the mozzarella cobwebs
 
 Add the olive spiders (or any other spooky creation!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2350-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This Middle-Eastern style tabbouleh is perfect on warm evenings. You'll keep the
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/512_step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once hot, add your beef mince and cook for 3 min or until it's starting to brown
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/512_step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Discard any excess oil from the pan, then stir in the chopped garlic, ras el h
 
 Reduce the heat to medium-low and cook for 8-10 min or until the beef mince is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/512_step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702893306123-x200.jpg)
 
 ### Step 4
 
@@ -63,19 +59,16 @@ Meanwhile, dice your tomato[es] finely
 
 Chop your parsley finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/512_step-5-x200.jpg)
 
 ### Step 5
 
 Add your honey to the beef and continue to cook for 1 min further before removing the pan from the heat to cool slightly – this is your honey beef mince
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/512_step-6-x200.jpg)
 
 ### Step 6
 
 Add your drained bulgur wheat to a mixing bowl with the diced tomato, the juice of half your lemon[s] and a drizzle of olive oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/512_step-7-x200.jpg)
 
 ### Step 7
 

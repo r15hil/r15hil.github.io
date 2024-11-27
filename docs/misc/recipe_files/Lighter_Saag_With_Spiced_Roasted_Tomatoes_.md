@@ -27,7 +27,6 @@ This lower calorie and fat twist on a take away favourite - saag paneer - uses G
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1627376740339-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large wide-based pan (preferably non-stick) with 1/2 tbsp <span class="te
 
 Once hot, add the sliced onions with a pinch of salt and cook for 10-12 min or until really softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1627376750296-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add 1 tsp <span class="text-danger">[2 tsp] </span>olive oil and a pinch of salt
 
 Put the tray in the oven for 12-15 min or until the tomatoes are softened and starting to burst – these are your spiced roasted tomatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1627376755428-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Dissolve the vegetable stock mix in 200ml<span class="text-danger"> [350ml] </sp
 
 Drain and rinse the green lentils
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627376761635-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze the water out of the spinach as much as you can then chop it roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1627376766029-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the garam masala, tomato paste, chopped spinach, drained green lentils and v
 
 Cook for 3-5 min or until the sauce has thickened and come together
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1627376781087-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Whilst the sauce is thickening, add the pittas to a baking tray and put the tray
 
 Strip the mint leaves from their stems and chop them finely, discard the stems
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1-1627376770899-x200.jpg)
 
 ### Step 7
 

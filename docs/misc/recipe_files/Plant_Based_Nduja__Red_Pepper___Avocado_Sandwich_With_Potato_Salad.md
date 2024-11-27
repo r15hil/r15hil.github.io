@@ -26,7 +26,6 @@ Plant-packed and extra stacked, this smoky sarnie is the perfect dinnertime trea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-7-1685710185381-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 10-12 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1685710188781-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-6-1685710192680-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the halved pepper (hollow side of the pepper facing up) to a tin foil-lined 
 
 Put the tray under the grill for an initial 7-8 min or until the pepper is beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-7-1685710196391-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ While the pepper is softening, add the diced shallot and chopped garlic (not a b
 
 Add your mayo to the bowl and stir it all together – this is your quick-pickled shallot mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1685710200004-x200.jpg)
 
 ### Step 5
 
 Add the cooked potatoes to the quick-pickled shallot mayo – this is your quick-pickled potato salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-6-1685710203907-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Top the pepper halves with the plant-based 'Nduja (can't handle the heat? Go eas
 
 Return the tray to the grill for a final 2-3 min or until the pepper is cooked through and the cheeze has melted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-7-1685710206879-x200.jpg)
 
 ### Step 7
 

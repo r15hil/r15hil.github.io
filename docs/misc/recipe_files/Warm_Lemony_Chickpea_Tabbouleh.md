@@ -26,7 +26,6 @@ This Middle-Eastern style tabbouleh is perfect on warm evenings. You'll keep the
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624295215394-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the sliced shallot and cook for 8-10 min or until softened and browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624295218888-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624295223259-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Drain and rinse your chickpeas
 
 Once softened, add the drained chickpeas, chopped garlic, ras el hanout and vegetable stock mix to the pan with the sliced shallot and cook for 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624295226576-x200.jpg)
 
 ### Step 4
 
 Add your honey and continue to cook for 1 min further before removing the pan from the heat to cool slightly – these are your honey chickpeas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5--1624295230989-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Cut your lemon[s] in half
 
 Chop your parsley finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624295233883-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add your drained bulgur wheat to a mixing bowl with the diced tomato,  juice of
 
 Cut the remaining lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1645531211695-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ To give this classic a Southeast Asian twist, you'll marinate basa in soy, ginge
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1656426920831-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your gin
 
 Cut your basa fillet[s] into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656426945051-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the chopped ginger, chopped garlic and soy sauce to a medium bowl –
 
 Add your basa strips and give everything a good mix up, then set aside until later – this is your marinated basa
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1656426949318-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Put the tray[s] in the oven for 20-30 min or until they're cooked through and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1656426953612-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Grate your radishes
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1656426957894-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add your rice vinegar and mix to combine – this is your zingy slaw
 
 Combine your mayo with your hoisin sauce in a small bowl – this is your hoisin mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1656426961759-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Drain and discard any excess marinade from the marinated basa
 
 Add your cornflour to the bowl and stir it all together so the basa strips are fully coated in cornflour – this is your coated basa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1656426965741-x200.jpg)
 
 ### Step 7
 

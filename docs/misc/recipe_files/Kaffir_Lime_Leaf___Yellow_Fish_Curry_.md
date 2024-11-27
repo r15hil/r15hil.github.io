@@ -23,7 +23,6 @@ Here lies a simple, warming curry to soothe the soul. You'll add classic Thai fi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/379.-379__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the basmati&nbsp;rice&nbsp;and&nbsp;300ml <span class="text-danger">[600ml]<
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/379.-379__-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely chop (or grate) the garlic
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/379.-379__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the curry powder and stir for 30 sec, until the oil and spice form
 
 Reduce the heat to medium-low, add the onion and cook for 5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/379.-379__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once the onion has softened, add the&nbsp;chopped garlic and ginger then cook fo
 
 Tip: watch the garlic closely to prevent burning!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/379.-379__-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add 300ml <span class="text-danger">[400ml]</span>&nbsp;boiled water, the&nbsp;g
 
 Increase the heat to medium, cover and cook for 7-10 min or until the green beans are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/379.-379__-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Put the tray in the oven for 10 min or until the fish is cooked
 
 Tip:&nbsp;your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/379.-379__-step-7-x200.jpg)
 
 ### Step 7
 

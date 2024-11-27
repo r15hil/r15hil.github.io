@@ -27,7 +27,6 @@ This big, bold salad is all about crunch. For this balanced, tasty meal, you'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715592068642-x200.jpeg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice your red onion[s], then peel and finely chop (or grate) yo
 
 Wash your lettuce, then pat dry with kitchen paper and cut into thin wedges, lengthways
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-33-1715592073314-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced pepper and onion with a pinch of salt and cook for 4-5 min or until softened slightly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-39-1715592078882-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Coat the tofu in your curry powder
 
 Once softened, transfer the pepper and onion to a plate and return the pan to a medium-high heat (no need to clean!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-34-1715592082332-x200.jpg)
 
 ### Step 4
 
 Add the curried tofu strips to the pan and cook for 5-7 min, turning occasionally until golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-35-1715592086092-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles and return to the large bowl
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715592090661-x200.jpeg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Whisk everything together until you have a smooth paste
 
 Stir your soy sauce, red chilli relish and chopped garlic (not a fan of raw garlic? Try using less!) into the paste – this is your satay dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715592094745-x200.jpeg)
 
 ### Step 7
 

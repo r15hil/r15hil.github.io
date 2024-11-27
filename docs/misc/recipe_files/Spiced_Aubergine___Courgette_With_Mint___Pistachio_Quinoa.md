@@ -25,7 +25,6 @@ It’s all about the veg in this colourful dish. You’ll toss quinoa with tomat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2229Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the sliced aubergine and courgette to a baking tray (or two!) with your ras 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until everything is cooked through and tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2229Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Tip: Watch them like a hawk so they don't burn!
 
 Once toasted, transfer to a plate and set aside for later and reserve the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2229Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once boiling, reduce the heat to medium and cook for 6-8 min or until all the qu
 
 Once cooked, drain, return it to the pot until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2229Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Whilst the quinoa is cooking, peel and finely grate (or finely chop) your garlic
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2229Step-5-x200.jpg)
 
 ### Step 5
 
 Combine the grated garlic (not a fan of raw garlic? Just add a little!) with the juice of the lemon[s] (not sure about citrus? Try using less!), 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt and pepper in a bowl – this is your lemon dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2229Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Chop your cherry tomatoes into quarters
 
 Crumble your Greek cheese into rough bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2229Step-7-x200.jpg)
 
 ### Step 7
 

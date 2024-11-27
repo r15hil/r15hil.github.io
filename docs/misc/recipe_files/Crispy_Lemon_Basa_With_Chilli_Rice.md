@@ -29,7 +29,6 @@ Sticky, sweet and the perfect level of crispy, this is a retro classic that neve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1639394705293-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your white long grain rice to a pot with a lid with 225ml<span class="text-p
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked then remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1639394708650-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Lay the halved Tenderstem in the middle with 1 tbsp <span class="text-purple">[
 
 Scrunch the edges of the foil around the Tenderstem to form a sealed parcel[s] and put the tray[s] in the oven for 15 min or until tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1639394718955-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add your honey, 1/2 tsp of cornflour per person (save the rest for later!), half
 
 Give everything a good mix up – this is your lemon sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1639394722656-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the remaining cornflour to a bowl along with 1 tsp<span class="text-purple"
 
 Add the basa strips to the bowl and give everything a good mix up until all the basa is coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1639394725121-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Once crispy, transfer to a plate and set aside (save the pan for later!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1639394729078-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Stir the sliced spring onion and chopped chilli (can't handle the heat? Go easy!) into the cooked rice – this is your chilli rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1639394732434-x200.jpg)
 
 ### Step 7
 

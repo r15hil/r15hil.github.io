@@ -23,7 +23,6 @@ Pile this burger high with succulent pulled chicken, juicy tomato, rocket and a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/521_step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut your potatoes (skins on) into wedges, then add them to a baking tray (or two
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/521_step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Set aside until serving and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chicken-in-a-pan-browned-1609256337092-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/521_step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your wholegrain mustard (not a mustard fan? Go easy!) and mayo in a small bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil – this is your mustard mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/521_step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Cut 1 slices of tomato per person, then dice the remaining tomato
 
 Combine your white wine vinegar with 2 tbsp<span class="text-purple"> [3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper in a large mixing bowl – this is your salad dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/521_step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the chicken is done, transfer it to a clean board and shred apart, using tw
 
 Season the pulled chicken generously with salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/521_step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This rich, smoky spaghetti is inspired by Roman cuisine. You'll infuse a san mar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2084.-step-1-2-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your bacon lardons and cook for 8 min, stirring frequently, or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2084.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely slice (don't chop) your garlic
 
 Slice your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2084.-step-32-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the diced onion with a pinch of salt and cook for 6-7 min or until softened
 
 Dissolve your tomato paste and chicken stock mix in 200ml <span class="text-purple">[160ml]</span> <span class="text-danger">[300ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2084.-step-42-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the onion has softened, add the halved tomatoes, sliced garlic, dried oreg
 
 Once broken down, add the tomato stock with a pinch of sugar and cook for 3-4 min further or until the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2084.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Meanwhile, add your spaghetti to a pot of boiled water with a generous pinc
 
 Once done, drain the cooked spaghetti and reserve a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2084.-step-6-x200.jpg)
 
 ### Step 6
 
 While the spaghetti is cooking, chop your basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2084.-step-7-x200.jpg)
 
 ### Step 7
 

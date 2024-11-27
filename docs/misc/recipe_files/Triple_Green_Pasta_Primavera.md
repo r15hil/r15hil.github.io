@@ -22,7 +22,6 @@ Our spin on a classic Pasta Primavera; a fresh pasta bursting with an abundance 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/513.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Slice the leek<span class="text-danger">[s]</span>&nbsp;finely, discarding the r
 
 Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with a knob of butter and 1 tbsp <span class="text-danger">[2 tbsp]</span>&nbsp;olive oil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/513.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once the butter has melted, reduce the heat to medium-low and add the leek and d
 
 Cook for 2-3 min or until slightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/513.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Cook for 7-8 min or until partially cooked (the linguine will finish cooking lat
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/513.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the garlic to the leek and cook for 1 min, then remove the pan from the heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/513.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Chop the chives finely&nbsp;
 
 Grate the cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/513.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Reserve a ladle of starchy pasta water, then drain the pasta and beans
 
 Meanwhile, return the leek pan to a medium heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/513.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ Creamy, comforting and simply heavenly, this roasted ham hock supper with garlic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1008Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Creamy, comforting and simply heavenly, this roasted ham hock supper with garlic
 
 <span class="text-highlight">Once cooked, drain and return to the pot, cover with a lid and set aside to steam dry</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1008Step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Creamy, comforting and simply heavenly, this roasted ham hock supper with garlic
 
 <span class="text-highlight">Return to the pot and set aside for later</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1008Step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Creamy, comforting and simply heavenly, this roasted ham hock supper with garlic
 
 <span class="text-highlight">Tip: Add a couple of splashes of cold water to the tray to stop the from drying out!</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1008Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Creamy, comforting and simply heavenly, this roasted ham hock supper with garlic
 
 <span class="text-highlight">Mash until smooth – this is your carrot &amp; potato mash</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1008Step-5pg-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ Creamy, comforting and simply heavenly, this roasted ham hock supper with garlic
 
 <span class="text-highlight">Add the baby leaf spinach and a pinch of salt and pepper and cook for 2-3 min or until the spinach has wilted and the beans are warmed through – these are your garlicky greens</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1008Step-6jpg-x200.jpg)
 
 ### Step 6
 
 <span class="text-highlight">Add the crème fraîche and wholegrain mustard to a small pot and stir it all together </span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1008Step-7-x200.jpg)
 
 ### Step 7
 

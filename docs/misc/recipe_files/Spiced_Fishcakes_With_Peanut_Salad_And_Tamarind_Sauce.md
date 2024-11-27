@@ -26,7 +26,6 @@ Have your fishcake and eat it with an Asian-inspired twist. You’ll coat your c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682414919452-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your potatoes (skins on) into large, bite-sized pieces, then add them to a 
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682414925427-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Once cooked, flake the cooked haddock roughly with a fork and reserve the tray
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682414931540-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the flaked haddock to the mashed potatoes with half your soy sauce (save the
 
 Gently mix it all together – this is your fishcake mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682414940912-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Divide the fishcake mix into 2 per person and shape into fishcakes (clean hands 
 
 Press the fishcakes into the panko breadcrumb mixture firmly to evenly coat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682414946444-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the coated fishcakes to the reserved tray
 
 Put the tray in the oven for 15-20 min or until golden and crispy – these are your spiced fishcakes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682414952132-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Meanwhile, combine the remaining soy sauce and tamarind paste in a bowl with you
 
 Give everything a good mix up – this is your tamarind sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682414958426-x200.jpg)
 
 ### Step 7
 

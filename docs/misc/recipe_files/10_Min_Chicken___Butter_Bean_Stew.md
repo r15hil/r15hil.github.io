@@ -22,7 +22,6 @@ Transport your table to the warm coastlines of the Mediterranean with this rich 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2030Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2030Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,19 +46,16 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Meanwhile, dissolve 1/2<span class="text-danger"> [1]</span> Knorr chicken stock cube in 200ml<span class="text-danger"> [400ml] </span>boiled water in a heatproof bowl
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2030Step-3-x200.jpg)
 
 ### Step 3
 
 Add the couscous to the stock, stir, cover and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2030Step-4-x200.jpg)
 
 ### Step 4
 
 Once the pan is hot, add the diced chicken with the sun-dried tomato paste and roasted garlic paste and cook for 2-3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2030Step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,13 +63,11 @@ Meanwhile, drain and rinse the butter beans
 
 Add the tomato frito and soy sauce to the pan and cook for 30 sec
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2030Step-6-x200.jpg)
 
 ### Step 6
 
 Add the drained butter beans and spinach with a splash of boiled water and cook, covered, for 3-4 min further or until the chicken is cooked through (no pink meat!) - this is your chicken & butterbean stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2030Step-7-x200.jpg)
 
 ### Step 7
 

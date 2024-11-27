@@ -23,7 +23,6 @@ Walnuts are full of heart-healthy fats, so we've used them twice. First, you'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1598435052468-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Rub the chicken breasts with 1 tsp <span class="text-danger">[2 tsp]</span> oliv
 
 Top the chicken with half the bashed walnuts
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598435079541-x200.jpg)
 
 ### Step 2
 
 Put the tray in the oven for 15-18 min or until the chicken is cooked through (no pink meat!) and the walnut crust is golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1598435090898-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the quinoa to a pot with a matching lid with 180ml <span class="text-danger"
 
 Once boiling, reduce the heat to low and cook, covered, for an initial 10-12 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598435105823-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Whilst the quinoa is cooking, chop the green beans in half
 
 Once the quinoa has been cooking for 10-12 min, add the halved green beans and a splash more water and cook, covered, for 5-6 min further until the quinoa is cooked and the green beans are tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598435115539-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Peel and roughly chop the garlic
 
 Add the chopped basil and garlic to the pestle and mortar with the remaining walnuts and grind to a paste – this is your walnut pesto
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598435135714-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat with 2 tb
 
 Once hot, add the drained butter beans and washed spinach with a pinch of salt and cook for 2-3 min or until the spinach has started to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1598435155962-x200.jpg)
 
 ### Step 7
 

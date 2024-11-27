@@ -28,7 +28,6 @@ Thyme-roasted flat white mushrooms top a bed of caramelised leek and chestnut mu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1730481017181-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Boil a kettle
 
 Add your chicken breast portion to a baking paper-lined tray with a drizzle of olive oil and a pinch of salt and pepper, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1731328880280-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Crush your hazelnuts roughly in the bag with a rolling pin
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1731328883783-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Dissolve your vegetable stock mix in 750ml<span class="text-purple"> [975ml] </s
 
 Grate your Italian hard cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1731328893593-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Meanwhile, strip your thyme leaves from their stems, discard the stems
 
 Add your Chinese rice wine with half the thyme leaves (save the rest for later!) and the chopped mushrooms and cook for 3-4 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1731328903081-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once the mushrooms have started to soften, add your arborio rice and cook for 1
 
 Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1731328914327-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Sprinkle over the remaining thyme leaves, drizzle with olive oil and season gen
 
 Put the tray in the oven and cook for 5-6 min or until the flat white mushroom wedges are cooked through – these are your thyme-roasted flat white mushrooms
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1731328922155-x200.jpg)
 
 ### Step 7
 

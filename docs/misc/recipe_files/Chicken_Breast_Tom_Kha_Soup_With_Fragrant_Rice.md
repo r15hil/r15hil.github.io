@@ -29,7 +29,6 @@ Based on the silky Thai soup, tom kha gai, you’ll infuse chicken breasts and c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677696645517-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add your chicken breast portion[s] and cook for 8-9 min, turning once halfway until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677696645679-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Bash your lemongrass with a rolling pin, then remove the tough outer layer[s] an
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677696645894-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677696651035-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Slice your chestnut mushrooms finely, then chop the creamed coconut roughly
 
 Dissolve your chicken stock mix, sriracha (can't handle the heat? Go easy!), 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar and the chopped creamed coconut in 600ml <span class="text-purple">[900ml]</span> <span class="text-danger">[1.2L]</span> boiled water – this is your stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677696656020-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the stock with the reserved chicken breast portion[s] and bring to the boil 
 
 Once boiling, reduce the heat to medium and cook, covered, for 10 min or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677696660843-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Whilst everything is cooking, pick your coriander leaves from their stalks
 
 Chop the coriander stalks finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677696666362-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Create a new Easter tradition with this seasonal riff on a hearty classic. You�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-6-1647947348953-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Boil half a kettle, then chop your dill finely
 
 Add your chicken breast portion[s] to a baking paper-lined tray with a drizzle of olive oil and a pinch of salt and pepper, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1647947358549-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Peel and finely chop your garlic, then chop your waxy potatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-6-1647947506590-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Dissolve your chicken stock mix in 80ml <span class="text-purple">[90ml]</span> 
 
 Once the leek has softened, add half the chopped garlic (save the rest for later!) with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>flour and cook for a further 1-2 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-6-1647948029240-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once the chicken is cooked, transfer it to a clean board and shred it apart usi
 
 Reserve the tray with the baking paper and add the chopped waxy potatoes, a drizzle of vegetable oil and a generous pinch of salt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-6-1647948074641-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Dust your work surface with a generous sprinkling of flour and unwrap your puff 
 
 Wash with a little milk and press the chopped dill into the pastry – this is your dill pastry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-6-1647948086161-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Transfer the creamy chicken pie filling to an oven-proof dish, then lay the dill
 
 Press the edges with a fork to seal the pastry to the dish and put in the oven for 15-20 min or until the pastry is puffed up, golden and cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-6-1647948099457-x200.jpg)
 
 ### Step 7
 

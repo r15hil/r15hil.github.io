@@ -26,7 +26,6 @@ This Tex-Mex classic is set to become a firm favourite in your household. You'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1115.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Combine the ground cumin, ground coriander, smoked paprika, chilli flakes (can't
 
 Mix all the spices together – this is your fajita seasoning
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1115.-step-2-x200.jpg)
 
 ### Step 2
 
 Add the chicken thighs to the fajita seasoning and mix until they're fully coated in the spices
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1115.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add the chicken thighs and cook for 3-4 min on each side 
 
 Meanwhile boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1115.-step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Chop the coriander stalks finely, reserving the leaves for garnish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1115.-step-5.new-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add the sliced pepper and onion with a pinch of salt and cook for 6-
 
 Dissolve 1/2 <span class="text-danger">[1]</span> Knorr chicken stock cube with the tomato paste in 100ml <span class="text-danger">[150ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1115.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Meanwhile, grate the cheddar cheese
 
 Add the tortillas to a baking tray, then pop the tray in the oven for 2 min or until they're warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1115.-step-7-x200.jpg)
 
 ### Step 7
 

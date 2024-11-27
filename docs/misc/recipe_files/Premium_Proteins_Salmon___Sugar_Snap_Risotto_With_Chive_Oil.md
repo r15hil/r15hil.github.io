@@ -24,7 +24,6 @@ For a luxurious supper, you'll stir up a rich salmon risotto packed with garlic,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724395905473-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the diced onion with a pinch of salt and cook for 6-7 min or until softened but not coloured
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724395909711-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ While the onion softens, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724395913786-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once the onion has softened, add your arborio rice and chopped garlic to t
 
 Add the stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724395919226-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Once cooked, carefully peel and discard the skin then flake the cooked salmon gently with a fork and keep warm
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724395925416-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Chop your chives finely, including the stalks
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724395928967-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Grind everything until you're left with a green oil – this is your chive oil
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724395932473-x200.jpg)
 
 ### Step 7
 

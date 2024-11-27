@@ -28,7 +28,6 @@ Get set for non-stop flavour. You'll pan-fry warmly spiced patties until caramel
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646747428889-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your potatoes (skins on) into bite-sized pieces, then add the chopped potat
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your ras el hanout roasties
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646747438459-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add your beef mince to a bowl with the grated onion, ground coriander, half you
 
 Using clean hands, give everything a good mix up until fully combined, then roll the burger mixture into 1<span class="text-danger"> </span>meatball per person and press down with your hands to form a patty – this is your beef kofta patty
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646747447272-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Put the tray in the oven for an initial 10 min or until the onion is beginning t
 
 While the onion is in the oven, cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646747457330-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the chopped chilli (not a fan of spice? Just add a little!), chopped parsl
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil, the juice of the lemon[s] and the remaining ground cumin and stir it all together – this is your zhoug
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646747472630-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ After the initial 10 min, remove the tray with the onion from the oven and add t
 
 Return the tray to the oven for a final 12 min or until the halloumi is beginning to brown and the Tenderstem is charred and crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646747483013-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Set aside until serving, reserving the pan
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646747492117-x200.jpg)
 
 ### Step 7
 

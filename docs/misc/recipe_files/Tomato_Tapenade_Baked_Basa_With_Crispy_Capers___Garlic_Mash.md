@@ -23,7 +23,6 @@ For this melt-in-your-mouth basa, you’ll top it with a fresh tomato and olive 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/730.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel your garlic and finely slice 2<span class="text-purple"><span class="text-d
 
 Add the chopped potatoes and sliced garlic to a pot with plenty of boiled water and a pinch of salt and bring to the boil over a high heat and once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/730.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop (or grate) the remaining garlic finely
 
 Combine the chopped tomatoes, chopped olives and chopped garlic in a bowl with 2 tbsp<span class="text-purple"> [3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil – this is your tomato tapenade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/730.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your basa fillet[s] to the middle of each piece of paper and place on a baki
 
 Add a drizzle of olive oil and season with a generous pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/730.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Put the tray[s] in the oven for 15 min or until the basa is cooked through – t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/730.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once hot, carefully add the capers and cook for 1-2 min or until crispy and puff
 
 Once crispy, transfer to a plate and set aside, reserving the pan – these are your crispy capers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/730.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once melted, add the trimmed green beans with a pinch of salt and a small splash
 
 Cook, covered, for 3 min or until softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/730.-step-7-x200.jpg)
 
 ### Step 7
 

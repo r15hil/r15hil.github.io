@@ -25,7 +25,6 @@ For this hearty Moroccan-style dish, you'll flavour lamb mince with the rich sti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/611.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and chop your brown onion[s] roughly
 
 Chop your sweet potato[es] (skin on) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/611.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once hot, add the chopped onion and chopped sweet potato with a pinch of salt an
 
 Meanwhile, boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/611.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Peel and finely chop (or grate) your garlic
 
 Combine your lamb mince with the chopped garlic, your ras el hanout and a generous pinch of salt and pepper and give everything a good mix up (clean hands is the best way!) in a large bowl – this is your spiced lamb mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/611.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Add the spiced lamb mixture to the pan and cook for 5 min or until beginning to 
 
 Tip: Keep the pan covered when not stirring as this will help the sweet potato to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/611.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ While the lamb is cooking, add your couscous and a pinch of salt and pepper to a
 
 Cover and set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/611.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Once the lamb mixture has started to brown, add the chicken stock to the pan and
 
 Reduce the heat to medium and cook, covered, for a further 5 min or until the lamb is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/611.-step-7-x200.jpg)
 
 ### Step 7
 

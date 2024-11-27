@@ -29,7 +29,6 @@ Comfort in a bowl. For this sumptuous stew you'll cook pork mince with an array 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661880912510-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and chop (or grate) your garlic
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661880915776-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Once hot, add the sliced shallot and chopped garlic with a pinch of salt and coo
 
 Once slightly softened, add your pork mince (remove the paper if required!) and cook for 3-4 min or until beginning to brown, breaking it up roughly with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661880920949-x200.jpg)
 
 ### Step 3
 
 While the pork is browning, cut your potatoes (skins on) into small bite-sized cubes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661880925585-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add your tomato paste and cubed potatoes with a generous pinch of salt
 
 Mix everything together until fully coated in spices and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661880930156-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Stir everything together and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook, covered, for an initial 15 min or until the pork mince is cooked through (no pink meat!) – this is your chipotle pork stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661880937058-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Put the tray in the oven for 18-20 min or until charred – this is your baked c
 
 Meanwhile, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into small bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661880955700-x200.jpg)
 
 ### Step 7
 

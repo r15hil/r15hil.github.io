@@ -29,7 +29,6 @@ This Brazilian-style dish is inspired by Vatapá, a mouthwatering fish stew. For
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-7-1725639052718-x200.jpg)
 
 ### Step 1
 
@@ -41,13 +40,11 @@ Peel and roughly chop your brown onion[s] and garlic
 
 Chop your tomato[es]<span class="text-danger"> </span>into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-7-1725639059672-x200.jpg)
 
 ### Step 2
 
 Add the chopped ginger, onion and garlic to a food processor with your roasted peanuts and half the green chilli (can't handle the heat? Go easy!) and blitz until smooth – this is your nutty stew paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-7-1725639066458-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the nutty stew paste with a generous pinch of salt and cook for 3-4 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-7-1725639071910-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-7-1725639076779-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and vegetable stock mix in 350ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-7-1725639081951-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once boiling, reduce the heat to medium and cover with a lid, cook for 7-8 min, 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-7-1725639089308-x200.jpg)
 
 ### Step 7
 

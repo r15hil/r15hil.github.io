@@ -27,7 +27,6 @@ This satisfying veggie twist on a Chinese takeaway classic will go down a treat 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1278.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1278.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the cauliflower florets and red pepper to a baking tray with a generous driz
 
 Give everything a good old mix up and put the tray in the oven for 20-25 min or until the cauli is golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1278.-step-3.a-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1278.-step-4.a2-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Peel and finely chop (or grate) the garlic
 
 Cut the red&nbsp;chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop ﬁnely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1278.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Add the chopped ginger, garlic and chilli (Can't handle the heat? Go easy!) to a
 
 Add the soy sauce, Shaoxing wine, hoisin sauce, toasted sesame oil, rice vinegar, 1/2 tbsp<span class="text-danger"> [1 tbsp]</span> sugar and 100ml <span class="text-danger">[200ml]</span> water&nbsp;&ndash; this is your kung pao sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1278.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Trim, then slice the spring onions finely
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1278.-step-7-x200.jpg)
 
 ### Step 7
 

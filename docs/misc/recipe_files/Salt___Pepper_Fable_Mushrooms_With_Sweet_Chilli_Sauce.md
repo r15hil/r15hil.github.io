@@ -26,7 +26,6 @@ Tune in for a takeaway classic with a vegan twist. You’ll coat meaty Fable mus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691579727782-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691579730559-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Tip: Like it hot? Keep the seeds in!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691579733702-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger"
 
 Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> cold water and give everything a good mix up – this is your sweet chilli sauce base
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691579736444-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add the remaining cornflour to a large bowl with your cracked black pepper, your
 
 Mix until fully combined – this is your salt & pepper coating
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691579739608-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Roughly chop your Fable pulled mushrooms and add to the salt & pepper coating an
 
 Once the pan is hot, shake off the excess coating and add the coated Fable mushrooms, then cook for 8-10 min, stirring occasionally, or until browned and crispy all over
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691579742760-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the rice is cooked, add your blanched peas to the pot with a pinch of salt 
 
 Give everything a good mix up and keep covered until ready to serve – this is your pea rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691579745478-x200.jpg)
 
 ### Step 7
 

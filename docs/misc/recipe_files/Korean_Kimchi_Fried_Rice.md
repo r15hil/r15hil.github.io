@@ -26,7 +26,6 @@ Kick fried rice into high gear with a spicy hit of kimchi. This fragrant dish is
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1617715041594-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the drained rice with 200ml<span class="text-danger"> [400ml] </span>cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617715049711-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617715582035-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617715595531-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once softened, add the chopped ginger and garlic and cook for 2-3 min further or
 
 Meanwhile, trim, then slice the spring onion<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617715604684-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once wilted, add the gochujang, soy sauce, kimchi and toasted sesame oil and coo
 
 Remove from the heat until the rice is done
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617715619298-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Tip: Spoon some of the sesame seeds over the egg!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617715631470-x200.jpg)
 
 ### Step 7
 

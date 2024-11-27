@@ -22,7 +22,6 @@ This tasty chicken fusilli will fast become a firm favourite in your household. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1923.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1923.-step-2-1-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Add the diced chicken with a generous pinch of salt and pepper <span class="text-highlight">and</span> cook for 2 min or until browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1923.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,25 +64,21 @@ Cook the fusilli for just 2-3 min (it will keep cooking in the sauce later!)
 
 Once done, drain the fusilli, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1923.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the chicken is starting to brown, add the roasted garlic paste, tomato paste, cherry tomatoes and dried oregano and cook for 1-2 min further or until fragrant and the tomatoes are starting to break down
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1923.-step-5-x200.jpg)
 
 ### Step 5
 
 Add 100ml <span class="text-danger">[150ml]</span> of the reserved starchy pasta water to the pan and crumble in 1/2<span class="text-danger"> [1]</span> <span class="text-highlight">Knorr</span> chicken stock cube and cook for 1-2 min further or until the chicken is cooked through – this is your tomato &amp; garlic sauce<br /><br /><span class="text-highlight">Note: please ensure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1923.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the drained fusilli to the tomato &amp; garlic sauce and stir to combine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1923.-step-7-x200.jpg)
 
 ### Step 7
 

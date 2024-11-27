@@ -21,7 +21,6 @@ For this simple, elegant dish, you'll pair tender roasted salmon with an easy le
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1744.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,13 +30,11 @@ Boil a kettle
 
 Chop your waxy potatoes into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1744.-step-2-x200.jpg)
 
 ### Step 2
 
 Add the chopped potatoes to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 12-15 min or until almost fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728383032316-x200.jpg)
 
 ### Step 3
 
@@ -45,7 +42,6 @@ While the potatoes are cooking, chop your parsley finely, including the stalks
 
 Chop your chives finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1744.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,7 +49,6 @@ Once the potatoes are almost cooked, trim, then add your green beans to the 
 
 Once done, drain and return to the pot to steam dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1744.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Put the tray in the oven and cook for 14-15 min or until cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-no-capers-1661247302954-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Once melted, add the juice of half your lemon[s] and cook for 30 secs further, t
 
 Cut the remaining lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1744.-step-7-x200.jpg)
 
 ### Step 7
 

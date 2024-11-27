@@ -27,7 +27,6 @@ Fun fact about linguine? It's great for slippery sauces. Which happens to includ
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678889648196-x200.jpg)
 
 ### Step 1
 
@@ -37,19 +36,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chicken breast and cook for 2-3 min or until lightly golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678889653576-x200.jpg)
 
 ### Step 2
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678889659427-x200.jpg)
 
 ### Step 3
 
 Once the chicken has browned, add the chopped garlic and chilli flakes (can't handle the heat? Go easy!) and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678889665750-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Add your chopped tomatoes and chicken stock mix to the pan, then reduce the heat
 
 Cook for 10-15 min or until the tomatoes have reduced to the consistency of a thick sauce and the chicken is cooked (no pink meat!) – this is your tomato & chicken sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678889688733-x200.jpg)
 
 ### Step 5
 
@@ -65,13 +60,11 @@ Meanwhile, add your linguine to a large pot of boiled water with a generous pinc
 
 Bring to the boil and cook for 8-10 min, or until cooked with a slight bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678889696643-x200.jpg)
 
 ### Step 6
 
 Meanwhile, wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678889703265-x200.jpg)
 
 ### Step 7
 

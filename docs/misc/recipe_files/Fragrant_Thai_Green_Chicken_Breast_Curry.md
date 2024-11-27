@@ -30,7 +30,6 @@ This Thai green curry is sure to impress. You'll whizz up a homemade curry paste
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1598259590108-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your lemongrass, basmati rice and 300ml <span class="text-purple">[390ml]
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1598262053939-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Trim, then chop your green beans into bite-size pieces
 
 Chop your chicken breast portion[s] into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1598262103561-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the chopped shallot with a pinch of salt and cook for 1 min
 
 Once the shallot has softened, add the chopped chicken and cook for 5-7 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602153235038-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Slice your red chilli[es] in half and scrape the seeds out with a spoon, and cho
 
 Add your ginger, garlic, half of the red chilli (can't handle the heat? Go easy!) and chopped coriander to a food processor with 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>water and blitz until smooth – this is your Thai green curry paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1598262169446-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> boiled water, add your fish sauce with your lime leaf[ves], the juice of half your<span class="text-danger"> </span>lime[s] and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your fragrant stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1598262191497-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the chopped green beans and fragrant stock to the pan and cook for 4 min or
 
 Tip: Add an extra splash of water if the sauce thickens too quickly!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1598262199753-x200.jpg)
 
 ### Step 7
 

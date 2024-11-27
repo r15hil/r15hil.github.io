@@ -27,7 +27,6 @@ With a simple chilli oil packed with garlic and ginger, you'll add instant depth
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1620663337750-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop (or grate) your garlic
 
 Add the chopped ginger and garlic to a heat-proof bowl with your cayenne pepper (can't handle the heat? Go easy!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620663357264-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add your toasted sesame oil and heat for 1-2 min or until very hot, then careful
 
 Tip: Be careful – the garlic and ginger will sizzle from the heat of the oil!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620663368894-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Top, tail and grate your carrot[s] (no need to peel!)
 
 Trim, then slice your mangetout finely on a diagonal
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620663378443-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain, reserving a cup of starchy noodle water and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1620663389185-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once hot, crumble your chestnut mushrooms roughly into the pan with your hands a
 
 Add half of your soy sauce (save the rest for later!) to the pan and cook for 30 secs further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620663403328-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add a pinch of sugar and a good grind of black pepper and give everything a good
 
 Trim, then slice your spring onion[s] finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620663419510-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ There’s no slaving over this ‘salsiccia piccante’ inspired sauce. Made in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1658836622662-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727171369475-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Divide your sausage meat into bite sized balls (remove the paper if required!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727171374610-x200.jpg)
 
 ### Step 3
 
 Once hot, add the sausage meatballs to the pan and cook for 1-2 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1644923887191-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1644923890139-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Peel and slice (don't chop!) your garlic
 
 Once the sausage is starting to brown, add the dried oregano and most of your chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1 min further or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1644923893055-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once fragrant, add your chicken stock mix, soft cheese and chopped tomatoes to t
 
 Cook for 3 min further or until the sauce thickens slightly and the sausage is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1644923895967-x200.jpg)
 
 ### Step 7
 

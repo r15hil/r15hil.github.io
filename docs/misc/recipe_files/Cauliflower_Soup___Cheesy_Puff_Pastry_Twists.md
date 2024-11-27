@@ -21,7 +21,6 @@ While sautéeing your onions, you'll roast cauliflower and garlic with cumin to 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581614721818-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Slice the cauliflower leaves
 
 Tip: Discard any bruised cauliflower leaves
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581614730887-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the cauliflower florets, sliced stem, sliced leaves and 2 <span class="tex
 
 Sprinkle over the cumin seeds, give everything a good mix up and put the tray in the oven for 15 min or until beginning to soften and char
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581614735675-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large pot with a generous drizzle of vegetable oil over a medium heat
 
 Once hot, add the chopped onion and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581614741533-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Carefully remove the skins from the roasted garlic cloves (beware, they will be 
 
 Add most of the roasted cauliflower (save some florets for garnish!) and roasted garlic to the pot, reduce the heat to medium-low and cook for 6-7 min or until everything has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581614772572-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Twist each pastry strip from the ends in opposite directions until they look lik
 
 Roughly sprinkle over the grated hard Italian cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581614787486-x200.jpg)
 
 ### Step 6
 
 Put the tray in the oven and cook the pastry twists for 5-6 min or until puffed up and golden – these are your cheesy puff pastry twists
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581614793557-x200.jpg)
 
 ### Step 7
 

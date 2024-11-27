@@ -26,7 +26,6 @@ Gently spiced with the mild, rich flavours of Morocco, this simple, low-prep chi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1615.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) the ginger&nbsp;and finely chop (or grate)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1615.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Boil a kettle
 
 Chop the chicken thighs in to bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1615.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once hot, add the chopped onion&nbsp;with a pinch of salt and cook for 3-5 min u
 
 Add the garlic, ginger, ras el hanout and&nbsp;ground cumin and cook for a further 2 min or until fragrant &ndash; this is your onion mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1615.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add the chopped chicken thighs to the onion mix and cook for a further 3-5 min o
 
 Meanwhile, chop the lemon<span class="text-danger">[s]</span> in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1615.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Transfer to an oven-proof dish, cover with foil and cook in the oven for an init
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1615.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,7 +101,6 @@ Meanwhile, heat a dry pan over a high heat&nbsp;
 
 Once hot, add the flaked almonds and cook for 1-2 min or until golden brown
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1615.-step-7-x200.jpg)
 
 ### Step 7
 

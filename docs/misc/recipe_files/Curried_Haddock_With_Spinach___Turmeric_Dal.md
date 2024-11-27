@@ -31,7 +31,6 @@ This spinach and turmeric dal is nourishing, wholesome and full of protein-rich 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1685012334637-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the rinsed red lentils to a pot with plenty of cold water, then bring to the
 
 Once done, drain and return them to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1685012370939-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Strip your mint leaves from their stems and chop them finely, discard the stems
 
 Finely chop your coriander, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1685012382689-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel (scrape the skin off with a teaspoon) and chop (or grate) your ginger
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685012932359-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Combine your natural yoghurt with the chopped coriander, the juice of half your 
 
 Combine the chopped cucumber with the chopped mint, nigella seeds, juice of the remaining lemon and a pinch of salt – this is your cucumber salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1685012936430-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once hot, add the chopped onion with a generous pinch of salt and cook for 5-6 m
 
 Once softened, add the chopped ginger, garlic and ground turmeric and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2277Step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Lightly drizzle with 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2277Step-7-x200.jpg)
 
 ### Step 7
 

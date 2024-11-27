@@ -23,7 +23,6 @@ Cooking ‘en papillote’ (meaning in a sealed envelope) is a brilliantly simpl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-6-1699376902975-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-6-1699376908740-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cut 2 long rectangles of tin foil per person (approx. the size of A3 sheets of p
 
 Tip: Overlapping the foil ensures that the fish is completely encased for cooking
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-6-1699376915325-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Scatter with the chopped ginger and dot the butter evenly over
 
 Drizzle your soy sauce, honey and rice vinegar evenly over the hake
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-6-1699376929182-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Put the tray in the oven for 15 min or until the fish is cooked through – this
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-6-1699376982516-x200.jpg)
 
 ### Step 5
 
 Whilst the hake is cooking, wash your pak choi, then pat dry with kitchen paper and slice in half lengthways
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-6-1699376985265-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Season with a pinch of salt
 
 Once brown, add a splash of water and cook, covered, for 4-5 min further or until soft
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-6-1699376988928-x200.jpg)
 
 ### Step 7
 

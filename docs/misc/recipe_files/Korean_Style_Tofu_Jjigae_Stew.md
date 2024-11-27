@@ -28,7 +28,6 @@ Here’s Korean comfort food at its best. This tofu jiggae-style stew is hearty,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614704303106-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Rinse the sushi rice in a sieve under cold running water for 30 secs (use your h
 
 Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614704308611-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660039670651-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Slice the chestnut mushrooms
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660039675920-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 5-6 min or unti
 
 Once softened, add the chopped garlic, ginger and sliced mushrooms and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660039680799-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Cut the tofu into cubes
 
 Dissolve the miso paste, gochujang paste, chilli flakes (can't handle the heat? Go easy!), toasted sesame oil and the soy sauce with 1 tsp <span class="text-danger">[2 tsp]</span> sugar in 550ml<span class="text-danger"> [950ml]</span> boiled water – this is your jjigae stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660039696217-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the grated carrot and tofu cubes and cook, covered, for 6-8 min further or u
 
 Tip: If you’re still waiting on the rice to cook, reduce the heat to low and leave the stew to simmer
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660039701982-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Spice up your night with this vibrant vegetable medley. You’ll stuff puff past
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674577907304-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel, then dice your potato[es] into small bite-sized pieces
 
 Rinse your red lentils in a sieve under cold running water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674577916236-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced potato, grated carrot and half the diced onion (save the rest for later!) to the pan with a pinch of salt and cook for 5-6 min<span class="text-danger"> </span>or until everything is beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674577925143-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Cook, covered, for a further 1-2 min or until the vegetables are tender – this
 
 Dust your work surface with a generous sprinkling of flour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674577937380-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Crimp the edges with a fork to seal each samosa, then add to a baking paper-lined baking tray (or two) and put in the oven for 15-18 min or until puffed up, golden and cooked through – these are your vegetable samosas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674577946210-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Heat a pot with a drizzle of vegetable oil over a medium heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674577954752-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once softened, add the rinsed red lentils, remaining curry powder and vegetable 
 
 Bring to the boil over a high heat and cook for 15-20 min or until the lentils are tender and starting to break down
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674577963090-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Flavoured with our signature Baharat spice blend, these chicken and pepper skewe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657640531946-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
 Chop your chicken breast portion[s] into 6 pieces per person, then chop half your pepper[s] into bite-sized pieces and half your red onion[s] into chunks (save the rest for later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657640540396-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add your baharat, red onion chunks, chopped pepper and chopped chicken to a bow
 
 Give everything a good mix up until nicely coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657640551222-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Thread the chicken, pepper and onion chunks onto the skewers, alternating as yo
 
 Transfer the chicken skewers to a baking tray (or two!) and put the tray[s] in the oven for 18-20 min, or until the chicken is cooked through (no pink meat!) – these are your baharat chicken & pepper skewers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657640556739-x200.jpg)
 
 ### Step 4
 
 Meanwhile, peel and finely dice the remaining onion and remaining pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657640566119-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add the diced onion and diced pepper and cook for 2 min or until slightly softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1657640573862-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Add your basmati rice, ground smoked paprika, ground cumin and ground turmeri
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until the water has absorbed and the rice is cooked – this is your spiced rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1657640584326-x200.jpg)
 
 ### Step 7
 

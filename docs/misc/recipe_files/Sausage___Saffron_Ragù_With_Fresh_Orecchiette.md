@@ -25,7 +25,6 @@ Rich, velvety and spiked with saffron, this Sardinian-inspired ragù is the real
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1695653470540-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695653477705-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add your sausage meat (remove the paper if required!) to the pan with your bay leaf[ves]<span class="text-danger"> </span>and a pinch of salt and cook for 2-3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695653482257-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695653486854-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Peel and slice (don't chop!) your garlic
 
 Combine your chicken stock mix, tomato paste and saffron with 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water – this is your saffron stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695653490854-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Once the sausage meat is starting to brown, add the sliced garlic to the pan and
 
 Once fragrant, add your Chinese rice wine and saffron stock and cook for 2-3 min further or until the sauce thickens slightly and the sausage meat is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695653495632-x200.jpg)
 
 ### Step 6
 
 Once the sauce has thickened, add a knob of butter and half your cracked black pepper (you'll use the rest later!) and give everything a good mix up – this is your sausage & saffron ragù
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695653503347-x200.jpg)
 
 ### Step 7
 

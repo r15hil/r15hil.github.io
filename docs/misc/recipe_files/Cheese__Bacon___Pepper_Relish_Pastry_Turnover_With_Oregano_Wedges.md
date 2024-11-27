@@ -24,7 +24,6 @@ This bacon-wrapped dinner is fully stacked. You’ll rustle up flaky puff pastry
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681305348593-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the wedges to a baking paper-lined baking tray with a small drizzle of ve
 
 Put the tray in the oven for 20-25 min or until the wedges until golden and crisp – these are your oregano wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681305361548-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Put the tray in the oven for 6-8 min or until starting to brown
 
 Transfer the cooked bacon to a plate, reserving the tray
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681305374555-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Meanwhile, dust your work surface with a generous sprinkling of flour
 
 Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin and cut into squares (1 per person!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681305380042-x200.jpg)
 
 ### Step 4
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681305391813-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Fold two corners of each pastry square over the pastry filling, then pinch toget
 
 Put the tray in the oven for 15-18 min or until the pastry is until golden and cooked through – this is your cheese, bacon & pepper relish pastry turnover
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681305400081-x200.jpg)
 
 ### Step 6
 
 Chop your cucumber into quarters lengthways, then slice finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681305407291-x200.jpg)
 
 ### Step 7
 

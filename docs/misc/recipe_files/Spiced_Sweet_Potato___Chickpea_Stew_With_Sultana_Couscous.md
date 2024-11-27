@@ -26,7 +26,6 @@ Warm up your week with this fragrant stew. You’ll simmer onions in cumin and c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673365589730-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your sweet potato[es] (skin on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673365594510-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large pot with a matching lid with a drizzle of vegetable oil over a medi
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 4-5 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673365597396-x200.jpg)
 
 ### Step 3
 
@@ -54,19 +51,16 @@ Meanwhile, dissolve half your vegetable stock mix (you'll use the rest later!) i
 
 Drain and rinse your chickpeas
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673365600655-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add the chopped garlic to the pot and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673365605789-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add your ground cumin and ground coriander with a pinch of salt and cook for a further 30 secs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673365608747-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Add the chopped sweet potato and drained chickpeas to the pot with the vegetable
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-20 min or until the sweet potato is fork-tender, stirring occasionally – this is your spiced sweet potato & chickpea stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673365611548-x200.jpg)
 
 ### Step 7
 

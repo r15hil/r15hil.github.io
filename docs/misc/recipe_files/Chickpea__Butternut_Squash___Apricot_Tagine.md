@@ -26,7 +26,6 @@ This wholesome tagine is filled with chickpeas and butternut squash, which you'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1341.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1341.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 6-8 min or until caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1341.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Drain and rinse the chickpeas
 
 Once the onion has caramelised, add the chopped garlic, baharat and butternut squash cubes and cook for 2-3 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1341.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Season with a pinch of salt
 
 Tip: Add a splash of water if it's looking a little dry!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1341.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Dissolve the remaining vegetable stock mix in 200ml <span class="text-danger">[4
 
 Add the couscous to a heatproof bowl with the ground turmeric and vegetable stock, cover and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1341.-step-6.a-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once hot, add the flaked almonds and cook for 1-2 min or until browned all over
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1341.-step-7.a-x200.jpg)
 
 ### Step 7
 

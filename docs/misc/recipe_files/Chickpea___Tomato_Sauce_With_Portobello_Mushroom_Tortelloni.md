@@ -22,7 +22,6 @@ From Roma to Ragusa, pasta with chickpeas is a hearty Southern Italian staple. Y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1664893245638-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1664893247886-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and slice (don't chop!) the garlic
 
 Once hot, add the sliced garlic and cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1664893250932-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Combine the vegetable stock mix with 300ml <span class="text-danger">[550ml]</sp
 
 Drain and rinse the chickpeas
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1664893254572-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ After 1 min, add the Chinese rice wine, vegetable stock and drained chickpeas to
 
 Once boiling, reduce the heat to medium, add 1 <span class="text-danger">[2]</span> rosemary sprig<span class="text-danger">[s]</span> (save the rest for another recipe!) and cook for 4-5 min or until the chickpeas are tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1664893257930-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1664893261682-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once tender, remove the rosemary and mash half the chickpeas
 
 Season with half the cracked black pepper (save the rest for garnish!) and a pinch of salt, give everything a good stir and cook for a further 1 min or until the sauce begins to thicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1664893264862-x200.jpg)
 
 ### Step 7
 

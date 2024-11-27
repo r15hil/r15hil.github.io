@@ -19,7 +19,6 @@ This Bonfire Night banger is sure to sparkle! You'll roast our Catherine wheel s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2324Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,13 +32,11 @@ Tip: Use 2 trays if you're cooking for 4!
 
 Add the Catherine wheel sausage<span class="text-danger">[s]</span> to the centre of the puff pastry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2324Step-2-x200.jpg)
 
 ### Step 2
 
 Put the tray in the oven and cook for 25-30 min or until the pastry is golden and the sausage is cooked through (no pink meat!) – this is your bonfire banger bake
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2324Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once done, drain and return to the pot to steam dry
 
 Reboil a full kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2324Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once melted, add the sliced apple with 1.5 tsp <span class="text-danger">[3 tsp]
 
 Tip: Watch these like a hawk to make sure they don't burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2324Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once caramelised, add 1 tsp <span class="text-danger">[2 tsp]</span> flour and g
 
 Gradually stir the beef stock into the sandy paste and cook for 5 min or until a smooth, thick sauce remains – this is your toffee apple gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2324Step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once boiling, add the sliced spring greens and cook for 2-3 min or until tender
 
 Once tender, drain and return the pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2324Step-7-x200.jpg)
 
 ### Step 7
 

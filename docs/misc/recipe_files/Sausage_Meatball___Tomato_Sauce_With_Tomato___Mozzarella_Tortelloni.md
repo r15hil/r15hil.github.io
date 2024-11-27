@@ -22,7 +22,6 @@ Serve up meatballs in minuti like a true Neapolitan nonna. Hand roll your juicy 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1653403230852-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1653320231835-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Roll the sausage meat into 12 <span class="text-danger">[24]</span> meatballs (clean hands are the best way!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653320238325-x200.jpg)
 
 ### Step 3
 
 Once hot, add the meatballs to the pan with a pinch of salt and cook, turning occasionally, for 4-5 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1653320247919-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
 Reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1653320260039-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Chop the parsley finely, including the stalks
 
 Dissolve the chicken stock mix and tomato paste in 200ml <span class="text-danger">[300ml] </span>boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1653320275084-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the meatballs are starting to brown, add the sliced garlic, dried oregano a
 
 Once fragrant, add the tomato stock to the pan and cook for 2-3 min or until the sauce has thickened slightly and the meatballs are cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653320295310-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ To make this easy chilli, you'll tip beans into a casserole dish with tomato, ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611656547020-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604423545991-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Drain and rinse your red kidney beans, butter beans and black beans all together
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604423557834-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the drained beans to the dish with your ground smoked paprika, cumin seeds, 
 
 Sprinkle in your vegetable stock mix and give everything a good mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604423569885-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Crush your garlic open by squashing it with the side of a knife and discard the 
 
 Add the crushed garlic to the dish with 250ml <span class="text-purple">[375ml] </span><span class="text-danger">[500ml]</span> boiled water and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604423577632-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Add your potatoes to a large baking tray (or two!) and prick them a few times wi
 
 Drizzle them with olive oil and season with a pinch of salt and pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604423585183-x200.jpg)
 
 ### Step 6
 
 Cover the casserole dish with a lid and put it in the oven with the tray[s] of potatoes for 45-50 min or until the potatoes are cooked through and the chilli has thickened – this is your oven baked three bean chilli and your jacket potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604423592232-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Whether it’s fresh out the oven or tomorrow’s lunch, lasagne is always a fir
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-4-1647969733213-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely chop your brown onion[s]
 
 Top, tail, and finely dice your carrot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-4-1647969755081-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the chopped onion and diced carrot with a pinch of salt and cook f
 
 Boil a kettle, then peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-4-1647969779359-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cook for 3-4 min or until browned all over, breaking it up with a wooden spoon a
 
 Add 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> milk to a pot over a low heat with your bay leaf[ves] and leave to infuse for 4-5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1647969799718-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Grate your Italian hard cheese
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-4-1647969818885-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the tomato stock with a generous grind of black pepper and cook for 5-7 min 
 
 Remove the bay leaf[ves] from the infused milk and discard
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-4-1647969898225-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Add the infused milk gradually and whisk for 5 min or until a smooth, thick sauc
 
 Remove from the heat and season with a generous pinch of salt and pepper – this is your béchamel
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-4-1647969904494-x200.jpg)
 
 ### Step 7
 

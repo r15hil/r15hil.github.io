@@ -23,7 +23,6 @@ Sweet-chilli is hot, sweet and fruity, and works so well with the richness of sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/577.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the rice, 350ml <span class="text-danger">[700ml]</span>&nbsp;water to a lar
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/577.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Cut the white part into bite-size pieces&nbsp;
 
 Shred the green tops&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/577.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook for 3-4 min or until starting to colour&nbsp;
 
 Meanwhile, slice the spring onions finely, discarding the root ends
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/577.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Cover the cooked rice and pak choi with a lid&nbsp;to keep warm until serving&nb
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/577.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ This is your sweet chilli sauce&nbsp;
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/577.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Pat the salmon dry with kitchen towel and season with salt on both sides
 
 Add the salmon, skin-side-down and cook for 1 min&nbsp;<br /><br />
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/577.-step--7-x200.jpg)
 
 ### Step 7
 

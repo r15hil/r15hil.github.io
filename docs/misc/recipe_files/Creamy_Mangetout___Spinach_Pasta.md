@@ -21,7 +21,6 @@ This plant-based pasta is a green dream. You’ll build your sauce with Oatly cr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-5-1680597939104-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-4-1680597947956-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ While the pasta is cooking, peel and finely slice (don't chop!) your garlic
 
 Chop your mangetout in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1680597952305-x200.jpg)
 
 ### Step 3
 
@@ -49,13 +46,11 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the sliced garlic and cook for 30 secs or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1680597960126-x200.jpg)
 
 ### Step 4
 
 Once fragrant, add your creamy single soy to the pan with your vegetable stock mix, Dijon mustard and a very generous pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680597985886-x200.jpg)
 
 ### Step 5
 
@@ -63,13 +58,11 @@ Add the halved mangetout and cook for 2-3 min or until tender
 
 Wash your spinach and pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1680597989671-x200.jpg)
 
 ### Step 6
 
 Once tender, add the spinach and a very generous pinch of salt and pepper and cook for 1 min or until wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1680597993147-x200.jpg)
 
 ### Step 7
 

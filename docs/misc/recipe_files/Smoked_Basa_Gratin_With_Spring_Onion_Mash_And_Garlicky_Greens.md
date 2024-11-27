@@ -23,7 +23,6 @@ A straightforward supper with rich, creamy flavour. You'll bake smoked basa in a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/846.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Melt 20g <span class="text-purple">[30g]</span> <span class="text-danger">[40g]<
 
 Once melted, add 20g <span class="text-purple">[30g]</span> <span class="text-danger">[40g]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/846.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Remove from the heat and stir through your wholegrain mustard and a grind of pe
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/846.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Put the dish in the oven for 20 min or until it's golden and the fish is cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/846.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain then return the potatoes to the pot to steam dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1613556895300-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Wash, then rip the leaves off your spring greens, discard the tough stalks, then
 
 Peel and finely chop (or grate) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-spring-greens-1613556255172-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ In a separate large, wide-based pan (preferably non-stick), heat a drizzle of ol
 
 Once hot, add your chopped garlic, blanched peas and sliced spring greens with a pinch of salt and cook for 4 min or until cooked with a slight bite – these are your garlicky greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/846.-step-7-x200.jpg)
 
 ### Step 7
 

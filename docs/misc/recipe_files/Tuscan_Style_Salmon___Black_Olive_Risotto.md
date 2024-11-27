@@ -23,7 +23,6 @@ Take a trip to Tuscany and try salmon the Italian way. You’ll blitz olives and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1718618787365-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1718618797233-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once hot, add the diced onion with a pinch of salt and cook for 5-6 min or unti
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1718618802393-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once the onion has begun to soften, add your arborio rice and half the chopped 
 
 Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718618808797-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Meanwhile, chop your cherry tomatoes in half
 
 Add them to one side of a tin foil-lined baking tray (or two!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1718618814861-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Put the tray[s] in the oven for 12-15 min or until the salmon is cooked through
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1718618820708-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Chop your capers and black olives together finely
 
 Combine the chopped capers & olives with the remaining chopped garlic and 2 tbsp<span class="text-purple"> [3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil – this is your tapenade
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1718618826893-x200.jpg)
 
 ### Step 7
 

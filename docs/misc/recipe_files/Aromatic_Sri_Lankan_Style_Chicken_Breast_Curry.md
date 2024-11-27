@@ -33,7 +33,6 @@ This Sri Lankan-style dish is a classic mild curry flavoured with coconut, coria
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1603212312676-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690535629940-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ While the rice is cooking, heat a large, wide-based pan (preferably non-stick wi
 
 Once hot, add your chicken breast strips and cook for 3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1603212327546-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel and chop your garlic very roughly
 
 Roughly separate your coriander leaves from their stalks and set them aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1603212335899-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Blitz until smooth or very finely chopped – this is your Sri Lankan-style curr
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690535639230-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add the Sri Lankan-style curry paste to the browned chicken and reduce the heat
 
 Boil half a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690535642894-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add your red wine vinegar, soy sauce and 1 tsp <span class="text-purple">[1 1/2
 
 Add the coconut stock and your cherry tomatoes to the pan and cook, covered, for 8-10 min or until a thick sauce remains and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603212371884-x200.jpg)
 
 ### Step 7
 

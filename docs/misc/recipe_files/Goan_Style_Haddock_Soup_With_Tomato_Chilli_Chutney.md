@@ -30,7 +30,6 @@ This southern Indian special is full of cardamom, chilli and coconut. You’ll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687533753741-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Chop half the tomatoes roughly (you'll use the rest later!)
 
 Cut the green chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687533758085-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once hot, add the sliced onion and chopped potato to the pot with the chopped to
 
 Cook for 4-5 min or until the onion is beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687533762805-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Discard the outer green pods and add the cardamom seeds to the pot with the ging
 
 Give everything a good mix up and cook for a further 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687533766855-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once boiling, reduce the heat to medium and cook, covered, for 10-12 min or unti
 
 Once the potato is fork-tender, blitz until smooth with a (stick) blender – this is your Goan-stye curry soup
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687533770802-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced tomato, remaining chopped chilli (not a fan of spice? Just add a little) and chopped sultanas to the pan and cook for 4-5 min or until the the tomato has completely broken down
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687533775113-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Once the Goan-style curry soup is blitzed, top with the haddock bites and a smal
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1687533966421-x200.jpg)
 
 ### Step 7
 

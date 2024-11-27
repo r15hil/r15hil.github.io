@@ -22,7 +22,6 @@ Fire up your pasta with spicy 'Nduja. You'll stir up a punchy tomato, sausage an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1613473103628-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697548669101-x200.jpg)
 
 ### Step 2
 
@@ -46,19 +44,16 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697548674708-x200.jpg)
 
 ### Step 3
 
 Once hot, add the halved cherry tomatoes to the pan with a pinch of salt and cook for 2-3 min or until they’re starting to break down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697548682237-x200.jpg)
 
 ### Step 4
 
 Once the tomatoes have started to break down, add your roasted garlic paste and a pinch of sugar and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697548690771-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once cooked, drain the spaghetti, reserving a cup of the starchy pasta water
 
 Return the drained spaghetti to the pot with a drizzle of olive oil and set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2268-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Once fragrant, add your tomato paste and spinach to the pan and cook for 2-3 min or until the spinach has slightly wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2268-Step-7-x200.jpg)
 
 ### Step 7
 

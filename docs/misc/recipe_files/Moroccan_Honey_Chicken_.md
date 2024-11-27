@@ -24,7 +24,6 @@ This dish is all about warmth, thanks to the ras el hanout spice mixture (home-b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/497__step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid over a m
 
 Once toasted, transfer the walnuts to a chopping board to cool (keep the pan for later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/497__-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds a
 
 Dice the tomatoes finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/497__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once hot, add the&nbsp;chicken strips&nbsp;and cook for 2 min
 
 Add the&nbsp;ras el hanout, chopped tomato and&nbsp;yellow pepper&nbsp;and cook&nbsp;for a further 2 min or until&nbsp;beginning to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/497__step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the couscous, cover, and set aside until serving
 
 Meanwhile, dissolve the tomato paste, honey and remaining chicken&nbsp;stock cube in 350ml<span class="text-danger"> [700ml]</span> boiled water&nbsp;&ndash; this is your honey&nbsp;stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/497__step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once browned, add the honey&nbsp;stock to the chicken&nbsp;and pepper and bring 
 
 Once boiling, reduce the heat to medium-low and cook, covered, for 3-4 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/497__step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Meanwhile, cut the green beans in half
 
 Chop the cooled walnuts coarsely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/497__step-7-x200.jpg)
 
 ### Step 7
 

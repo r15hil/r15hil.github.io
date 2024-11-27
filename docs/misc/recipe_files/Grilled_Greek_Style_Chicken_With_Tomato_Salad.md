@@ -22,7 +22,6 @@ This Greek-inspired dish combines fresh flavours with easy prep! You'll mix chic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2106.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 15 min or until almost fork tender (approx. step 7)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2106.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the chopped garlic to a large bowl with the natural yoghurt, dried oregano, 
 
 Season with a generous pinch of salt and pepper and give everything a good mix up – this is your herby marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2106.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Meanwhile, cut the chicken breast<span class="text-danger">[s]</span> into strip
 
 Give everything a good mix up and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2106.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Meanwhile, cut the cherry tomatoes into quarters
 
 Strip the mint leaves from their stalks and chop them finely, discard the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2106.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the chopped tomatoes and mint to a bowl with a generous drizzle of olive oil
 
 Season with a pinch of salt and give everything a good mix up – this is your tomato salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2106.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the chicken strips to a baking tray and spoon over any remaining marinade 
 
 Put the tray under the grill for 7-10 min or until the chicken is cooked through (no pink meat!) and beginning to brown – this<span class="text-highlight"> is your grilled Greek-style chicken</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2106.-step-7-x200.jpg)
 
 ### Step 7
 

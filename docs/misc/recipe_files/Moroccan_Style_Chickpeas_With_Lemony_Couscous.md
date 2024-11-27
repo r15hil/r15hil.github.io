@@ -27,7 +27,6 @@ Citrus, spice and dried fruit add the flavours of Morocco to this tagine-inspire
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632741581167-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop (or grate) your garlic
 
 Zest your lemon[s] and cut into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632741584319-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add your ras el hanout and cook for 1 min or until fragrant
 
 Once fragrant, add the sliced onion and chopped garlic with a pinch of salt to the pan and cook for 5-6 min or until the onion has caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632741587800-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Drain and rinse your chickpeas
 
 Dissolve half your vegetable stock mix (you'll use the rest later!) in 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632741591338-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the onions have caramelised, add 1 tbsp <span class="text-purple">[1 1/2 tb
 
 Pour in the vegetable stock, bring to the boil over a high heat and cook for 2-3 min or until the sauce thickens
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632741594405-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once thickened, add your drained chickpeas, halved green beans and diced apric
 
 Reduce the heat to medium and cook, covered, for a 12-15 min or until the green beans are tender – this is your Moroccan-style chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632741598301-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[40
 
 Fluff with a fork before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632741601064-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Dads are bound to love this breakfast of champions! You'll top naan bread with s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622555129203-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop the potatoes (skins on) into bite-sized pieces
 
 Chop the tomatoes into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1622555153405-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Add the chopped potatoes and tomato wedges to one side of the baking tray<span c
 
 Sprinkle over the ground coriander with a little drizzle of olive oil and a pinch of salt and pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1622555159836-x200.jpg)
 
 ### Step 3
 
 Add the sausages to the other side of the baking tray<span class="text-danger">[s]</span> and put it in the oven for 20-25 min or until the sausages are cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1622555182138-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1622555196908-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add most of the chopped coriander (save a little for later!), the chopped garli
 
 Add the white wine vinegar, 1 tbsp<span class="text-danger"> [2 tbsp]</span> olive oil, a pinch of sugar and mix to combine – this is your coriander chutney
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1622555265873-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Combine the mayo and mint sauce with a splash of cold water in a small bowl– t
 
 When your sausages are almost ready, add the naans to a separate baking tray and put the tray in the oven for 3 min or until the bread is hot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1622555278849-x200.jpg)
 
 ### Step 7
 

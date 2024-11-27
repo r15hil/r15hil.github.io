@@ -22,7 +22,6 @@ No need to fire up the barbie for this tasty BBQ chicken. You'll rub your chicke
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2204.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut your potatoes (skins on) into wedges
 
 Add your sweetcorn cobettes to a piece of tin foil with a knob of butter and seal the foil tightly around them
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2204.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,19 +42,16 @@ Add the foil-wrapped cobettes to the tray
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3.psd-edit-copy-1597078139858-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add your ground smoked paprika, ground cumin and a generous pinch of salt to a plate and mix to combine – this is your spice rub
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2204.-step-4-x200.jpg)
 
 ### Step 4
 
 Add your chicken breast portion[s] to the plate and turn several times until evenly coated in the spices
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2204.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the coated chicken and cook for 3 min on each side or until golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2204-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Once golden, reduce the heat to low, then add your BBQ sauce and 50ml<span class
 
 Mix it together and cook, covered, for 12-15 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened – this is your BBQ chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2204.-step-7-x200.jpg)
 
 ### Step 7
 

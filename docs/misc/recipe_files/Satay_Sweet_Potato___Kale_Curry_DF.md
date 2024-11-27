@@ -27,7 +27,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1642517773844-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop the sweet potato<span class="text-danger">[es] </span>(skin on) into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1642517778163-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the chopped sweet potato to a baking tray with 1/2 tbsp <span class="text-da
 
 Put the tray in the oven for 15-20 min or until the sweet potato is cooked and golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1642517785206-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large wide-based pan (preferably non-stick with a matching lid) with 1 tb
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1642517791696-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Dissolve the vegetable stock mix in 600ml <span class="text-danger">[1L]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1642517799370-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Rinse the red lentils, add them to the pan with the vegetable stock and bring 
 
 Once boiling, reduce the heat and cook, covered, for 10-15 min or until the lentils are cooked and tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1642517809700-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Wash the shredded kale, then pat it dry with kitchen paper
 
 Once the lentils are cooked, add the shredded kale to the pan and cook, covered, for a further 3-5 min or until the kale has wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1642517817150-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ This warm Greek salad has all the elements of the summery classic; red onion, to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/270_step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Drizzle them with olive oil and season with salt and pepper
 
 Put them in the oven for 10-12 min or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/270_step-2pepper-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Deseed the green pepper<span class="text-danger">[s]</span> (scrape the seeds an
 
 Cut the tomato<span class="text-danger">[es]</span> into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/270_step-3pepper-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Remove the lid and add the sliced green pepper
 
 Cook, covered, for a further 10 min or until browned (add a little water if too dry)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/270_step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Add the feta to the same tray
 
 Sprinkle both with dried oregano and bake for 5 min, or until the feta is hot and softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/270_step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop the black olives coarsely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/270_step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add the red wine vinegar and 2 tbsp <span class="text-danger">[4 tbsp] </span>ol
 
 Whisk to make a dressing and add the chopped olives
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/270_step-7pepper-x200.jpg)
 
 ### Step 7
 

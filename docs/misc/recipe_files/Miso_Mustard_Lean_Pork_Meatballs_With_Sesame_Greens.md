@@ -29,7 +29,6 @@ Need something quick and full of flavour? Give our umami-packed meatballs a try.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1700644955793-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1700644962119-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Add the chopped shallot, lean pork mince (remove the paper if required!), panko breadcrumbs and half the chopped ginger to a large bowl with a pinch of salt and pepper and mix thoroughly until fully combined (clean hands is the best way!) – this is your lean pork mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700645019092-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the lean pork meatballs to a baking tray with a drizzle of vegetable oil
 
 Put they tray in the oven for 15 min or until cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700645025618-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Wash your spinach and pat dry with kitchen paper
 
 Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1700645032873-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Tip: Add a drizzle of vegetable oil if it's looking a little dry!
 
 Once beginning to soften, add the spinach and cook for 1-2 min further or until wilted – these are your sesame greens
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1700645040017-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ While the greens are cooking, combine your miso paste with 2 tbsp <span class="t
 
 Once combined, stir in your rice vinegar, Dijon mustard and remaining soy sauce – this is your miso-mustard sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1700645047070-x200.jpg)
 
 ### Step 7
 

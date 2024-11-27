@@ -29,7 +29,6 @@ This delicious dinner will win over the whole family. You’ll marinate chicken 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730301818865-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Bash your cucumber with a rolling pin and chop it into large, bite-sized pieces 
 
 <span class="text-danger">Tip: Cooking for kids? Chop half your cucumber and sweet pointed pepper into batons</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1730301847610-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add your soy sauce to a large bowl with your maple syrup, half your mayo and hal
 
 <span class="text-danger">Tip: Cooking for kids? Leave out the sesame seeds or just add a little!</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730301854682-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Transfer half your sesame marinade to a separate small bowl and set aside
 
 Add the chopped chicken to the large bowl of sesame marinade and give everything a good mix up until fully coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1730301860476-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the chicken skewers to a tin foil-lined baking tray (or two!) and pull up th
 
 Put the tray[s] in the oven for 18-20 minutes, turning once halfway, until golden and cooked through (no pink meat!) – these are your maple sesame chicken skewers
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1730301867946-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1730301874595-x200.jpg)
 
 ### Step 6
 
 While your rice and chicken skewers are cooking, add your rice vinegar to a bowl with your toasted sesame oil, remaining sesame seeds, chilli flakes (can't handle the heat? Go easy!), and a drizzle of olive oil – this is your spicy dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730301883491-x200.jpg)
 
 ### Step 7
 
@@ -95,7 +88,6 @@ Season with a pinch of sugar and a pinch of salt – this is your spicy smashed 
 
 <span class="text-danger">Tip: Cooking for kids? Leave the pepper and cucumber batons plain!</span>
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-8-1717761127983-x200.jpg)
 
 ### Step 8
 

@@ -25,7 +25,6 @@ This lunchtime classic is a favourite across the pond. Build your plant-based ta
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680602549852-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add your sweetcorn cobettes to one side of a baking tray with a drizzle of olive
 
 Put the tray in the oven for an initial 15 min or until beginning to char
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680602552048-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger
 
 Squeeze the halved tomatoes together with the torn ciabatta so that the juice soaks into the bread – this is your marinated ciabatta
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-4-1690538235024-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely chop (or grate) your garlic
 
 Slice your chestnut mushrooms finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680602558937-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Return the tray to the oven for a further 10-15 min or until the sweetcorn and m
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680602561570-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once hot, add the onion wedges with a pinch of salt and cook for 2-3 min or unti
 
 Once softened, add 2/3 of the chopped garlic (you'll use the rest later), the sliced mushrooms, ground smoked paprika and a pinch of salt and cook for 6-8 min or until browned and softened – these are your smoky mushrooms
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680602564586-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Remove the stone[s] using a spoon, then scoop out the avocado flesh and dice rou
 
 Combine your mayo, dried oregano, remaining garlic, cider vinegar and a pinch of salt in a small bowl – this is your ranch-style dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680602567266-x200.jpg)
 
 ### Step 7
 

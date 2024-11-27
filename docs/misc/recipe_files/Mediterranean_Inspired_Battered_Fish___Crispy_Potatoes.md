@@ -25,7 +25,6 @@ Take your fish and chips on the ultimate trip to the Mediterranean seaside. You�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688482562795-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to one side of a baking tray with a drizzle of vegetabl
 
 Put the tray in the oven for an in initial 20 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688482567797-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the green beans and half the chopped garlic (save the rest for later!) to a 
 
 Tip: Cooking for 4? Make 2 parcels!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688482574625-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip: Cooking for 4? Use 2 trays!
 
 Return the tray<span class="text-danger">[s]</span> to the oven for 10-12 min further or until the green beans are tender – these are your crispy oregano potatoes & garlic green beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688482586185-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, add the remaining chopped garlic (not a big garlic fan? Try using les
 
 Give everything a good mix up – this is your tangy mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688482592065-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the cornflour and 30g <span class="text-danger">[60g]</span> flour to a shal
 
 Add the remaining white wine vinegar and 70ml <span class="text-danger">[140ml] </span>very cold water and whisk everything together until there are no lumps – this is your batter
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688482599479-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Sprinkle both sides of the basa with flour until fully coated, then tap off any 
 
 Dip the floured basa into the batter and turn it several times until fully coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688482609349-x200.jpg)
 
 ### Step 7
 

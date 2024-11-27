@@ -23,7 +23,6 @@ Savour The Summer with this sweet, umami-rich hoisin chicken, with added fresh p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/596.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, wide-based pan (with a matching lid) over a medium-high heat with 
 
 Once hot, cook the chicken for 2 min or until golden brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/596.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Return&nbsp;the pan to a high heat and once hot, add the pak choi, cut-side down
 
 Once done, transfer the pak choi to a plate and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/596.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/596.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Return&nbsp;the pan to a medium-low heat and once hot, add the plums with 100ml<
 
 Cook&nbsp;for 2-4 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/596.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add&nbsp;the hoisin, soy sauce, sesame seeds and&nbsp;1 tsp <span class="text-da
 
 Once&nbsp;done, remove from the heat and stir in half the toasted sesame oil - this is your hoisin plum sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/596.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Spoon a little&nbsp;of the hoisin-plum sauce over each chicken thigh, add the pa
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/596.-step--7-x200.jpg)
 
 ### Step 7
 

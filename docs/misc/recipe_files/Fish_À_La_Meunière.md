@@ -23,7 +23,6 @@ French cooking is all about simple flavours at their finest. You'll pan-fry fish
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1578318896771-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut your potatoes (skins on) into large, bite-sized pieces
 
 Peel your garlic cloves
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1578318905548-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the chopped potatoes and peeled garlic to a pot with plenty of boiled water 
 
 Once boiling, cook for 12-15 min or until fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1578318910279-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Squeeze the juice of half the lemon quarters (save the rest for garnish!) into a
 
 Chop your parsley finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1578318919126-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span><span class="text-danger
 
 Press your basa fillet[s] into the flour, so they are evenly coated (make sure to shake off any excess!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1578318927873-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Drain everything and return to the pot, then mash together with a knob of butter
 
 Season generously with salt and pepper, then cover to keep warm until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1578318938503-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once cooked transfer the basa to a plate, cover loosely with tin foil and set as
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1578318952260-x200.jpg)
 
 ### Step 7
 

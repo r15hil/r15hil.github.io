@@ -23,7 +23,6 @@ Whip up a simple Neapolitan-style one-pot, then let the oven do the rest. You'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1621330640838-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621330764296-x200.jpg)
 
 ### Step 2
 
@@ -45,25 +43,21 @@ Heat a large, wide-based oven-proof casserole dish with a matching lid with a dr
 
 Crush the garlic open by squashing it with the side of a knife and remove the skin<span class="text-danger">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621330749179-x200.jpg)
 
 ### Step 3
 
 Add the capers, black olives, gnocchi and crushed garlic to the dish and give everything a good stir
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1621330778578-x200.jpg)
 
 ### Step 4
 
 Chop the basa into large, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621330786023-x200.jpg)
 
 ### Step 5
 
 Add the chopped tomatoes, dried basil, dried oregano, vegetable stock mix and 150ml <span class="text-danger">[300ml]</span> boiled water to the dish with a pinch of sugar
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621330791128-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Once boiling, cover with a lid and put the dish in the oven for 15 min or until 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621330796196-x200.jpg)
 
 ### Step 7
 

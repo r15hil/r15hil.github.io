@@ -22,7 +22,6 @@ Quick and simple, this creamy sausage gnocchi will be on your table in a jiffy. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666189327133-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Add your sausage meat (remove the paper if required!) to the pan and break up into bite-sized pieces with a wooden spoon and cook for 5 min or until starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666189336919-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once hot, add your gnocchi and cook for 8-10 min or until beginning to crisp
 
 Tip: Don't stir too often as this will prevent the gnocchi from crisping!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666189343838-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Strip your rosemary leaves from their stems and chop them roughly, discard the s
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666189353772-x200.jpg)
 
 ### Step 4
 
 Once the sausage meat has started to brown, add the sliced shallot and halved Tenderstem to the pan and cook for 3-4 min until the shallot has started to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666189406299-x200.jpg)
 
 ### Step 5
 
@@ -68,13 +63,11 @@ Meanwhile, dissolve your soft cheese in 100ml <span class="text-purple">[130ml]<
 
 Once the shallot has browned, add the creamy stock to the pan, cover with a lid and cook for 2-3 min or until the Tenderstem is softened and the sausage meat is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666189411747-x200.jpg)
 
 ### Step 6
 
 Once the gnocchi is crispy, add the chopped garlic and chopped rosemary and cook for 1-2 min or until fragrant – this is your garlic & rosemary gnocchi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666189427249-x200.jpg)
 
 ### Step 7
 

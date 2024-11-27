@@ -29,7 +29,6 @@ Love a jalfrezi? You'll go crazy for this one! To create a rich sauce, you'll si
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1583501894732-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649782052006-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Cut your paneer into bite-sized cubes
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583501905940-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 3-4 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1583501909884-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once melted, add your cumin seeds and cook for 1 min or until starting to sizzle
 
 Once sizzling, add your basmati rice, stirring to coat the grains in the butter and oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1583501913226-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your jeera rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583501916573-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cook for 5-6 min further or until the paneer is golden and the pepper is startin
 
 Meanwhile, dissolve your vegetable stock mix in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[180ml]</span> boiled water and stir in your tomato paste and a pinch of sugar – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583501920067-x200.jpg)
 
 ### Step 7
 

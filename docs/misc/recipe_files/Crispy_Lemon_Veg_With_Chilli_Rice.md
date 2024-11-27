@@ -26,7 +26,6 @@ Sticky, sweet and the perfect level of crispy, this is a retro classic that neve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626172904893-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626172909092-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Scrunch the edges of the foil around the Tenderstem to form a sealed parcel
 
 Put the tray in the oven for 15 min or until tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626172913222-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add the honey, 1 tsp<span class="text-danger"> [2 tsp]</span> of the cornflour, 
 
 Give it a good mix up - this is your lemon sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626172917886-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Pour in the remaining soy sauce and 1 tbsp<span class="text-danger"> [2 tbsp]</s
 
 Slice the baby corn in half lengthways, then add to the batter along with the green beans and mix until evenly coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626172922846-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Tip: Cooking for 4? Use two pans!
 
 Once crispy, transfer to a plate and set aside, reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626172927139-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, de-s
 
 Stir the sliced spring onions and chopped chilli (can't handle the heat? Go easy!) into the cooked rice – this is your chilli rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626172931413-x200.jpg)
 
 ### Step 7
 

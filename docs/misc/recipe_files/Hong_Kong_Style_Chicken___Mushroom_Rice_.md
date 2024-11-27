@@ -29,7 +29,6 @@ This dish is inspired by one of Hong Kong's many signature dishes, the moreish, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-6-1657628642863-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the diced chicken thigh with a pinch of salt and pepper and cook for 3-4 min or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1657628648346-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-5-1657628655323-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once the chicken has browned, reduce the heat to medium, add the diced onion and
 
 Once caramelised, add the chopped ginger and chopped garlic and cook for a further 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-6-1657628661886-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once fragrant, add your basmati rice and Chinese rice wine to the pan with your 
 
 Give it a good mix up until the rice is fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-6-1657628677675-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Add 250ml <span class="text-purple">[320ml]</span> <span class="text-danger">[50
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-6-1657628686259-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your hoisin sauce, mirin and soy sauce in a small bowl – this is your hoisin dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-6-1657628691797-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Feel the rhythm of the island with The Tropical Chart Topper. Give your teriyaki
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1694167874182-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a s
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1694167887578-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, add your meat-free hot dog sausage[s] to a separate baking tray (or t
 
 Put the tray[s] in the oven for 20 min or until the sausages are browned all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1694167901006-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped pineapple and cook for 3-4 min on each side or until lightly charred – this is your charred pineapple
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1694167973952-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add your cornflour and reserved pineapple juice to a pot with your soy sauce and
 
 Cook for 3-4 min over a medium heat or until the sauce begins to thicken to a syrup-like consistency – this is your teriyaki sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1694167981146-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Trim, then slice your spring onion[s]
 
 Combine the chopped tomato and charred pineapple with most of the sliced spring onion (save some for garnish!), your white wine vinegar, chilli flakes (can't handle the heat? Go easy!) and a drizzle of olive oil – this is your pineapple salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1694168045351-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Remove the sausage tray[s] from the oven
 
 Add the cut hot dog bun[s] to the other side of the sausage tray[s] and return the tray[s] to the oven for 2-3 min or until the hot dog buns are warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1694168101452-x200.jpg)
 
 ### Step 7
 

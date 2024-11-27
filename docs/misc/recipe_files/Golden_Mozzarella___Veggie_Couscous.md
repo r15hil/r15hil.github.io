@@ -26,7 +26,6 @@ Giant couscous, also known as 'Israeli couscous', is mixed with warm roasted veg
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/375__step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut the mozzarella in half (like you would a burger bun)&nbsp;
 
 Pat dry with kitchen paper, then set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/375__step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Cut the tomato<span class="text-danger">[es]</span>&nbsp;into wedges
 
 Peel and cut the red onion<span class="text-danger">[s]</span>&nbsp;into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/375__step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Drizzle&nbsp;with olive oil and season generously with salt and pepper
 
 Put them in the oven for 25 min or until the vegetables are tender and coloured
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/375__step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Add the Israeli&nbsp;couscous and cook for 5-8 min or until cooked with a slight
 
 Drain and leave to cool
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/375__step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Season generously with salt and pepper and mix- this is your dressing
 
 Chop the basil finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/375__step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Coat the mozzarella discs in the cornflour first, then the egg, then the breadcr
 
 Coat the mozzarella for a second time in the egg, then the breadcrumbs coating every side completely&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/375__step-7-x200.jpg)
 
 ### Step 7
 

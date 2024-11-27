@@ -28,7 +28,6 @@ This cheeky chicken dinner is so easy to make. For the Portuguese-style dressing
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-31-1704882433851-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your potatoes (skins on) into chips, then add them to a large baking tray (
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-35-1704882439388-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice!) and cut in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-37-1704882444926-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Combine your tomato paste, dried oregano, white wine vinegar, chipotle paste, c
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil, 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp] </span>[2 tbsp] </span>cold water and a pinch of salt, then mix to combine – this is your peri peri sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-35-1704882351278-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Add half of the peri peri sauce (you'll use the rest later!) to a separate larg
 
 Transfer the coated chicken to a baking tray (use tin foil to avoid mess!) and put the tray in the oven for 18-20 min or until the chicken is cooked through (no pink meat!) – this is your peri peri chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-34-1704882451048-x200.jpg)
 
 ### Step 5
 
 While the chicken is cooking, combine the remaining peri peri sauce with your mayo – this is your perinaise
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-32-1704882458354-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Cut your apple[s] (skin on) into matchsticks
 
 Trim, then slice your spring onion[s] finely, keeping the whites and greens separate
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-24-1704882464706-x200.jpg)
 
 ### Step 7
 

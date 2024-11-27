@@ -27,7 +27,6 @@ Like it spicy? Our sweet chilli noodles are sure to pack a punch. You'll team th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1615915373160-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2321-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add your medium egg noodles to a pot and cover them with boiled water until full
 
 Bring to the boil over a high heat and cook for 2-3 min or until almost cooked
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2321-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ While the noodles are cooking, heat a large, wide-based pan (preferably non-stic
 
 Once hot, add your ginger & garlic paste and diced chicken thigh, then cook for 4-5 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2321-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Chop your Tenderstem broccoli in half (chop it in one bunch for speed!)
 
 Once the chicken is starting to brown, add the chopped spring onion and cook for a further 6-7 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2321-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ When the noodles are almost cooked, add your halved Tenderstem broccoli and cook
 
 Once cooked, drain the noodles & Tenderstem broccoli and reserve a cup of the starchy noodle water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2321-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add your sriracha, chilli flakes (can't handle the heat? Go easy!), soy sauce an
 
 Add 1 tsp<span class="text-purple"> [1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> vegetable oil with a splash of the reserved starchy noodle water and a pinch of sugar and give everything a good mix up – this is your chilli sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2321-Step-7-x200.jpg)
 
 ### Step 7
 

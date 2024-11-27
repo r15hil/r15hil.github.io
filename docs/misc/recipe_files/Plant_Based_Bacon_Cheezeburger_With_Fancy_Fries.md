@@ -24,7 +24,6 @@ This epic cheeseburger is totally plant-based, and tastes unbelievable. It's lay
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1607950853411-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven and cook for an initial 20 min or until starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607951221054-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 8-10 min or unt
 
 Once softened, add a pinch of sugar and cook for 1-2 min further – these are your caramelised onions
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607951226829-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Combine the chilli relish and mayo in a small bowl – this is your chilli mayo
 
 Slice the brioche buns in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607951233424-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once the chips have had an initial 20 min, create some space on the tray and put
 
 Tip: If you're cooking for 4, you may need to cook your patties on a separate tray!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607951246477-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Whilst the meat-free burgers are cooking, heat a large, wide-based pan (preferab
 
 Once hot, add the meat-free bacon and cook for 4-5 min or until golden and crispy on both sides
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607951282634-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the meat-free bacon is crispy, chop half of it finely (save the full rasher
 
 Combine the chopped meat-free bacon with the chopped rosemary leaves – this is your rosemary & meat-free bacon crumb
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607951306380-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Fried chicken - the Korean way. Sticky, spicy and pumped up with extra garlic, i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614348944683-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml<span class="text-purple"> [300ml] </span><span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614348951396-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614348970453-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ While the rice is cooking, combine your gochujang paste (can't handle the heat? 
 
 Give everything a good mix up – this is your yang-nyum sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614348992307-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Trim, then slice your spring onion[s]
 
 Combine 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> yang-nyum sauce (you'll use the rest later!) with your mayo and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water in a separate bowl – this is your creamy Korean-style dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1614349100078-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add your cornflour to a separate bowl
 
 Add the chopped chicken to the bowl with the cornflour and give it a good mix up until all the chicken is coated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614349113251-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once the pan is very hot, add the coated chicken and cook for 5-6 min on each si
 
 Once crispy, transfer to kitchen paper and reserve the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1614349141236-x200.jpg)
 
 ### Step 7
 

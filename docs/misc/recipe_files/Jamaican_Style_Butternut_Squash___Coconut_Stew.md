@@ -31,7 +31,6 @@ Caribbean cuisine is a melting pot of flavours from across the globe. For this p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1264.-step-1-correct-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1264.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped pepper and butternut squash cubes and cook for 4-5 min or until starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1264.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1264.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Dissolve your vegetable stock mix, tomato paste and chopped creamed coconut i
 
 Drain your pineapple and reserve the pineapple juice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1264.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once fragrant, add the chopped garlic, diced tomato and half of the chopped ch
 
 Add the coconut stock and the pineapple juice (save the pineapple for later!) and cook for 15 min or until the butternut squash is fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1264.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Chop your coriander finely, including the stalks
 
 Combine the chopped pineapple, the remaining chopped chilli (not a fan of spice? Just add a little!) and half of the chopped coriander (you'll use the rest later!) in a bowl – this is your pineapple salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1264.-step-7-x200.jpg)
 
 ### Step 7
 

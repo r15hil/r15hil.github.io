@@ -23,7 +23,6 @@ For this summery twist on a classic roast, you’ll cook chicken with herby carr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724716108911-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Top, tail, peel and slice your carrots lengthways into long batons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724716115547-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Lay the chicken breasts over the carrots and thyme and season generously with sa
 
 Put the dish in the oven for 25-30 minutes or until the carrots are tender and the chicken is cooked through (no pink meat!) – this is your thyme summer roast chicken & roasted carrots
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724716120659-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the chopped potatoes to a pot of plenty of boiled water and bring to the boi
 
 Once boiling, cook for an initial 12-15 min or until fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724716127120-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Dissolve your chicken stock mix and Dijon mustard in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml] </span>boiled water – this is your Dijon stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724716133344-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once the butter has melted, add the sliced garlic and 2 tsp <span class="text-pu
 
 Once fragrant, add your mustard stock and a pinch of salt and pepper to the pan and cook for 4-5 min or until the sauce has thickened to a gravy-like consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724716138995-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the potatoes are tender, add your blanched peas to the pot and cook for 1 m
 
 Once warmed through, drain and return to the pot with a knob of butter and a pinch of salt and pepper – this is your potato & pea medley
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724716144886-x200.jpg)
 
 ### Step 7
 

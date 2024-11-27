@@ -26,7 +26,6 @@ We've taken the street food sandwiches of Istanbul, and made our own twist on ba
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1654604526555-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Roughly chop your tomato[es]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-4-1654604533289-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the sliced shallot to a small bowl with your red wine vinegar, half your chi
 
 Give everything a good mix up, then set aside until later – this is your quick-pickled chilli shallot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1654604546247-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Tear your ciabatta[s] into large, bite-sized pieces and add them to one side of 
 
 Remove the skin from your smoked mackerel fillet[s]<span class="text-danger"> </span>and discard, then add the skinned mackerel fillet[s] to the other side of the baking tray, then put the tray in the oven for 6-7 min or until the ciabatta croutons are golden, then remove from the oven and sprinkle half your ground sumac (save the rest for later!) over the croutons – these are your sumac croutons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1654604550725-x200.jpg)
 
 ### Step 4
 
 Wash your lettuce then pat it dry with kitchen paper and finely shred
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-3-1654604557804-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Tip: Hold the top of the mint sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1654604564168-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [
 
 Give everything a good mix up – this is your herby dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1654604570843-x200.jpg)
 
 ### Step 7
 

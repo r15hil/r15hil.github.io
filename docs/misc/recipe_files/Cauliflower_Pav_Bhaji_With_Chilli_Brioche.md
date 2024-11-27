@@ -30,7 +30,6 @@ Pav Bhaji is an amazing example of classic Indian street food. To make your own,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1658829571731-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Discard the stem[s] and keep the leaves
 
 Chop your potato[es] (skins on) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1658829575846-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Bring to the boil over a high heat and cook for 12-15 min
 
 Once everything is fork-tender and easy to mash, drain and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1658829579899-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Peel and finely chop your red onion[s]
 
 Peel and finely chop (or grate) your garlic and ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1658829588549-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once hot, add most of the chopped onion (you'll use the rest later!) with a pinc
 
 Chop your creamed coconut roughly (if required!), then dissolve your vegetable stock mix<span class="text-danger"> </span>and chopped<span class="text-danger"> </span>creamed coconut in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1658829597019-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Add the drained potato & cauliflower florets with the coconut stock and mash unt
 
 Add your blanched peas and the juice of half your lime[s] and cook for 2 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1658829604511-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Put the tray[s] in oven for 3-4 min or until warmed through and lightly golden �
 
 Tip: For a little extra indulgence, top the warmed chilli brioche with your favourite butter alternative
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1658829612037-x200.jpg)
 
 ### Step 7
 

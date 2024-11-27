@@ -26,7 +26,6 @@ For a bright and flavourful dinner, go for gold with our crispy fish fillets, dr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1692866240239-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely slice your shallot[s]
 
 Chop your basil finely, including the stalks (reserve a few leaves for garnish)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1692866244035-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1692866247845-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add a drizzle of vegetable oil to a separate pot over a medium-high heat
 
 Once hot, add the sliced shallot, chopped garlic and cherry tomatoes with a pinch of salt and pepper and cook for 2-3 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1692866250994-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your balsamic vinegar and dried oregano and cook for 2-3 min or until the sa
 
 Once the sauce has thickened, press down on your cherry tomatoes to release the juice – this is your balsamic tomato sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1692866254835-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class=
 
 Coat your hake fillet[s] in the flour, pressing firmly to coat them evenly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1692866258505-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once very hot, add the coated fish and cook for 3-4 min on each side or until g
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1692866263862-x200.jpg)
 
 ### Step 7
 

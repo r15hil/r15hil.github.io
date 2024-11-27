@@ -23,7 +23,6 @@ Craving fish and chips? This one’s for you. Speedy, crispy and fully loaded wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675253443301-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Roll the zested lemon[s]<span class="text-danger"> </span>with your hand on a ha
 
 Preheat the air fryer to 180°C
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675253447043-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the breaded basa to the air fryer basket with a generous spray of olive oil 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675253450086-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat with a dr
 
 Once hot, add the sliced leek and chopped garlic with a pinch of salt and cook for 6-8 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675253453525-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Add the halved potatoes to a heatproof bowl, then cover the bowl with cling film
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675253458067-x200.jpg)
 
 ### Step 5
 
 Once the leek has softened, add your blanched peas with a splash of cold water and a generous grind of black pepper and cook for 2-3 min further or until the peas are warmed through – this is your leek & peas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675253463874-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the potatoes are cooked through, add a knob of butter, a pinch of salt and 
 
 Mix it all together – these are your buttery chive potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675253467781-x200.jpg)
 
 ### Step 7
 

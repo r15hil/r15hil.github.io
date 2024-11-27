@@ -23,7 +23,6 @@ A simple summer salad with heaps of flavour! You'll make your own za'atar (a Mid
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1661.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once done, add the chickpeas (no need to drain!) for a further 1 min until warme
 
 Once warmed through, drain and return everything to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1661.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Cut the peeled orange<span class="text-danger">[s]</span> into slices
 
 Cut each slice into rough pieces&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1661.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Strip the mint leaves from their stems and chop them roughly
 
 Combine the&nbsp;apple cider&nbsp;vinegar&nbsp;with 3 tbsp <span class="text-danger">[6 tbsp]</span> olive oil and a generous pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1661.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Slice the halloumi in half, then each half into 6 <span class="text-danger">[12]
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1661.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Heat a large, wide-based pan with a drizzle of olive oil over a high heat
 
 Once hot, add the halloumi sticks and cook on each side for 2-4 min or until golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1661.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Meanwhile, add the orange segments, chopped mint, rocket and the dressing to the
 
 Give everything a good mix up &ndash; this is your orange &amp; mint bulgur
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1661.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Keep it classic with fiorentina. You’ll load pizza bases with rich tomato sauc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688481535394-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Put a large baking tray (or two) in the oven to heat up (this will stop the pizz
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688481539219-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then pat dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688481542743-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Add your tomato paste to a bowl with half the chopped garlic and a generous pinc
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688481547314-x200.jpg)
 
 ### Step 4
 
@@ -59,13 +55,11 @@ Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid out
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688481551859-x200.jpg)
 
 ### Step 5
 
 Chop your black olives in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688481558230-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Spread the tomato base evenly over the pizza base[s] with the back of a spoon, t
 
 Put the tray[s] in the oven for an initial 8-10 min or until the cheese has started to melt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688481564662-x200.jpg)
 
 ### Step 7
 

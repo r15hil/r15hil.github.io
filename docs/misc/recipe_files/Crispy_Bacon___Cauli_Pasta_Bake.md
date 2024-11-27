@@ -22,7 +22,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2186.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Boil a full kettle
 
 Add the conchiglie to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for an initial 4 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2186.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once cooked, drain, reserving 200ml <span class="text-danger">[350ml] </span>st
 
 Reserve the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2186.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Combine the grated cheese with the panko breadcrumbs – these are your cheesy b
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2186.-step-4-new-x200.jpg)
 
 ### Step 4
 
@@ -76,13 +72,11 @@ Add the starchy pasta water and whisk until smooth
 
 Once smooth, remove the pot from the heat and add the crème fraîche, Dijon mustard and a grind of pepper – this is your sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2186.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the drained pasta and cauliflower to the sauce and stir it all together – this is your creamy cauliflower pasta
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2186.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Top with the cheesy breadcrumbs 
 
 Sprinkle over the bacon lardons and put the dish in the oven for 15-20 min or until the bacon is cooked and the breadcrumbs are golden
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2186.-step-7-x200.jpg)
 
 ### Step 7
 

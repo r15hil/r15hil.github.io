@@ -28,7 +28,6 @@ For this sticky chicken burger, you'll coat crispy five-spice breasts in a fragr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690265532256-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20-25 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690265535748-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add your white wine vinegar to a large bowl with your mayo and a pinch of salt a
 
 Add the shredded lettuce and grated carrot and give everything a good mix up – this is your tangy slaw
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1723470445043-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the chicken escalopes to a bowl with your five-spice mix and cornflour
 
 Give everything a good mix up until the chicken is fully coated in the cornflour mixture – this is your five-spice coated chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1723470456957-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the five-spice coated chicken and cook for 5-6 min each side or until golden, crispy and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690265551241-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once the chips have been in the oven for 25 min, move them to one side of the tr
 
 Return the tray[s] to the oven for a final 4-5 min or until the brioche buns are lightly toasted and the chips are golden and crispy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690265555821-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once boiling, reduce the heat to medium-low and cook for 2-3 min or until thicke
 
 Tip: Watch carefully to prevent the glaze from burning!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1723470606933-x200.jpg)
 
 ### Step 7
 

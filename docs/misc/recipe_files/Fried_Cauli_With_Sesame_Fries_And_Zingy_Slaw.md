@@ -26,7 +26,6 @@ To give this classic a Southeast Asian twist, you'll marinate cauliflower in soy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627992802325-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut the cauliflower into small florets
 
 Tip: Large cauliflower? Use 400g<span class="text-danger"> [800g]</span> max to avoid cauli-overload!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627992806301-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped ginger, chopped garlic and soy sauce to a medium bowl –
 
 Add the cauliflower florets and give everything a good mix up, then set aside until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1627992813734-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a generous p
 
 Put the tray in the oven for 20-30 min or until they're cooked through and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1627992820600-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Grate the radishes
 
 Top, tail, peel and grate the carrots
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1627992826251-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the rice vinegar and mix to combine – this is your zingy slaw
 
 Combine the mayo with the hoisin sauce in a small bowl – this is your hoisin mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627992829032-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the marinated cauliflower florets
 
 Stir it all together so the florets are fully coated in cornflour – this is your coated cauliflower
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627992833348-x200.jpg)
 
 ### Step 7
 

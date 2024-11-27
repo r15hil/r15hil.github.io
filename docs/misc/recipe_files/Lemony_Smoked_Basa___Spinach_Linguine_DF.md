@@ -20,7 +20,6 @@ For this elegant pasta dish, you'll pan-fry smoked fish in garlic oil, before st
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1643124595235-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Add the linguine to a pot of boiled water with a pinch of salt, then bring to 
 
 Once cooked, drain the linguine
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1643124602469-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Once hot, add the sliced garlic and cook for 1 min
 
 Remove the pan from the heat and leave the garlic to infuse the oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1643124607616-x200.jpg)
 
 ### Step 3
 
 Chop the smoked basa fillets into small bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1643124611992-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Once hot, add the chopped basa and cook for 3-5 min or until cooked through
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1643721671991-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ While the basa is cooking, zest 1/2 <span class="text-danger">[1]</span> lemon (
 
 Slice the remaining non-zested lemon into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1643709899281-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Wash the spinach, then add it to the pan along with the juice of the zested lemo
 
 Season very generously with salt and pepper and cook for 1-2 min further or until the spinach is wilted and you are left with a loose sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1643709904289-x200.jpg)
 
 ### Step 7
 

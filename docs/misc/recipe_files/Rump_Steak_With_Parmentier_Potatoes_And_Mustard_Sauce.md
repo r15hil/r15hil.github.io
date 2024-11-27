@@ -24,7 +24,6 @@ This French-inspired steak is bound to impress. You'll serve tender rump steak w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1992.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut your potatoes (skins on) into small bite-sized cubes and peel and finely cho
 
 Strip your rosemary leaves from their stems and chop finely, then combine them with half the chopped garlic (you'll use the rest later!) in a bowl and set aside for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1992.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the cubed potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Put the tray[s] in the oven and cook for an initial 20 min or until starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657617067930-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once done, drain, rinse under cold water and set aside for later
 
 Meanwhile, pat your rump steak[s] dry with kitchen paper, then rub with vegetable oil and season both sides with salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1992.-step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Tip: Don’t move the steak around too much in the pan – this will stop it from browning
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1992.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once the steak is cooked, transfer to a clean plate to rest and reserve the pan
 
 Once the potatoes are starting to crisp, sprinkle over the garlic & rosemary mix and cook for 5-7 min further or until the potatoes are golden and crispy – these are your Parmentier potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1992.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Return the reserved pan to a low heat and add 100ml <span class="text-purple">[1
 
 Stir in your soy sauce, clotted cream, soft cheese and wholegrain mustard and cook for 2-3 min or until the sauce has thickened to a double cream-like consistency (add a splash of water if it's looking a little thick!) – this is your creamy mustard sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657617122504-x200.jpg)
 
 ### Step 7
 

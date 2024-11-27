@@ -27,7 +27,6 @@ Pasta bake on repeat? Give these fresh flavours a whirl. You'll pack this dish f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1644839529166-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop your leek[s]<span class="text-danger"> </span>in half lengthways and wash t
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1644839541266-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once done, drain the tortiglioni and set it aside for later
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1644839552626-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ While the pasta is cooking, heat a large, wide-based pan (preferably non-stick) 
 
 Once hot, add the sliced leek and chopped garlic with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1644839578091-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, dissolve your vegetable stock mix and most of your goats' cheese (you
 
 Chop your cherry tomatoes in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1644839594073-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, chop your basil finely, including the stalks
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1644839624617-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add the cheesy stock with the spinach and season with a generous grind of black 
 
 Cook for 1-2 min, stirring frequently, or until the sauce has thickened slightly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1644839677359-x200.jpg)
 
 ### Step 7
 

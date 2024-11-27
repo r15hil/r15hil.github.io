@@ -24,7 +24,6 @@ Our cheat's chicken kyiv has all the flavour, with none of the faff. You'll coat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1588078698265-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Boil a kettle
 
 Cut your waxy potatoes in half (skins on)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1588078136166-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Cook for 12-15 min or until almost fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1773.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Add your chicken breast portion[s] to a chopping board and cover with a sheet of
 
 Bash the chicken breast[s] with a rolling pin until evenly flattened – these are your chicken escalopes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1773.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add your panko breadcrumbs to another plate
 
 Coat the chicken escalopes in the flour, tap off the excess, then add them into the beaten egg and finally press them into the panko breadcrumbs firmly to evenly coat all over – this is your breaded chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1773.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once hot, add the breaded chicken and cook for 5 min on each side (you may need 
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1773.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cut your lemon[s] into wedges
 
 Combine the chopped garlic (don't like raw garlic? Go easy!), chopped parsley, clotted cream and a squeeze of lemon (you'll use the rest later!) in a small bowl with a pinch of salt – this is your garlic butter
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1773.-step-7-x200.jpg)
 
 ### Step 7
 

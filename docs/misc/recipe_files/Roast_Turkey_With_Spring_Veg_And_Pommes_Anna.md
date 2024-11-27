@@ -21,7 +21,6 @@ Gather the fam for a turkey roast with the most. You’ll bake layers of buttery
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676911225902-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Put the tray in the oven for 36-38 min or until cooked through (when the juices 
 
 Tip: Set a timer because your turkey will rest until everything else is ready!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676911235612-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Slice your potatoes (skins on) into thin discs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676911245417-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once fragrant, remove the pot from the heat, add the potato discs and a pinch of
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676911259731-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Put the tray[s] in the oven and cook for 30 min or until the potatoes are golden
 
 Tip: No muffin tray? Fill a small oven-proof dish to make one giant pomme Anna!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676911275659-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Dissolve your chicken stock mix in 300ml <span class="text-purple">[390ml]</span
 
 Gradually add the stock and remaining chopped thyme to the pan and cook for 10-12 min, stirring frequently, until thickened – this is your thyme gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676911286251-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once the turkey is cooked through, transfer it to a clean chopping board to rest
 
 Add any remaining juices from the tray to the thyme gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676911295103-x200.jpg)
 
 ### Step 7
 

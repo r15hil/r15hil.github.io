@@ -24,7 +24,6 @@ You can’t beet this plant-based burger. You’ll load mango mayo and meat-free
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675772531135-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Drain your beetroot in a colander over the sink
 
 Cut half the drained beetroot into chips (you'll use the rest later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675772539103-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Whilst the chips are in the oven, peel and finely slice (don't chop!) your garli
 
 Heat a pot with a drizzle of vegetable oil over a medium heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675772547878-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Bring to the boil over a high heat, then reduce the heat to medium and cook for 
 
 Once thickened, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675772555911-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, line a baking tray with tin foil
 
 Add your ultimate vegan burger patties to the tray and put the tray in the oven for 10-12 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675772564199-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
 Combine the remaining white wine vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil in a large bowl – this is your dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675772573251-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Return the tray[s] to the oven for 4-5 min or until warmed through
 
 Add the shredded lettuce to the bowl with the dressing and toss
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675772582900-x200.jpg)
 
 ### Step 7
 

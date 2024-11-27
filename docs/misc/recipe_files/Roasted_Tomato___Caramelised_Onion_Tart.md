@@ -21,7 +21,6 @@ Enjoy this golden flaky tart topped with sweet caramelised onions, cheese and ro
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2114.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Drizzle with olive oil and season with a pinch of salt and pepper
 
 Put the tray in the oven for 12 min or until the tomatoes are beginning to soften, then remove from the oven and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2114.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the chopped potatoes to a separate baking tray with a generous drizzle of ve
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp – these are your crispy potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2114.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once melted, add the sliced red onion with a pinch of salt and 1 tsp <span class
 
 Reduce the heat to low and cook for a further 8-10 min or until softened and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2114.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Score a 1cm border around the edge of the pastry with a knife
 
 Prick the inside of the border all over with a fork (this will stop you getting a soggy bottom!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2114.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the onions are caramelised, add half the balsamic vinegar (you'll use the r
 
 Remove the roasted tomatoes from the baking tray and set aside, reserving the tray
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2114.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Top the centre of pastry squares with the grated Italian hard cheese, caramelise
 
 Put the tray in the oven for 15 min or until the pastry is golden and crisp and the edges have puffed up – these are your tomato & caramelised onion tarts
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2114.-step-7-x200.jpg)
 
 ### Step 7
 

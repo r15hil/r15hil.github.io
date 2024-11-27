@@ -25,7 +25,6 @@ Rustle up this sizzling stir-fry in minutes. You’ll cook onions and mushroom i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1672755371661-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1672755377802-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Slice your flat white mushroom[s] finely
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1672755384373-x200.jpg)
 
 ### Step 3
 
@@ -53,13 +50,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and cook for 4 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1672755390319-x200.jpg)
 
 ### Step 4
 
 Once softened, add the sliced mushroom with a knob of butter and cook for 5-6 min or until tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1672755394089-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add your hoisin sauce with your soy sauce and ginger paste
 
 Cook for 1 min or until fragrant – this is your stir-fry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1672755398351-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1672755404042-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ This crispy meat-free burger is a smash hit. You’ll double up on extra thin pl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-9-1691496614469-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Give everything a good mix up and put the tray[s] in the oven for 25-30 min or u
 
 While the fries are cooking, peel and finely slice your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-10-1691496617794-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and cook for 8-10 min or until the onion has softened and caramelised – this is your caramelised onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-10-1691496621554-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Combine the grated cheeze with your cornflour and a pinch of salt in a pot and m
 
 Add your mustard ketchup and 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> milk to the pot and set aside for later – this is your cheeze sauce base
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-9-1691496625469-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Mix until combined, then divide and shape them into 2 meatballs per person (clea
 
 Cover the meatballs with a sheet of baking paper and roll the meatballs out to approx. 0.5cm thickness with a rolling pin until evenly flattened – these are your patties
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-8-1691496628580-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Return the reserved pan to a high heat with a drizzle of vegetable oil
 
 Once hot, add the patties, press them down very firmly with a spatula and cook for 2-3 min on each side, pressing down continuously, or until slightly charred – these are your plant-based smashed patties
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-8-1691496634872-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Remove the tray[s] with the fries from the oven and add the brioche halves
 
 Return the tray[s] to the oven for 4-5 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-12-1691496637995-x200.jpg)
 
 ### Step 7
 

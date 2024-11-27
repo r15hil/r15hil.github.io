@@ -24,7 +24,6 @@ Packed with succulent chicken and an oh-so-creamy sauce, this delicious, hearty 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2281-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop your potatoes (skins on) into large bite-sized pieces, then add to a pot wi
 
 Cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1710160955132-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and slice your brown onion[s]
 
 Top, tail and dice your carrot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2281-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once melted, add the sliced onion and diced carrot with a pinch of salt and cook
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2281-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the vegetables have softened, add half the chopped garlic (you'll use the r
 
 Add the vegetable stock and soft cheese, bring to the boil over a high heat and cook for 3-4 min or until thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2281-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Return the drained potatoes to a low heat with a knob of butter and a small spla
 
 Season with a pinch of salt and pepper and mash until smooth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2281-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Transfer the creamy chicken pie filling to an oven-proof dish and top with the m
 
 Put the dish in the oven for 15-20 min or until bubbling and golden – this is your creamy chicken potato-topped pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612891238218-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ With a signature curry flavour and vibrant yellow hue, our Singapore noodles are
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723628946663-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the chicken breast portions to a baking tray and drizzle with vegetable oil
 
 Put the tray in the oven and cook for 20-25 min or until the chicken is cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1722500141594-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Trim, then slice your green beans finely
 
 Slice your button mushrooms finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1722500148525-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once hot, add the sliced onion and green beans and cook for 4-5 min or until 
 
 Once starting to soften, add the sliced mushrooms and cook for a further 2-3 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1722500155704-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Whilst everything is cooking, peel (scrape the skin off with a teaspoon) and fin
 
 Add the chopped ginger, ground turmeric and curry powder to the pan and cook for 2-3 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1722500161831-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Once fragrant, add your soy sauce and chopped chilli (can't handle the heat? Go easy!) to the pan and cook for 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723708429621-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Meanwhile, add your fine egg noodles to a pot and cover them with boiled wate
 
 Bring to the boil over a high heat and cook for 2-3 min or until tender, then drain
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723652372938-x200.jpg)
 
 ### Step 7
 

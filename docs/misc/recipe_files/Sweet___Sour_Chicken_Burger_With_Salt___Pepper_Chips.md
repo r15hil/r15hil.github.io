@@ -27,7 +27,6 @@ This Chinese takeaway-style burger is bun of a kind. You’ll crisp up chicken t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706633037170-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut your potatoes (skins on) into chips
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into large, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706633040636-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the chips and chopped pepper to a baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706633044397-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, add half your cornflour (save the rest for later!) and 2 tbsp <span c
 
 Add your chicken thighs to the flour mix, then press firmly into the mixture, making sure to evenly coat them on both sides – this is your coated chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706633048524-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add your tomato ketchup and soy sauce with your rice vinegar, ginger & garlic pa
 
 Trim and chop your spring onion[s] in half, then cut lengthways into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706633052629-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the chicken is cooked, remove from the pan and set aside, reserve the pan
 
 Slice your brioche bun[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706633056671-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the chips and pepper are cooked, remove half of the roasted pepper and set 
 
 Mix the remaining roasted pepper through the chips with the spring onion strips and season with a generous grind of black pepper – these are your salt & pepper chips
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706633059799-x200.jpg)
 
 ### Step 7
 

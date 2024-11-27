@@ -21,7 +21,6 @@ Rich, cheesy, and oh-so easy. You'll sizzle bacon lardons with garlic before sti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1683884360309-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683884363782-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your bacon lardons and cook for 3-4 min or until beginning to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683884368141-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683884374412-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the sliced garlic to the pan with the bacon and cook for 1 min further or un
 
 Tip: Watch the garlic like a hawk to make sure it doesn’t burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683884377851-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once fragrant, add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span clas
 
 Add the creamy stock and half of your grated Italian hard cheese (save the rest for garnish!) to the pan and cook for 1-2 min or until starting to thicken – this is your creamy bacon Alfredo sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683884381834-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Rinse the wilted spinach under cold running water until it’s cool
 
 Once cool, squeeze as much water out of the cooled spinach as you can, then chop it roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683884622854-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Dress this vibrant veggie salad with a punchy cheese, chive and grated garlic dr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1043.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Tear your ciabatta[s] into bite-sized pieces and add them to one side of a baki
 
 Drizzle generously with olive oil and season with a pinch of salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1043.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Scrunch up the edges of the foil slightly, add a small splash of water and close
 
 Add the parcel to the tray and pop it in the oven for 15 min or until the croutons are golden and crispy and the beans are cooked
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1043.newstep-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ While the eggs boil, fill a bowl of ice-cold water ready for later
 
 Tip: Use the Gousto ice packs to chill the water!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1043.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Wash your lettuce and pat dry with kitchen paper, then rip into roughly bite-siz
 
 Add half of the grated Italian hard cheese and half of the chopped chives to the bowl (you'll use the rest later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1043.newstep-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once the eggs are done, drain and add them to the ice-cold water (this stops the
 
 Peel, then finely slice your shallot[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1043.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Peel and grate your garlic into the bowl (not a big garlic fan? Try using less!)
 
 Season with a pinch of salt and pepper and mix to combine – this is your Caesar dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1043.newstep-7-x200.jpg)
 
 ### Step 7
 

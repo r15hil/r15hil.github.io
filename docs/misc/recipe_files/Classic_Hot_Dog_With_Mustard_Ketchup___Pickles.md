@@ -24,7 +24,6 @@ Get the family round the table in a flash with juicy hot dog. Serve with chips a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1722267827274-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Cut your potatoes (skins on) into chips
 
 Add the chips to one side of a baking paper-lined baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1722267832458-x200.jpg)
 
 ### Step 2
 
 Add your hot dog sausage[s] to the other side of the baking tray[s] and put the tray[s] in the oven for 25 min or until the sausage[s] is cooked through (no pink meat!) and the chips are golden and crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722267890035-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Dice your cucumber finely
 
 <span class="text-danger">Tip: Cooking for kids? Cut half the cucumber into rounds and leave plain!</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1722267904509-x200.jpg)
 
 ### Step 4
 
@@ -58,13 +54,11 @@ Add the chopped shallot and diced cucumber to a bowl with your cider vinegar and
 
 Season with a pinch of salt and sugar and give everything a good mix up – these are your pickles
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1722267928955-x200.jpg)
 
 ### Step 5
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1722267937044-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Cut a slit into the top of your hot dog bun[s]
 
 Once the chips are nearly done, add the cut hot dog bun[s] to a separate baking tray, cut side up, and put the tray in the oven for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1722267990986-x200.jpg)
 
 ### Step 7
 

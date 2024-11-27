@@ -21,7 +21,6 @@ We'll show you how to sear this rump steak to perfection. To make sure your stea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729._step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Chop your potatoes (skins on) into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729._step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1759.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Peel and grate (or finely chop) your garlic
 
 Chop your parsley as finely as you can, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1759.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,13 +55,11 @@ Season with a pinch of salt and pepper and stir it all together
 
 Put the bowl in the fridge until serving – this is your garlic & herb cream
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1759.-step-5-x200.jpg)
 
 ### Step 5
 
 Pat your rump steak[s] dry with kitchen paper, rub with vegetable oil and season both sides with salt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1759.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once done, transfer the steak to a clean plate to rest
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1759.-step-7.n-x200.jpg)
 
 ### Step 7
 

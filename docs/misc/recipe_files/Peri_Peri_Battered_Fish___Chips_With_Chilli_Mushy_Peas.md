@@ -22,7 +22,6 @@ Spice up fish and chips with a peri peri hit. You'll spike your batter with spic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-5-1692089627105-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil, a pinch of peri-
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your peri-peri chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-5-1692089635426-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Chop the capers finely
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut into quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-6-1692089639570-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Combine the chopped capers and mayo in a small bowl with half the chopped chilli
 
 Give everything a good mix up – this is your chilli tartare sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-4-1692089643930-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the cornflour and 30g <span class="text-danger">[60g]</span> flour to a larg
 
 Add 80ml <span class="text-danger">[160ml]</span> very cold water and give everything a good mix up – this is your batter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-4-1692089649407-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Sprinkle both sides of the basa with flour, then tap off any excess
 
 Dip the floured basa into the batter and turn it several times until fully coated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-4-1692089652588-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the coated basa to the pan and cook for 4-5 min on each side until
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-4-1692089656829-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ This Filipino-style chicken is a fragrant feast. You’ll pan-fry juicy chicken 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699442179460-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-5 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699442184118-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Remove the tough outer layers of the lemongrass and set aside for later
 
 Slice half your red chilli[es] into rounds and finely chop the remaining
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699442187554-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once fragrant, add your diced chicken breast, half your cider vinegar (you'll us
 
 While the chicken is browning, drain and rinse your green lentils
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699442191846-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Meanwhile, chop your creamed coconut (if required!), then dissolve your chicken 
 
 Once the chicken is starting to brown, add your tomato paste, rinsed lentils and coconut stock and bring to the boil over a high heat, then once boiling, reduce the heat to medium-low and cook, covered, for an initial 18-20 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699442194832-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your lemongrass rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699442199394-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ While the rice is cooking, add the chilli rounds to a bowl with the remaining ci
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699442203397-x200.jpg)
 
 ### Step 7
 

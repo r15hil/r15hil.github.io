@@ -24,7 +24,6 @@ Nothing says sharing food like these quesadillas. You’ll sandwich crispy torti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2330-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the sweet potato discs to a baking tray (or two!) with a drizzle of vegetabl
 
 Put the tray[s] into the oven for 12-15 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2330-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add most of the chopped onion (save the rest for later!) and diced chorizo with a crack of black pepper and cook for 6-7 min or until the onion has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Grated-cheddar-on-a-board-1596534504955-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once softened, add the chopped garlic and ground cumin to the pan and cook for 
 
 Grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2330-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once the sweet potato discs have softened, remove the tray[s] from the oven and 
 
 Reserve the tray[s] for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2330-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Divide the chorizo & sweet potato mix between your tortillas, covering only ha
 
 Top evenly with the grated cheese and fold each tortilla over so you're left with 3 half moon-shaped sandwiches per person – these are your chorizo & sweet potato quesadillas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2330-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Place a second baking tray on top of each tortilla baking tray to weigh it d
 
 Put the stacked baking trays in the oven and cook for 10 min, or until the tortillas are slightly browned and the cheese has melted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2330-Step-7-x200.jpg)
 
 ### Step 7
 

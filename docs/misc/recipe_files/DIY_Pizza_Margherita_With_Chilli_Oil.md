@@ -27,7 +27,6 @@ Warning: this classic Margherita has a kick. You'll make a no-knead, no-proof pi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1598436561064-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your dried yeast to a large bowl with 100ml <span class="text-purple">[150ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1598436567580-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1598436577760-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Chop your cherry tomatoes in half
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598436586412-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Tip the dough out onto a floured work surface and cut into 1 per person
 
 Toss your dough ball[s] in a light dusting of flour until coated, rounding the ball as you go<span class="text-danger"> </span>(no need to knead!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598436593035-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Keep going until your base is slightly smaller than a side plate (you will make 
 
 Heat a large, dry, wide-based pan (or two), (preferably non-stick) over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598436598048-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Spread the tomato sauce evenly over the pizza base[s] with the back of a spoon (
 
 Cook the pizza base[s]<span class="text-danger"> </span>for 3-4 min or until the crust has started to puff up, then remove the heated tray[s]<span class="text-danger"> </span>from the oven and slide the pizza base[s] onto the tray[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1598436604031-x200.jpg)
 
 ### Step 7
 

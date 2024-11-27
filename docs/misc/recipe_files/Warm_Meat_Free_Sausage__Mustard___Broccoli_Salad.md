@@ -22,7 +22,6 @@ Make room for this hearty plant-based salad. You'll tumble in meat-free sausages
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655806651648-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add your meat-free sausages to a baking tray
 
 Put the tray in the oven for 25-30 min or until the sausages are cooked through and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655806654144-x200.jpg)
 
 ### Step 2
 
@@ -44,25 +42,21 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for an initial 10 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655806657407-x200.jpg)
 
 ### Step 3
 
 While the potatoes are cooking, cut your broccoli into small florets
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731337954503-x200.jpg)
 
 ### Step 4
 
 Peel and slice your shallot[s] finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655806663628-x200.jpg)
 
 ### Step 5
 
 Once the potatoes have been cooking for 10 min, add the broccoli florets to the pot and cook for 3-5 min further or until everything's fork-tender, then drain and return to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655806667303-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Add 1/2 tsp <span class="text-purple">[3/4 tsp]</span><span class="text-danger">
 
 Give everything a good mix up – this is your mustard & shallot dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655806670766-x200.jpg)
 
 ### Step 7
 

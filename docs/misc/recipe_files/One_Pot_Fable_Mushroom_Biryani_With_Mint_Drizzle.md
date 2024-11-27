@@ -28,7 +28,6 @@ Transport your taste buds to India with this one pot wonder. You’ll cook rice 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708349965639-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large pot (with a lid) with a drizzle of vegetable oil over a medium-high
 
 Once hot, add your Fable pulled mushrooms and cook for an initial 4-5 min or until beginning to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708349968153-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ While the mushrooms are cooking, peel and slice your shallot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708349971528-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Add a drizzle of vegetable oil and a small knob of butter alternative with the s
 
 Add your garam masala, curry powder and ginger paste and cook for 30 secs or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708349974932-x200.jpg)
 
 ### Step 4
 
 Once fragrant, add your white long grain rice and 350ml <span class="text-purple">[525ml]</span> <span class="text-danger">[700ml]</span> cold water with your vegetable stock mix and sultanas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708349978479-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once boiling, give it a good mix up, then reduce the heat to very low and cook f
 
 Tip: Stir halfway through, to stop it sticking!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708349983346-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Put the lid back on and set aside for 4-6 min or until the peas are warmed throu
 
 Once warmed through, give everything a good mix up – this is your one pot Fable mushroom biryani
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708349987169-x200.jpg)
 
 ### Step 7
 

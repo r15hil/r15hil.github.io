@@ -29,7 +29,6 @@ Have your Seekh (pronounced 'Sheek') Kebab and eat it too. In place of meat, you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654617926120-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 5-6 min or until the squash cubes are fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654617926759-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Chop your coriander finely, including the stalks
 
 Add the sliced shallot to a bowl with your white wine vinegar – this is your quick-pickled shallot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654617936228-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add half of the drained chickpeas (you'll use the rest later!) to one side of th
 
 Give everything a good mix up and put the tray in the oven for an initial 10 min or until starting to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654617944032-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once the squash is fork-tender, season with a pinch of salt and pepper and m
 
 Add your curry powder, garam masala and the remaining chickpeas and roughly mash – this is your spiced squash mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654617953952-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add your panko breadcrumbs to a plate with a pinch of salt and pepper and a driz
 
 Roll the kebabs in the breadcrumbs until fully coated – these are your coated kebabs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654617965836-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ After the chickpeas have had an initial 10 min, add the coated kebabs to the oth
 
 Return the tray to the oven for a further 10-15 min or until everything is golden and crispy – these are your spiced squash & chickpea seekh kebabs and crispy chickpeas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654617994416-x200.jpg)
 
 ### Step 7
 

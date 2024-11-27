@@ -25,7 +25,6 @@ This mushroom bake is the perfect end to a busy day. You’ll make a simple mush
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626195202669-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop your brown onion[s]
 
 Grate your chestnut mushrooms
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1626195211289-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the chopped onion and your bay leaf[ves] and cook for 4-5 min or u
 
 Once softened, add the grated mushrooms and cook for 3 min or until tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626195218445-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, dissolve your vegetable stock mix in 150ml <span class="text-purple">
 
 Drain and rinse your green lentils
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626195225592-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the mushrooms have softened, add your dried oregano, chopped tomatoes, drai
 
 Bring to the boil over a high heat and cook for 4-5 min or until the stock has thickened to a ragù-like consistency – this is your mushroom & lentil ragù
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626195231977-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once done, drain the cooked gnocchi
 
 Chop your basil finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626195239005-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add the cooked gnocchi, season with a generous pinch of salt and pepper and give
 
 Remove the bay leaf[ves] and discard – this is your hearty mushroom, basil & lentil gnocchi ragù
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626195248993-x200.jpg)
 
 ### Step 7
 

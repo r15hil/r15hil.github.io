@@ -25,7 +25,6 @@ For this fragrant one-pot, you'll need just 15 minutes to prep, with delicious r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1444.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid over a m
 
 Once hot, add the sliced onion&nbsp;with a pinch of salt and cook for 5 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1444.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Add the&nbsp;chicken thighs to&nbsp;the plate and turn them several times until 
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1444.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the onion&nbsp;is starting to soften, add the chicken thighs to the pan and cook for 2 min on each side or until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1444.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Cut the green beans in half
 
 Dissolve the chicken&nbsp;stock cube<span class="text-danger">[s]</span>&nbsp;in 400ml <span class="text-danger">[800ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1444.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,13 +77,11 @@ Bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium-low and cook, covered, for 20-30 min or until all the water has absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1444.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop the parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1444.-step-7-x200.jpg)
 
 ### Step 7
 

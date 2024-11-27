@@ -29,7 +29,6 @@ For this Spanish-style orzo you'll fry off smoky chorizo before adding pepper, s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720089571763-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720089574915-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Roll your lemon[s] with your hand on a hard surface (to release more juice) and 
 
 Chop your parsley finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720089578502-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Combine your mayo with half the chopped garlic (save the rest for later!), a squ
 
 Dissolve your chicken stock mix in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[1L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720089581915-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your diced chorizo and cook for 4-5 min or until crisped
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720089585255-x200.jpg)
 
 ### Step 5
 
 Once crisped, add the diced onion and pepper strips to the pan with a pinch of salt and pepper and cook for 4-5 min or until beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720089589648-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once fragrant, add your orzo and stir to coat the grains in the spices, then add
 
 Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or until cooked through (stir the orzo occasionally to stop it from sticking!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720089593498-x200.jpg)
 
 ### Step 7
 

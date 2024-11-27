@@ -25,7 +25,6 @@ For this Mediterranean-inspired recipe, you'll bake lemony chicken on top of pot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1679590640343-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679590644133-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Boil half a kettle
 
 Chop your potatoes (skins on) into small bite-sized pieces and add them to a large oven-proof dish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679590648279-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Crush your garlic cloves by squashing them with the side of a knife and discard 
 
 Pat your chicken breast portion[s] dry with kitchen paper and season them with a generous pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679590652436-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add your seasoned chicken and crushed garlic to the dish with your cherry tomato
 
 Give everything a good mix up, leaving the chicken at the top and put the dish in the oven for an initial 10-15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679590658211-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Slice half your<span class="text-danger"> </span>lemon[s] into slices and set th
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679590663343-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ After an initial 10-15 min, remove the dish from the oven and pour the herby sto
 
 Squeeze over the remaining lemon and top the chicken with the reserved lemon slices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679590668292-x200.jpg)
 
 ### Step 7
 

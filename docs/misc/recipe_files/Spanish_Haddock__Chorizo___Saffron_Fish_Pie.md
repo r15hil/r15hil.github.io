@@ -27,7 +27,6 @@ This fish pie is a feast of Spanish flavours. You'll infuse delicate haddock wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586450581215-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Chop the potatoes (skins-on) into large, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586450585788-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once done, drain and return to the pot to steam dry
 
 Re boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586450590110-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add the diced chorizo and cook for 4-5 min or until beginning to crisp
 
 Whilst the chorizo is cooking add the saffron to 2 tbsp <span class="text-danger">[4 tbsp]</span> boiled water and set aside to infuse – this is your saffron stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586450594473-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Dissolve 1/2 <span class="text-danger">[1] </span>Knorr vegetable stock cube and
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586450599759-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Add the haddock bites, with the juice of 1/2<span class="text-danger"> [1] </spa
 
 Transfer the fish pie mix to an oven-proof dish
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586450604897-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Top the fish pie mix with the saffron mash
 
 Put the dish in the oven for 15-20 min or until the mash is golden and the fish is cooked through – this is your Spanish haddock, chorizo & saffron fish pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586450610125-x200.jpg)
 
 ### Step 7
 

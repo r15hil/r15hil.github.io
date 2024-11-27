@@ -20,7 +20,6 @@ Classic fish cakes are a midweek staple and they're easier to make than you migh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1726.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,13 +31,11 @@ Cut the potatoes (skins on) into large bite-sized pieces
 
 Add them to a pot of boiled water with a pinch of salt and cook over a high heat for 10-15 min or until fork-tender, then drain
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1726.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, trim, then slice the spring onions finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1726.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Once hot, add the smoked basa fillets and cook for 3-4 min on each side or unt
 
 Tip: your fish is cooked when it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1726.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Meanwhile, cut the lemon<span class="text-danger">[s]</span> in half 
 
 Combine the juice of 1/2<span class="text-danger"> [1]</span> lemon with the mayonnaise in a small bowl with a pinch of salt – this is your lemon mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1726.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Add the cooked smoked basa with the sliced spring onion and a generous pinch�
 
 Divide the mix into 4 <span class="text-danger">[8]</span>, then shape them into fish cakes by squeezing together and finally coat them in panko breadcrumbs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1726.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once hot, add the fish cakes and cook on each side for 2-3 min until golden an
 
 Tip: try not to fiddle with the fishcakes in the pan while they <span class="text-highlight">cook so they</span> hold their shape
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1726.-step-7-x200.jpg)
 
 ### Step 7
 

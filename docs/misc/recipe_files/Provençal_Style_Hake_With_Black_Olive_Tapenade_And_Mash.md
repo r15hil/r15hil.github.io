@@ -21,7 +21,6 @@ For this classic French recipe, you'll top hake with tangy homemade tapenade, an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691482325834-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and finely dice your red onion[s]<span class="text-danger"> </span>and ch
 
 Peel and chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691482331786-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the diced onion with a generous pinch of salt and cook for 4 min or until soft
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691482337566-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry, then boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691482342641-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the onion has softened, add the chopped pepper, chopped tomatoes and half
 
 Add your tomato paste and a pinch of sugar, salt and pepper with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water to the pan and cook, covered for 15 min or until reduced to a stew-like consistency – this is your Provençal-style sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691482347803-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
 Add a generous drizzle of olive oil and give it a good mix up – this is your black olive tapenade
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691482353191-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Put the tray[s] in the oven for 12-15 min or until the hake is cooked through �
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691482358374-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ In just 10 minutes, you'll dig into a flavoursome North African-inspired meat-fr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626444874504-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626444877734-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Add half of your vegetable stock mix (you'll use the rest later!) to a large hea
 
 Once the kettle has boiled, add 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water, stir, cover and set aside – this is your fruity couscous
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626444882252-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Meanwhile, once the pan is hot, add your meat-free mince (remove the paper if re
 
 Once browned, add your baharat, roasted garlic paste and harissa paste (can't handle the heat? Go easy!) and cook for a further 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626444886888-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once fragrant, add the tomato paste, chopped dates, 350ml <span class="text-pur
 
 Cook for 2-3 min or until the sauce has thickened to a stew-like consistency
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626444890631-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once thickened, add the drained chickpeas and cook for another 1 min or until th
 
 Tip: Add a splash of boiled water if it's looking a little dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626444894643-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Strip your mint leaves from their stems, then chop them roughly and discard the
 
 Chop your parsley roughly, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626444899440-x200.jpg)
 
 ### Step 7
 

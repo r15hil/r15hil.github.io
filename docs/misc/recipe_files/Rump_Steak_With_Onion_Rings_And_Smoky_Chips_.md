@@ -28,7 +28,6 @@ For an all-out American diner-style experience, rustle up a succulent rump steak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1653316382034-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your potatoes (skins on) into chips
 
 Peel and grate your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1653316391192-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your ground smoked paprika, ground coriander and half the grated garlic (you
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your smoky chips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653316399270-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Chop your chives finely
 
 Combine the chopped chives in a bowl with your soured cream, the juice of half your lemon[s], the remaining grated garlic (not a big garlic fan? Try using less!) and a pinch of salt and pepper – this is your soured cream & chive dip
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1653316406832-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the onion discs to a bowl with 1 tbsp<span class="text-purple"> [1 1/2 tbsp]
 
 Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1653316414348-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Combine 60ml <span class="text-purple">[90ml]</span> <span class="text-danger">[
 
 Pour the spiced batter over the floured onions and give everything a mix so they are nicely coated – these are your battered onions
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1653316425207-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Rest the cooked rump steak on a plate and reserve the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653316436114-x200.jpg)
 
 ### Step 7
 

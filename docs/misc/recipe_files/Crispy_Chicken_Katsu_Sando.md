@@ -23,7 +23,6 @@ A katsu sando is a classic Japanese sandwich made with crispy pork. For our vers
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1598382540068-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598382602145-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Shred half the little gem finely
 
 Cut the remaining gem into 2<span class="text-danger"> [4]</span> wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598382625386-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Combine the mayonnaise with 1 tsp<span class="text-danger"> [2 tsp]</span> rice 
 
 Stir it all together – this is your creamy slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1598382638024-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Cover the chicken breasts with cling film and bash them with a rolling pin until
 
 Season both sides of the flattened chicken with salt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598382651631-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the panko breadcrumbs to another plate
 
 Coat the seasoned chicken in the flour, tap off any excess, then add it into the beaten egg and finally press it into the breadcrumbs firmly to evenly coat all over
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598382660076-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the breaded chicken and cook for 4-5 min on each side or until cooked through (no pink meat!) and crispy – this is your katsu chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1598382667746-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Yasai translates to 'vegetable' in Japanese. Here our said vegetables are auberg
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/962.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the rounds&nbsp;to a baking tray with a generous drizzle of vegetable oil an
 
 Give everything a good old mix up and put the tray in the oven for 15 min (approx. step 4)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/962.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Add the rice vinegar to a large mixing bowl&nbsp;with 2 tsp<span class="text-dan
 
 Stir until the sugar has dissolved, then add the&nbsp;ginger&nbsp;matchsticks and set aside to pickle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/962.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,7 +69,6 @@ Once hot, add the aubergine and cook for 2 min on each flesh side until browned
 
 Transfer the aubergine to the tray with the&nbsp;sweet potato&nbsp;and return it to the oven for 15-20 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/962.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -87,7 +83,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/962.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -102,7 +97,6 @@ Once you cannot peel any more, grate the remaining&nbsp;carrot
 
 Finely chop (or grate) the remaining&nbsp;ginger&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/962.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -117,7 +111,6 @@ Once hot, add the&nbsp;chopped shallot,&nbsp;chopped ginger,&nbsp;grated carrot&
 
 Stir 1 tbsp<span class="text-danger"> [2 tbsp]</span> flour&nbsp;into the pan cook for 1 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/962.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ This classic is a hole-in-one. You’ll cook juicy pork sausages in batter till 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706629053770-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Combine your egg[s], most of your cornflour (save a little for later!) and 35g<s
 
 Put the batter in the fridge to rest
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706629153019-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add your sausages to an oven-proof dish with a generous drizzle of vegetable oil
 
 Put the dish in the oven for 12-15 min or until the sausages are beginning to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706629157928-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Add the carrot batons and green beans to a large piece of tin foil (or two!) wit
 
 Scrunch the foil around the veg to form a tightly sealed parcel[s] and add to a baking tray
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706629211965-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Return the dish to the oven along with the veg parcel[s] and cook for 22-25 min,
 
 Tip: Don't peek! Opening the oven might make your giant Yorkie collapse!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706629249323-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706629264214-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Return the potatoes to a low heat with a knob of butter and a splash of milk
 
 Season with a grind of black pepper and mash until smooth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706629285696-x200.jpg)
 
 ### Step 7
 

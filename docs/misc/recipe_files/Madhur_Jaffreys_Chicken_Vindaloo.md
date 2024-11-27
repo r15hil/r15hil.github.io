@@ -27,7 +27,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1081.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the basmati rice and 175ml<span class="text-danger"> [350ml]</span> cold wat
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1081.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely chop (or grate) the garlic
 
 Grind 1/2 tsp<span class="text-danger"> [1 tsp]</span> black pepper into a small bowl&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1081.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add half the yellow mustard seeds (save the rest for later!) and cook 
 
 Once popping, add the ground fenugreek, ground black pepper and the basil leaves and cook for 10 sec&nbsp;further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1081.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Add the apple&nbsp;cider vinegar,&nbsp;a generous pinch of salt&nbsp;and give ev
 
 Reduce the heat to low and cook, covered, for 20 min or until the chicken is cooked and coated in the sauce&nbsp;- this is your chicken vindaloo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1081.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Once hot, add the chopped green beans with a splash of water and cook, covered, 
 
 Once tender, remove the lid and cook for a further 1-2 min or until all of the water has evaporated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1081.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Put the tray in the oven for 3 min or until they're warmed through&nbsp;
 
 Once done, remove the naans from the oven and wrap them in a tea towel to keep warm until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1081.-step-7-x200.jpg)
 
 ### Step 7
 

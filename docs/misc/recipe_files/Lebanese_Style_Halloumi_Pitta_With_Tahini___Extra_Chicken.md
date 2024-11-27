@@ -24,7 +24,6 @@ These Lebanese-style pittas are the perfect dinnertime pit stop. You’ll coat h
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728997352853-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1730291056704-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Now, let's get started!
 
 Heat a large, wide-based pan (preferably non-stick, with a matching lid) over a medium-high heat with a drizzle of vegetable oil, once hot, add your chicken breast portion and cook for 3 min on each side or until golden, add a couple of splashes of water and cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728997360393-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a separate, large, wide-based pan (preferably non-stick) with a drizzle of 
 
 Once hot, add the coated halloumi and cook for 2-3 min on each side or until golden brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728997365990-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, peel and grate (don't chop!) your garlic
 
 Cut your tomato[es] into wedges
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728997369042-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Add your tahini to a small bowl with 1 tbsp <span class="text-purple">[1 1/2 tbs
 
 Add your natural yoghurt and grated garlic and stir it all together – this is your tahini yoghurt dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728997372777-x200.jpg)
 
 ### Step 6
 
 Add your wholemeal pitta[s] to a toaster for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728997376456-x200.jpg)
 
 ### Step 7
 

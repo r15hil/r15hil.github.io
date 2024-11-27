@@ -28,7 +28,6 @@ Experience the flavours of Malaysia's hawker markets with our take on a street f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-55-1725441020615-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and finely chop your shallot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-55-1725441025843-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add 2/3 of your tamarind paste and 2/3 of your soy sauce (you’ll use the rest 
 
 Add a generous pinch of salt and pepper and give everything a good mix up (clean hands are the best way!) – this is your murtabak filling
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-60-1725441030542-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add 1 roti per person to a baking tray (or two!)
 
 Divide the murtabak filling between the roti[s], evenly covering the roti[s] and spreading the filling almost to the edges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-53-1725441033730-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Top each tray of roti[s] with another baking tray (this will help to keep them f
 
 Put the trays in the oven and cook for 15-18 min or until the lamb is cooked through (no pink meat!) – this is your Malaysian-style lamb murtabak
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-55-1725441037746-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-55-1725441041217-x200.jpg)
 
 ### Step 6
 
 Cut your cucumber into quarters lengthways, then chop roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-54-1725441048692-x200.jpg)
 
 ### Step 7
 

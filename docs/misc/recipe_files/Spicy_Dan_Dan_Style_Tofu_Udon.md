@@ -28,7 +28,6 @@ A Sichuan classic, these fiery dan dan noodles aren’t for the faint of heart. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692958865214-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Crumble the drained tofu very finely
 
 Combine the crumbled tofu and five-spice mix in a bowl with your umami seasoning and half your soy sauce (you'll use the rest later!) and a pinch of salt  – this is your umami tofu
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692958868048-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the umami tofu (reserve the bowl!) to the pan and cook for 12-14 min or until golden and crispy, breaking it up with a wooden spoon as you go – this is your crispy tofu
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692958870904-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Meanwhile, combine your cornflour and remaining soy sauce in the reserved bowl w
 
 Add 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[80ml]</span> boiled water with a pinch of salt – this is your dan dan-style sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692958875058-x200.jpg)
 
 ### Step 4
 
 Trim, then slice your spring onion[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692958879103-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Set aside to soak for 1-2 min, then stir to separate the noodles
 
 Drain the soaked noodles
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692958883483-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once the tofu is crispy, reduce the heat to medium
 
 Add the dan dan-style sauce and cook for 30 secs or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692958887636-x200.jpg)
 
 ### Step 7
 

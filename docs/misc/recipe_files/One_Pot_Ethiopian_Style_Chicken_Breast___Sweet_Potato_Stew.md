@@ -27,7 +27,6 @@ Homestyle Ethiopian cooking, with a Gousto twist. Fill your kitchen with the ent
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690219002441-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your oven-proof dishes and all
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover with tin foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690219010594-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Take your chicken out of the fridge and open the packet to let it air before coo
 
 Peel and slice your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Empty-oven-proof-dish-1692353184081-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based hob safe oven-proof casserole dish with a matching lid 
 
 Once the pan is hot add the sliced onions, chicken breast portion[s] and a pinch of salt and cook for 3-4 min until the chicken is lightly golden and the onion is starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690219032493-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile chop your sweet potato[es] (skins on) into small bite size chunks
 
 Dissolve your chicken stock mix in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690219038033-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Season with a pinch of salt and of pepper and give everything a good mix up
 
 Tip: Nestle the potatoes into the stock as much as you can!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690219040676-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Tip: Give everything a stir halfway through for evenly cooked potatoes!
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690219045926-x200.jpg)
 
 ### Step 7
 

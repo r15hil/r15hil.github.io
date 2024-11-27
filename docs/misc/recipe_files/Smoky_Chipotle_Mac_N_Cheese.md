@@ -27,7 +27,6 @@ We've given this comforting classic a Mexican makeover. You'll flavour your mac 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1380.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced peppers and cook, covered, for 4-5 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1380.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and slice your red onion[s]
 
 Add the sliced onion to the pan with a pinch of salt and cook, covered, for a further 4-5 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1380.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook for 7 min or until it's cooked with a slight bite
 
 Once done, drain the macaroni, reserving 150ml<span class="text-danger"> <span class="text-purple">[225ml] </span>[300ml]</span> of starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1380.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Combine your panko breadcrumbs, ground smoked paprika, a pinch of salt and a gen
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vegetable-stock-1636975152605-x200.jpg)
 
 ### Step 5
 
 Dissolve your vegetable stock mix in the reserved pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1636975158209-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the onion has softened, add your chipotle paste (can't handle the heat? Go 
 
 Give everything a good mix up – this is your chipotle mac 'n' cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1636452933608-x200.jpg)
 
 ### Step 7
 

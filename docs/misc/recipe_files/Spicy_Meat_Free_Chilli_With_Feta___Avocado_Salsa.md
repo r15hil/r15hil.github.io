@@ -30,7 +30,6 @@ Make meat-free Mondays a Mexican fiesta with this hearty chilli non-carne. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632303401532-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632303414235-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once hot, add your meat-free mince (remove the paper if required!) and cook for 
 
 Tip: Try not to stir too often so the mince gets nice and brown!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632303428663-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Dissolve your vegetable stock mix, chipotle paste (can't handle the heat? Go eas
 
 Drain and rinse your black beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632303455367-x200.jpg)
 
 ### Step 4
 
 Once the meat-free mince has browned, add the chopped garlic, ground smoked paprika and ground cumin with a pinch of salt and cook for 30 secs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632303465083-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the chipotle stock, drained black beans and chilli flakes (not a fan of spic
 
 Cook for 4-5 min or until the sauce has thickened – this is your spicy meat-free mince chilli
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632303492569-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Crumble your feta into large pieces using your hands
 
 Cut your lime[s] in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632303506970-x200.jpg)
 
 ### Step 7
 

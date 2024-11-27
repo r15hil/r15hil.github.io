@@ -25,7 +25,6 @@ Get this comforting French classic on the table in minutes. You'll cook diced ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622807640336-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,19 +47,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Combine your red wine vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your vinaigrette
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the diced chicken to the pan and cook for 4-5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-4-x200.jpg)
 
 ### Step 4
 
 Dissolve chicken stock mix and wholegrain mustard in 100ml<span class="text-purple"> [125ml]  </span><span class="text-danger">[150ml]</span> boiled water – this is your mustard stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Tip: If you're cooking two pouches, pop them in together but increase the microw
 
 Trim, then chop your spring onion[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add your Chinese rice wine and cook for 30 secs further
 
 Add your mustard stock to the pan and bring to the boil over a high heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1723.-step-7-x200.jpg)
 
 ### Step 7
 

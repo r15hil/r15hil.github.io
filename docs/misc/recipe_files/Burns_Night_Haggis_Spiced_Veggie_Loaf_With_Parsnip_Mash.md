@@ -29,7 +29,6 @@ Step into the world of Burns Night with a vegetarian twist on haggis. To make th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1703063217959-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the diced carrot and cook for 2-3 min, then add the chopped mushrooms and cook for a further 5-7 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1703063222361-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the chopped vegetables to a pot of boiled water, bring to the boil over a hi
 
 Once done, drain and leave them to steam dry, reserving the pot for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1703063227049-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Drain and rinse your green lentils
 
 Add the chopped garlic to the pan with the drained lentils, your cracked black pepper and your ground allspice (not a fan of allspice? Don't add it all!), give everything a good mix up and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1703063258818-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the stock to the pan with your panko breadcrumbs, mix everything together an
 
 Reboil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1703063285729-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add the haggis-spiced veggie loaf mix to the prepared tin[s], pressing down int
 
 Put in the oven and cook for 20-25 min or until crisp on the top
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1703063298045-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ When the haggis loaf is almost cooked, scrunch the edges of the foil around the 
 
 Tip: Cooking for 3 or more? Make 2 separate parcels!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1703063303987-x200.jpg)
 
 ### Step 7
 

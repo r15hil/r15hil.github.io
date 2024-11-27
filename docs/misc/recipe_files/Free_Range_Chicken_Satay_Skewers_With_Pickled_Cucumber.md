@@ -28,7 +28,6 @@ Recreate the irresistible satay flavours found across Southeast Asia. You'll mar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1718788939354-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Slice your free range chicken breast portion[s] lengthways into 2 strips per person, then chop your creamed coconut roughly (if required!) and combine with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water – this is your coconut stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1718788943354-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Combine your curry powder with a drizzle of the coconut stock (you'll use the 
 
 Add the free range chicken strips, mix well and set aside to marinate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1718788946934-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add your peanut butter, soy sauce, chilli flakes (can't handle the heat? Go e
 
 Cook for 15-20 min or until it has reduced to the consistency of a thick custard, stirring occasionally – this is your satay sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718788950308-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1718788953786-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Slice the cucumber halves finely
 
 Trim, then slice your spring onion[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1718788957253-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Mix well and set aside to marinate – this is your quick-pickled cucumber
 
 Thread each marinated chicken strip onto a soaked skewer in a snake-like fashion
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1718788961031-x200.jpg)
 
 ### Step 7
 

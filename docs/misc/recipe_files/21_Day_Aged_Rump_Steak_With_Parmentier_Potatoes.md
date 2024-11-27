@@ -25,7 +25,6 @@ With a steak this special, we're keeping the flavours classic. You'll pair your 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2500Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut your potatoes (skins on) into bite-sized cubes
 
 Crush your garlic (skins on) with the side of a knife
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2500Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter and a 
 
 Once the butter has melted, add the crushed garlic and cubed potatoes to the pan with a generous pinch of salt and pepper and cook for 3-4 min or until starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2500Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once the potatoes have caramelised, add them to a tray (save the pan for later!)
 
 Tip: Cooking for 4 or more? You may need 2 trays!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2500Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Chop your capers roughly
 
 Add the chopped shallot and capers to a bowl with your clotted cream, Dijon mustard and a generous grind of black pepper and give everything a good mix up – this is your bistro butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2500Step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Put the tray in the oven for an initial 10-15 min or until starting to soften
 
 Meanwhile, halve your cherry tomatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2500Step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak is cooked, transfer to a plate to rest
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2500Step-7-x200.jpg)
 
 ### Step 7
 

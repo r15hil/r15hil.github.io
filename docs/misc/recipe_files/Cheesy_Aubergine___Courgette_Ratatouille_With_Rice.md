@@ -26,7 +26,6 @@ Rustle up this ratatouille for a hearty dinner in. You’ll roast aubergine and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693573755362-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Top, tail and chop your courgette[s] into quarters lengthways, then chop into sm
 
 Meanwhile, peel and finely dice half your red onion[s] and cut the remaining onion into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693573759402-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Put the tray[s] in the oven for 15 min or until softened and slightly charred
 
 While the vegetables are in the oven, peel and finely chop your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693573762979-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add the diced onion and garlic with a pinch of salt and cook for 4-5 min or until slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693573766679-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693573770944-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Once fragrant, add 250ml <span class="text-purple">[325ml]</span> <span class="t
 
 Reduce the heat to medium-low and cook for 5 min or until the sauce has slightly thickened – this is your tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693573774818-x200.jpg)
 
 ### Step 6
 
 Meanwhile, grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693573779114-x200.jpg)
 
 ### Step 7
 

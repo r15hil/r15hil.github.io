@@ -30,7 +30,6 @@ Polish off your wok for these plant-packed noodles. You’ll sizzle chestnut mus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678880530461-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles, reserving 150ml<span class="text-purple"> [225ml]<span class="text-danger"> </span>[300ml]</span> starchy noodle water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678880535802-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the torn mushrooms with a pinch of salt and cook for 7-8 min or until golden brown all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678880546673-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Top, tail, and slice your carrot[s] into discs on the diagonal
 
 Slice each individual carrot disc into matchsticks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678880551720-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Crush your roasted peanuts with a rolling pin
 
 Tip: If you don't have a rolling pin, just chop them roughly!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678880561307-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once the mushrooms are golden brown, add the halved Tenderstem and carrot matchs
 
 Give everything a good mix up and cook for 3-4 min or until the broccoli is almost tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678880566827-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Gradually stir in 150ml <span class="text-purple">[225ml]</span> <span class="te
 
 Add your hoisin sauce, gluten free soy sauce, rice vinegar and chilli flakes (can't handle the heat? Go easy!) – this is your hoisin stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678880574118-x200.jpg)
 
 ### Step 7
 

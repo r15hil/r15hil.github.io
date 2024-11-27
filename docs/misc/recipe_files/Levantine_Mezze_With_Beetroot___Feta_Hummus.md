@@ -27,7 +27,6 @@ This Mediterranean mezze is fully loaded with your 5-a-day. You’ll whip up a f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684499246240-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and chop half the red onion<span class="text-danger">[s]</span> into wedges
 
 Drain the beetroot in a colander over the sink, then dice the drained beetroot very finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684499256599-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Tip: Cooking for 4? Use 2 trays!
 
 Combine the red wine vinegar and 1 tsp <span class="text-danger">[2 tsp]</span> sugar in a large bowl with the diced onion – this is your quick-pickled onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684499259709-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and rinse under a little cold running water to cool slightly, then return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684499262142-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Crush the garlic open by squashing them with the side of a knife and discard the
 
 Peel lengths off the courgette<span class="text-danger">[s]</span> with a peeler until you end up with a pile of courgette ribbons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684499264519-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Chop the parsley finely, including the stalks, and strip the mint leaves from th
 
 Add the chopped tomatoes and half the ground sumac (you'll use the rest later!) to the pot with the bulgur wheat, then add the chopped parsley, chopped mint, quick-pickled onion (reserve the bowl!) and a generous pinch of salt and give everything a good mix up – this is your tabbouleh
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684499267291-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once the roasted veg is ready, remove the tray<span class="text-danger">[s]</spa
 
 Combine the courgette ribbons and the juice of 1/2 <span class="text-danger">[1]</span> lemon in the reserved bowl with the roasted onion wedges, the remaining ground sumac, a little olive oil and a pinch of salt – this is your marinated courgette
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684499270143-x200.jpg)
 
 ### Step 7
 

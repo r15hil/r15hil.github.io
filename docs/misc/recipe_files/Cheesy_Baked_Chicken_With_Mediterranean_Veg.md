@@ -28,7 +28,6 @@ This vibrant dinner is inspired by the Mediterranean sun. While the chicken and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1642089827263-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the potato pieces to one side of a baking paper-lined baking tray (or two!) 
 
 Put the tray[s] in the oven for 20-25 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1642089852390-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ While the potatoes are cooking, add your chicken breast portion[s] to a chopping
 
 Bash the chicken breast portion[s] with a rolling pin until evenly flattened and pat them dry with kitchen paper – this is your chicken escalope[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1642089864416-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Grate your cheddar cheese into a bowl, add your panko breadcrumbs and season w
 
 Add a drizzle of vegetable oil and give everything a good mix up – this is your cheesy breadcrumb mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1642089874686-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Put the tray[s] in the oven for 20 min further or until the chicken is cooked th
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1642089888079-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Dissolve your vegetable stock mix in 50ml<span class="text-purple"> [75ml] </spa
 
 While the chicken is cooking, heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1642089904762-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the vegetable stock and cook for 1-2 min further
 
 Season generously with salt and pepper – this is your Mediterranean veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1642089917339-x200.jpg)
 
 ### Step 7
 

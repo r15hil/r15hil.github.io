@@ -29,7 +29,6 @@ These Santorini-style fritters are an Aegean delight. Inspired by tomato keftede
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-8-1685710655203-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop your potatoes (skins on) into fries, then add to a baking tray (or two!) wi
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until the fries are golden and crisp – these are your herby fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-7-1685710659880-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely slice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-7-1685710664629-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Chop your parsley finely, including the stalks
 
 Crumble your Greek cheese into small pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-8-1685710668444-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the chopped cherry tomatoes to a bowl with the sliced red onion, chopped her
 
 Give everything a good mix up – this is your Santorini-style tomato salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-7-1685710670857-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add half the Santorini-style tomato salad (save the rest for later!) to the bowl
 
 Add your cornflour with 2 tbsp<span class="text-purple"> [3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>flour to the bowl and mix until fully combined – this is your fritter mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-7-1685710674188-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the pan is hot, spoon the fritter mixture into the pan, roughly divided int
 
 Carefully flip and cook for 4-5 min on the other side or until golden and cooked through – these are your Santorini-style tomato fritters
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-8-1685710677203-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This is modern Indian food. You'll make a fresh coriander chutney, using cool yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/424__step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once hot, add half of the diced&nbsp;onion (save the rest for later), the curry 
 
 Cook for 3 min, or until the onion is softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/424__step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add 250ml <span class="text-danger">[500ml]</span>&nbsp;water and bring to the b
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked &ndash; this is your spiced rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/424__step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Peel and roughly chop the garlic
 
 Chop the coriander roughly (including the stalks), reserving a few whole sprigs for garnish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/424__step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the chopped ginger,&nbsp;garlic and coriander to a processor with 3 tbsp <sp
 
 Tip: alternatively use a stick blender or pestle &amp; mortar&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/424__step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the ground almonds and Greek-style yoghurt and blitz again into a thick past
 
 This is your coriander yoghurt sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/424__step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once hot, add the remaining onion and cook until softened (approx. 2 min)
 
 Add the chicken and cook for 4-5 min or until golden and cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/424__step-7-x200.jpg)
 
 ### Step 7
 

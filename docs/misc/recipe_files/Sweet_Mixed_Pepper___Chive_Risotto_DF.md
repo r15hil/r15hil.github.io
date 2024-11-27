@@ -27,7 +27,6 @@ Roasted peppers and a rich tomato stock add sweet richness to this velvety risot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1640091617212-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the pepper strips to a baking tray with a drizzle of olive oil and a pinch o
 
 Put the tray in the oven for 20-25 min until roasted and golden – these are your roasted peppers
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640091620794-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely dice the red onion<span class="text-danger">[s]</span>
 
 Dissolve the vegetable stock mix in 700ml <span class="text-danger">[1.4L]</span> boiled water, then add the tomato paste, Chinese rice wine and chilli jam – this is your sweet tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1640091624083-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Once hot, add the diced red onion with a pinch of salt and cook for 4 min unti
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1640091630314-x200.jpg)
 
 ### Step 4
 
 Once softened, add the arborio rice, chopped garlic, smoked paprika and ground turmeric to the pan and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1640091639078-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add 1/3 of the sweet tomato stock and stir continuously until absorbed
 
 Continue to add the remaining sweet tomato stock, a ladle at a time, stirring continuously for 25-30 min, until all the stock is absorbed and the rice is cooked – this is your risotto
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1640091643799-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Meanwhile, chop the chives finely
 
 Grate the cheddar flavour block
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1640091647727-x200.jpg)
 
 ### Step 7
 

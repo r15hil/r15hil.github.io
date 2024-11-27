@@ -24,7 +24,6 @@ Mix up quick curried yoghurt to coat your salmon fillets, cook 'em in a nice hot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1622807773574-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1986.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine your curry powder with half your roasted garlic paste, half your natura
 
 Add your salmon fillet[s] and combine until fully coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1986.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cook for 5-6 min on each side or until cooked through – this is your tandoori 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1986.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ While the salmon is cooking, cut your cucumber in half lengthways and slice ro
 
 Strip your mint leaves from their stems and chop them finely, discard the stems
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1986.-step-5--x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Add the sliced cucumber and mint leaves to a bowl with 1 tsp<span class="text-d
 
 Give it a good mix up – this is your minty cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1986.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Once hot, add your cooked brown long grain rice and spinach with a splash of water and cook, covered for 3-4 min until warmed through – this is your brown rice & spinach
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1986.-step-7-x200.jpg)
 
 ### Step 7
 

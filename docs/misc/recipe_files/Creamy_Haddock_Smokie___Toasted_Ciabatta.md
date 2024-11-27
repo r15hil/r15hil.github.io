@@ -22,7 +22,6 @@ Flaky haddock and creamy cheese sauce are a match made in heaven. Pack your smok
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690801925796-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Boil a full kettle
 
 Peel your potatoes and chop into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690801930199-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690801934187-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Peel and finely chop (or grate) your garlic
 
 Grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690801939780-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once melted, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span clas
 
 Gradually whisk 150ml <span class="text-purple">[225ml] </span><span class="text-danger">[300ml]</span> milk and your double cream into the roux, a little at a time, and cook for 3-5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690801943694-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once the potatoes are tender, add the chopped haddock bites, cooked potatoes and
 
 Add a very generous pinch of salt and pepper and give everything a good mix up – this is your haddock filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690801948347-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Put the dish[es] in the oven and cook for 12-15 min or until bubbling and golden
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690801952550-x200.jpg)
 
 ### Step 7
 

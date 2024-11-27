@@ -22,7 +22,6 @@ This smoky basa is table-ready in 10. You’ll simmer cannellini and green beans
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1731418453436-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680081279783-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Trim, then chop your green beans into bite-sized pieces
 
 Dissolve your vegetable stock mix, Dijon mustard and soft cheese in 200ml <span class="text-purple">[260ml]</span><span class="text-danger"> [350ml] </span>boiled water – this is your creamy Dijon stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680081284282-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced shallot to the pan with a pinch of salt and cook for 1-2 min or until slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680081288632-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Meanwhile, drain and rinse your cannellini beans
 
 Once the shallot has slightly softened, add the drained cannellini beans and chopped green beans to the pan and cook for 2-3 min or until the beans have begun to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680081293624-x200.jpg)
 
 ### Step 5
 
 While the beans are softening, chop your smoked basa fillet[s] into bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680081298358-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Cook, covered, for 5 min or until your fish is cooked through – this is your s
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680081302244-x200.jpg)
 
 ### Step 7
 

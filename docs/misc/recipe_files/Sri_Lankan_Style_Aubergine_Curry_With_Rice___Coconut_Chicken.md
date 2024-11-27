@@ -26,7 +26,6 @@ Pack your plate with the fragrant flavours of Sri Lanka. You'll simmer charred a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669137062352-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Combine the creamed coconut and half the turmeric in a medium bowl with 50ml<spa
 
 Once dissolved, add the chicken thighs to the marinade and give everything a good mix up until fully coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669137082526-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the coated chicken to the pan and cook for 2-3 min on each side un
 
 While the chicken is cooking, trim the green stalk off the aubergine<span class="text-danger">[s]</span> and slice, lengthways into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669137093065-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and finely chop (or grate) the garlic
 
 Once the chicken has slightly browned, transfer it to a baking paper-lined tray (reserve the pan!) and put in the oven for 17-18 min or until cooked through (no pink meat!) – this is your coconut chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669137109345-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Boil half a kettle
 
 Crush the cardamom pods open by squashing them with the side of a knife, then discard the outer green pods
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669137150666-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once the aubergine is charred, add the chopped ginger and garlic with the tomato
 
 Once slightly softened, add the cardamom seeds, black mustard seeds, ground cumin, chilli flakes (can't handle the heat? Go easy!) and remaining turmeric to the pan, mix it all together and cook for 30 secs until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669137171944-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669137180728-x200.jpg)
 
 ### Step 7
 

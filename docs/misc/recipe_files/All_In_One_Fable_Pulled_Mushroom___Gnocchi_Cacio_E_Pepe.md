@@ -25,7 +25,6 @@ Cacio e pepe, meaning ‘cheese and pepper’, is a favourite in Rome for a reas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1641308386490-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Before you begin...
 
 This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641308393411-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add your Fable pulled mushrooms to one side of the dish[es]
 
 Coat your gnocchi in a little olive oil and add it to the other side of the dish[es]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641308397060-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Put the dish[es] in the oven for an initial 25-30 min or until the gnocchi is cr
 
 Tip: Check your Fable pulled mushrooms and gnocchi half way through and give them a stir for even crispiness!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641308402457-x200.jpg)
 
 ### Step 4
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641308407585-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Drizzle over half your balsamic vinegar (save the rest for later!)
 
 Put the tray in the oven for 12-15 min or until tender – these are your roasted balsamic tomatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641308418084-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once the gnocchi and Fable pulled mushrooms are almost done, mix your grated Ita
 
 Add 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[550ml]</span> boiled water, your vegetable stock mix, soft cheese and cracked black pepper – this is your cacio e pepe sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641308422256-x200.jpg)
 
 ### Step 7
 

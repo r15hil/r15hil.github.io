@@ -26,7 +26,6 @@ Roll up, roll up. These meatballs are a zesty delight. You’ll pan-fry beef mea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1687337876333-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Strip the mint leaves from their stems and chop them roughly, discard the stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1687337880455-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine the beef mince and lemon zest in a bowl with half the grated garlic (you
 
 Give everything a good mix up until thoroughly combined (clean hands are the best way!) and shape into 6 <span class="text-danger">[12] </span>meatballs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1687337886031-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the meatballs and cook for 2 min on each side or until browned
 
 Once the meatballs have browned, transfer them to a plate and set aside, (these will finish cooking in the sauce later)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1687337889886-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Meanwhile, dissolve half the chicken stock mix (you'll use the rest later!) with
 
 Once the onion has softened, add the remaining grated garlic to the pan and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1687337896074-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the chopped tomatoes and tomato stock to the pan and bring to the boil over 
 
 Once boiling, reduce the heat to medium, return the browned meatballs to the pan and cook, covered for 12-15 min or until cooked through (no pink meat!) – these are your spiced beef meatballs with fragrant tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1687337901042-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ While the meatballs are cooking, add the couscous and remaining chicken stock mi
 
 Once done, add the juice of 2<span class="text-danger"> [4]</span> lemon wedges and fluff with a fork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1687337906710-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ It’s all about the oven with this easy weeknight dinner. You’ll bake tofu ti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1594054107941-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once done, add your blanched edamame beans and cook for 1 min further, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1594054118313-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Add the tofu slices to a large bowl with 1/2 tbsp <span class="text-purple">[3/4
 
 Add the coated tofu to a lightly oiled tray (or two!) and sprinkle over your toasted sesame seeds
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1594054137067-x200.jpg)
 
 ### Step 3
 
 Put the tray[s] in the oven for 15-20 min or until the tofu is starting to crisp – this is your sesame tofu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1594054150016-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the cucumber to a bowl with your rice vinegar and a pinch of salt
 
 Give everything a good mix up and set aside for later – this is your quick-pickled cucumber
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1594054164565-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Massage the kale with clean hands so that the kale is evenly covered in oil
 
 Put the tray[s] in the oven for 5-10 min or until crispy, giving it a good mix up half way through – this is your crispy kale
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1594054170150-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Give it a good whisk up – this is your spicy peanut sauce
 
 Tip: If it looks like its split, keep whisking and it will come together!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1594054182073-x200.jpg)
 
 ### Step 7
 

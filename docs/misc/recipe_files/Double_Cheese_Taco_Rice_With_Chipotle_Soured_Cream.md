@@ -30,7 +30,6 @@ Double up on your weekly cheese fix. You’ll sizzle pepper and black beans in g
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-2-1728464288730-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701250670113-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Boil half a kettle
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701250678069-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced pepper and cook for 2-3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701250684625-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once the pepper has slightly softened, add the drained black beans to the pan wi
 
 Give everything a good mix up, season with a pinch of salt and pepper and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701250702210-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add your tomato paste to the pan with 80ml <span class="text-purple">[105ml]</sp
 
 Mix it all together and cook for 3-4 min or until the rice is warmed through – this is your taco rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701250707862-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Trim, then slice your spring onion[s] roughly
 
 Top the taco rice with the crumbled feta and grated cheese and cook for a final 1 min or until the cheese has slightly melted – this is your double cheese taco rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701250714783-x200.jpg)
 
 ### Step 7
 

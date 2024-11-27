@@ -24,7 +24,6 @@ Thought sausage rolls couldn’t get meatier? Think again. You’ll add fiery �
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-40-1716196221448-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Add the pastry rectangle[s] to a baking paper-lined baking tray (or two!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-39-1716196225895-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Season with a pinch of pepper – this is your sausage mixture
 
 Divide the sausage mixture equally and press into a sausage shape (1 per person) and lay in the middle of the pastry rectangle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-45-1716196229912-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Score the top of the sausage roll[s], then brush with a little milk
 
 Put the tray[s] in the oven for 20-25 min or until golden and puffed up – this is your 'Nduja & honey sausage roll
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-40-1716196233460-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 15 min or until fork-tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-41-1716196237532-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Combine your white wine vinegar with the remaining honey and a little drizzle of
 
 Add the chopped tomato and baby leaf salad to the dressing and toss – this is your dressed salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-40-1716196242255-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Chop your parsley finely, including the stalks
 
 Peel and finely chop (or grate) your garlic
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-40-1716196245904-x200.jpg)
 
 ### Step 7
 

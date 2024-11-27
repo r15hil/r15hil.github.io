@@ -31,7 +31,6 @@ Our Indonesian-inspired skewers are completely irresistible. You'll roast them i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684841011027-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span c
 
 Once boiling, reduce the heat to low until very gently bubbling and cook, covered, for 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684841014529-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
 Meanwhile, soak your skewers in cold water (this prevents them from burning whilst cooking) and preheat the grill to medium-high
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684841018099-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Add the garlic, ginger, lemongrass core[s] and lime leaf[ves] to a food processo
 
 Tip: If you don't have a food processor, chop everything very finely!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684841021462-x200.jpg)
 
 ### Step 4
 
 Once blitzed, combine the ginger & lemongrass paste, lean pork mince (remove the paper from the mince if required!) and half your soy sauce (you'll use the rest later!) in a bowl and mix everything together
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684841024369-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Divide the lean pork mixture and press it onto each skewer to form 2 long sausag
 
 Add the Indonesian-style lean pork skewers to a baking tray (use tin foil to avoid mess!) and put the tray under the grill for 10-12 min, turning once, or until golden and cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684841027030-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Cook for 2-3 min or until starting to soften, then add a splash of water and coo
 
 Meanwhile, chop half of your red chilli[es] into rounds, then deseed (scrape the seeds out with a teaspoon) and finely chop the rest
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684841030232-x200.jpg)
 
 ### Step 7
 

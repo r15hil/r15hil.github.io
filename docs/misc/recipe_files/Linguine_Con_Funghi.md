@@ -22,13 +22,11 @@ This pasta is mushroomy to the max. You'll make a duxelle which is an intense, p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/399.step-1-x200.jpg)
 
 ### Step 1
 
 Boil a full kettle&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/399.step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Drizzle them with olive oil and season generously with salt and pepper
 
 Preheat&nbsp;your grill to high (for step 5)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/399.step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Cook the linguine over a high heat for 8 min or until it retains a slight bite
 
 Once cooked, drain the linguine and reserve approx. 500ml of the starchy cooking water&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/399.step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Grate the Italian hard&nbsp;cheese&nbsp;
 
 Grate or very finely chop the chestnut mushrooms&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/399.step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Place the sliced portobello mushrooms&nbsp;under the grill for 10 min or until t
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/399.step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Crumble the&nbsp;vegetable stock cube<span class="text-danger">[s]</span>&nbsp;i
 
 Cook over a medium-high heat for 5-7 min or until everything is browned and caramelised
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/399.step-7-x200.jpg)
 
 ### Step 7
 

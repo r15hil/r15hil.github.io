@@ -30,7 +30,6 @@ The buttery caramelised shallots, Middle Eastern spices and rich mince will make
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1657006086644-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel and finely chop your shallot[s]
 
 Chop your coriander finely, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657005958673-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Once cooked, drain and return to the pot
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657005961378-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lamb mince to the pan and cook for 1-2 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657005964205-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once fragrant, add the tomato stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook for 8-10 min or until the lamb is cooked through (no pink meat!) and the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657005967834-x200.jpg)
 
 ### Step 5
 
@@ -88,13 +83,11 @@ Once starting to soften, add your ground allspice with a pinch of salt and cook 
 
 Once fragrant, stir through the cooked bulgur until fully combined
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657005970346-x200.jpg)
 
 ### Step 6
 
 Add the diced tomatoes to a bowl with your ground sumac, half of the chopped coriander (you'll use the rest later!), a drizzle of olive oil and a pinch of salt – these are your sumac tomatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657005973588-x200.jpg)
 
 ### Step 7
 

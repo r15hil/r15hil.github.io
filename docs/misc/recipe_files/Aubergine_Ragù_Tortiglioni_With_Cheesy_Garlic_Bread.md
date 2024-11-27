@@ -29,7 +29,6 @@ This hearty aubergine ragù is the ultimate comfort food. You'll stir pulled aub
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684229663212-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Slice your aubergine[s] in half lengthways, keeping the green stalk on, then sco
 
 Put the tray[s] in the oven for 20-25 min or until the flesh has softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684229672422-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Grate your cheddar cheese finely
 
 Add the chopped parsley, half the grated cheese (save the rest for garnish!) and half of the chopped garlic (save the rest for later!) to a bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil – this is your cheesy garlic mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684229751870-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of starchy pasta water and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684229757825-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until starting to soften and caramelise
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684229764117-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Tip: Carefully hold the stalks (they will be hot!) to scrape the flesh out easil
 
 Once the onion has started to soften, add the pulled aubergine, remaining chopped garlic, your ground smoked paprika and soy sauce to the pan and cook for 2 min until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684229774712-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add your vegetable stock mix with a splash of starchy pasta water and cook for 4
 
 Tip: Add another splash of starchy pasta water if your sauce is looking a little thick!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684229781817-x200.jpg)
 
 ### Step 7
 

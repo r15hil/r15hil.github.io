@@ -25,7 +25,6 @@ This hearty Italian-style dinner will be a family fave in no time. You’ll simm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729595065483-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely chop (or grate) your garlic, then zest half your lemon[s] (try t
 
 Dissolve your chicken stock mix in 75ml<span class="text-purple"> [100ml]</span> <span class="text-danger">[130ml]</span> boiled water – this is your chicken stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729595076286-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add a small knob of butter to a small bowl with a drizzle of olive oil, your chi
 
 Wash your spinach, then add to a colander and pour boiled water all over it so that it starts to wilt and rinse under cold running water until it's cool, then once cool, squeeze as much water out of the spinach as you can and chop it roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1726746104651-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your chicken breast strips with a pinch of salt and cook for 2-3 min on each side or until golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1726746086361-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1726746081456-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Once fragrant, add your chopped tomatoes with the chicken stock and a small knob
 
 Cook for a further 10-12 min or until the sauce has thickened and the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1726746069981-x200.jpg)
 
 ### Step 6
 
 Once done, transfer the cooked chicken to a clean board and shred it apart, using two forks – this technique is known as ‘pulling’
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688120583513-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This Indonesian-inspired rendang curry is full of punchy, aromatic flavours. Our
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1679395381052-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Boil a kettle
 
 Trim, then cut your green beans in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-4-1679395386819-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cook, covered, for 10-12 min or until all the water has absorbed and the rice an
 
 Once done, remove from the heat and keep covered until serving – this is your green bean rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-4-1679395391724-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Crush your cardamom pods open by squashing them with the side of a knife and dis
 
 Grind the chopped garlic, cardamom seeds, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> black pepper (freshly ground is best!), ginger paste and a pinch of salt in a pestle & mortar to form a coarse paste – this is your spice paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-4-1679395400994-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 t
 
 Once hot, add the coated chicken and cook, covered, for 4-5 min or until nicely browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1706268132349-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ While the chicken is cooking, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiled water then add your fish sauce – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-4-1679395412486-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Flip the chicken, then add the coconut stock to the pan
 
 Cook, uncovered, for a further 6-8 min or until the chicken is cooked through (no pink meat!), the liquid has evaporated, and the sauce has thickened – this is your Indonesian-style chicken breast rendang
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-4-1679395446886-x200.jpg)
 
 ### Step 7
 

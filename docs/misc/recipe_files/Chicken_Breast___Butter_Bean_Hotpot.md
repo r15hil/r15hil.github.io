@@ -27,7 +27,6 @@ Transform succulent chicken breast and hearty butter beans into a comforting del
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1725365130598-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1725365143203-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a generous driz
 
 Trim, then chop your carrot[s] into rounds (no need to peel!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1725365147511-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Drain and rinse your butter beans
 
 Add the carrot rounds to the dish with the drained butter beans, baby button mushrooms and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> flour and stir everything together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1725365152275-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Stir in your chicken stock mix and add 300ml<span class="text-danger"> <span cla
 
 Stir in your soft cheese, Dijon mustard and dried oregano
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1725365156686-x200.jpg)
 
 ### Step 5
 
 Add your diced chicken breast, season with a grind of pepper and bring to the boil over a high heat – this is your hotpot filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1725365161385-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Season with a pinch of salt and put the dish in the oven for an initial 25 min
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1725365175587-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ A staple of Indonesian food, Nasi Goreng literally translates as 'Fried Rice'. O
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/896.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat, remove the lid and leave the cooked rice to&nbsp;cool&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/896.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Pick the coriander leaves from their stalks and chop the stalks finely - reserve
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/896.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -71,7 +68,6 @@ Chop the green beans into bite-size pieces
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/896.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Add the chilli jam to a small bowl with 1 tbsp <span class="text-danger">[2 tbsp
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/896.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Heat a large, wide-based pan (preferably non-stick) with a&nbsp;drizzle of veget
 
 Once hot, add the chopped coriander stems (keep the leaves for later!)&nbsp;garlic,&nbsp;spring onion, green beans,&nbsp;ground&nbsp;turmeric and chilli (can't handle the heat? Go easy!)&nbsp;with a pinch of salt and cook for 3 min&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/896.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,7 +101,6 @@ Stir in the soy sauce and&nbsp;grated carrot&nbsp;- this is your vegetable&nbsp;
 
 Divide the&nbsp;vegetable fried rice among your serving plates and wipe your pan clean for the next step&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/896.-step-7-x200.jpg)
 
 ### Step 7
 

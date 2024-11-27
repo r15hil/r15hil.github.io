@@ -31,7 +31,6 @@ Turn the heat on high and get set for this sticky stir-fried sensation! You'll p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599557763868-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Dice your cucumber
 
 Add the diced cucumber and sliced radishes to a bowl with your rice vinegar, a pinch of salt and sugar and set aside for later – this is your quick-pickled salad
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599557775987-x200.jpg)
 
 ### Step 2
 
@@ -53,13 +51,11 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain into a sieve and set aside, reserving the pot for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599557785450-x200.jpg)
 
 ### Step 3
 
 While the rice is cooking, add your diced chicken thigh, five-spice and a generous pinch of salt and pepper to a bowl and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599557800423-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a
 
 Once hot, add the seasoned chicken and cook for 3-4 min or until starting to brown slightly, then reduce the heat to medium-high and cook, covered, for 6-8 min or until the chicken is nearly cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599557812350-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599557818186-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add the soy & honey sauce to the pan and increase the heat to medium and cook fo
 
 Remove the pan from the heat and set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599557846198-x200.jpg)
 
 ### Step 7
 

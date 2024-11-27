@@ -26,7 +26,6 @@ For this speedy taverna-style salad, you'll plate up baby plum tomatoes, cucumbe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1622807383920-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-new-1623681262768-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Boil half a kettle
 
 Cut your lemon[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1623681263358-x200.jpg)
 
 ### Step 3
 
 Once hot, add your diced chicken breast to the pan and cook for 5-6 min until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1623681268035-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, dissolve your chicken stock mix in 130ml <span class="text-purple">[
 
 Add your couscous to a heatproof bowl with the chicken stock, cover and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1927.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Chop your baby plum tomatoes in half
 
 Roughly chop your black olives
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1927.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add your dried oregano, roasted garlic paste and juice of half the lemon[s] to t
 
 Note: Please make sure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1927.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Switch up dinner with our plant-based take on a Cornish classic. You’ll pack y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1687523571145-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Top, tail, peel and grate your carrot[s]
 
 Peel and dice half your potatoes into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1687523575657-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion, grated carrot and diced potato to the pan with a pinch of salt and cook for 5-6 min or until everything is beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1687523579643-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1687523582446-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add your Henderson's Relish and half your onion marmalade (you'll use the rest l
 
 Cook, covered, for a further 1-2 min or until the vegetables are tender – this is your pasty filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1687523585970-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Line a baking tray (or two!) with non-stick baking paper and add the pastry squa
 
 Add the pasty filling to one corner of the pastry square[s] and fold the corner over to make a triangle shape
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1687523589558-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Put the pasty[ies] in the oven for 15-18 min or until golden and cooked through 
 
 Meanwhile, combine your mayo and remaining onion marmalade in a small bowl – this is your onion marmalade dip
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1687523592384-x200.jpg)
 
 ### Step 7
 

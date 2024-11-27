@@ -22,7 +22,6 @@ This elegant dish combines the sweetness of our garden peas with succulent pan-f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1528.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut narrow slices (about the width of a pound coin) into the&nbsp;waxy&nbsp;pota
 
 Tip: rest the potatoes on to a wooden spoon when cutting, it will prevent you from cutting all the way through the potato!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1528.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the&nbsp;hasselback&nbsp;potatoes&nbsp;to a baking tray (use&nbsp;tin foil&n
 
 Put the tray in the oven for 35-40 minutes or until they're tender and starting to crisp.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1528.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once the peas are tender, add most of the&nbsp;pea shoots&nbsp;(save a small han
 
 Once wilted, drain and set aside. Reserve the pan for step 5.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1528.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -82,7 +78,6 @@ Dissolve the 1/2<span class="text-danger"> [1]</span> vegetable stock cube in 50
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1528.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -97,7 +92,6 @@ Once softened, add the vegetable stock&nbsp;and&nbsp;clotted cream and cook for 
 
 Add the drained peas,&nbsp;pea shoots&nbsp;and&nbsp;creamy stock to a food processor&nbsp;and blend until smooth.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1528.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -112,7 +106,6 @@ Return the tray to the oven for 5-8 minutes or until the asparagus is tender wit
 
 Add the flaked almonds to a separate baking tray and put the tray in the oven for 3-4 minutes or until lightly toasted.&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1528.-step-7-x200.jpg)
 
 ### Step 7
 

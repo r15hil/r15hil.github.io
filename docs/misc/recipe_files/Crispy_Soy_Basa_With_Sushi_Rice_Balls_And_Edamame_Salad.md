@@ -29,7 +29,6 @@ Bento-no-we-didn't! If you love sushi, this'll be right up your street. For this
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657644152195-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your sushi rice to an oven-proof dish with 250ml <span class="text-purple">[
 
 Once cooked, transfer the cooked rice to a plate and set aside for 10 min or until the rice is cooled
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657644162586-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the sliced cucumber to a small bowl with your rice vinegar and a pinch of su
 
 Stir everything together and set aside – this is your quick-pickled cucumber
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657644174961-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel and grate your garlic
 
 Combine half your soy sauce (save the rest for later!) and the grated garlic in a small bowl with your chilli flakes (can't handle the heat? Go easy!) and a pinch of sugar – this is your dipping sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657644181505-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Chop your basa fillet[s] into large, bite-sized pieces
 
 Add the chopped basa to a large bowl with the remaining soy sauce, then set aside to marinade
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657644192576-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Rinse your blanched edamame beans under cold running water
 
 Add the blanched edamame beans to a bowl with half of the sriracha mayo (you'll use the rest later!) and a good grind of black pepper and give everything a good mix up – this is your edamame salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657644199929-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the coated basa to the pan and cook for 3-4 min on each side (cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657644209925-x200.jpg)
 
 ### Step 7
 

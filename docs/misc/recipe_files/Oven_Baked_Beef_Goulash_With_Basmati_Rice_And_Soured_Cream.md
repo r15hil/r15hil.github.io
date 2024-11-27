@@ -30,7 +30,6 @@ Craving a comforting dish full of meaty richness? Then give it up for goulash. A
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1666698735694-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644929159985-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Boil a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644929162880-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once hot, add your diced beef to the dish with a pinch of salt
 
 Cook for 2 min or until lightly browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644929166511-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Top, tail, peel and chop your carrot[s] roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644929170733-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Add 450ml <span class="text-purple">[600ml] </span><span class="text-danger">[75
 
 Bring to the boil over a high heat and season with a pinch of salt and pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644929173931-x200.jpg)
 
 ### Step 6
 
 Cover with the lid and put the dish in the oven for 1 hour or until the sauce is rich and the beef is tender – this is your oven baked beef goulash
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644929176388-x200.jpg)
 
 ### Step 7
 

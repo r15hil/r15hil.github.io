@@ -26,7 +26,6 @@ Build this spicy and speedy sushi-style salmon bowl in no time thanks to ready-t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1621864198866-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715610833714-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once the pan is hot, add your salmon fillet[s] and cook for 9-10 min, turning on
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715610840441-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Trim, then slice your spring onion[s] finely
 
 Slice your red chilli[es] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1818.-step-4.2-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the chopped cucumber to a bowl with your rice vinegar and a pinch of salt
 
 Give it a good mix up and set aside to pickle – this is your quick-pickled cucumber
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1818.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Rinse the wilted spinach under the cold running water until it's cool
 
 Squeeze out any excess water and add the wilted spinach to a bowl with your toasted sesame oil and a pinch of salt – this is your sesame spinach
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1818-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Tear the top corner of the pouch[es]<span class="text-danger"> </span>(just a li
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1818.-step-7-x200.jpg)
 
 ### Step 7
 

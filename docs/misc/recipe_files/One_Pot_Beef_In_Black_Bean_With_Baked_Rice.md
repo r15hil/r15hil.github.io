@@ -24,7 +24,6 @@ Rustle up this one-pot twist on a takeaway fave. You’ll simmer beef chuck, oni
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1727712614876-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680170989939-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add your diced beef and cook for 2-3 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680170993365-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Combine your cornflour with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[75ml]</span> boiled water and whisk it all together – this is your cornflour slurry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680170996888-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Once fragrant, add your black bean paste, soy sauce, Chinese rice wine and 400ml
 
 Bring to the boil over a high heat and put the dish in the oven and cook, covered, for an initial 25 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680171000919-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680171004896-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ After the beef has had an initial 25 min, remove the dish from the oven and add 
 
 Return the dish to the oven and cook, covered, for a further 30 min or until the sauce has thickened and the beef is cooked through – this is your one pot beef in black bean
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680171008976-x200.jpg)
 
 ### Step 7
 

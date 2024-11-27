@@ -29,7 +29,6 @@ We can't wait for you to try this spicy recipe inspired by the Mongolian dish, '
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603373660807-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop (or grate) your garlic and ginger
 
 Trim and finely slice your spring onion[s] on a diagonal, keeping the whites and greens separate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603372345318-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add to a bowl with your chilli flakes (can't handle the heat? Go easy!), ground 
 
 Season with a pinch of pepper and give everything a good mix up, then keep to one side until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603373672000-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large wide-based pan, preferably non-stick, with a generous drizzle of ve
 
 Once hot, add the sliced pepper and spring onion whites and cook for 3-4 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603372385864-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once starting to soften, add the grated carrot, sliced garlic and chopped ginger
 
 Once fragrant, add the marinated sliced rump steaks and cook for 3-4 min or until browned all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1603373687331-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Meanwhile, crack your egg[s] into bowl and add a pinch of salt and pepper
 
 Beat the eggs with a fork
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603373692778-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, push the rice to one side of the pan, add the toasted sesame oil and t
 
 Let the eggs set for 30 secs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603372424778-x200.jpg)
 
 ### Step 7
 

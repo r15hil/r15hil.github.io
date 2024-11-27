@@ -25,7 +25,6 @@ This Thai curry is packed with juicy chicken thigh and crunchy green beans. You'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/961.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/961.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once hot, add the chicken strips and cook them for 5-7 min or until golden 
 
 Once done, transfer the golden chicken to a plate and keep the pan for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/961.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Slice the sugar snap peas in half lengthways
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/961.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Return the pan to a high heat
 
 Once hot, add the chopped aubergine with a generous pinch of salt and cook for 4-5 min or until everything's browned slightly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/961.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Cut the lime<span class="text-danger">[s]</span> in half
 
 Combine the coconut cream with 2 tsp <span class="text-danger">[4 tsp]</span> sugar, the juice of 1/2 <span class="text-danger">[1]</span> lime and 300ml<span class="text-danger"> [600ml]</span> boiled water - this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/961.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Cook for 1 min, then return the golden chicken to the pan with the coconut stoc
 
 Increase the heat to medium-high and cook for 5-6 min, then add the sliced sugar snaps and cook for 1 min further or until tender with a bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/961.-step-7-x200.jpg)
 
 ### Step 7
 

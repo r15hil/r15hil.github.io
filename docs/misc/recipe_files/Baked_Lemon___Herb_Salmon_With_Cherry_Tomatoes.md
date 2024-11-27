@@ -26,7 +26,6 @@ For this Mediterranean-inspired recipe, you'll bake lemony salmon on top of pota
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1622125750729-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1622125742084-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Boil half a kettle
 
 Chop your potatoes (skins on) into small bite-sized pieces and add them to a large oven-proof dish (or two!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1622125759970-x200.jpg)
 
 ### Step 3
 
 Crush your garlic open by squashing it with the side of a knife (but keep the skin on!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1622125764512-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the crushed garlic to the dish[es] with your cherry tomatoes, a generous dri
 
 Give everything a good mix up and put the dish[es] in the oven for an initial 40 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1622125772659-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Slice half your lemon[s] into rounds and set aside for later
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1622125798119-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Top with your salmon fillet[s] (skin side up!)
 
 Squeeze over the juice of the remaining lemon and top the salmon with the reserved sliced lemon
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1622125810567-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Get that protein hit with a quick and easy twist on keema. You’ll pan-fry lamb
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720092478607-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Tip: Cooking for 4 or more? Use 2 pans!
 
 Cook for 2 min on each side or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720092483846-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Add 225ml<span class="text-purple"> [300ml]</span><span class="text-danger"> [45
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked – this is your turmeric rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720092487455-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and finely slice your shallot[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720092491110-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Once the meatballs have browned, reduce the heat to medium-high
 
 Add the sliced shallot to the pan and cook for 30 secs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720092495582-x200.jpg)
 
 ### Step 5
 
 Add your curry powder to the pan with your ginger & garlic paste and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720092500176-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Once fragrant, add your chopped tomatoes to the pan with your beef stock mix and
 
 Cook, covered, for 8-9 min, stirring occasionally, or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720092503435-x200.jpg)
 
 ### Step 7
 

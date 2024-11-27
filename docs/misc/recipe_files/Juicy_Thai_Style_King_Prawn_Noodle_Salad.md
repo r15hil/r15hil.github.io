@@ -27,7 +27,6 @@ This quick salad uses fresh Thai-style flavours in a bowl of healthy goodness. T
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-10-min-meals-1728896320010-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729611594142-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Combine the juice of half the<span class="text-danger"> </span>lime[s] with your
 
 Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> vegetable oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1947.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 Once done, drain and rinse the noodles under cold water until slightly cooled and return them to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1947.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the pan is hot, add your ginger & garlic paste, king prawns and chilli flakes (can't handle the heat? Go easy!) and cook for 4-5 min or until cooked through – these are your chilli prawns
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729611505613-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Meanwhile, wash your lettuce[s] then pat it dry with kitchen paper roughly and c
 
 Grate your carrot[s] (skin on)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729611569379-x200.jpg)
 
 ### Step 6
 
 Chop your coriander roughly (including the stalks)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729611543025-x200.jpg)
 
 ### Step 7
 

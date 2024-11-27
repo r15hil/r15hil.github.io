@@ -23,7 +23,6 @@ Spanish-style paprika basa? Sí, por favor. You’ll pan-fry basa in butter and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688741081883-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potato to a baking paper-lined baking tray (or two!) with a driz
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688741085797-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Cut your lemon[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688741090887-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the chopped tomato and crushed garlic to a food processor with 2 tbsp <span 
 
 Season with a very generous pinch of salt, a few grinds of black pepper and a pinch of sugar and blitz until smooth – this is your pan con tomate dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688741094635-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the sliced spring greens to a large piece of tin foil (or two!) with a pinch
 
 Tear your ciabatta[s] roughly into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688741116779-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ After the initial 15 min, remove the potatoes from the oven and add the torn cia
 
 Return the tray[s] to the oven along with the sliced spring greens parcel[s] on a separate tray and cook for 10-12 min or until the spring greens are tender and the ciabatta is golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688741113152-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add your basa fillet[s] to the pan with the the juice of half the lemon[s] (save
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688741120164-x200.jpg)
 
 ### Step 7
 

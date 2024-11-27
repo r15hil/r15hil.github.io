@@ -28,7 +28,6 @@ Create a veg-filled feast of bold Korean flavours in just minutes with crispy ho
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622805695177-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1624.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the grated carrot to a small bowl with your rice vinegar and a pinch of sal
 
 Mix it all together and set aside – this is your quick-pickled carrot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1624.-step-3new-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1624.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once hot, crumble your chestnut mushrooms roughly into the pan with your hands a
 
 Tip: Try not to stir the mushrooms too often, as this will stop them from caramelising!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1624.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once hot, crack your egg[s] into the pan and cook, covered, for 2-3 min or unt
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1624.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then add it to a bowl with your toasted sesame oil, toasted sesame seeds and a pinch of salt – this is your sesame spinach
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1624.-step-7-x200.jpg)
 
 ### Step 7
 

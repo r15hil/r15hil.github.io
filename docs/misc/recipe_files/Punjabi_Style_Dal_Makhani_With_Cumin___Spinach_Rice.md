@@ -32,7 +32,6 @@ Dal makhani hails from the Punjab region of the Indian subcontinent. To make our
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701166848043-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add half your cumin seeds (you'll use the rest later!) and cook for 1 min or until fragrant, then add the diced shallot, your ground turmeric and a very generous pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701166855429-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your tomato[es]
 
 Chop your coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701166860929-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701166866180-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Meanwhile, drain and rinse your cannellini beans
 
 Dissolve your vegetable stock mix in 400ml <span class="text-purple">[600ml]</span> <span class="text-danger">[800ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701166871161-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the drained cannellini beans and your green lentils and cook for 2-3 min o
 
 Tip: Add a splash of water if it is looking a little dry – this will help to thicken the sauce!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701166876736-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cook for 6-8 min further or until the sauce has thickened
 
 Once thickened, add your clotted cream and cook for 1 min or until melted – this is your Punjabi-style black dal makhani
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701166882353-x200.jpg)
 
 ### Step 7
 

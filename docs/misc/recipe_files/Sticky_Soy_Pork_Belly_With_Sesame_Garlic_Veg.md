@@ -26,7 +26,6 @@ Get a taste of Shanghai with our take on hong shao rou. You’ll roast pork bell
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679409160838-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a sha
 
 Season with a very generous pinch of salt and rub it deep into the criss-cross pattern
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679409168157-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once done, transfer the pork to a tin foil-lined baking tray, reserving the pan
 
 Put the tray in the oven for an initial 35 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679409173591-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Peel and finely slice your garlic
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679409179094-x200.jpg)
 
 ### Step 4
 
 Combine your cornflour and Chinese rice wine in a small bowl with your honey and tamari soy sauce and give everything a good mix up – this is your tamari honey sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679409632672-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679409197399-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once softened, add the sliced garlic and spinach and cook, covered, for a furthe
 
 Once the spinach is wilted, drizzle over your toasted sesame oil – this is your sesame garlic veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679409214015-x200.jpg)
 
 ### Step 7
 

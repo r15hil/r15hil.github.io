@@ -26,7 +26,6 @@ No need to fire up the barbie for this cheat’s one-pot BBQ. You’ll roast por
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1687259954576-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1687259959813-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a hob-safe oven-proof casserole dish over a medium-high heat
 
 Once hot, add your pork loin steak[s] with a generous pinch of salt and pepper and cook for 1-2 min on each side or until beginning to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687259964502-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Meanwhile, chop your potatoes (skins on) into bite-sized pieces
 
 Crush your garlic open by squashing with the side of a knife and discard the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1687259968501-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add your carrot & cabbage slaw mix to a large bowl with your mayo, cider vinegar
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and mix it all together – this is your slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1687259971542-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Add the chopped potatoes to the dish with a drizzle of vegetable oil, your groun
 
 Season with a pinch of salt and pepper, give everything a good mix up and place the dish in the oven for an initial 20 min – these are your smoky potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1687259976495-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1687259980045-x200.jpg)
 
 ### Step 7
 

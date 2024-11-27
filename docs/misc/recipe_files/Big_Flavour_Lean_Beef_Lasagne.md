@@ -26,7 +26,6 @@ Whether it’s fresh out the oven or tomorrow’s lunch, lasagne is always a fir
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609263451085-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Top, tail, and finely dice the carrot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609263461904-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot, add the chopped onion and diced carrot with a generous pinch of s
 
 Boil half a kettle, then peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609263469608-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once the onion and carrot have softened, add the lean beef mince to the pan an
 
 Cook for 3-4 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609263485189-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Dissolve the beef stock mix, tomato paste, Henderson's Relish, dried oregano
 
 Grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609263497777-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the chopped garlic and cook for 30 secs
 
 Add the tomato stock with a generous grind of black pepper and cook for 5-7 min or until thickened to a ragù-like consistency – this is your ragù
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609263515194-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add 250ml <span class="text-danger">[500ml] </span>milk gradually and whisk fo
 
 Remove from the heat, season with salt and pepper and stir through half the grated cheese – this is your béchamel
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1609263533530-x200.jpg)
 
 ### Step 7
 

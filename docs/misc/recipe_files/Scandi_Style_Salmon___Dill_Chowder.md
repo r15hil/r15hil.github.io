@@ -27,7 +27,6 @@ Get a taste of the northern de-lights with this Scandi-style chowder. You’ll p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667321645905-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Peel and finely slice your shallot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1667321689429-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a 
 
 Once the butter has melted, add the sliced leek and sliced shallot with a pinch of salt and a generous grind of black pepper and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667321694470-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Chop your potatoes (skins on) into small bite-sized pieces
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1667321701733-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once fragrant, add the chopped potatoes and creamy veg stock and bring to the b
 
 Once boiling, reduce to heat to medium-low and cook, covered, for 18-20 min or until the potatoes are fork-tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667321707460-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Tear your ciabatta[s] into bite-sized pieces and add to a baking tray with a dr
 
 Put the tray in the oven for 5-6 min or until crisp and golden – these are your croutons
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1667321712187-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once cool, squeeze as much water out of the spinach as you can, then chop it rou
 
 Chop your dill finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1667321717593-x200.jpg)
 
 ### Step 7
 

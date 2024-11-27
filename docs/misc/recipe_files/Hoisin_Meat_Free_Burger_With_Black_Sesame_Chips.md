@@ -22,7 +22,6 @@ If you love Asian flavours, this sweet, sticky burger has your name on it. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629199116668-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1662481792046-x200.jpg)
 
 ### Step 2
 
@@ -44,19 +42,16 @@ Chop your cucumber into discs
 
 Slice each cucumber disc into matchsticks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662481797390-x200.jpg)
 
 ### Step 3
 
 Add the cucumber matchsticks to a bowl with your rice vinegar and a pinch of salt – this is your cucumber salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1662481801913-x200.jpg)
 
 ### Step 4
 
 Add your meat-free burger patties to a separate baking tray and put the tray in the oven for 10-12 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629199130731-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Cut your brioche buns in half
 
 Once hot, add the brioche halves, cut-side down, and cook for 3 min or until toasted and charred, then set them aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629199135647-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Once the brioche halves are toasted, wipe the pan clean and return it to a medi
 
 Add your hoisin sauce with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>cold water and cook for 1 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629199140474-x200.jpg)
 
 ### Step 7
 

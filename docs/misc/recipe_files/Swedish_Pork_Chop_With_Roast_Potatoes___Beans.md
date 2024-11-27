@@ -20,7 +20,6 @@ This delectable Swedish-inspired dish is pure comfort food: succulent pork, cris
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1766.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the peeled potatoes to a pot of boiled water with a large pinch of sa
 
 Once the potatoes are done, drain and leave them to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1766.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the cooked potatoes to a baking tray with a generous drizzle of vegetable 
 
 Put the tray in the oven for 25-30 min, turning halfway through or until crispy – these are your roast potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1766.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the seasoned pork steaks and cook for 4-5 min on each side or until they're browned and cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1766.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once done, transfer the cooked pork steaks to a clean chopping board, cover with
 
 Reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1766.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Add the green beans to a pot of plenty of boiled water with a pinch of salt and 
 
 Once cooked, drain the green beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1766.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the soy sauce, Henderson's Relish and half of the redcurrant jelly (you'll use the rest later!) in 150ml <span class="text-danger">[250ml]</span> boiled water – this is your redcurrant stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1766.-step-7-x200.jpg)
 
 ### Step 7
 

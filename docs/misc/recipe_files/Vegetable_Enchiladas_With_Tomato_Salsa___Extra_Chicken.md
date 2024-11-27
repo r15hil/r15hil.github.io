@@ -29,7 +29,6 @@ These spicy enchiladas will give abuela a run for her money. You’ll sauté cou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728996539371-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely dice your red onion[s]
 
 Top, tail then chop your courgette[s] into small batons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728996543467-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and courgette batons with a pinch of salt and cook for 3-4 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728996546847-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Meanwhile, drain and rinse your black beans
 
 Once the vegetables have softened, add the drained black beans to the pan with your ground smoked paprika, dried oregano and cayenne pepper (can't handle the heat? Go easy!) and cook for 2-3 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728996550327-x200.jpg)
 
 ### Step 4
 
 Once fragrant, add your chopped tomatoes with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> cold water and cook for 2-3 min further or until thickened to a ragù-like consistency – this is your enchilada filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728996554461-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Roll the loaded tortillas tightly to form a cigar shape – these are your veget
 
 Dice your tomato[es] very finely and add to a small bowl, then add the juice of your lime[s] – this is your tomato salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728996557857-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Put the dish in the oven for 10-12 min or until the cheese is golden and melted 
 
 Tip: Cooking for 3 or more? You may need to use 2 dishes!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728996561846-x200.jpg)
 
 ### Step 7
 

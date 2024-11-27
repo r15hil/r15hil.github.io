@@ -27,7 +27,6 @@ This peppery mushroom dal is prepped in no time. Just pop your meaty-pulled mush
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1641916179004-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5 min <span class="text-danger">[10 min] </span>to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1641916189114-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Heat a large, wide-based, oven-proof casserole dish with a matching lid with a d
 
 Once hot, add the meaty pulled mushrooms and cook for 3-4 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641916196281-x200.jpg)
 
 ### Step 3
 
 Meanwhile, drain and rinse the green lentils and red lentils together under cold running water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641916203631-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Crush the cardamom pods open by squashing them with the side of a knife
 
 Peel (scrape the skin off with a teaspoon) the ginger, then chop it in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641916211520-x200.jpg)
 
 ### Step 5
 
 Add the rinsed lentils, crushed garlic, ginger halves, cardamom pods,  curry powder and ground turmeric to the dish and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641916220341-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Bring to the boil over a high heat, cover with a lid, then put the dish in the o
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641916227502-x200.jpg)
 
 ### Step 7
 

@@ -32,7 +32,6 @@ Grab some napkins for these pineapple-topped tacos. You'll crisp up tender fish 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-7-1724081571424-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel your red onion[s] and slice into 1 ring per person, then dice the remaining
 
 Add the onion rings and red wine vinegar to a shallow bowl and set aside to pickle until serving – these are your quick-pickled onion rings
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-8-1724081576628-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) your garlic
 
 Add the chopped garlic to the softened onion and cook for 1 min further, then set aside until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-9-1724081581120-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Tip: Don’t chuck pineapple juice down the drain. Instead, add it to your smoot
 
 Combine the shredded lettuce, diced pineapple and chilli flakes (can't handle the heat? Go easy!) in a bowl with plenty of black pepper – this is your pineapple salsa
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-9-1724081585536-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Chop your coriander as finely as you can, including the stalks
 
 Combine your mayo with 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> cold water and the chopped coriander in a bowl – this is your herby mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-9-1724081590888-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the salmon to a bowl with your soy sauce, ground smoked paprika, cayenne pep
 
 Give everything a good mix until the salmon is evenly coated – this is your coated salmon
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-8-1724081597301-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once the salmon is cooked through, transfer to a clean board, remove and discard
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-7-1724081601792-x200.jpg)
 
 ### Step 7
 

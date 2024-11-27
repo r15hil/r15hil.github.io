@@ -30,7 +30,6 @@ Tuck into this twist on the classic tikka masala. You’ll whip up a green curry
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678800913079-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678800917328-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once golden, transfer the toasted almonds to a plate and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678800921636-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Chop your tomato[es] into wedges
 
 Chop your green chilli[es] in half lengthways and deseed (scrape the seeds out with a teaspoon)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678800926298-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add your curry powder and quartered shallot to a food processor with the crushed
 
 Add most of your coriander (save some leaves for garnish!) with a small handful of spinach, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a drizzle of olive oil and blitz until smooth – this is your green tikka sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678800931145-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Return the reserved pan to a medium-high heat with a small drizzle of olive oil 
 
 Once melted, add the green tikka sauce with a generous pinch of salt and cook for 2-3 min or until very fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678800942392-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Chop your basa fillet[s] in half
 
 Add the chopped basa to the pan and bring to the boil over a high heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678800947720-x200.jpg)
 
 ### Step 7
 

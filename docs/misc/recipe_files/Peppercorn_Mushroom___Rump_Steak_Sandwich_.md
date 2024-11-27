@@ -27,7 +27,6 @@ Steak and peppercorn sauce is about to get sandwiched. For this epic bap, you'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651581304081-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut your potatoes (skins on) into thick chips and add to a baking tray (or two!)
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651581297737-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once hot, add the sliced mushrooms and cook for 4-5 min or until golden
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651581291878-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chopped tomatoes to a bowl with half your balsamic vinegar (you'll use t
 
 Season with a pinch of salt and set aside until later – these are your balsamic tomatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651581287426-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add your soft cheese with your soy sauce and 80ml <span class="text-purple">[100
 
 Bring to the boil over a high heat, then turn the heat to low and cook for 6-7 min or until the sauce has thickened, then remove from the heat and set aside – these are your peppercorn mushrooms
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651581282707-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Pat the rump steak[s] dry with kitchen paper, then rub with vegetable oil and se
 
 Combine the remaining balsamic vinegar with a drizzle of olive oil  – this is your dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651581277728-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak is cooked, transfer to a clean board to rest and reserve the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651581273702-x200.jpg)
 
 ### Step 7
 

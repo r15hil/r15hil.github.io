@@ -28,7 +28,6 @@ Health is wealth in this Moroccan-inspired grain bowl. You'll cook juicy beef me
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720777105184-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide the seasoned mince and shape into meatballs (5 per person!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720777116767-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the meatballs to the pan and cook for 2 min on each side or until 
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720777127679-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Meanwhile, peel and finely dice your brown onion[s]
 
 Once the meatballs have browned, add the diced onion to the pan with a pinch of salt and pepper and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720777132864-x200.jpg)
 
 ### Step 4
 
 Once beginning to soften, add your roasted garlic paste and baharat to the pan and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720777142266-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once fragrant, add your chopped tomatoes and beef stock mix to the pan with 100m
 
 Once boiling, reduce the heat to medium and cook, covered, for 8-9 min, stirring occasionally, or until the sauce has thickened and the meatballs are cooked through (no pink meat!) – these are your Moroccan-style meatballs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720777147183-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720777152618-x200.jpg)
 
 ### Step 7
 

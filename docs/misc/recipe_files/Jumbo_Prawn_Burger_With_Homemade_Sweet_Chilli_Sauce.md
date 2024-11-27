@@ -31,7 +31,6 @@ Look forward to a crispy Japanese-inspired burger packed with moreish jumbo praw
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646127093018-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop your potatoes (skins on) into chips
 
 Add the chips to a baking tray with a drizzle of vegetable oil and a generous pinch of salt and pepper and put the tray in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646127225823-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Add the grated ginger, chopped chilli (can't handle the heat? Go easy!), Chinese rice wine, half your rice vinegar and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> sugar to a pot with 100ml <span class="text-purple">[130ml]</span><span class="text-danger"> [180ml] </span>cold water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646128026487-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ While the chilli sauce is cooking, top, tail and grate your carrot[s], then top,
 
 Add the grated carrot and sliced cucumber to a bowl with the remaining rice vinegar and a pinch of salt and sugar and set aside – this is your pickled salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1646128032084-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Crack your egg[s] into a separate bowl and beat with a fork
 
 Add your panko breadcrumbs to a separate bowl
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1646128036245-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Cut your brioche bun[s] in half
 
 Heat a large, wide-based pan (preferably non-stick) over a medium heat and add the brioche halves, cut-side down, and cook for 2-3 min or until toasted, set aside until serving and reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1646128040638-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once hot, add the breaded jumbo prawns and cook for 3-4 min on each side or unti
 
 Tip: Do the prawns in batches if you need to so you don't overcrowd the pan!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646128045520-x200.jpg)
 
 ### Step 7
 

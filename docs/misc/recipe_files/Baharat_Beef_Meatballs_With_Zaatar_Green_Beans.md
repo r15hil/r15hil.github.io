@@ -32,7 +32,6 @@ These bold flavoured, spicy meatballs are cooked in a rich tomato sauce spiced w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664189698897-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Once hot, add your toasted sesame seeds, cumin seeds, dried oregano and ground s
 
 Once toasted, transfer to a pestle & mortar, reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664189702711-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Return the potatoes to a low heat with a knob of butter and a splash of milk, season with a pinch of salt and mash until smooth (this can be quickly reheated before serving!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664189706906-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Combine half the chopped garlic, half your baharat and 1/3 of the diced onion (y
 
 Give everything a good mix up until thoroughly combined (clean hands is the best way!), then divide and shape them into meatballs (3 per person!) – these are your baharat meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664189710681-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Dice your tomato[es] roughly
 
 Grind the toasted mixture coarsely in the pestle & mortar – this is your za'atar
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664189714739-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Return the pan to a medium-high heat with a drizzle of vegetable oil and once ho
 
 Add your tomato paste, remaining baharat and half the za'atar (save the rest for later!) to the pan and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664189718263-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Once the sauce has slightly thickened, return the browned meatballs to the pan a
 
 While the sauce is thickening, trim your green beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664189721731-x200.jpg)
 
 ### Step 7
 

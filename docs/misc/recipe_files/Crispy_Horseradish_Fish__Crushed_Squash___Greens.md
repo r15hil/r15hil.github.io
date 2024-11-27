@@ -21,7 +21,6 @@ For this dish, you'll coat fish fillets in horseradish cream and crusty breadcru
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2332Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel the garlic
 
 Add the diced butternut squash and garlic to a baking tray with a drizzle of vegetable oil and a pinch of salt and give everything a good mix up
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2332Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Put the tray in the oven for 20-25 min or until the butternut squash has softene
 
 <span class="text-highlight">While the butternut squash roasts, boil a full kettle </span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2332Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Chop the sage finely, including the stalks
 
 Set aside for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2332Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tip: Press the breadcrumbs firmly into the fish to get them to stick!
 
 Put the tray in the oven for 12-15 min or until the fish is golden and cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2332Step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Add 50g <span class="text-danger">[100g]</span> butter and cook for 1 min or 
 
 <span class="text-highlight">Add the chopped sage and a small pinch of salt and stir it all together, then remove the pot from the heat – this is your sage butter</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2332Step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender
 
 <span class="text-highlight">Once cooked, drain the green beans and add them to the sage butter - these are your sage-butter green beans</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2332Step-7-x200.jpg)
 
 ### Step 7
 

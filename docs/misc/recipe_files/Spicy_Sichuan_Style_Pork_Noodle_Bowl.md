@@ -25,7 +25,6 @@ With a simple chilli oil packed with garlic and ginger, you'll add instant depth
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678108168369-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop (or grate) the garlic
 
 Add the chopped ginger and chopped garlic to a heat-proof bowl with the cayenne pepper (can't handle the heat? Go easy!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678108173981-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the toasted sesame oil and heat for 1-2 min or until very hot, then carefull
 
 Tip: Be careful – the garlic and ginger will sizzle from the heat of the oil!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678108179099-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Return the pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the pork mince (remove the paper if required!) and cook for 3-4 min or until caramelised, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678108184055-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Trim, then slice the green beans finely on a diagonal
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678108189292-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain, reserving a cup of starchy noodle water and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678108195495-x200.jpg)
 
 ### Step 6
 
 Add half the soy sauce (save the rest for later!) to the browned pork mince and the sliced green beans and cook for 4 min further or until the pork is cooked through (no pink meat!) – this is your soy pork & green beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678108198489-x200.jpg)
 
 ### Step 7
 

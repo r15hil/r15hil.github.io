@@ -30,7 +30,6 @@ What could be better than shredded chicken and homemade pesto loaded into a crun
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650979204649-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice your potatoes (skins on) into thin discs, then add them to a baking tray (
 
 Put the tray[s] in the oven for 25-30 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650979209086-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add your chicken breast portion[s] with a pinch of salt and cook for
 
 Once golden, add 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water to the pan, then reduce the heat to low and cook, covered, for 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650979213421-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Blitz until well combined and smooth – this is your homemade pesto
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650979217620-x200.jpg)
 
 ### Step 4
 
@@ -72,19 +68,16 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650979222363-x200.jpg)
 
 ### Step 5
 
 Once the chicken is cooked, transfer the cooked chicken to a clean board (discard any liquid and reserve the pan) and shred it apart, using two forks - this technique is known as ‘pulling’
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650979226404-x200.jpg)
 
 ### Step 6
 
 Add the pulled chicken and homemade pesto in a bowl with a grind of black pepper and give everything a good mix up – this is your pesto chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651229318950-x200.jpg)
 
 ### Step 7
 

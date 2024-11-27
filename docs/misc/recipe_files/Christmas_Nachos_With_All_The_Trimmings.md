@@ -23,7 +23,6 @@ For the ultimate pairing to Christmas movie night, you'll layer nachos with an a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1635849063658-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Chop the potatoes (skins on) into small cubes, then add the potato cubes to a ba
 
 Give it a good mix up and put the tray in the oven for 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1635849084184-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once the butter has melted, add the chopped shallot, panko breadcrumbs and th
 
 Add a generous pinch of salt and pepper, give everything a good mix up and set aside to absorb – this is your stuffing mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1635849097667-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once the potatoes have had 10 min, remove the tray<span class="text-danger">[s]<
 
 Return the tray<span class="text-danger">[s]</span> to the oven and cook for 8 min further or until everything is starting to colour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1635849126066-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once everything's had 8 min, add the parsnip ribbons to the baking tray<span cla
 
 Drizzle a little vegetable oil over the ribbons and return the tray<span class="text-danger">[s]</span> to the oven for a final 5-7 min or until everything is golden – these are your Christmas trimmings
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1635849148277-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the tortilla triangles to the baking tray<span class="text-danger">[s]</span
 
 Return the tray<span class="text-danger">[s]</span> to the oven for 6-8 min or until lightly browned – these are your nachos
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1635849197635-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Grate the cheddar
 
 Once the nachos are lightly browned, top them with the grated brie and cheddar
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1635849238665-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Chicken with cumin is truly delicious. Try it yourself in this summery dish, wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597161635779-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ 425°F/ Gas 7
 
 Coat the chicken breasts with the ground cumin and season with a generous pinch of salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597161646766-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Scrunch the foil around the corn until tightly sealed and add to a baking tray l
 
 Put the tray in the oven for 25-30 min or until the corn is tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597161670738-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the chicken breasts and cook for 3 min on each side or until light
 
 Whilst the chicken is browning, add the saffron to 1 tsp <span class="text-danger">[2 tsp]</span> hot water and set aside to infuse – this is your saffron liquid
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597161688290-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597161693173-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Put the tray in the oven for 15-20 min or until the chicken is cooked through (n
 
 Once done, transfer the chicken to a clean board and leave to rest before slicing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597161727884-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot add the sliced onion and cook for 4-5 min or until caramelised
 
 Meanwhile, chop the coriander roughly and roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface and cut into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597161742983-x200.jpg)
 
 ### Step 7
 

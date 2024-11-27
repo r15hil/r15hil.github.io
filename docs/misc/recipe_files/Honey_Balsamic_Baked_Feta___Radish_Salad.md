@@ -24,7 +24,6 @@ Lock in the sweet goodness of radishes and Tenderstem broccoli by roasting them 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600695388366-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Lay the chopped radishes, Tenderstem broccoli and feta cheese in the middle of t
 
 Tip: Cooking for 4? Make 2 parcels and use 2 trays!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1604424629524-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the oregano, chilli flakes (can't handle the heat? Go easy!), honey and bals
 
 Whisk it together with a fork – this is your honey balsamic marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600695413066-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Scrunch the edges of the tin foil together to form a sealed parcel
 
 Put the tray in the oven for 30 min or until everything is cooked and tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600695438299-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600695445684-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Once the quinoa is cooked, add the quinoa and courgette ribbons to a large bowl 
 
 Give it a gentle mix up (clean hands is the best way!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600695453473-x200.jpg)
 
 ### Step 6
 
 After the vegetables and feta have had 25 min, add the hazelnuts to the tray for the final 5 min, until roasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600695459658-x200.jpg)
 
 ### Step 7
 

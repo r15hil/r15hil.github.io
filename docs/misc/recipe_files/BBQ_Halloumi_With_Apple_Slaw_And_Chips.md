@@ -25,7 +25,6 @@ For this BBQ-inspired dish, we've let the oven do most of the work. You'll pan f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635249426106-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray (or two!) and drizzle with vegetable oil
 
 Put the tray[s] in the oven for 20-25 min or until the chips are cooked through and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635249429066-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Top, tail (no need to peel) and grate your carrot[s]
 
 Cut your apple[s] (skin on) into matchsticks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635249431833-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Add your mayo and white wine vinegar
 
 Give everything a good mix up – this is your apple slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635249434762-x200.jpg)
 
 ### Step 4
 
 Cut your halloumi into 3 slices per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635249437433-x200.jpg)
 
 ### Step 5
 
@@ -71,13 +66,11 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the halloumi slices and cook for 1-2 min on each side or until golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1635249440608-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your tomato ketchup, Henderson's Relish and cider vinegar with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar in a small bowl – this is your BBQ sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635249444908-x200.jpg)
 
 ### Step 7
 

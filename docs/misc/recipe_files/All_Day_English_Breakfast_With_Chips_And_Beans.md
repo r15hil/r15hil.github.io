@@ -24,7 +24,6 @@ Whether it's breakfast or dinner, serve up the fullest English with sausages, ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618243957090-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your potato[es] (skins on) into chips
 
 Add the chips to one side of a large baking tray with a drizzle of vegetable oil and a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618243962913-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put the tray[s] in the oven for 30 min or until the sausages are cooked through (no pink meat!) and the chips are golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707820911180-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the drained cannellini beans to the pot with your vegetable stock 
 
 Give everything a good mix up and cook for 3-4 min or until thickened, then remove from the heat and set aside for later – these are your homemade beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707820852125-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Wash your salad, then pat dry with kitchen paper
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1707820809373-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add the sliced mushrooms and tomato halves and cook for 3 min on one s
 
 Transfer the softened mushrooms to the tray[s] in the oven alongside the chips and sausages to keep warm
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1707820816350-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Cover with a lid and cook for 2-3 min or until the tomato has softened and the e
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1707820929447-x200.jpg)
 
 ### Step 7
 

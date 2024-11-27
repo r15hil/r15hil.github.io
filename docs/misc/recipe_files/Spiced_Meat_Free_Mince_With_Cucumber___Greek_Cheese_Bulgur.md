@@ -21,7 +21,6 @@ The secret to this quick veggie dish? Ras el hanout, a smoky and sweet spice ble
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602152604872-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Boil a kettle
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1602152522137-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Once hot, add the sliced onion with a pinch of salt and sugar
 
 Cook for 4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602152537855-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602152557274-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Stir the ras el hanout and tomato paste into the onion, then add the meat-free m
 
 Reduce the heat to medium and cook for 5-8 min, then add 200ml <span class="text-danger">[400ml] </span>boiled water to create a ragù-like sauce – this is your spiced meat-free mince
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1602152570306-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Scrape out the seeds with a teaspoon and discard
 
 Dice the halved cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602152575224-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Strip the mint leaves from their stalks, discard of the stalks
 
 Finely chop the mint leaves
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602152579901-x200.jpg)
 
 ### Step 7
 

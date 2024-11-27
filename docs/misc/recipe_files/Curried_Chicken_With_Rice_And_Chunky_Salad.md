@@ -29,7 +29,6 @@ A super easy Indian-inspired dish (only 15 mins prep required!). You'll roast te
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1708.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and chop half your red onion[s] into wedges
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1708.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chopped garlic, the juice of half your<span class="text-danger"> </span>
 
 Chop your chicken breast strips into bite-sized pieces and add to the curry marinade with the red onion wedges, then give everything a good mix up and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1708.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return to the pot and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1708.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, transfer the marinated chicken and onion to an oven-proof dish with 
 
 Put the dish in the oven for 20-25 min or until the chicken is cooked through (no pink meat!) and is beginning to brown – this is your curried chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1708.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut your cucumber in half lengthways, then slice finely
 
 Cut your tomato[es] into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1708.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the tomato wedges, sliced cucumber and sliced onion to a bowl with a dri
 
 Season with a pinch of salt and a grind of pepper and give everything a good mix up – this is your chunky salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1708.-step-7-x200.jpg)
 
 ### Step 7
 

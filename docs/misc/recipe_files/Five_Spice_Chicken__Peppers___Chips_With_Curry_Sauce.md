@@ -26,7 +26,6 @@ Take to the streets of Dublin for an Irish fakeaway classic. You’ll coat hand-
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682601372881-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your potatoes (skins on) into chips and add them to a baking paper-lined bak
 
 Give everything a good mix up and put the tray in the oven for an initial 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682601376860-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Cut your spring onion[s] into quarters
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682601380583-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add a small drizzle of vegetable oil and sprinkle over your chilli flakes (can't
 
 Give everything a good mix up and put the tray<span class="text-danger">[s]</span> in the oven for 18-22 min or until everything's tender and slightly charred – these are your five-spice vegetables
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682601384183-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Mix everything together – this is your coated five-spice chicken
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682601387389-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated five-spice chicken thigh and cook for 10-12 min or until cooked through (no pink meat!) and golden, turning occasionally – this is your crispy five-spice chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682601390389-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Gradually stir in 140ml <span class="text-purple">[180ml]</span> [ <span class="
 
 Put the curry sauce mix in the microwave for 2 min or until thickened, stirring half way – this is your curry sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682601394240-x200.jpg)
 
 ### Step 7
 

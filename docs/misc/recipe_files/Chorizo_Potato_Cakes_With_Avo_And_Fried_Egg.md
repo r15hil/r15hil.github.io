@@ -22,7 +22,6 @@ These smoky chorizo and spring onion potato cakes are delicious on their own, bu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2411Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and chop your potatoes into rough, bite-sized pieces, then add to a pot wit
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2411Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add your diced chorizo and cook for 6-8 min or until starting to crisp
 
 Whilst the chorizo is crisping, trim, then chop your spring onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2411Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Mash the potatoes until smooth
 
 Add half the cooked chorizo (reserve the pan, remaining chorizo and any oil for later), chopped spring onion and a pinch of<span class="text-danger"> </span>salt and pepper and give it a good mix up – this is your chorizo & potato mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2411Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Put the tray in the oven for 12-15 min or until golden
 
 Tip: If the potato cake mix is a little wet and not sticking together nicely, add a spoonful or two of flour
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2411Step-5v2-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ While the potato cakes are cooking, add your white wine vinegar and 2 tbsp <span
 
 Wash your salad then add it to the dressing and give it a gentle mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2411Step-6-x200.jpg)
 
 ### Step 6
 
 Chop your chives finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2411Step-7-x200.jpg)
 
 ### Step 7
 

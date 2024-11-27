@@ -28,7 +28,6 @@ Can comfort food be refreshing, zingy and comforting? Oh yes. Our smooth, fragra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1642007484154-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and cut your brown onion[s] into wedges
 
 Peel half your garlic clove[s]<span class="text-danger"> </span>(you'll use the rest later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642007499026-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Line a baking tray (or two!) with baking paper then add the peeled garlic, chopp
 
 Add a generous drizzle of vegetable oil and a generous pinch of salt and pepper, give everything a good mix up and put the tray[s] in the oven for 25 min or until everything is lightly charred and tender – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642007511773-x200.jpg)
 
 ### Step 3
 
@@ -64,13 +61,11 @@ Chop the drained prawns on a clean board until they are very finely minced (keep
 
 Combine the minced prawns in a bowl with the grated garlic and grated ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642007527458-x200.jpg)
 
 ### Step 4
 
 Trim the curved tops off your ciabatta[s] so that you are left with a flat surface, discard the trimmings
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1642007540624-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Press your toasted sesame seeds onto the minced prawns – these are your prawn 
 
 Boil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642007553454-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the red Thai curry paste with the roasted veg, vegetable stock mix, 700ml <s
 
 Once boiling, remove the pot from the heat and use a (stick) blender (or add to a food processor) to blitz until smooth, then return to a low heat to keep warm – this is your Thai-style sweet potato soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642007567070-x200.jpg)
 
 ### Step 7
 

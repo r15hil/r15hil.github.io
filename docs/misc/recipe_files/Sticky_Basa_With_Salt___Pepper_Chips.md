@@ -28,7 +28,6 @@ Wake up your tastebuds with this sticky chilli sensation. You'll smother crispy 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1621257504053-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your potatoes (skins on) into chips and add them to a baking tray (or two!) 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621257509336-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of
 
 Add the basa pieces to a bowl with your cornflour and give it a good mix up until coated all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621257514921-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Once crispy, transfer to a plate and set aside, reserving the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1621257522333-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Finely slice your red chilli[es] into rounds
 
 Trim, then finely slice your spring onion[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621257529374-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the chopped pepper, chopped ginger and half of the chopped garlic (save th
 
 Meanwhile, add your soy sauce to a bowl with your honey, chilli relish and Chinese rice wine – this is your sticky chilli sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621257542746-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the sticky chilli sauce to the pan and cook for 3 min or until the sauce be
 
 Once thickened, add the crispy basa to the pan and cook for 1 min further until the fish is coated in the sauce – this is your sticky basa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621257550328-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ There’s no better way to add some extra protein to your dinner than steak nigh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720168802864-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Before you start cooking, take your rump steak out of the fridge, open the packe
 
 Heat a pot with a lid with a drizzle of olive oil over a medium heat, then once hot, add your tomato paste with half your roasted garlic paste (you'll use the rest later!) and cook for 30 secs or until fragrant, once fragrant, add your white long grain rice and chicken stock mix with a pinch of salt and pepper and give everything a good mix up until the rice is fully coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720168806365-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat – this is your seasoned rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720168810813-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Drain and rinse your black beans
 
 Heat a large, wide-based pan (preferably non-stick) over a high heat with a drizzle of vegetable oil (Cooking for 3 or more? Use 2 pans!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720168814215-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak[s] is cooked, transfer to a plate to rest and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720168818461-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 4-5 min or until the corn is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720168823823-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add your chipotle paste (can't handle the heat? Go easy!) and the remaining roas
 
 Tip: Be careful, the garlic paste will sizzle from the heat of the oil!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720168829643-x200.jpg)
 
 ### Step 7
 

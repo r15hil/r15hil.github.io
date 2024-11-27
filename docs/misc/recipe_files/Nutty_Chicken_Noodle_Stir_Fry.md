@@ -26,7 +26,6 @@ For this time-saving, umami-packed stir-fry, you'll toss pre-diced chicken breas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623399464757-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2008.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Roughly chop your courgette[s] into batons
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674584672097-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the chopped courgette, sliced pepper and your diced chicken breast
 
 Note: Please make sure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2008.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Set aside to soak for 4 min
 
 Reserve a cup of starchy noodle water, then drain the soaked noodles
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2008.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,13 +77,11 @@ Add your soy sauce and the juice of half your lime[s] and stir it all togethe
 
 Cut the remaining lime into<span class="text-danger"> </span>1 wedge per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2008.-step-6-x200.jpg)
 
 ### Step 6
 
 Slice your spring onion[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2008.-step-7-x200.jpg)
 
 ### Step 7
 

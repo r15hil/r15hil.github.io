@@ -22,7 +22,6 @@ Seasoning butternut squash with zingy coriander packs it with flavour in no time
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1649168233190-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1649168284098-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the squash is fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649168291527-x200.jpg)
 
 ### Step 3
 
 Meanwhile, cut the cucumber into batons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649168302288-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Dissolve the vegetable stock mix in 200ml<span class="text-danger"> [400ml] </sp
 
 Add the couscous to a heatproof bowl with the vegetable stock, cover and set aside to cook
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1649168308740-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Strip the mint leaves from their stems and chop them roughly, discard the stems
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1649168333927-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the butternut squash cubes to the pan with the ground coriander an
 
 Give everything a good mix up and cook for 2-3 min further – this is your coriander squash
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1649168344162-x200.jpg)
 
 ### Step 7
 

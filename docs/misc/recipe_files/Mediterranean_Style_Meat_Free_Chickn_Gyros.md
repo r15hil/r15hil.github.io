@@ -27,7 +27,6 @@ Create a meat-free masterpiece with this plant-based take on gyros. Serve with a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1678902515725-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook your food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678902520863-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add your meat-free chick'n with your soy sauce and the juice of half your lemon[s] (you'll use the rest later!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678902525282-x200.jpg)
 
 ### Step 3
 
 Sprinkle your ground smoked paprika over the meat-free chick'n and cook for 3-4 min on each side or until warmed through – this is your Mediterranean-style meat-free chick'n
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678902528626-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Chop half your cucumber (you'll use the rest later!) into small, bite-sized piec
 
 Chop your parsley roughly, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678902532463-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Combine the diced tomato and chopped cucumber in a bowl with half the chopped pa
 
 Add your naan[s] to a toaster for 1-2 min or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678902536724-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Grate the deseeded cucumber and squeeze out any excess water
 
 Combine your mayo and grated cucumber in a bowl with the remaining lemon juice, the remaining ground sumac and a pinch of salt and pepper – this is your tzatziki mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678902546200-x200.jpg)
 
 ### Step 7
 

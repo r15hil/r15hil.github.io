@@ -33,7 +33,6 @@ Curry night doesn’t get better than this. You’ll serve up generous helpings 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1697121229137-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Boil a kettle, then add your basmati rice to an oven-proof dish with a generous 
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1697121236251-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chicken stock mix and creamed coconut in 600ml <span class="text-purple">[780ml]</span><span class="text-danger">[1L]</span> boiled water – this is your coconut stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1697121239936-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once hot, add half the sliced onion (you'll use the rest later!) with a pinch of
 
 Once softened, add your ground turmeric and curry powder and cook for 1-2 min further or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1697121244885-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Bring to the boil over a medium-high heat, and cook for 15-20 min or until the l
 
 Once tender, add the tomato wedges to the pot and cook for 5 min further or until the tomatoes have softened and the lentils are fully cooked – this is your tomato & coconut dal
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1697121249696-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Meanwhile, add your diced chicken breast, garam masala, ginger & garlic paste and a pinch of salt to a bowl and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1697121265035-x200.jpg)
 
 ### Step 6
 

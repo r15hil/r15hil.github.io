@@ -24,7 +24,6 @@ For our ode to this classic Irish stew, we've simmered tender beef with bay leav
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614006192864-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop (or grate) the garlic
 
 Top, tail and roughly chop the carrot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614006239111-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add a large handful of flour to a plate with a pinch of salt and pepper
 
 Coat the beef strips in the flour
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614006249856-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have o
 
 Once hot, add the coated beef strips and cook for 2-3 min or until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614006278369-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once browned, add the onion wedges, chopped garlic, carrots, bay leaves, a pinch
 
 Bring to the boil over a high heat, then cover with a lid and put the dish in the oven for 30 min or until thickened – this is your Irish beef stew
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1614006286089-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and set aside, reserve the pan for later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614006294753-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Return the reserved pan to a medium heat and add a large knob of butter
 
 Once hot, add the chopped spring onion and spring greens and cook for 3-4 min or until tender with a bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1614006322909-x200.jpg)
 
 ### Step 7
 

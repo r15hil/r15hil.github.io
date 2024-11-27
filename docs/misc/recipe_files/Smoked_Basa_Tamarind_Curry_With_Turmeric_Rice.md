@@ -31,7 +31,6 @@ Tender smoked fish in a dish – delish. You’ll smother sweet, tangy curry ove
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664293315405-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664293319079-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664293322249-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped garlic, chopped ginger and curry powder and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664293326701-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Dissolve your vegetable stock mix and tomato paste in 200ml <span class="text-pu
 
 Once fragrant, add the tamarind stock to the pan and cook for a further 4-5 min or until thickened to a curry-like consistency – this is your tamarind curry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664293331212-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, wash your spinach, then pat it dry with kitchen paper
 
 Once the sauce has thickened, add the spinach and a pinch of salt to the tamarind curry and cook for 1-2 min or until the spinach has wilted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664293334408-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once boiling, reduce the heat to medium and cook, covered, for 4-5 min further o
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664293337593-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Level up your jacket potato with the best bits of a croque madame. You’ll load
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686321369607-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Pierce your red potatoes a few times with a fork, then cook in the microwave for
 
 Grate your cheddar cheese
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686321592703-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your tomato[es]<span class="text-danger"> </span>roughly
 
 Add the shredded lettuce and chopped tomato to the bowl with the dressing and toss – this is your dressed salad
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686321596756-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Wash your spinach then add to a colander and pour boiled water all over it so th
 
 Rinse the wilted spinach under cold running water until it's cool and once cool, squeeze as much water out of the spinach as you can
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686321599858-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cook over a medium heat for 1-2 min, stirring frequently, or until the cheese ha
 
 Set aside the cheese sauce for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686321604378-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Top each potato with 1 tsp butter and mix it through with a fork
 
 Top with the wilted spinach
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686321608756-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Spoon the cheese sauce into the centre and reserve the pan for later
 
 Return the tray to the oven for a final 5-6 min or until cheese sauce is bubbling and golden and the prosciutto is slightly crispy – these are your jacket potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686321612823-x200.jpg)
 
 ### Step 7
 

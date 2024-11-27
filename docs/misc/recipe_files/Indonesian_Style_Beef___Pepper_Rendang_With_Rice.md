@@ -24,7 +24,6 @@ Our Indonesian-inspired rendang curry is full of punchy, aromatic flavours. In t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678902978868-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Crush your cardamom pods open by squashing them with the side of a knife and dis
 
 Grind the cardamom seeds, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> black pepper (freshly ground is best!), ginger & garlic paste and a pinch of salt in a pestle & mortar to form a coarse paste – this is your spice paste
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678902991957-x200.jpeg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Add your diced beef, chipotle paste (can't handle the heat? Go easy!) and spice paste to a bowl and mix thoroughly – this is your coated beef
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678903005708-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add the coated beef and cook for 2 min or until nicely browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678903013415-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ While the beef is cooking, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 200ml<span class="text-purple"> [300ml] </span><span class="text-danger">[400ml]</span> boiled water, then add your fish sauce – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678903020187-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add the coconut stock and give everything a good mix up
 
 Bring to the boil over a high heat and season with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and a generous pinch of salt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678903029032-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ After 45 min, remove the dish from the oven and add the pepper strips
 
 Return the dish to the oven, uncovered, for 15 min further or until the sauce is thickened and the beef is tender – this is your Indonesian-style beef & pepper rendang
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678903038832-x200.jpg)
 
 ### Step 7
 

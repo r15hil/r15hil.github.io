@@ -29,7 +29,6 @@ Whip up a seasonal orzotto, jam-packed with green goodness from our spinach and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657642103873-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once hot, add the flaked almonds and cook for 2-3 min or until toasted and light
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657642118984-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once cool, squeeze the water out of the spinach as much as you can then chop it 
 
 Reboil a full kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657642131553-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add the wilted spinach and most of the basil (reserve a few leaves for garnish) 
 
 Add the juice of 1/2 <span class="text-danger">[1]</span> lemon, 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and 2 tbsp <span class="text-danger">[4 tbsp] </span>cold water with a pinch of salt, then blitz until well combined and smooth – this is your spinach & basil pesto
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657642139861-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Meanwhile, peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 Dissolve the chicken stock mix in 500ml <span class="text-danger">[850ml] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657642158655-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once softened, add the orzo to the pan and give everything a good mix up until t
 
 Add the chicken stock and bring to the boil over a high heat, once boiling, reduce the heat to medium-low and cook for 16-17 min, stirring continuously, or until the stock is fully absorbed and the orzo is cooked with a slight bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657642176536-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Combine the panko breadcrumbs with the remaining grated Italian hard cheese, dri
 
 Cut the heritage beef tomato<span class="text-danger">[es] </span>into 4 <span class="text-danger">[8]</span> slices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657642183203-x200.jpg)
 
 ### Step 7
 

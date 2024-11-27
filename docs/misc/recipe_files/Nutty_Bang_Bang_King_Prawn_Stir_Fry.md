@@ -26,7 +26,6 @@ This street food-inspired dish is ready in a flash. You'll stir-fry pak choi, ki
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1615310824940-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Chop the white bases into rough, large pieces
 
 Discard the tough stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Set aside to soak for 4 min
 
 Once done, drain and return them to the bowl with the toasted sesame oil and stir it all together – these are your sesame noodles
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,13 +68,11 @@ Once hot, drain your king prawns, then add them to the pan and cook for 30 secs
 
 Add the chopped white pak choi bases and cook for a further 30 secs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-5-x200.jpg)
 
 ### Step 5
 
 Add your roasted garlic paste and chilli flakes (can't handle the heat? Go easy!) and cook for 2 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add your soy sauce and rice vinegar and mix until a smooth sauce remains – 
 
 Tip: Use a small whisk to mix it well!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-7-x200.jpg)
 
 ### Step 7
 

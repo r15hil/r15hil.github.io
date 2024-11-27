@@ -24,7 +24,6 @@ This stir-fry is a delicious blend of sweet and spicy. You’ll pan-fry soy-mari
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678377014254-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678377019864-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Chop the tofu into bite-sized pieces
 
 Add the chopped tofu to a large bowl with your soy sauce and set aside to marinate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1678377023350-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the marinated tofu to the pan with a generous pinch of salt and cook for 6-7 min or until golden and crispy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678377030257-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Peel and cut your brown onion[s] into quarters, then separate the quarters so yo
 
 Trim, then chop your green beans in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678377037643-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine your red chilli relish, rice vinegar, sriracha (can't handle the heat? Go easy!) and chopped garlic in a small bowl with 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[175ml]</span> boiled water – this is your sweet chilli sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678377040510-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once golden, transfer the tofu to a plate and set aside
 
 Return the pan to the heat and add the onion petals and halved green beans with a generous pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678377043687-x200.jpg)
 
 ### Step 7
 

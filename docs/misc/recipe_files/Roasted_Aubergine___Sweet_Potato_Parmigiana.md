@@ -28,7 +28,6 @@ This veg-packed twist on the Italian classic has all 5 of your 5-a-day. Roast au
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-14-1702989443055-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and slice your sweet potato[es], lengthways, as thinly as you can, then tri
 
 Add the sliced sweet potato & aubergine to a baking paper-lined baking tray (or two!) with a little drizzle of olive oil and a pinch of salt and put the tray[s] in the oven for 15-20 min or until softened and golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-15-1702989454619-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Roughly chop your tomato[es]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughly chop
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-19-1702989459516-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Meanwhile, grate your cheddar cheese finely
 
 Wash your spinach and pat dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-14-1702989465395-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once slightly softened, add your tomato paste with 100ml <span class="text-purpl
 
 Once thickened, blitz with a (stick) blender until smooth – this is your tomato & pepper sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-15-1702989471322-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add 260ml <span class="text-purple">[395ml] </span><span class="text-danger">[53
 
 Cook over a medium heat for 3-4 min, stirring frequently, or until the cheese has melted and the sauce has thickened – this is your cheese sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-15-1702989478118-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Spoon over some of the tomato & pepper sauce, then add a layer of spinach
 
 Layer on the sweet potato slices, then repeat the process with the remaining aubergine – this is your parmigiana
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-14-1702989483829-x200.jpg)
 
 ### Step 7
 

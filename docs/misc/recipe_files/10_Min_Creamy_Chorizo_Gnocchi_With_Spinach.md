@@ -20,7 +20,6 @@ This is the perfect meal for busy dinnertimes. You'll add smoky chorizo to a cre
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1594.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), over a 
 
 Chop the cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1594.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the diced chorizo and cook for 3 min or until it begins to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1594.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1594.-step-5.2-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add the roasted garlic paste to the pan and cook for 30 secs
 
 Add 100ml <span class="text-danger">[175ml]</span> boiled water and the soft cheese and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1594.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Wash the baby leaf spinach
 
 Add the chopped tomatoes and spinach and cook, covered, for 2 min or until the spinach begins to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1594.-step-7-x200.jpg)
 
 ### Step 7
 

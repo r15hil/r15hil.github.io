@@ -21,7 +21,6 @@ In this classic and comforting dish, our juicy pork tenderloin is finely sliced 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/870.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel the potatoes and cut them into bite-sized pieces&nbsp;
 
 Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 10-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/870.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Layer the leaves over each other, roll them up, then slice into thin strips
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/870.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once hot, add the pork tenderloin with a pinch of salt &amp;&nbsp;pepper&nbsp;&a
 
 Transfer the pork to a baking tray &amp;&nbsp;put it in the oven for 8-10 min or until cooked through, then set aside to rest for 5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/870.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Cover with a lid and cook for 2-3 min or until tender
 
 Season lightly with salt and pepper, then transfer to a plate and cover with tin foil to keep warm until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/870.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,7 +91,6 @@ Add 1/2 tsp <span class="text-danger">[1 tsp]</span> flour and stir until combin
 
 Add the&nbsp;Shaoxing wine and cook for 20 sec, then add 150ml <span class="text-danger">[300ml]</span> water, the wholegrain mustard,&nbsp;the honey and a generous pinch of salt and cook for 4-5 min or until thickened to a sauce-like consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/870.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,7 +102,6 @@ Mash until smooth, then season with a generous pinch of salt and pepper&nbsp;
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/870.-step-7-x200.jpg)
 
 ### Step 7
 

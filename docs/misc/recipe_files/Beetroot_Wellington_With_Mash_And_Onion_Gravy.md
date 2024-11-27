@@ -26,7 +26,6 @@ For this vegan twist on a classic, you'll stuff plant-based puff pastry with bee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1608572340788-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped mushrooms and cook for 3-4 min or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1608572347315-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Rinse the wilted spinach under the cold tap until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649691532741-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Dust your work surface with a generous sprinkling of flour
 
 Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin and cut into 1 square per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1608572353995-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the halved beetroot to the pastry square[s] and carefully wrap the pastry ov
 
 Use a fork to press down on the seal to bind together and brush with a little olive oil – this is your beetroot wellington
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1608572361697-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Drizzle them with a little olive oil and a pinch of salt
 
 Put the tray[s] in the oven for 30 min or until the pastry is golden and cooked through and the carrots are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1608572361693-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1608572364778-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Make meat-free Mondays a Mexican fiesta with this hearty veg-packed chilli. You'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632303036208-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632303057720-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the scored aubergine and cook for 3 min on each side
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632303057745-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Dissolve your vegetable stock mix, chipotle paste (can't handle the heat? Go eas
 
 Drain and rinse your black beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632303068196-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the chipotle stock, drained black beans and chilli flakes (not a fan of spic
 
 Cook, covered, for a further 8-10 min or until the aubergine is cooked through and the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632303081740-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Crumble your feta into large pieces using your hands
 
 Cut your lime[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632303124420-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add the juice of half the lime and stir it all together – this is your feta & 
 
 Cut the remaining lime into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632303134970-x200.jpg)
 
 ### Step 7
 

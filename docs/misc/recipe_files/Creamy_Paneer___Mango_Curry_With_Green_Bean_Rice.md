@@ -26,7 +26,6 @@ It’s all about the aromatics in this spiced paneer curry. You’ll simmer mang
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1683715396192-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1683715400146-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cook, covered for 10-12 min or until all the water has absorbed and the rice a
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1683715404339-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once the pan is hot, add the paneer cubes and cook for 2-3 min until they're b
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1683715409199-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Dice the mango flesh, discarding the stone<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1683715414111-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add the chopped onion with a generous pinch of salt and cook for 3-4 
 
 Meanwhile, dissolve the vegetable stock mix in 250ml <span class="text-danger">[450ml]</span> boiled water with the tomato paste – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1683715417911-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once fragrant, add the tomato stock to the pan with the ground almonds and diced
 
 Cook for 3-4 min or until the sauce has started to thicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1683715423366-x200.jpg)
 
 ### Step 7
 

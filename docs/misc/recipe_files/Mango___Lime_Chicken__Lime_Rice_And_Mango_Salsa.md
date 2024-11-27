@@ -24,7 +24,6 @@ Ever had chicken with a tropical twist? Try your hand at this Caribbean-inspired
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684495789046-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Dice the mango flesh finely, discarding the stone<span class="text-danger">[s]</
 
 Zest 1/2 <span class="text-danger">[1]</span> lime (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter) and cut in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684495800630-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Mix it all together – this is your mango & lime marinade
 
 Add the chicken thighs to the bowl with the marinade, mix it all together until fully coated and set aside for later – these are your marinated chicken thighs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684495804430-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684495808278-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add the marinated chicken thighs to a tin foil-lined baking tray (or two!)
 
 Put the tray<span class="text-danger">[s]</span> under the grill for 15-20 min, turning once half way, or until cooked through (no pink meat!) and nicely charred – this is your mango & lime chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684495812068-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Slice the red chilli<span class="text-danger">[es]</span> finely
 
 Dice the tomato<span class="text-danger">[es] </span>finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684495816043-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Drizzle with a little olive oil, season with a pinch of salt and give everything
 
 Combine the mayo with a small squeeze of lime juice and a pinch of pepper in a small bowl – this is your lime mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684495819534-x200.jpg)
 
 ### Step 7
 

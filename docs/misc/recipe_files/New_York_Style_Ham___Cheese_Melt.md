@@ -23,7 +23,6 @@ This New York deli style melt is a mouthwatering favourite in the concrete jungl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1296.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the sweet potato chips to a baking tray with a drizzle of vegetable oil 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1296.-step-2.n-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Slice the remaining cucumber in half lengthways, then slice the halves into wed
 
 Chop the dill finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1296.-step-3.n-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Combine the white wine vinegar, chopped dill, black mustard seeds, 1 tbsp <span
 
 Add all of the sliced cucumber to the vinegar, give everything a good mix up and set aside – this is your pickled cucumber
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1296.-step-4.n-x200.jpg)
 
 ### Step 4
 
 Slice the cheddar cheese in quarters lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1296.-step-5.n-x200.jpg)
 
 ### Step 5
 
@@ -83,13 +78,11 @@ Add the shredded ham hock to the ciabatta base, and top with the cheddar c
 
 Put the tray in the oven for 3-4 mins or until the cheese has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1296.-step-6.n-x200.jpg)
 
 ### Step 6
 
 Once the cheese has melted, remove the tray from the oven and spread mayonnaise over the ciabatta lids
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1296.-step-7.n-x200.jpg)
 
 ### Step 7
 

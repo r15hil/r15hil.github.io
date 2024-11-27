@@ -26,7 +26,6 @@ This Indonesian delight packs a peanutty punch. Crisp vegetables, jammy eggs and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723637507714-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Boil a full kettle
 
 Chop your waxy potatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723637510611-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the halved potatoes to a pot of plenty of boiled water with a pinch of salt 
 
 Once boiling, cook for an initial 10 min or until slightly tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723637513893-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once done, drain and refill the pot with ice-cold water and the cooked egg[s], t
 
 Tip: Use the Gousto ice packs to chill the water!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723637517246-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cut your cucumber in half lengthways, then slice finely
 
 Peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723637521469-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the potatoes have cooked for 10 min, trim your green beans, then add to the
 
 Once tender, drain and allow to cool slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723637525658-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Combine the juice of the lime[s] with your peanut butter in a small bowl with yo
 
 Add a drizzle of olive oil and a pinch of salt – this is your gado gado dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723637528911-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Looking for something rich and creamy? Get this gratin in your life. You'll cook
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721659445220-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your chives finely
 
 Grate your cheddar cheese
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721659448971-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to medium and cook for 10-12 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721659451959-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onions and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721659456851-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Combine 100ml <span class="text-purple">[150ml]</span> <span class="text-danger"
 
 Gradually whisk the milk mixture into the roux, a little at a time and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721659460473-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Mix everything together and cook for a further 4-5 min or until the fish is cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721659464014-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Combine your white wine vinegar, remaining wholegrain mustard and chopped chives
 
 Add your salad to the bowl and toss – this is your chive salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721659467531-x200.jpg)
 
 ### Step 7
 

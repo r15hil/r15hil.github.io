@@ -23,13 +23,11 @@ This creamy farfalle is simply delicious. You'll sizzle bacon lardons until cris
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1722950674705-x200.jpg)
 
 ### Step 1
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1725.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Once hot, add the bacon lardons and cook for 5-6 min or until golden and crispy
 
 Once crispy, remove half of the crispy bacon and set it aside until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1725.-step-3.n-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Once the pasta has been cooking for 8 min, add the sliced sugar snaps and cook 
 
 Once cooked, drain and reserve a cup of starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1725.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Trim, then finely slice your spring onion[s]
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[195ml]</span><span class="text-danger"> [250ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1725.-step-5.n-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Add the chicken stock and soft cheese and cook for 2-3 min or until starting 
 
 Season with a generous grind of black pepper – this is your creamy sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1725.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop your mint leaves finely, discard the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1725.-step-7.n-x200.jpg)
 
 ### Step 7
 

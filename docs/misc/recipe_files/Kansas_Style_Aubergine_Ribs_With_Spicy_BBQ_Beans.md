@@ -27,7 +27,6 @@ Introducing our KC-style aubergine ribs. You’ll glaze your veg in sweet ‘n�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1651056788013-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the sliced chilli (can't handle the heat? Remove the seeds!) to a small bowl
 
 Mix everything together and set aside – this is your quick-pickled chilli
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651056795077-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Thread 6 aubergine wedges onto 2 skewers, alternating between flesh and skin sid
 
 Repeat with the remaining aubergine wedges and remaining skewers until you end up with 2 <span class="text-danger">[4]</span> aubergine racks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651056802038-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the aubergine racks to a baking paper-lined baking tray (or two!) with a gen
 
 Season with a pinch of salt and put the tray<span class="text-danger">[s]</span> in the oven for an initial 18-20 min or until the aubergine is golden and softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1651056808581-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the wedges to a separate baking tray with a drizzle of vegetable oil and a p
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651056820919-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the remaining cider vinegar with the smoked sea salt flakes and give everyth
 
 Drain and rinse the cannellini beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1651056828160-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ After an initial 18-20 min, remove the aubergine racks from the oven and pour ov
 
 Return the racks to the oven for a final 5-6 min or until sticky – these are your Kansas-style aubergine ribs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651056834753-x200.jpg)
 
 ### Step 7
 

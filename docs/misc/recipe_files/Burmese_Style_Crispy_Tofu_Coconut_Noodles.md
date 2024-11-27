@@ -28,7 +28,6 @@ Send your tastebuds to the streets of Yangon with a fragrant take on ohn no khau
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670320829019-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Tear the drained tofu into large bite-sized pieces
 
 Combine the tofu pieces with 2/3 of your soy sauce (save the rest for later!) in a large bowl and mix it all together – this is your marinated tofu
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670320833310-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Combine your gram flour and ground smoked paprika in a separate bowl with your g
 
 Reserve 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> of gram flour mix, then add the remaining gram flour mix with the marinated tofu and give everything a good mix up – this is your coated tofu
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670320838226-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated tofu to the pan and cook for 6-8 min or until the tofu is crispy and golden – this is your crispy tofu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670320842378-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Roughly chop your coriander, including the stalks
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670320846901-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add your ginger & garlic paste and the reserved gram flour mix and coo
 
 Meanwhile, dissolve your vegetable stock mix and the chopped creamed coconut in 600ml <span class="text-purple">[900ml] </span><span class="text-danger">[1.2L]</span> boiled water – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670320855631-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once fragrant, add the coconut stock and the remaining soy sauce to the pot with
 
 Whisk everything together until there are no lumps – this is your coconut broth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670320859247-x200.jpg)
 
 ### Step 7
 

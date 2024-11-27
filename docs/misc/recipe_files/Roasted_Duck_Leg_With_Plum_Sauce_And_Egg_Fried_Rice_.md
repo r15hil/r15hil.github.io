@@ -31,7 +31,6 @@ The ultimate Chinese-inspired fakeaway feast, complete with all your favourites.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644839929909-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Separate the white fat and the duck jelly from your duck leg[s]
 
 Add the chopped pepper to a tin foil-lined baking tray, top with the duck leg[s], white fat, duck jelly, season with a pinch of salt and pepper then put in the oven for 30 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644839942583-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the cooked rice to a plate (reserve the pot) and spread it out flat to help it cool down and boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644839952393-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Combine your spiced plum chutney and your hoisin sauce in a small bowl with half
 
 Add 100ml <span class="text-purple">[150ml]<span class="text-danger"> </span>[200ml]</span> boiled water and mix well – this is your plum mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644840737035-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Wash, then add your spinach to a colander, pour boiled water all over it so that
 
 Once cool, squeeze as much water out of the spinach as you can, then combine with half your toasted sesame oil (you'll use the rest later!) and a pinch of salt – this is your sesame spinach
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644840751668-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once the duck has 10 min left, heat a large, wide-based pan (preferably non-stic
 
 Once hot, add the plum mix and cook for 2-3 min or until reduced to a glossy sauce – this is your plum sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644840781057-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Return the reserved pot to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the cooled rice, chopped garlic and the remaining toasted sesame oil and cook for 2-3 min or until everything is combined and the rice is heated through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644840846970-x200.jpg)
 
 ### Step 7
 

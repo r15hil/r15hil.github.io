@@ -24,7 +24,6 @@ It’s all about the grains with this veg-packed bowlful. You’ll roast sweet p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676915175338-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and chop your sweet potato[es] into bite-sized pieces
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676915193102-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the chopped sweet potato, onion wedges and chopped pepper to a baking tray (
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until tender and golden – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676915207471-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Dissolve your vegetable stock mix and tomato paste in 250ml <span class="text-pu
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676915220470-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once hot, add the chopped garlic, ground cumin and ground coriander and cook for
 
 Once fragrant, add your bulgur wheat with a pinch of salt and give everything a good mix up until the bulgur is coated in spices
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676915232260-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once cooked, remove from the heat, take the lid off and leave it to cool slightl
 
 Fluff with a fork – this is your spiced bulgur wheat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676915242005-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ While the veg and bulgur are cooking, crumble half your Greek cheese into a bowl
 
 Season with a generous grind of black pepper and whisk until smooth – this is your Greek cheese dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676915257434-x200.jpg)
 
 ### Step 7
 

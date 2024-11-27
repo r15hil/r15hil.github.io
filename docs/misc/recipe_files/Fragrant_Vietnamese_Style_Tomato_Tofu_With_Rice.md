@@ -27,7 +27,6 @@ Try your tofu with a Vietnamese-style twist. You’ll marinate tofu in soy sauce
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-4-1723728146762-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chopped tofu to a large bowl with half of your soy sauce (you'll use the
 
 Give everything a good mix up until all the tofu is coated – this is your marinated tofu
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-5-1723728150721-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-6-1723728154577-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once very hot, add the marinated tofu and cook for 6-7 min, turning occasionally
 
 Once golden, transfer the tofu to a plate, set aside and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-5-1723728158517-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-6-1723728161908-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Cook for 4-5 min or until beginning to soften
 
 Once softened, add your tomato paste, ginger paste and the chopped garlic, cook for 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-5-1723728165300-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once fragrant, add your remaining soy sauce with 150ml <span class="text-purple"
 
 Cook for a further 3-4 min or until the sauce has thickened – this is your fragrant Vietnamese-style tomato tofu
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-4-1723728168583-x200.jpg)
 
 ### Step 7
 

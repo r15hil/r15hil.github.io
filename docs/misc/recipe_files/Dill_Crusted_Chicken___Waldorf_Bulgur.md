@@ -23,7 +23,6 @@ Traditionally, Waldorf salad is an American dish of celery, apples, walnuts and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/309__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 200&deg;C/ 180&deg;C (fan)/ 400&deg;F/ Gas 6
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/309__-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the chicken thigh fillets and coat evenly in the mixture
 
 Season&nbsp;generously with salt and pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/309__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the chicken thighs to an oven tray (use tin foil to avoid mess)
 
 Put&nbsp;them in the oven for 25 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/309__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the bulgur wheat, cover and cook for 5 min or until almost all the water is 
 
 Once done, cover and set aside for&nbsp;10 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/309__-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Chop the spring onions finely, discarding the root ends
 
 Slice the celery stick<span class="text-danger">[s]</span>&nbsp;finely&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/309__-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Bash the walnuts (in the bag with a rolling pin)
 
 Add them to a small heatproof dish and place in the oven for 4 min or until slightly darkened&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/309__-step-7-x200.jpg)
 
 ### Step 7
 

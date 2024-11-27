@@ -27,7 +27,6 @@ For perfect crispy rice every time, keep an eagle eye on your pot while you make
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2373Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once hot, add the diced pepper and cook for 6-7 min or until softened
 
 Meanwhile, add a drizzle of vegetable oil to a separate large, wide-based pan (preferably non-stick with a matching lid)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2373Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once boiling, reduce the heat to very low and cook, covered for 12-15 min or unt
 
 Remove the lid and cook over a high heat for 3-4 min further until the rice is starting to crisp on the bottom of the pan – this is your crispy rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2373Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2373Step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Transfer the softened pepper, ginger and garlic (reserve the pan) to a food proc
 
 Blitz until smooth – this is your Korean sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2373Step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once hot, add the chicken thigh pieces with a pinch of salt and cook for 2-3 mi
 
 Add the grated carrot and sliced spring greens and cook for a further 4-5 min or until tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2373Step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the cornflour to the pan and give it a good mix up
 
 Add the Korean sauce and cook for 5-6 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your spicy Korean-style chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2373Step-7-x200.jpg)
 
 ### Step 7
 

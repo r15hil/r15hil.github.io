@@ -23,7 +23,6 @@ Be blown away by these amazing smoky 'n' sweet BBQ fajitas, filled with chicken,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1590577998076-x200.jpg)
 
 ### Step 1
 
@@ -33,13 +32,11 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1590578004746-x200.jpg)
 
 ### Step 2
 
 Slice the chicken breasts into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1590578011831-x200.jpg)
 
 ### Step 3
 
@@ -49,13 +46,11 @@ Once hot, add the pepper strips, onion and sliced chicken to the pan with the BB
 
 Cook for 8-10 min or until the vegetables have softened and the chicken is cooked through (no pink meat!) – this is your smoky 'n' sweet BBQ chicken fajita filling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1590578017144-x200.jpg)
 
 ### Step 4
 
 Whilst everything is cooking, chop the tomatoes roughly, then keep chopping them together until they resemble a salsa-like consistency
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1590578025900-x200.jpg)
 
 ### Step 5
 
@@ -63,13 +58,11 @@ Add the chopped tomato to a bowl with the chilli flakes (cooking for kids? Skip 
 
 Stir it all together – this is your salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1590578034853-x200.jpg)
 
 ### Step 6
 
 Add the seeded tortillas to a baking tray and put the tray in the oven for 2-3 min or until warmed through (alternatively, add them to a plate and microwave!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1590578039730-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Golden-roasted cauliflower pairs perfectly with a warming spiced rice pilaf. Top
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/436_step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Drizzle the florets with vegetable oil and season with salt and pepper
 
 Put the tray in the oven for 35-40 min or until the cauliflower is starting to turn brown and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/436_step-2-x200.jpg)
 
 ### Step 2
 
 While the cauliflower is cooking, peel and dice the brown onion<span class="text-danger">[s]</span> finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/436_step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once hot, add the diced onion, curry powder, chilli flakes (can't handle the he
 
 Cook for 3 min or until the onion has softened slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/436_step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving - this is your spiced rice pilaf
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/436_step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Peel and roughly chop (or grate) the garlic
 
 Chop the coriander roughly, including the stalks (save some leaves for garnish)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/436_step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the chopped ginger, chopped garlic and most of the chopped coriander to 
 
 Add 1/2 tsp <span class="text-danger">[1 tsp]</span> of both salt and pepper with a pinch of sugar and blitz until blended and smooth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/436_step-7-x200.jpg)
 
 ### Step 7
 

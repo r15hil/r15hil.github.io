@@ -27,7 +27,6 @@ Sticky, sweet pork belly, served over a classic Asian salad brimming with little
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1084.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a sha
 
 Season with a very generous pinch of salt and rub it deep into the criss-cross pattern
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1084.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once very hot, add the pork belly, fat side down and cook for 4 min or until col
 
 Once done, transfer the pork to a tin foil lined baking tray and put the tray in the oven for 40 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1084.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Bring to the boil over a high heat and cook for 5-7 min or until tender with a s
 
 Once cooled, set aside for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1084.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -84,7 +80,6 @@ Bash the roasted peanuts with a rolling pin until they are finely crushed (keep 
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1084.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Combine the chopped ginger, rice vinegar, remaining soy sauce, toasted sesame oil and 1 tsp <span class="text-danger">[2 tsp]</span> sugar &ndash;&nbsp;this is your&nbsp;dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1084.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -114,7 +108,6 @@ Cut the red&nbsp;chilli<span class="text-danger">[es]</span> in half lengthways,
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1084.-step-7-x200.jpg)
 
 ### Step 7
 

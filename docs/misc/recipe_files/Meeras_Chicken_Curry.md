@@ -24,7 +24,6 @@ Coconut and tamarind is a famous pairing in South Indian cookery, here creating 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/439.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ When hot, add the onion &amp; cinnamon with a pinch of salt
 
 Cook for 8 min, or until softened and brown at the edges, stirring often
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/439.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Chop the chilli<span class="text-danger">(es)</span> and seeds (optional) finely
 
 Chop the chicken into 3cm cubes also for step 4
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/439.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Boil half a kettle for step 5
 
 Add the garlic and ginger to the onion pan and cook for a further 30 sec-1 min, or until fragrant without taking on too much colour, stirring constantly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/439.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the red chilli and seeds to your preferred heat, with the turmeric, ground c
 
 Add the chicken &amp; cook for approx. 3-4 min, or until the chicken is slightly coloured and no longer translucent, stirring occasionally
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/439.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once the chicken has coloured slightly, add the tamarind paste and stir through 
 
 Cover with a lid, reduce the heat to medium-low and simmer for 15-20 min, or until the chicken is tender and cooked through and the sauce is creamy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/439.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once boiling, reduce to a simmer and cover for 15-20 min or until the water is a
 
 Check to prevent over-cooking and once done, set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/439.-step7jpg-x200.jpg)
 
 ### Step 7
 

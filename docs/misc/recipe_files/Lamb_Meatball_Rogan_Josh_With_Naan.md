@@ -27,7 +27,6 @@ Our twist on the classic rogan josh is made with lamb meatballs, making it speed
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1597834726622-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the lamb mince to a bowl with a generous pinch of both salt and pepper and
 
 Divide the mince into 6 <span class="text-danger">[12] </span>and shape into meatballs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1597834730735-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the meatballs and cook for 2 min, turning occasionally, then trans
 
 Return the pan to a medium-low heat, add the sliced onion with a generous pinch of salt and cook for 10 min or until they're softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1597834735122-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1597834739517-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Cut the tomatoes into wedges
 
 Dissolve the Knorr vegetable stock cube<span class="text-danger">[s]</span> and tomato paste in 250ml <span class="text-danger">[500ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1597834743833-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Increase the heat to high and add the garam masala and cayenne pepper (can't han
 
 Add 2/3 of the chopped garlic and all of the chopped ginger and cook for a further 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1597834747780-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Cook, covered, for 8-10 min or until the sauce resembles a curry-like consistenc
 
 Add the plain naans to a baking tray and put the tray in the oven for 3-4 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1597834752073-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This is the perfect for a sunny evening. It's a delicious mix of roast courgette
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595941496850-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Top, tail and slice your courgette[s] into discs
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and cut into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595941595184-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Peel and finely grate (or chop) your garlic
 
 Drain and rinse your chickpeas
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595941523518-x200.jpg)
 
 ### Step 3
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice!) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595941538033-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Add the courgette discs, chopped pepper, cherry tomatoes and drained chickpeas t
 
 Squeeze over the juice of half your<span class="text-danger"> </span>lemon[s], add a generous drizzle of olive oil and a pinch of salt and pepper and put the tray[s] in the oven for 10-12 min or until the veg is lightly charred and juicy – these are your Mediterranean-style vegetables
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595941550625-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Whilst the veg is in the oven, combine your natural yoghurt and goats' cheese an
 
 Add a grind of black pepper and give it a good mix up – this is your whipped goats' cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595941556349-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Meanwhile, cut your naan[s] in half on the diagonal, then add them to a baking t
 
 Put the tray[s] in the oven for 3 min or until the bread is hot – these are your chilli naans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595941567876-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ Bring the fiesta home this Cinco de Mayo with Mexican-inspired mushroom birria t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649169854535-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Add your dried ancho chilli[es] to a bowl, cover with boiled water and set aside to soak
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649169862642-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Add the chopped potatoes to the bowl and give them a good mix up
 
 Transfer the garlic coated potatoes to one side of a baking paper-lined baking tray (or two!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649169869768-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Scrunch the foil around the corn until tightly sealed and add to the baking tray
 
 Put the tray[s] in the oven for 30-35 min or until the corn is tender and the potatoes are crispy – these are your smoky corn cobettes and mojo de ajo potatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649169879389-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Drain the ancho chilli[es], then roll up and slice into thin strips (as finely a
 
 Dissolve your tomato paste, chipotle paste (can't handle the heat? Go easy!) and vegetable stock mix in 350ml<span class="text-purple"> [475ml]</span> <span class="text-danger">[600ml]</span> boiled water and add a pinch of salt and pepper – this is your birria-style stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649169887634-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once softened, add the remaining grated garlic, remaining ground smoked paprika 
 
 Cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649169895627-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Tip: The sauce should be slightly loose so you can dip in your finished tacos!
 
 Once the mushrooms are warmed through, pull them apart using two forks and mix into the sauce – these are your birria-style meaty mushrooms
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649169904151-x200.jpg)
 
 ### Step 7
 

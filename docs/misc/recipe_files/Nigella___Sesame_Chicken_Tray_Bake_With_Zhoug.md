@@ -27,7 +27,6 @@ For a new twist on a tray bake, you'll coat chicken thighs in nigella and sesame
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1603213750040-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut the waxy potatoes into quarters and chop the carrots into batons (skins on)
 
 Dissolve the Knorr chicken stock cube<span class="text-danger">[s]</span> in 150ml <span class="text-danger">[300ml]</span> boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1603213771070-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Season with a crack of black pepper and give everything a good mix up
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1603213775287-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Add the chicken thighs to the tray and season them with a pinch of salt
 
 Drizzle over a little olive oil and cover the chicken with the nigella seeds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1603213779785-x200.jpg)
 
 ### Step 4
 
 Pour the chicken stock into the tray so that the base is covered, then cover the tray<span class="text-danger">[s]</span> with tin foil and put it in the oven for 20 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1603213784630-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Chop the coriander roughly, including the stalks
 
 Crush the cardamom pods open by squashing them with the side of a knife
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1603213789236-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the chopped garlic (don't like raw garlic? Go easy!), chopped chilli (not a 
 
 Add 3 tbsp <span class="text-danger">[6 tbsp]</span> olive oil and a splash of water and stir it all together – this is your zhoug
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1603213793774-x200.jpg)
 
 ### Step 7
 

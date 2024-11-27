@@ -26,7 +26,6 @@ This veggie take on a stroganoff is the ultimate comfort food. You'll stir musta
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1621860548897-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once melted, add the black mustard seeds and cook for 30 secs, stirring continu
 
 Rinse the white long grain rice until the water runs clear, then add it to the pot with a pinch of salt and stir to fully coat the grains
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621860558476-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621860565041-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick), with a drizzle of olive oil
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1621860573498-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once fragrant, roughly tear all of the mushrooms into the pan and cook for 4 min
 
 Tip: Try not to move the mushrooms around too much as this will stop them from caramelising!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621860605900-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, chop the parsley and chives finely, including the stalks
 
 Bash the walnuts in their bag with a rolling pin until crushed into small pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621860628428-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Reduce the heat to low and stir through the crème fraîche and a generous grind
 
 Tip: The water from the mushrooms should make it saucy but if yours is looking a little dry, add a splash of water!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621860636446-x200.jpg)
 
 ### Step 7
 

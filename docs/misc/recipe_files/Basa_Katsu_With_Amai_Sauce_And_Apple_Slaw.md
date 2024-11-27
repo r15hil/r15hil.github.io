@@ -29,7 +29,6 @@ Panko breadcrumbs give these basa fillets an irresistible crispy coating. Serve 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1066Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1066Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add your panko breadcrumbs to another plate
 
 Coat your basa fillet[s] in the flour, tap off the excess, then add into the beaten egg and finally press into the panko breadcrumbs firmly to evenly coat all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1066Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a pot over a low heat
 
 Add your tomato ketchup, soy sauce and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and cook for 3-4 min or until thick and sticky, then remove from the heat and set aside for serving – this is your amai sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1066Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely grate your ging
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1066Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Cut your apple[s] (skin on) into matchsticks and discard the core[s]
 
 Trim, then slice your spring onion[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1066.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, add the breaded basa (cooking for 4 or more? Do this in batches!) and
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1066.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ When the craving for fish goujons hits, skip the freezer staple and make your ow
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648027852024-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the potato wedges to a baking tray with a drizzle of vegetable oil and a pin
 
 Give everything a good mix up and put the tray in the oven for 30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648027856261-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Slice each half into 2 pieces (roughly the size and shape of fish fingers) so th
 
 Peel and finely chop your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648027860915-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add your panko breadcrumbs to another plate with your ground smoked paprika, dri
 
 Add a generous drizzle of olive oil and mix together (this will make your breadcrumbs golden!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648027870708-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the breaded basa strips to a separate baking tray (or two!) and put the tray
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648027878422-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Meanwhile, drain and rinse your cannellini beans
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648027882129-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once the onion has softened, add the drained cannellini beans to the pot with<sp
 
 Bring to the boil over a high heat and cook for 4-5 min or until thickened – these are your beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648027885430-x200.jpg)
 
 ### Step 7
 

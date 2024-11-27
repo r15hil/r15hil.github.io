@@ -23,7 +23,6 @@ This classic Austrian dish is a beloved restaurant favourite for a reason. For o
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/976.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Meanwhile, cut the waxy potatoes (skins on) into large, bite-sized pieces
 
 Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 15-20 min or until they're fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/976.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Meanwhile, place your hand flat onto the chicken breast<span class="text-danger
 
 Slice in half as if you were cutting a burger bun, so you are left with two thinner pieces of chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/976.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the panko breadcrumbs to a plate with a pinch of salt and pepper 
 
 Coat the sliced chicken in the flour, tap off the excess, then into the beaten egg and finally press it into the panko breadcrumbs firmly to coat everything evenly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/976.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the mayonnaise to a large mixing bowl with the horseradish cream, the <spa
 
 Add a generous drizzle of olive oil and mix to combine – this is your lemony horseradish dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/976.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Dice the apple<span class="text-danger">[s]</span> (skin on) 
 
 Add the sliced spring onion, chopped chives and diced apple to the bowl of horseradish dressing and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/976.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Tip: add more oil if your pan is looking a little dry 
 
 Once cooked, transfer to kitchen paper (keep the pan!) – these are your chicken schnitzel
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/976.-step-7-x200.jpg)
 
 ### Step 7
 

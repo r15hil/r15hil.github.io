@@ -32,7 +32,6 @@ Inspired by Brazilian feijoada, this stew is brimming with goodness. Cook sweet 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1636546023982-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1636546028857-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Meanwhile, peel and cut half your<span class="text-danger"> </span>red onion[s] 
 
 Peel and chop your sweet potato[es] into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1636546031636-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the onion wedges and chopped sweet potato with a pinch of salt and cook for 3-4 min or until the onion is beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1636546034486-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Drain and rinse your black beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1636546037869-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the pepper strips, drained black beans and half the chopped chilli (can't ha
 
 Season with a pinch of salt and mix together until everything is coated in the spices
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1636546040289-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Stir everything together and cook, covered, for 10-12 min or until the sweet pot
 
 Whilst the stew is cooking, chop your tomato[es] roughly and chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1636546043476-x200.jpg)
 
 ### Step 7
 

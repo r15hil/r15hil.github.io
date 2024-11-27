@@ -25,7 +25,6 @@ The Philly Cheesesteak finds its perfect pair in this BBQ dream.  Load hot dog b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690987840743-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut your potatoes (skins on) into fries
 
 Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of vegetable oil, dried oregano and chopped garlic, then give everything a good mix up and put in the oven for 20-25 min or until golden and crisp – these are your garlic French fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690987848341-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Transfer your BBQ pulled pork and any juices to an oven-proof dish
 
 Cover with tin foil and put the dish in the oven for 30 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690987886590-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ While the pork is cooking, peel and finely slice your brown onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690989089504-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once hot, add the sliced onion and pepper strips with 1/2 tsp <span class="text-
 
 Cook for 10-12 min or until golden and softened – this is your caramelised onion & pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690989104046-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Meanwhile, grate your cheddar cheese
 
 Cut a slit into the top of your hot dog bun[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690989938108-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Pull the BBQ pulled pork apart using two forks
 
 Add your BBQ sauce to the pulled pork and give everything a good mix up –  this is your BBQ pulled pork filling
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690989951819-x200.jpg)
 
 ### Step 7
 

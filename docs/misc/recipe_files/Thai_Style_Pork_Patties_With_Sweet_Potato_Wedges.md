@@ -28,7 +28,6 @@ These Thai-inspired pork patties are packed with fragrant ginger, garlic and cor
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626794370092-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the wedges to a large baking tray (or two!) with a drizzle of vegetable oil 
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are tender and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626794389377-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Separate your coriander from your mint, then strip the mint leaves from their st
 
 Chop your coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626794412884-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Add your pork mince (remove the paper if required!) to a large bowl with your 
 
 Mix thoroughly until fully combined (clean hands is the best way!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626794426238-x200.jpg)
 
 ### Step 4
 
 Divide and shape the pork mixture into 2 patties per person – these are your Thai-style pork patties
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626794439228-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Tip: Cooking for 3? You may need to do this in batches!
 
 Flip the Thai-style pork patties and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626794454554-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the sliced radishes and cucumber ribbons to a bowl with the juice of half yo
 
 Gently mix it all together – this is your quick-pickled radish salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626794480448-x200.jpg)
 
 ### Step 7
 

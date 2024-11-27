@@ -30,7 +30,6 @@ This juicy burgers make for a perfect family meal. You'll pack your patties with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625658482295-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Chop your potatoes into chips and add them to a baking tray (or two!) with a dri
 
 Put the tray[s] in the oven for 30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625658486538-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Dice the remaining onion as finely as you can
 
 Tip: Alternatively, pop the remaining onion into a mini food processor and blitz until finely chopped
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625658490742-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the red onion round[s] to a separate tin foil-lined baking tray (or pop them
 
 Put the tray[s] in the oven for 20-25 min or until softened and lightly golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625658495030-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Mix together for 1-2 min or until really well combined (clean hands is the best 
 
 Shape into 1 patty per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625658500061-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Tear the remaining lettuce into rough, bite-sized pieces
 
 Slice your cheddar cheese into 3 slices per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625658505699-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once hot, add the patty[ies] and press down firmly with a spatula and cook for 5
 
 Mix most of the torn lettuce (save a handful for later!) and roughly chopped tomato together – this is your salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1625658510449-x200.jpg)
 
 ### Step 7
 

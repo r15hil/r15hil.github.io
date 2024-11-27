@@ -22,7 +22,6 @@ These pea and mint potato cakes are topped with a fried egg, and served with avo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624294589973-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel and chop the potatoes into rough, bite-sized pieces, then add to a pot with
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624294596115-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Whilst the potatoes are cooking, trim, then finely slice the spring onions
 
 Strip the mint leaves from their stems and chop them finely, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624294612105-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Mash the potatoes until smooth
 
 Add the blanched peas, sliced spring onion, chopped mint and 1/4 tsp <span class="text-danger">[1/2 tsp]</span> salt and pepper and give it a good mix up – this is your pea & mint potato mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624294621722-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Put the tray in the oven for 12-15 min or until golden
 
 Tip: If the potato cake mix is a little wet and not sticking together nicely, add a spoonful or two of flour
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624294638300-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ While the potato cakes are cooking, add the white wine vinegar and 2 tbsp <span 
 
 Wash the baby leaf salad, then pat it dry with kitchen paper, add it to the dressing and give it a gentle mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624294648056-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Scoop the avocado out of the skin<span class="text-danger">[s]</span> using a sp
 
 Season with a small pinch of salt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624294655178-x200.jpg)
 
 ### Step 7
 

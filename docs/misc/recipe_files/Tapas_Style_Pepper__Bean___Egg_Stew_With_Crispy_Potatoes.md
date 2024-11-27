@@ -28,7 +28,6 @@ Escape to the bars of Barcelona with this easy tapas-style dish. You'll top a ri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/353.-.step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your potatoes (skins on) into bite-sized pieces
 
 Add them to a baking tray, drizzle with olive oil, season with cayenne pepper (can't handle the heat? Go easy!), salt and pepper, then put in the oven for 25-30 min or until golden and crisp – these are your crispy potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/353.-.step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and slice your brown onion[s] finely
 
 Peel and chop (or grate) your garlic finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/353.-.step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once hot, add the pepper strips and sliced onion with a pinch of salt and sugar
 
 Once softened, add the chopped garlic and cook for a further 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/353.-.step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Drain and rinse your cannellini beans
 
 Add your vegetable stock and drained cannellini beans to the softened pepper and onion and cook for 10-15 min over a low heat or until reduced to a thick stew
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/353.-.step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Trim, then slice your spring onion[s] finely
 
 Chop your coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/353.-.step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Combine your mayo in a small bowl with the sliced spring onion, remaining chip
 
 Season with a pinch of pepper and set aside – this is your smoky mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/353._step-7.new-x200.jpg)
 
 ### Step 7
 

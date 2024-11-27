@@ -21,7 +21,6 @@ This easy recipe is so light on washing up! Plus, by baking orzo in the oven, it
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581515270811-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil a kettle
 
 Add the orzo pasta to an ovenproof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581515278448-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Dissolve the Knorr chicken stock cube<span class="text-danger">[s] </span>in 400
 
 Stir through the Dijon mustard and soft cheese – this is your creamy stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581515283632-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ Pour the creamy stock over the orzo pasta and put the dish in the oven for 10 mi
 
 Tip: Make sure your oven is at temperature before you put the dish in!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581515290072-x200.jpg)
 
 ### Step 4
 
@@ -57,13 +53,11 @@ Pat the chicken thighs dry with kitchen paper and season them generously on both
 
 Once hot, add the chicken, skin-side down, and cook for 7-8 min or until the skins have browned and crisped
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581515295189-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop the dill finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581515299918-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Add the blanched peas, most of the chopped dill (save some for garnish!) and hal
 
 Season with a generous grind of black pepper and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581515305970-x200.jpg)
 
 ### Step 7
 

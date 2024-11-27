@@ -26,7 +26,6 @@ Turmeric takes centre stage in this vibrant chicken curry, which is has an indul
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/307-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/307-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and chop the garlic roughly
 
 Peel the ginger (scrape the skin off with a teaspoon) and chop roughly (or grate)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/307-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once warm, add the cardamom seeds, chilli flakes (can't handle the heat? Go easy
 
 Toast the spices for 30 seconds, then add a drizzle of vegetable oil to the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/307-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cook for a further 2 min
 
 Transfer the mixture (keep the pan for step 6) to a processor and blitz until smooth paste - this is your curry paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/307-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Return the pan back to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the chicken and cook for 2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/307-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the curry paste to the chicken with 180ml [230ml] boiled water
 
 Cover with a lid and cook on a medium-low heat for 10 min, then remove the lid and reduce for 5 min further until thickened to a good consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/307-step-7-x200.jpg)
 
 ### Step 7
 

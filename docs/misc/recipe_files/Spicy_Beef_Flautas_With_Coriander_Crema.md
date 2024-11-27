@@ -28,7 +28,6 @@ Often known as flautas because they look like a flute, these crispy rolled tacos
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707141211365-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your beef mince with a pinch of salt and cook for 4-5 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707141214418-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and finely chop your garlic
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707141217360-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once the beef has browned, add the diced onion with a pinch of salt and cook for
 
 Dissolve your tomato paste in 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[200ml] </span>boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707141222302-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add your ground smoked paprika, dried oregano and cayenne pepper (can't handle t
 
 Once fragrant, add the tomato stock and cook for 2-3 min further or until the meat is cooked through (no pink meat!) – this is your spicy beef filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707141228252-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Roll each tortilla up and add them to a baking tray (or two!), seam-side down
 
 Drizzle with olive oil and put the tray[s] in the oven for 10 min or until beginning to crisp – these are your spicy beef flautas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707141233011-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Stir the coriander paste through your soured cream with a squeeze of your lime[s
 
 Tip: If you don't have a pestle & mortar, chop the coriander very finely and mix with the salt and soured cream in a bowl!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1707141237992-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Pasanda means "favourite" in Urdu, possibly because it's such a crowd-pleaser. T
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632752645318-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632752649276-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Return the reserved pan to a medium-high heat with a generous drizzle of vegeta
 
 Once hot, add the chopped onion with a small pinch of salt and cook for 6-7 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632752653467-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Tip: Add a little more oil if the pan looks a little dry
 
 Meanwhile, boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632752656738-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[130ml] </span><span class="text-danger">[180ml] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632752691030-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632752687945-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Chop your creamed coconut roughly (if required!)
 
 Add the vegetable stock with your ground almonds, tomato wedges, chopped creamed coconut and a pinch of sugar and cook for 3-4 min further, stirring occasionally, or until the prawns are cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632752696636-x200.jpg)
 
 ### Step 7
 

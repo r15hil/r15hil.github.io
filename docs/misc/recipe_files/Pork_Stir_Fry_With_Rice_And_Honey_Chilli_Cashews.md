@@ -30,7 +30,6 @@ You can share this veg-packed stir-fry with the whole family. You’ll sizzle po
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1710842505405-x200.jpg)
 
 ### Step 1
 
@@ -40,13 +39,11 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1710842510439-x200.jpg)
 
 ### Step 2
 
 Combine your cornflour and soy sauce in a bowl with half your honey (save the rest for later!), your toasted sesame oil, rice vinegar and 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[125ml]</span> cold water – this is your stir fry sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1710842518451-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1710842522873-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once hot, add your cashew nuts and cook for 1-2 min or until slightly toasted
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1710842527461-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once slightly toasted, add the remaining honey to the pan with your chilli flake
 
 Once caramelised, transfer the cashew nuts to a plate to cool into a brittle and reserve the pan – these are your honey chilli cashews
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1710842533684-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once hot, add the chopped onion, sliced carrot and mangetout with a pinch of sal
 
 Once softened, add your pork mince (remove the paper if required!) to the pan and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710842540735-x200.jpg)
 
 ### Step 7
 

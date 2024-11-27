@@ -24,7 +24,6 @@ Get your sandwich fix with this meaty take on the classic grilled cheese. You’
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684507371871-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684507379943-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince and cook for 8-10 min or until browned and cooked through (no pink meat!), breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684507385563-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once fragrant, add your Henderson's Relish, beef stock mix and 100ml <span class
 
 Bring to the boil and cook for 3-4 min or until the sauce thickens to a gravy-like consistency – this is your sloppy joe filling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684507389308-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Meanwhile, grate your cheddar cheese
 
 Slice your ciabatta[s] in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684507393634-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Top the ciabatta bases with the sloppy joe filling and grated cheese and place a
 
 Reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684507400900-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the filled ciabattas and press them down very firmly with a spatul
 
 Cook for 4-5 min on each side or until the bread is golden and the cheese has melted – this is your sloppy joe grilled cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684507404674-x200.jpg)
 
 ### Step 7
 

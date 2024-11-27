@@ -26,7 +26,6 @@ Take your taste buds to the 60s with this prawn cocktail sandwich. You’ll pan 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701173102688-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701173122940-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil, your g
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your smoky paprika chips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701173136391-x200.jpg)
 
 ### Step 3
 
 Combine your Henderson's Relish, ketchup and your mayo in a small bowl with a pinch of sugar – this is your Marie Rose sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701173141077-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Wash then remove 2<span class="text-danger"> </span>leaves per person from your 
 
 Chop the inner core[s] into quarters, lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701173157783-x200.jpg)
 
 ### Step 5
 
@@ -66,13 +61,11 @@ Once hot, drain, then add your king prawns and roasted garlic paste
 
 Cook for 4-5 min or until cooked through – these are your garlic prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701173174822-x200.jpg)
 
 ### Step 6
 
 Slice your ciabatta[s] in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701173183895-x200.jpg)
 
 ### Step 7
 

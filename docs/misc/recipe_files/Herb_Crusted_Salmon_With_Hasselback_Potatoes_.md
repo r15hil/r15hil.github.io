@@ -24,7 +24,6 @@ For a delicious, easy dinner, you'll combine succulent salmon fillets with Dijon
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1609781368526-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut narrow slices (about the width of a pound coin) into your waxy potatoes, mak
 
 Tip: Place chopsticks either side of the potatoes to stop you cutting all the way through!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1609781418057-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the hasselback potatoes to a tin foil-lined baking tray and drizzle each wit
 
 Season with a pinch of salt and pepper and put the tray in the oven for 35-40 min or until they're tender and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1609781439693-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Zest your lemon[s] (try to grate lightly with a microplane or sharp box grater a
 
 Roll the zested lemon[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1609781483674-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Mix your panko breadcrumbs, chopped parsley and lemon zest with 1 tbsp <span cla
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1609781495243-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Tip: Not a fan of mustard? Just spread a thin layer!
 
 Top the mustard salmon with the herby breadcrumb mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1609781531760-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Meanwhile, add your blanched peas to a pot, cover them with boiled water and coo
 
 Once cooked, drain and return the peas to the pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1609781541148-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ You’ve heard of fried chicken, now try your hand at Korean fire chicken. A spi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1617714739437-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Before you start cooking take your chicken out of the fridge, open the packet an
 
 Rinse your sushi rice in a sieve under cold running water for 30 secs (use your hands to really wash the grains!), then set aside to drain fully
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617714744430-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617714751258-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Add the chopped onion, garlic and ginger to a large, wide-based pan (preferably 
 
 Tip: Keep off the heat for now!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617714774881-x200.jpg)
 
 ### Step 4
 
 Add your diced chicken thigh to the pan with your gochujang paste, chilli flakes (can't handle the heat? Go easy!), soy sauce, a pinch of sugar and a drizzle of vegetable oil and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617714792601-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once browned, reduce the heat to medium-low, add 50ml <span class="text-purple">
 
 Tip: If the sauce is a little thin, remove the lid and cook over a high heat for 2-3 min further or until thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617714808285-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once hot, add your toasted sesame oil and halved green beans and cook for 6-7 mi
 
 Once done, sprinkle your toasted sesame seeds all over and give everything a good mix up – these are your sesame green beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617714825201-x200.jpg)
 
 ### Step 7
 

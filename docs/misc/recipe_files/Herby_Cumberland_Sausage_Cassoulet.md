@@ -23,7 +23,6 @@ Bangers and mash are a national staple. For the Gousto twist, we’ve replaced t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/63-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and chop the potatoes into large chunks
 
 Add them to a pot of salted boiling water over a high heat and cook for 15 min or until&nbsp;fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/63-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop the tomatoes into a large dice
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/63-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once&nbsp;hot, add the sausages and cook for 6 min or until browned all over
 
 Transfer the sausages to a plate and reserve the pan for the next step
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/63-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cook for 3 min or until the onion is soft but not coloured
 
 Add the chilli flakes (can't handle the heat? Go easy!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/63-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Crumble&nbsp;in the stock cube<span class="text-danger">(s)</span> and stir to d
 
 Cook&nbsp;for 10-15 min or until the sausages are cooked through and a thick sauce remains
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/63-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Add 60ml <span class="text-danger">(120ml)</span>&nbsp;milk and a knob of butter
 
 Season&nbsp;generously&nbsp;with salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/63-step-7-x200.jpg)
 
 ### Step 7
 

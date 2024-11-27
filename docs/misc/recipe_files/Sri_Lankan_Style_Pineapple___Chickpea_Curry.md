@@ -31,7 +31,6 @@ Sweet, savoury and speedy. This Sri Lankan-style curry is packed with umami. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1730106794141-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677854261348-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Trim, then chop your green beans in half
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677854271407-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Discard the outer green pod[s] and add the cardamom seeds to a pestle & mortar w
 
 Once hot, add your ginger & garlic paste and chopped green beans with your ground turmeric, curry powder and spice mix and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677854281467-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once fragrant, add your creamed coconut, vegetable stock mix and gluten free soy
 
 Meanwhile, drain and rinse your chickpeas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677854294534-x200.jpg)
 
 ### Step 5
 
@@ -83,13 +78,11 @@ Remove your pineapple from the can (save the juice!) and chop roughly into bite-
 
 Add the reserved pineapple juice to the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677854304558-x200.jpg)
 
 ### Step 6
 
 Add the chopped pineapple and cook, covered, for 3-4 min or until thickened to a curry-like consistency – this is your Sri Lankan-style pineapple & chickpea curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677854313164-x200.jpg)
 
 ### Step 7
 

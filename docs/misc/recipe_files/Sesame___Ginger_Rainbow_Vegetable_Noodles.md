@@ -27,7 +27,6 @@ Roasting broccoli transforms it from staple to superior! Here it's the star of t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1601.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Cut the broccoli into 6<span class="text-danger"> [12]</span> wedges, lengthway
 
 Cut the red onion<span class="text-danger">[s]</span> into wedges, leaving the skins on (this helps them cook quicker)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1601.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Add the broccoli and onion wedges to a baking tray with the butternut squash cub
 
 Drizzle everything with vegetable oil and a generous pinch of salt
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1601.-step-3-x200.jpg)
 
 ### Step 3
 
 Put the tray in the oven and cook for 25-30 min or until everything is golden and tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1601.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 Once cooked, reserve a cup of starchy noodle water, then drain and return them to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1601.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Combine the miso paste, tahini, toasted sesame oil, soy sauce, agave nectar, rice vinegar and chopped ginger in a small bowl with a pinch of salt – this is your sesame &amp; ginger dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1601.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Trim, then finely slice the spring onion<span class="text-danger">[s]</span>
 
 Finely slice the red chilli<span class="text-danger">[es] </span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1601.-step-7-x200.jpg)
 
 ### Step 7
 

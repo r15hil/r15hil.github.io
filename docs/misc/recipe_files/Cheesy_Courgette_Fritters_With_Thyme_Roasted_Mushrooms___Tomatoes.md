@@ -23,7 +23,6 @@ Can’t wait till the weekend? Serve up brunch for dinner. Stack your plate with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1634046941012-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634046944201-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add the halved cherry tomatoes and flat white mushrooms to a baking tray and top
 
 Put the tray in the oven for 10-15 min or until softened – these are your thyme-roasted mushrooms & tomatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1638983053760-x200.jpg)
 
 ### Step 3
 
@@ -51,13 +48,11 @@ While the mushrooms and tomatoes are in the oven, top, tail then grate your cour
 
 Trim, then slice your spring onions finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634046949240-x200.jpg)
 
 ### Step 4
 
 Add the grated courgette to the middle of a clean tea towel (or kitchen paper) and bring the four corners together to form a ball, twist the ball and squeeze out as much of the liquid as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634046952471-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Add the grated courgette to a bowl with most of the sliced spring onion (save a 
 
 Crack in 1/3 of your egg[s], season with a pinch of salt and pepper and give everything a good mix up – this is your fritter mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634046956462-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, spoon the fritter mixture into the pan, roughly divided into 2 per person and cook for 3 min on each side or until golden and cooked through (save the pan for the next step!) – these are your cheesy courgette fritters
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634046959993-x200.jpg)
 
 ### Step 7
 

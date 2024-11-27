@@ -33,7 +33,6 @@ Take a tasty trip across the channel with this warming winter cassoulet. You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667398456445-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your slow cooker and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667398461664-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Boil a kettle
 
 Turn on your slow cooker to high
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667398467491-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chorizo and cook for 2-3 min until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667398473626-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Peel and finely chop (or grate) your garlic
 
 Roughly chop your potato[es]<span class="text-danger"> </span>into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667398478696-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger"
 
 Drain and rinse your cannellini beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667398483152-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[35
 
 Add your bay leaf[ves] and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and pepper, then cover and cook on high for 4 hours – this is your chorizo cassoulet
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Green-beans-in-a-pan-1667909898586-x200.jpg)
 
 ### Step 7
 

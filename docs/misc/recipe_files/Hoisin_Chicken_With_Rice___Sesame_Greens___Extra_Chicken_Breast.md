@@ -26,7 +26,6 @@ This sticky Chinese-style chicken dinner will give you the protein hit you need.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1730471358499-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1730471365500-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Boil half a kettle
 
 Add your chicken breast portions to a chopping board, cover with cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1730471370821-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Once hot, add the flattened chicken to the pan with a pinch of salt and pepper a
 
 Tip: Cooking for 5? Use two pans!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1730471376359-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add your hoisin sauce, gluten free soy sauce and ginger & garlic paste to a measuring jug with your cornflour and 50ml <span class="text-purple">[70ml]</span> <span class="text-danger">[90ml]</span> boiled water and stir it all together – this is your hoisin sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1730471386015-x200.jpg)
 
 ### Step 5
 
@@ -68,13 +63,11 @@ Wash, then, slice your pak choi into wedges lengthways on a clean chopping board
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1730471393286-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked, add the hoisin sauce to the pan and cook for 2-3 min or until the sauce has thickened and the chicken is coated – this is your sticky hoisin chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1730471398652-x200.jpg)
 
 ### Step 7
 

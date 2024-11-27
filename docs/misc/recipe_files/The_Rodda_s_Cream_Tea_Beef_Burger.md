@@ -27,7 +27,6 @@ Ready to bite into tradition with a burger-y twist? Shake up convention by swapp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619713137167-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Slice your potatoes (skins on) into thin discs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619713162779-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add a generous drizzle of vegetable oil and a pinch of salt and pepper and give 
 
 Spread the potato discs into a single layer and put the tray[s] in the oven for 20-25 min or until golden and crispy – these are your salt & pepper slices
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619713251383-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, cut 2 slices per person from your tomato[es]<span class="text-danger"
 
 Chop the remaining tomato finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1619713277942-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the tomato has started to break down, add your tomato paste, red wine vineg
 
 Cook for 10-15 min, stirring frequently, or until thickened to a jam-like consistency – this is your warming tomato jam
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619713302810-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide and shape into equal-sized patties (1 per person!) and put in the fridge until later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1619713313564-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once hot, add the brioche halves, cut-side down, and cook for 3-4 min or until l
 
 Once done, set aside until serving (save the pan!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1619713331619-x200.jpg)
 
 ### Step 7
 

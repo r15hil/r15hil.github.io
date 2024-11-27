@@ -31,7 +31,6 @@ Transport your table to Morocco with this gently spiced, beautifully rich stew. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1645552838700-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1645552932199-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Meanwhile, dissolve half your chicken stock mix (save the rest for later!) in 2
 
 Add your couscous to the stock, stir, cover and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1645552939647-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Put the bowl in the microwave for 5-6 min or until the squash cubes are fork-te
 
 Dissolve the remaining chicken stock mix with 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1645552949599-x200.jpg)
 
 ### Step 4
 
@@ -79,13 +75,11 @@ Once hot, add the diced chicken breast and roasted garlic paste with a very gene
 
 Add your smoked paprika, ground cinnamon, turmeric, cumin and coriander to the pan and cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1645552960252-x200.jpg)
 
 ### Step 5
 
 Meanwhile, drain and rinse your chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1645552969555-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Once fragrant, add the chopped tomatoes, remaining chicken stock mix, drained ch
 
 Cook, covered, for 3-4 min further or until the chicken is cooked through (no pink meat!) – this is your chicken, butternut squash & chickpea stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1645552993753-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Sizzle up a Spanish-inspired salad with roasted pepper, sweet red onion and prot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616580540170-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a kettle
 
 Chop your potatoes into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1616580699252-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the chopped potatoes to a pot of boiled water with a large pinch of sal
 
 Once cooked, drain and return them to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1616580560828-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ While the potatoes are cooking, deseed your sweet pointed pepper[s] (scrape the 
 
 Cut your red onion[s] into wedges, leaving the skins on (this helps them cook quicker)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1616580571816-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Drizzle everything with olive oil
 
 Put the tray in the oven and cook for 25-30 min or until everything is cooked through and tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1616580578522-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add your ground smoked paprika, a drizzle of olive oil and a pinch of salt and g
 
 Put the tray in the oven and cook for 20-25 min or until crisp – these are your crispy paprika potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1616580585063-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Combine your mayo with the chopped garlic (not a fan of raw garlic? Go easy!) an
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt – this is your aioli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1616580598148-x200.jpg)
 
 ### Step 7
 

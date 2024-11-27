@@ -29,7 +29,6 @@ Think making healthy choices means being hungry? Think again. This Thai-style di
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581674835787-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 20-25 min or until it's tender with a slight bite, then drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581674840546-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your coriander finely, including the stalks, keeping the leaves and stalks separate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581674848168-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add a pinch of salt and grind to a paste – this is your Thai-style paste
 
 Dissolve your creamed coconut in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water and add your soy sauce – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581674853212-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp<span class="te
 
 Once hot, add your free range chicken breast portion[s]<span class="text-danger"> </span>and cook for 3 min on each side or until browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581674862007-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add the juice of half your lime[s] and stir it all together – this is your Th
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-spring-greens-1612890915942-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Slice your sugar snaps peas in half lengthways
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-spring-greens-1612890946178-x200.jpg)
 
 ### Step 7
 

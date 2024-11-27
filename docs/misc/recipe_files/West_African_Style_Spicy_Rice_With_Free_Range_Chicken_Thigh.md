@@ -32,7 +32,6 @@ Taste the flavours of Nigeria with our West African-style fried rice. You'll sim
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1690876681487-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Top, tail, peel and dice your carrot[s] finely
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1690876686125-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the free range chicken thighs to a bowl with your ground smoked paprika and 
 
 Season with a pinch of salt and pepper and give everything a good mix up – these are your smoky chicken thighs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1690876703089-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once hot, add the smoky chicken thighs and cook for 3 min on each side or until 
 
 Transfer the charred chicken to a tin foil-lined baking tray (or two!) and put the tray[s] in the oven for 10 min or until cooked through (no pink meat!), reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1690876708509-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Whilst the onion is softening, slice half of your green chilli[es] into rounds a
 
 Finely chop the remaining green chilli[es]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690876712485-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Dissolve your chicken stock mix in 300ml <span class="text-purple">[390ml]</span
 
 Once the onion has slightly softened, add the chopped garlic and chopped chilli (can't handle the heat? Go easy!) with your ground turmeric and curry powder to the pan and cook for 1 min until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690876716752-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Add the diced pepper, white long grain rice and bay leaf[ves]<span class="text-d
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1690876720142-x200.jpg)
 
 ### Step 7
 

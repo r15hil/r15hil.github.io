@@ -27,7 +27,6 @@ Pack in the protein with this speedy Indian-style dinner. You’ll coat basa in 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721397022154-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a pot with plenty of boiled water
 
 Bring to the boil over a high heat and cook for 10-12 min or until almost fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721397028719-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once lightly golden, transfer to a plate and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721397034919-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your curry powder to a plate with a generous pinch of salt
 
 Press your basa fillet[s] into the curry powder until well coated on both sides – this is your coated basa
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721397040803-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721397050525-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Stir it all together – this is your green tomato yoghurt
 
 Wash your spinach and shake off any excess water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721397058994-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the potatoes are almost fork-tender, add your spinach and blanched peas to 
 
 Cook for 1 min or until the spinach has wilted, then drain and reserve the pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721397066261-x200.jpg)
 
 ### Step 7
 

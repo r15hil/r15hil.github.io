@@ -24,7 +24,6 @@ We'll bet you've never had salmon and dill like this before. You'll spoon rich t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1615371749779-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a pot with a matching lid, with a knob of butter over a medium heat
 
 Add the white long grain rice to the pot with a pinch or salt and cook for 2 min or until the rice has darkened slightly in colour
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1615371755259-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1615371763527-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large wide-based pan (preferably non-stick with a matching lid) with a dr
 
 Once hot, add the sliced onion with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1615371772903-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ While the onion is cooking, peel and finely chop (or grate) the garlic
 
 Chop the tomatoes into small, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1615371789202-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tip: Your fish is cooked through once it's opaque and flakes easily!
 
 Once cooked, peel the skin off the salmon and discard
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1615371813044-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the onion has softened, add the curry powder, chopped garlic, ginger paste 
 
 Chop the creamed coconut roughly (if required!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Tomato-stock-1616433017694-x200.jpg)
 
 ### Step 7
 

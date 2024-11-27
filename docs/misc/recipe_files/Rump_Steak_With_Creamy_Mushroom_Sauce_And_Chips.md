@@ -22,7 +22,6 @@ You'll serve chips roasted alongside succulent rump steak cooked to your liking,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1724065583044-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut your potato[es] (skins on) into chips
 
 Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper, then give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2435Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once very hot, add the steak[s] to the pan
 
 For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on each side; for medium, cook for 3-4 min on each side
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2435Step-3v2-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Meanwhile, boil a kettle
 
 Slice your chestnut mushrooms
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2435Step-4v2-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once the steak[s] is cooked, transfer to a plate to rest and reserve the pan
 
 Carefully wipe out the pan with kitchen paper to remove any excess fat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2435Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once hot, add the sliced mushrooms and cook for 5-6 min or until softened and br
 
 Dissolve your chicken stock mix in 100ml <span class="text-purple">[130ml]</span><span class="text-danger"> [180ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2435Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once the mushrooms have browned, add your Chinese rice wine and cook for 1 min
 
 Add your chicken stock and soft cheese and cook for 3-4 min further or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2435Step-7-x200.jpg)
 
 ### Step 7
 

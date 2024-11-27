@@ -32,7 +32,6 @@ Whip up this tasty Thai curry in no time. You’ll sizzle courgette slices and c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1672852957739-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1672852960294-x200.jpg)
 
 ### Step 2
 
@@ -58,7 +56,6 @@ Tear the drained tofu into large chunks
 
 Add the torn tofu to a large bowl with your gluten free soy sauce, cornflour and a small pinch of salt and give everything a good mix up until the tofu is fully coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1672852963160-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated tofu to the pan and cook for 6-7 min or until golden and crispy – this is your crispy tofu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1672852966890-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Once hot, add the sliced courgette and cherry tomatoes to the pot and cook for 4
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1672852970257-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Meanwhile, dissolve your vegetable stock mix and chopped creamed coconut in 200m
 
 Add your tomato paste and red Thai curry paste – this is your Thai stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1672852973109-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1672852976034-x200.jpg)
 
 ### Step 7
 

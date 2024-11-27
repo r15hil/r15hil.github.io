@@ -26,7 +26,6 @@ This classic Italian recipe is one for all ages! You'll mix lean beef mince with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682682936807-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Using clean hands, give everything a very good mix up until fully combined
 
 Divide the lean beef mixture and roll into 5 meatballs per person
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682682940709-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Peel and finely chop your brown onion[s]
 
 Top, tail, peel and finely dice your carrot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682682947735-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once hot, add the meatballs and cook for 2 min, turning occasionally, until brow
 
 Once browned, transfer the meatballs to a plate and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682682956665-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Meanwhile, boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682682962793-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti and return it to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682682970813-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add your chopped tomatoes, beef stock, balsamic vinegar and 1 tsp <span class=
 
 Add the browned meatballs and cook, covered, for 12-15 min or until cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682682975973-x200.jpg)
 
 ### Step 7
 

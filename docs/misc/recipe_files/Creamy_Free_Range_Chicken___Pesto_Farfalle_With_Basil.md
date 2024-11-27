@@ -24,7 +24,6 @@ For this simple, comforting pasta dish, you'll whip up a creamy basil sauce with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-5-1710854461645-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add your farfalle to a pot of boiled water with a pinch of salt, bring to the b
 
 Once done, drain and reserve about 200ml<span class="text-purple"> [300ml] </span><span class="text-danger">[400ml] </span>starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-5-1710854466258-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ While the pasta is cooking, peel and finely slice your red onion[s]
 
 Chop your free range chicken breast portion[s] into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-5-1710854469799-x200.jpg)
 
 ### Step 3
 
@@ -50,13 +47,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-5-1710854473024-x200.jpg)
 
 ### Step 4
 
 Once starting to soften, increase the heat to medium-high, add the chopped chicken and cook for 10-12 min or until golden and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-5-1710854476486-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Meanwhile, grate your cheddar cheese
 
 Chop most of your basil, including the stalks (save some basil leaves for garnish!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1710854479979-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Add your vegetable stock mix with the chopped basil, soft cheese, pesto, half t
 
 Give everything a good mix up and cook for 1-2 min or until the sauce is creamy and starting to thicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-5-1710854484671-x200.jpg)
 
 ### Step 7
 

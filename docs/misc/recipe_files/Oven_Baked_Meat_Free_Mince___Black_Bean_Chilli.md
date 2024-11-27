@@ -30,7 +30,6 @@ This oven-baked chilli is prepped in a flash. First, you'll toast smoky spices i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1631625457601-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631625466386-x200.jpg)
 
 ### Step 2
 
@@ -54,13 +52,11 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Peel and chop your red onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631625494721-x200.jpg)
 
 ### Step 3
 
 Slice a quarter of the red onion wedges finely and set aside for serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631625510882-x200.jpg)
 
 ### Step 4
 
@@ -72,13 +68,11 @@ Drain and rinse your black beans
 
 Crush your garlic open by squashing it with the side of a knife and discard the skin
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631625518596-x200.jpg)
 
 ### Step 5
 
 Add your ground cumin, chilli flakes (can't handle the heat? Go easy!), ground smoked paprika and crushed garlic to the dish and stir it all up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631625525579-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Cover with the lid and put the dish in the oven for 20 min – this is your oven
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1646219260688-x200.jpg)
 
 ### Step 7
 

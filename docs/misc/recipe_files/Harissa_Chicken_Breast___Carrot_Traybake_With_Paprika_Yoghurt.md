@@ -25,7 +25,6 @@ Leave the cooking to the oven with this veg-packed traybake. Roast potatoes, car
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686665877955-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your potatoes (skins on) into small bite-sized pieces
 
 Chop your sweet potato[es] (skins on) into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686665882329-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Top, tail, and slice your carrot[s]<span class="text-danger"> </span>into chunky
 
 Peel and chop your red onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686665890186-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add a generous drizzle of olive oil, a generous pinch of salt and pepper and giv
 
 Put the tray[s] in the oven for an initial 15-17 min or until the potatoes are starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686665892904-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add a generous pinch of salt and pepper and give everything a good mix up – th
 
 Add your chicken breast portion[s] and mix it all together until fully coated – this is your marinated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686665897414-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Return the tray[s]<span class="text-danger"> </span>to the oven and cook for a f
 
 Once almost cooked, remove the tray[s] from the oven, carefully spread your harissa paste (can't handle the heat? Go easy!) over the chicken, then return to the oven for a final 5-6 min or until the chicken is cooked through (no pink meat!) – this is your harissa chicken breast & carrot traybake
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686665901242-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ While the chicken is cooking, combine your natural yoghurt with the remaining gr
 
 Stir it all together – this is your paprika yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686665909959-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Fire up burger night with an Indian-inspired twist. You’ll load mouthwatering 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695029671432-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Cut your potatoes (skins on) into thin fries, add the fries to a baking tray (o
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 25 min or until starting to crisp – these are your paprika fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695029674540-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add your free range chicken thighs to a bowl with your ground cumin, garam masala and a generous pinch of salt and give everything a good mix up – this is your coated chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695029678323-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the coated chicken and cook for 3 min on each side or until lightly browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695029683596-x200.jpg)
 
 ### Step 4
 
@@ -56,13 +52,11 @@ Once done, transfer the browned chicken to a tin foil-lined baking tray and rese
 
 Put the tray in the oven for 12-14 min or until the chicken is cooked through (no pink meat!) – this is your spiced free range chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695029687259-x200.jpg)
 
 ### Step 5
 
 Combine your mango chutney and half of your mayo (you'll use the rest later!) in a small bowl – this is your mango mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695029690167-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Return the tray[s] to the oven for a final 4-5 min or until the ciabatta is hot 
 
 Carefully slice the toasted ciabatta in half before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1695029696404-x200.jpg)
 
 ### Step 7
 

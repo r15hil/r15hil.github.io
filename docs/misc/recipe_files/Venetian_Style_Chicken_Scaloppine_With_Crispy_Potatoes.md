@@ -20,7 +20,6 @@ For this twist on an Italian classic, you'll pan-fry thin pieces of chicken unti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2093.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the chopped potatoes to a baking tray (or two!), drizzle with vegetable oil 
 
 Put the tray[s] in the oven for 30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2093.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Once the pan is hot, add your lemon half[ves] (cut-side down) and cook for 3-4 m
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1587718889085-x200.jpg)
 
 ### Step 3
 
 Cover your chicken breast portion[s] in cling film and bash them with a rolling pin until evenly flattened and approx. 1cm in thickness
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2093.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add a handful of flour to a clean tray or plate and season generously with salt 
 
 Dip the flattened chicken into the seasoned flour until both sides are well coated and shake off any excess flour
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2093.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Once hot, add the coated chicken and cook for 5-6 min on each side or until gold
 
 Tip: Cooking for 4 or more? You may need to do this in batches!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2093.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender
 
 Once done, drain and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646410793452-x200.jpg)
 
 ### Step 7
 

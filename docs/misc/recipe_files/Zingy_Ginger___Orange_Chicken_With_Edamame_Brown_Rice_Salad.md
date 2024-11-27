@@ -30,7 +30,6 @@ Ginger's not just a zingy addition to this lean chicken salad, it's also famous 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1596548173288-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1596548178728-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Peel and grate your garlic
 
 Cut your orange[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1596548214776-x200.jpg)
 
 ### Step 3
 
 Combine the grated ginger, grated garlic, soy sauce and the juice of the orange[s]<span class="text-danger"> </span>in a small bowl – this is your zingy ginger & orange dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1596548223260-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <span class="t
 
 Once hot, add your chicken breast strips with a pinch of salt and cook for 5-6 min or until browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1596548234233-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once browned, add 1/3 of the zingy ginger & orange dressing (you'll use the rest
 
 Add your toasted sesame oil and cider vinegar to the remaining zingy ginger & orange dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2231tep-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Chop the root off your lettuce and discard, then separate the leaves, give them 
 
 Set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1596548281871-x200.jpg)
 
 ### Step 7
 

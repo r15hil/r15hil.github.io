@@ -24,7 +24,6 @@ Savour the glory of tandoori with this Indian-inspired chicken burger. You’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695043653259-x200.jpg)
 
 ### Step 1
 

@@ -25,7 +25,6 @@ This cheesy traybake is perfect in a pinch. You’ll roast herby pork and beef m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692972341647-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut the remaining onion into wedges
 
 Top, tail and slice your courgette[s] into discs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692972346182-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Season with a generous grind of black pepper and give everything a good mix up
 
 Divide and shape into 3 meatballs per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692972350847-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add your gnocchi to a large baking tray (or two!) with the meatballs, red onion 
 
 Season with a grind of black pepper, give everything a good mix up and put the tray[s] in the oven for 20-25 min or until the meatballs are cooked through (no pink meat!) and the veg is tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692972354749-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Whilst everything is cooking, grate your cheddar cheese
 
 Dissolve your tomato paste and remaining chicken stock mix in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml] </span>boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692972358777-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Heat a pot with a small drizzle of olive oil over a medium heat
 
 Once hot, add the remaining chopped garlic with the remaining dried oregano and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692972362270-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once fragrant, add the tomato stock with a pinch of sugar and bring to the boil 
 
 Once boiling, reduce the heat to medium and cook for 5-6 min or until thickened – this is your tomato sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692972365965-x200.jpg)
 
 ### Step 7
 

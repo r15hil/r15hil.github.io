@@ -23,7 +23,6 @@ Creamed corn is something we're a little unfamiliar with in Blighty. It's a crea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/806.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the sweet potatoes (skins on) into thin chips&nbsp;
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/806.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Give everything a good old mix up (use clean hands)
 
 Put the tray in the oven&nbsp;for 20 min or until the chips&nbsp;are tender and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/806.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add 100ml <span class="text-danger">[200ml]</span> water to the pan, cover and c
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/806.-step-6-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Trim and slice the spring onions finely
 
 Peel and chop the shallot<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/806.-step-4-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Add the clotted cream and cook for 1 min
 
 Season generously with both salt and pepper&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/806.-step-5-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Add&nbsp;the sweetcorn to a&nbsp;food processor&nbsp;and blitz to a coarse&nbsp;
 
 Return the creamed corn back to the pot and set aside&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/806.-step-7-x200.jpg)
 
 ### Step 7
 

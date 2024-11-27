@@ -26,7 +26,6 @@ If you love a fish finger sarnie, this posh twist is right up your street. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1025.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1025.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Once the pan is hot, add the brioche halves, cut-side down, and cook for 3 min o
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1025.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine your cornflour and ground turmeric with a generous pinch of salt and pepper in a large bowl – this is your spiced cornflour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1025.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Cut your basa fillet[s] into strips
 
 Add the basa strips to the spiced cornflour and stir together until they're fully coated in the mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1025.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once hot, add the coated basa strips and cook for 3-4 min on each side or until 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1025.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Chop your dill finely, including the stalks
 
 Combine your mayo with your white wine vinegar, chopped dill and a generous pinch of salt and pepper in a small bowl – this is your dill mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1025.-step-7-x200.jpg)
 
 ### Step 7
 

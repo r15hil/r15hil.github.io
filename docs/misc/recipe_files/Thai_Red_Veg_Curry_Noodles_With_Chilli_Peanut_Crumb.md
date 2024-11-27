@@ -29,7 +29,6 @@ If you love veg, this one’s for you. Pack in the fragrance with a garlicky, co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-6-1682418549009-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-7-1682418553072-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a pot with a matching lid with a drizzle of vegetable oil over a medium hea
 
 Once hot, add the sliced onion and pepper strips with a generous pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-7-1682418559987-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Bash your lemongrass with a rolling pin and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-6-1682418564835-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-6-1682418569745-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once fragrant, add the coconut stock with the halved lemongrass and bring to the
 
 Once boiling, reduce the heat to medium-low and cook for 5-6 min or until thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-7-1682418572461-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Chop your coriander finely, including the stalks
 
 Combine the chopped peanuts in a bowl with your chilli flakes (can't handle the heat? Go easy!) and half the chopped coriander (save the rest for garnish!) – this is your chilli peanut crumb
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-8-1682418578994-x200.jpg)
 
 ### Step 7
 

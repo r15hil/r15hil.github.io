@@ -21,7 +21,6 @@ We've given meat-free sausages a honey mustard makeover. These sticky glazed ban
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1615909232724-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut the red onions into wedges through the root, keeping the skin on
 
 Tip: Cutting through the root ensures that they stay together while cooking
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1615909239680-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Drizzle with olive oil and season with salt and pepper
 
 Add the meat-free sausages to a sheet of tin foil, scrunching up the edges, and place on the other side (alternatively, use separate trays)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1615909244696-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Strip the rosemary leaves from the stems, discard of the stems and chop finely
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1615909250528-x200.jpg)
 
 ### Step 4
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1615909257178-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Flip the potato discs
 
 Pour the honey mustard mixture over the browned meat-free sausages
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1615909262793-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the onions are cool enough to handle, remove the skins
 
 Separate the roasted onion into petals
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1615909267408-x200.jpg)
 
 ### Step 7
 

@@ -20,7 +20,6 @@ This comforting pasta dish uses the classic British flavours of Cumberland sausa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/624.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Heat&nbsp;a large, wide-based pan (preferably non-stick) with a drizzle of&nbsp;
 
 Slice&nbsp;the Cumberland sausages open and carefully squeeze the sausagemeat into the pan and cook for them for 5 min or until slighly golden in colour, breaking it up with a spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/624.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Trim then wash&nbsp;the leeks carefully to remove any grit from between the leav
 
 Peel&nbsp;and finely chop (or grate) the garlic&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/624.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the shaoxing wine and cook for 2 min further or until it's evaporated&nbsp;
 
 Transfer the cooked sausagemeat and leek to a plate and keep the pan&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/624.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Meanwhile, add the conchiglie pasta to a pot of boiled water with a pinch of sal
 
 Cook the pasta for 8-10 min or until cooked with a slight bite (or done to your preference)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/624.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, grate the cheddar cheese
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/624.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once melted, gradually stir in 15g <span class="text-danger">[30g]</span> plain 
 
 You should end up with a sandy textured, honey coloured paste - this is your roux
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/624.-step-7-x200.jpg)
 
 ### Step 7
 

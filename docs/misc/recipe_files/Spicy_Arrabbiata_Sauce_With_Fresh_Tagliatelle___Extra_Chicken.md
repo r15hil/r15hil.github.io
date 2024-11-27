@@ -26,7 +26,6 @@ Italian for ‘angry’, ‘arrabbiata’ sauce is as spicy as they come. For ou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-15-1731058996084-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1-chicken-breast-on-baking-tray-1731059094406-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Add your chicken breast portion to a baking paper-lined tray with a drizzle of olive oil and a pinch of salt and pepper, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-17-1731059019858-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the sliced garlic and your chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1-2 min or until fragrant – this is your chilli oil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-18-1731059028375-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Trim the ends off your Tenderstem broccoli then chop into thirds
 
 Grate your Italian hard cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-17-1731059033861-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Cook for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle and broccoli, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-18-1731059037738-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ While the tagliatelle is cooking, add your chopped tomatoes, tomato paste, and v
 
 Season with a pinch of salt, sugar and a grind of black pepper and cook for 2-3 min or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-15-1731059043784-x200.jpg)
 
 ### Step 7
 

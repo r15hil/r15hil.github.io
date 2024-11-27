@@ -30,7 +30,6 @@ Put a twist on your fish supper with this curried sea bass. You’ll fry it till
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1721993340323-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add the sliced onion and cook for 7 min or until soft and starting to caramelise
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1721993346474-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Trim your green beans
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1721993353127-x200.jpg)
 
 ### Step 3
 
 Combine your natural yoghurt in a small bowl with your mango chutney – this is your mango yoghurt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1721993358619-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the onions have caramelised, add the chopped potatoes, garlic and garam mas
 
 Dissolve your vegetable stock mix in 300ml <span class="text-purple">[390ml] </span><span class="text-danger">[510ml]</span> boiled water - this is your stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1721993366478-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once the potatoes are fork-tender, add a knob of butter and cook for a final 5 m
 
 Tip: If it's looking a little dry, add a splash of water to loosen the sauce!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1721993371299-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once hot, add your sea bass fillet[s], skin side down and cook for 5 min, then f
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1721993377509-x200.jpg)
 
 ### Step 7
 

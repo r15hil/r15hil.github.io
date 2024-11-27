@@ -20,7 +20,6 @@ We've taken inspiration from Italy for this comforting bowlful, which is made by
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1311.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,19 +31,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chicken breast<span class="text-danger">[s]</span> and cook for 3 min on each side or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1311.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, dissolve the chicken stock cube<span class="text-danger">[s]</span> in 900ml <span class="text-danger">[1.8L]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1311.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the orzo pasta and chicken stock to the pan and cook for 8 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1311.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,13 +49,11 @@ Meanwhile, rip the leaves off the spring greens, discard the tough stalks, then 
 
 Slice the thin strips in half lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1311.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the orzo has been cooking for 8 min, add the sliced spring greens to the pan and cook for 4-5 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1311.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,7 +65,6 @@ Shave half of the Italian hard cheese with a peeler, until you end up with a p
 
 Grate the <span class="text-highlight">remaining</span> cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1311.-step-7-x200.jpg)
 
 ### Step 7
 

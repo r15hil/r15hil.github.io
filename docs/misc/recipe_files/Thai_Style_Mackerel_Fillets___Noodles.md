@@ -26,7 +26,6 @@ Mackerel fillets are steamed en papillote over ginger and pak choi, while you pr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1347.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Boil a kettle
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">Bring to the boil over a high heat and cook for 5-7min until tender with a slight bite</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1347.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -62,7 +60,6 @@ Cut 2&nbsp;<span class="text-danger">[4]</span> pieces of baking paper (or tin f
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1347.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -86,7 +83,6 @@ Season the mackerel fillets with a pinch of salt
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1347.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -98,7 +94,6 @@ Put the baking tray in the oven for 15 min or until the mackerel&nbsp;is cooked
 
 Tip: your mackerel is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1347.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -107,7 +102,6 @@ Meanwhile, once done, add the green pak choi leaves to the noodles and cook for 
 
 Drain the&nbsp;noodles&nbsp;and pak&nbsp;choi&nbsp;and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1347.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -125,7 +119,6 @@ Trim the spring onions and slice them lengthways until you have thin strips
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1347.-step-7-x200.jpg)
 
 ### Step 7
 

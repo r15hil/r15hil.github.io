@@ -29,7 +29,6 @@ Time to transform classic kung pao chicken into a succulent burger? We think so,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729665967269-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut your potatoes (skins on) into chips, then add the chips to a baking tray (or
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your salt & pepper chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729665970103-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut your orange in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729665973869-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger"
 
 Add your chicken thighs to the bowl and mix everything together – this is your marinated chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729665977573-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add your cornflour and crushed peanuts to the marinated chicken
 
 Give it a good mix up until the chicken is well coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729665983612-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once the pan is very hot, add the coated chicken and cook for 3-4 min on each si
 
 Transfer the chicken to a tin foil-lined baking tray and put the tray in the oven for 10 min or until cooked through (no pink meat!) – this is your Kung Pao-style chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729665986504-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Peel and chop your orange[s] into small pieces, discard the peel
 
 Add the grated carrot to a bowl with the shredded lettuce, orange pieces, mayo and a pinch of salt then mix well – this is your zingy slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729665989788-x200.jpg)
 
 ### Step 7
 

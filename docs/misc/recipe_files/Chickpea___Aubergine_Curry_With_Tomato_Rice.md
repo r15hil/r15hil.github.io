@@ -27,7 +27,6 @@ This plant-based curry is a walk in the park. You'll bash garlic, ginger and spi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1606303554651-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Trim the green stalk<span class="text-danger">[s]</span> off the aubergine<span 
 
 Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606303560539-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chopped aubergine to a baking tray with a generous drizzle of olive o
 
 Put the tray in the oven for 20 min or until the aubergine is soft and golden brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606303572817-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the sliced onion and cook for 5-6 min or until softened and starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606303585684-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the chopped garlic and ginger to a pestle & mortar with the ground cumin, 
 
 Add 1 tbsp<span class="text-danger"> [2 tbsp]</span> olive oil and stir it all together – this is your spice paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606303594734-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606303600286-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once the onion has softened, add the spice paste to the pan and cook for 2-3 mi
 
 Once fragrant, add 1/2 <span class="text-danger">[1]</span> Knorr vegetable stock cube with 100ml <span class="text-danger">[200ml] </span>boiled<span class="text-danger"> </span>water and the chopped tomatoes and cook for 2 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606303611918-x200.jpg)
 
 ### Step 7
 

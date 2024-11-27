@@ -27,7 +27,6 @@ A fan of hotpots? Try our warming plant-based hack. You'll chuck leek, squash an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1640087157246-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Slice the potatoes (skins on) into discs and add them to a baking tray with a ge
 
 Give everything a good mix up and put the tray in the oven for 12-15 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640087170308-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced shallot and sliced leek with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1640087229677-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Drain and rinse the butter beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1640087251395-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the chopped thyme and bay leaf<span class="text-danger">[ves]</span>
 
 Give everything and good mix up and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1640087261385-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the single soya and vegetable stock mix to the pan with 80ml <span class="te
 
 Bring to the boil over a high heat and cook, covered, for 3-4 min further or until slightly thickened – this is your creamy veg mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1640087292006-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Put the dish in the oven for 20-25 min or until everything is bubbling and the p
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1640087305107-x200.jpg)
 
 ### Step 7
 

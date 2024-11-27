@@ -26,7 +26,6 @@ Springy Japanese udon meets nutty Indonesian satay in this mouthwatering fusion 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657108273056-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657108277265-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your Tenderstem broccoli in half
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657108281059-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the torn mushrooms and halved Tenderstem and cook for 3-4 min or until starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657108283819-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add your toasted sesame oil and 1 tsp <span class="text-purple">[1 1/2 tsp]</spa
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657108287821-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Return the pan to the heat and cook, covered for 2 min or until the spinach has 
 
 Tip: Gently separate the noodles with a fork!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657108291723-x200.jpg)
 
 ### Step 6
 
 Cut the remaining lime[s] into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657108296482-x200.jpg)
 
 ### Step 7
 

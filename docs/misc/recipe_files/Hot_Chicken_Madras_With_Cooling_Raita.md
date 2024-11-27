@@ -33,7 +33,6 @@ Turn up the heat with our spicy madras, filled with fragrant spices, chicken and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643195148944-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643195154336-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your tomato[es] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643195163976-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the chopped onion, chopped ginger, chopped garlic, chopped chilli (can't han
 
 Blitz until smooth or very finely chopped – this is your spicy madras paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643195169758-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once hot, add the chopped chicken and cook for 3-4 min or until lightly browned
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643195178882-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Add the spicy madras paste and the tomato wedges to the chicken and cook for 3-4
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water and stir in your tomato paste – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643195186527-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Roughly chop your coriander, including the stalks
 
 Add half of the chopped coriander to the sauce (save some for garnish!) and stir it all together – this is your hot chicken madras
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643195196451-x200.jpg)
 
 ### Step 7
 

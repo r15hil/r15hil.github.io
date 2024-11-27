@@ -25,7 +25,6 @@ This smoky chilli is loaded with chorizo, beef mince and sweet red pepper. Serve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/623_step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/623_step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with a 
 
 Once hot, add the sliced&nbsp;pepper and sliced&nbsp;onion with a generous pinch of salt,&nbsp;pepper&nbsp;and&nbsp;sugar&nbsp;and cook for 10 min, or until everything has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/623_step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once cooked, remove from the heat and keep covered until serving
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/623_step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Add the tortilla shards to a baking tray (or two!), drizzle with olive oil, seas
 
 Tip: you may need to do this in batches!&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/623_step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,7 +89,6 @@ Dissolve the tomato paste in 350ml <span class="text-danger">[700ml]</span> boil
 
 Cut the lime<span class="text-danger">[s]</span> into wedges&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/623_step-6-x200.jpg)
 
 ### Step 6
 
@@ -109,7 +103,6 @@ Cook for 4 min or until browned, breaking the mince up with a wooden spoon as yo
 
 Once browned, return the pepper&nbsp;and onion to the pan with the&nbsp;smoked paprika and chipotle paste and cook for 1 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/623_step-7-x200.jpg)
 
 ### Step 7
 

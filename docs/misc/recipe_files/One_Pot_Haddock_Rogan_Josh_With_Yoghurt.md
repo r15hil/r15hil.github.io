@@ -31,7 +31,6 @@ Let the heat of our one-pot rogan josh transport you to the streets of Kashmir a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1663075954138-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663075959592-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Boil half a kettle
 
 Heat a large, hob-safe oven-proof casserole dish with a drizzle of vegetable oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663075963155-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Chop your tomatoes into wedges
 
 Add the tomato and onion wedges to the dish with a generous pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663075967652-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Crush your garlic cloves open by squashing them with the side of a knife and rem
 
 Crush your cardamom pods open by squashing them with the side of a knife
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663075971449-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add your vegetable stock mix, chopped tomatoes, a pinch of sugar and 50ml <span 
 
 Once boiling, put the dish in the oven, covered, for an initial 30 min – this is your curry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663075975622-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once the curry sauce has had 30 min, add your naan[s] to a baking tray and put t
 
 Chop any larger sized haddock bites into bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663075980182-x200.jpg)
 
 ### Step 7
 

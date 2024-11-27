@@ -21,7 +21,6 @@ This summer twist on spanakopita won't take hours to make, and is full of green 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1593428193294-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Top, tail and slice finely
 
 Chop the dill and basil finely, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1593428017742-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the sliced leeks to the pan and cook for 3-4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1593428111525-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Once hot, add the gnocchi and cook for 8-10 min or until beginning to crisp
 
 Tip: Don't stir too often as this will prevent the gnocchi from crisping!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1593428133074-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Rinse the wilted spinach under the cold tap until it's cool
 
 Once cool, squeeze the water out of the spinach as much as you can then chop it roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1593428144753-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surf
 
 Combine the juice of 1/4 <span class="text-danger">[1/2]</span> lemon, 1 tbsp<span class="text-danger"> [2 tbsp] </span>olive oil and a pinch of salt and pepper – this is your lemon dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1593428162411-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Squeeze the juice of 1/4 <span class="text-danger">[1/2]</span> lemon into the p
 
 Season with a crack of black pepper and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1593428172860-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This fiery take on burger night is a smash hit. You’ll char extra thin spiced 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716459736768-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the wedges to a baking paper-lined tray (or two!) with a little drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716459745132-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Grate your cheddar cheese finely
 
 Wash then remove 1 outer leaf per person from your lettuce and set aside, then cut the inner core into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716459785675-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once the butter has begun to brown, add a little drizzle of vegetable oil, half 
 
 Once fragrant, transfer the chilli brown butter to a small heatproof bowl and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716459819307-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Divide your beef mince into 2 pieces per person, shape into meatballs and transf
 
 Set aside the baking paper and top the patties with the sliced chilli, the remaining chilli flakes (not a fan of spice? Just add a little!) and a pinch of salt and pepper, then recover with the reserved baking paper and roll until the chilli is pressed into the patties
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716459971582-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once hot, add the patties (chilli-side down!)
 
 Press them down very firmly with a spatula and cook for 3-4 min on one side, pressing down continuously, until slightly charred
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716460085903-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once slightly charred, flip the patties over and top with grated cheese and cook
 
 Meanwhile, combine the chilli brown butter with your mayo, half your white wine vinegar (you'll use the rest later!) and a pinch of salt and pepper – this is your fire sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716460108504-x200.jpg)
 
 ### Step 7
 

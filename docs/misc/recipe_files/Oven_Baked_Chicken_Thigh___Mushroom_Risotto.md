@@ -25,7 +25,6 @@ In just a few minutes, get set to snuggle up on the sofa while your risotto bubb
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1732114345324-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have o
 
 Before you start cooking, take your chicken out of the fridge, open the packet and let it air
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1726750934514-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1726750945918-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Wash your salad, then pat it dry with kitchen paper
 
 Wash your leek[s] thoroughly to remove any grit from between the leaves, then top, tail and slice into rounds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1726750955195-x200.jpg)
 
 ### Step 4
 
 Once hot, add your diced chicken thigh and leek rounds to the casserole dish and season with a pinch of salt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1726750960162-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Crush your garlic open by squashing them with the side of a knife
 
 Remove the skins and chop the crushed garlic roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1726750966474-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add the chopped garlic with your Chinese rice wine and white wine vinegar
 
 Add your chicken stock mix with 600ml <span class="text-purple">[780ml] </span><span class="text-danger">[1.2L] </span>boiled water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1726750972724-x200.jpg)
 
 ### Step 7
 

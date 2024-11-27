@@ -22,7 +22,6 @@ Here's our plant-based take on a rich, smoky carbonara. You'll recreate the sauc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697642771691-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel and finely dice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697642775978-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add your gluten free spaghetti to a pot of boiled water with a large pinch of sa
 
 Cook the spaghetti for 8-10 min or until cooked with a slight bite then drain, reserving a cup of the starchy pasta water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1697642781030-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ While the spaghetti is cooking, heat a large, wide-based pan (preferably non-sti
 
 Once hot, add your meat-free bacon lardons and cook for 4-5 min or until golden and crispy all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697642786071-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add the diced shallot with a pinch of salt and cook for 2-3 min or until startin
 
 Once starting to soften, add the chopped garlic and cook for 1 min further or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697642791157-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Meanwhile, combine half of your cider vinegar (save the rest for later!) with 1 
 
 Dice your tomato[es]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1697642794777-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Once the garlic is fragrant, reduce the heat to medium-low and add your creamy s
 
 Season with a generous grind of black pepper and cook for 2-3 min or until thickened to a double cream-like consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1697642798200-x200.jpg)
 
 ### Step 7
 

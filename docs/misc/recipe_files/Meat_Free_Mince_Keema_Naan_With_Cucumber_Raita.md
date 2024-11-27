@@ -24,7 +24,6 @@ For this Indian-inspired treat, you'll top naan breads with spiced meat-free kee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1629808304224-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Put 1 <span class="text-danger">[2]</span> large baking tray<span class="text-da
 
 Peel and finely slice the shallot<span class="text-danger">[s]</span>, then combine with the red wine vinegar, 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a pinch of salt in a small bowl and set aside – this is your quick-pickled shallot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1629808402161-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a large, wide-based pan with a drizzle of vegetable oil over a high heat
 
 Once hot, add the meat-free mince (remove the paper if required!) and cook for 4-5 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1629808414053-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Chop the tomato<span class="text-danger">[es]</span> into wedges
 
 Dissolve the vegetable stock mix in 100ml <span class="text-danger">[150ml] </span>boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1629808427768-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Push the browned meat-free mince to one side of the pan
 
 Add the ground cumin, garam masala and a drizzle of vegetable oil to the other side of the pan and cook for 1-2 min until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1629808441925-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Add the tomato wedges and vegetable stock to the pan and stir everything togeth
 
 Cook for 1-2 min or until reduced – this is your spiced meat-free mince
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1629808451251-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Top the naans with the spiced meat-free mince
 
 Put the tray<span class="text-danger">[s]</span> in the oven and cook for 5-10 min or until golden – these are your meat-free mince keema naans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1629808464282-x200.jpg)
 
 ### Step 7
 

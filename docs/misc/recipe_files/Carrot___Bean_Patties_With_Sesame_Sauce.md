@@ -27,7 +27,6 @@ These moreishly good plant-based patties are simple to make, combining grated ca
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1452.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the bulgur wheat to a pot with plenty of boiled water and a pinch of salt (t
 
 Once done, drain and return to the pot&nbsp;and set aside until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1452.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,13 +55,11 @@ Zest the lemon<span class="text-danger">[s]</span>
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1452.-step-3-x200.jpg)
 
 ### Step 3
 
 Chop the coriander finely, including the stalks (keep the chopped leaves and stalks separate!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1452.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Mash the&nbsp;cannellini beans&nbsp;with a masher until smooth
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1452.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Add the juice of 1/2&nbsp;<span class="text-danger">[1]&nbsp;</span>lemon, 1/2 t
 
 Divide the mixture into 6 <span class="text-danger">[12]</span> patties
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1452.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Once hot, add the&nbsp;patties&nbsp;and cook for 3 min on each side or until gol
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1452.-step-7-x200.jpg)
 
 ### Step 7
 

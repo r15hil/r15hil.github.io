@@ -21,7 +21,6 @@ Samgyeopsal is adored across BBQ restaurants in Korea. To create your own, you'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616514154573-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616514159900-x200.jpg)
 
 ### Step 2
 
@@ -41,13 +39,11 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616514171677-x200.jpg)
 
 ### Step 3
 
 While the rice is cooking, combine the miso paste, gochujang paste, toasted sesame oil and 1 tbsp <span class="text-danger">[2 tbsp]</span> cold water in a bowl and give everything a good mix up – this is your samjang
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616514178895-x200.jpg)
 
 ### Step 4
 
@@ -57,13 +53,11 @@ Trim, then finely slice the spring onion<span class="text-danger">[s]</span>
 
 Chop off the little gem lettuce root<span class="text-danger">[s]</span> and separate the outer leaves and wash them thoroughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1616514183272-x200.jpg)
 
 ### Step 5
 
 Slice the pork belly into thin strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1616514189364-x200.jpg)
 
 ### Step 6
 
@@ -71,7 +65,6 @@ Heat a dry, large, wide-based pan (preferably non-stick) over a medium heat
 
 Add the pork belly strips to the pan with a pinch of salt and cook for 8 min on each side or until golden and crispy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1616514195099-x200.jpg)
 
 ### Step 7
 

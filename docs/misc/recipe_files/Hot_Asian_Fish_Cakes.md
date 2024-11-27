@@ -23,7 +23,6 @@ These fishcakes are made from 100% fish melded together with our lovely fragrant
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/444.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the rice to a medium pot with 500ml cold water and a pinch of salt, bring to
 
 Meanwhile, add 1 tbsp <span class="text-danger">(2 tbsp)</span> of sugar and 350ml <span class="text-danger">(600ml)</span> of water to another pot with a lid on a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/444.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once the sugar water is boiling, add the chilli and half the white wine vinegar
 
 Return to a boil, then lower the heat to a gentle simmer without a lid for 15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/444.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel the cucumber lengthways into ribbons with a vegetable peeler, stopping at t
 
 Add the ribbons to a bowl with the remaining white wine vinegar, 1/4 tsp <span class="text-danger">(1/2 tsp)</span> of sugar, 1/4 tsp<span class="text-danger"> (1/2 tsp)</span> of salt and chilli flakes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/444.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the fish, curry paste, fish sauce, five spice and the whites of the spring o
 
 Blitz until the mixture comes together into a chunky, sticky ball
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/444.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once hot, cook the patties for 2-3 min each side, or until golden, cooked throug
 
 Meanwhile, finely chop the seedy interior of the cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/444.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Divide the chopped cucumber between each bowl
 
 Transfer the cooked fish cakes to a plate to rest, keeping the pan on a low heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/444.-step--7-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Did someone say Br-inner? This classic all day breakfast isn't just for the morn
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629108433913-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Chop your potato[es] (skins on) into chips
 
 Add the chips to one side of a large baking tray (or two!) with a drizzle of vegetable oil and a small pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629108437407-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add your meat-free sausages to the other side of the tray[s]
 
 Put the tray[s] in the oven for 25-30 min or until the sausages are cooked through and the chips are golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1729084769107-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once hot, add the drained cannellini beans to the pot with your vegetable stock 
 
 Give everything a good mix up and cook for 3-4 min or until thickened then remove from the heat and set aside – these are your homemade beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1729084777083-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Slice your ciabatta[s] in half
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729084757534-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once hot, add the sliced mushrooms and tomato halves and cook for 3 min on one s
 
 Transfer the softened mushrooms to the tray[s] in the oven to keep warm
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729084748986-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Cover with a lid and cook for 2-3 min or until the tomato is softened and the eg
 
 Tip: Give your eggs a little shake before you crack for perfectly centred yolks!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729084737590-x200.jpg)
 
 ### Step 7
 

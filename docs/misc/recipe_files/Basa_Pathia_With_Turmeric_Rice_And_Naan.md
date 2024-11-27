@@ -30,7 +30,6 @@ A classic pathia is sweet and tangy, with a slight kick from the fragrant spices
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1620230533593-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the chopped onion[s] with a generous pinch of salt and cook for 6-8 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1620230538278-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once hot, add your cumin seeds and cook for 1-2 min or until sizzling
 
 Once the cumin seeds start to sizzle, carefully add the basmati rice and stir it all together
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1620230541756-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your turmeric rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620230546239-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ While the rice is cooking, boil half a kettle
 
 Chop your basa fillet[s] into large, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1620230550570-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once fragrant, add your ground cumin, curry powder and cayenne pepper (can't ha
 
 Tip: Add a drizzle of oil if the pan looks a little dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620230554779-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the chopped basa fillet[s] and bring to the boil over a high heat, once boil
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620230559082-x200.jpg)
 
 ### Step 7
 

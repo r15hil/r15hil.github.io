@@ -27,7 +27,6 @@ Nonna’s cooking - the Gousto way. Warm your soul with a creamy, dreamy one-pot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1663096000606-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663096034084-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Dissolve your vegetable stock mix and a pinch of salt in 600ml <span class="text-purple">[780ml]</span> <span class="text-danger">[1.2L] </span>boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663096038706-x200.jpg)
 
 ### Step 3
 
 Add your cherry tomatoes and tomato paste to the dish with your roasted garlic paste, most of your chilli flakes (can't handle the heat? Go easy!) and a generous pinch of salt and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663096050221-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Give everything a good mix up and bring to the boil over a high heat, then cover
 
 Cook for 20-25 min or until the rice is almost cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-2-1708361514765-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Wash your spinach, then pat dry with kitchen paper
 
 Chop your lemon[s] into 2 wedges per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-3-1708361467095-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Once the rice is almost cooked, add your spinach, soft cheese and the juice of half your lemon wedges to the dish, then give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663096062293-x200.jpg)
 
 ### Step 7
 

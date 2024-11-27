@@ -26,7 +26,6 @@ Here's a toastie you've never tried before. For the rarest of rarebits, you'll t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636047978480-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Preheat the grill to medium-high
 
 Slice your chestnut mushrooms finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636047981075-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the sliced mushrooms with a pinch of salt and cook for 7-8 min or 
 
 Once browned, transfer the cooked mushrooms to a plate (reserve the pan!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636047984079-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Put the tray under the grill for 4-5 min or until toasted and golden
 
 Once toasted, turn the ciabatta halves over and return them to the grill for 2 min further or until lightly toasted, then remove from the grill and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636047987001-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Grate your cheddar cheese
 
 Add your cornflour and grated cheese to a bowl and give everything a good mix up – this is your cornfloured cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636047990271-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Wash your salad, then pat it dry with kitchen paper
 
 Set the washed salad and chopped tomatoes aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636047993276-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cook for 3 min or until melted and thickened
 
 Once thickened, add your wholegrain mustard (not a fan of mustard? Just add a little!), Henderson's Relish and a pinch of salt and pepper, then remove the pan from the heat – this is your rarebit sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636047995865-x200.jpg)
 
 ### Step 7
 

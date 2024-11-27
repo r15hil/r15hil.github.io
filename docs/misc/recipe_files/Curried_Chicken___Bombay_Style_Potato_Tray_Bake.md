@@ -32,7 +32,6 @@ This traybake's inspired by India, and the perfect aromatic twist for roast dinn
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1645552647866-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Peel and chop half your brown onion[s] into wedges, then finely slice the remaining brown onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1645552652119-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Sprinkle over your ground turmeric, black mustard seeds and half of your curry p
 
 Put the tray[s] in the oven for an initial 10-12 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1645552657876-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add half your garam masala (save the rest for later!) to a plate with a pinch of
 
 Add your chicken breast portion[s] to the plate and turn them several times until fully coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1645552738013-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Return the tray[s] to the oven for a further 18-20 min, or until the potatoes are crispy and the chicken is cooked through (no pink meat!) – this is your curried chicken & Bombay-style potato tray bake
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1645552749022-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Meanwhile, wash your spring greens, then pat dry with kitchen paper, rip the lea
 
 Line a separate baking tray (or two!) with a large piece of tin foil, then add the sliced spring greens to the middle of the foil with a pinch of salt, a knob of butter and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> water, then scrunch the edges of the foil to form a sealed parcel[s] and put the tray in the oven for 10-12 min or until the greens are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1645552756694-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once hot, add the sliced onion to the pan with a pinch of salt and cook for 2-3 
 
 Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml]</span> boiled water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1645552765046-x200.jpg)
 
 ### Step 7
 

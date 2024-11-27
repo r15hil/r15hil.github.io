@@ -25,7 +25,6 @@ This Scottish soup is a real smokeshow. Pack your bowl with leeks, smoky basa, p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-15-1702990091980-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a full kettle
 
 Peel your potatoes and chop into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-16-1702990096315-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-20-1702990101261-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your parsley finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-15-1702990106066-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once hot, add the diced onion and sliced leek with a splash of water and cook fo
 
 Meanwhile, combine 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml]</span> boiled water with 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> milk and your vegetable stock mix – this is your milk stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-16-1702990110661-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once fragrant, add the milk stock and bring to the boil over a medium-high heat
 
 Once boiling, reduce the heat to medium and cook for 3-4 min or until thickened – this is your soup base
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-16-1702990116693-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the soup base has thickened, add the chopped smoked basa, cooked potatoes a
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-15-1702990121784-x200.jpg)
 
 ### Step 7
 

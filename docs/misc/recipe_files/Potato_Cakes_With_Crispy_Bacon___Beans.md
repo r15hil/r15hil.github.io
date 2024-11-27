@@ -23,7 +23,6 @@ Nothing beats a British classic, and this one's up there with the best of them. 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/315_step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/315_step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop the chives finely
 
 Boil the kettle again
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/315_step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the diced onion, chopped garlic, chilli flakes (can't handle th
 
 Drain and rinse the cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/315_step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add 1 tbsp <span class="text-danger">[1 1/2 tbsp]</span> sugar and the cider vi
 
 Once boiling, reduce the heat to medium-low and cook for 10 min, then add the drained cannellini beans and keep on a low heat until ready to serve
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/315_step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Mash them until smooth
 
 Add half of the chopped chives, 2-3 tbsp olive oil and season generously with both salt and pepper, then mix to combine
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/315_step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Divide the ball into 6 <span class="text-danger">[12]</span> pieces and roll ea
 
 Pat each ball down and sprinkle with a little flour – these are your potato cakes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/315_step-7-x200.jpg)
 
 ### Step 7
 

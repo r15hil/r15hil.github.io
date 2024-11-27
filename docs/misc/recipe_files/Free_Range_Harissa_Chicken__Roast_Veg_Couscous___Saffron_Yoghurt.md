@@ -27,7 +27,6 @@ This free range chicken dish is full of the rich, exotic spicing that characteri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1725861190704-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Top, tail and chop your courgette[s] into bite-sized pieces
 
 Peel your red onion[s], then chop into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1725861200391-x200.jpg)
 
 ### Step 2
 
@@ -47,13 +45,11 @@ Add the chopped vegetables to a baking tray (use tin foil to avoid mess!) and sc
 
 Put the tray in the oven for 15-20 min or until the vegetables are softened and starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1725861212017-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add your saffron to a small bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> boiled water and set aside to infuse
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1725861222610-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ While the saffron infuses, add your couscous to a large bowl with 200ml <span cl
 
 Add your natural yoghurt to the infused saffron water with a pinch of salt and mix to combine – this is your saffron yoghurt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1725861233133-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Chop the free range chicken breasts portions into small bite-sized pieces
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium-high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1725861243633-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once hot, add the chopped chicken with a pinch of salt and pepper and cook for 7
 
 Add your ground sumac, chopped garlic, harissa paste (can't handle the heat? Go easy!) and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> water and cook for 1-2 min further or until the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1725861257591-x200.jpg)
 
 ### Step 7
 

@@ -21,7 +21,6 @@ Level up your classic fish pie with these loaded potato skins. You’ll whip up 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1689940685347-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil half a kettle
 
 Pierce your red potato[es] with a fork, then add them to a plate and cook in the microwave for 10-12 min or until cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689940690126-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Strain the fish, reserving the pot and the poaching milk
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689940694842-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1689940699042-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once the potato[es] is cooked through, carefully slice in half (it will be very 
 
 Combine the potato flesh with your soft cheese, season with a pinch of salt and pepper and mash it all together – this is your creamy mash
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689940720629-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Gradually whisk your reserved poaching milk into the roux, a little at a time, a
 
 Add the poached basa and chopped parsley to the pot with a pinch of salt and pepper and gently stir until fully coated – this is your fish pie filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1689940723412-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Transfer the potato skins to a baking tray and divide the fish pie filling betwe
 
 Put the tray in the oven for 15 min or until golden brown and the fish is cooked through – these are your fish pie loaded jacket potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1689940725790-x200.jpg)
 
 ### Step 7
 

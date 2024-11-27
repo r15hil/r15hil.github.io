@@ -26,7 +26,6 @@ This plant-based sashimi will blow your mind. While the sushi rice steams, you'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1608562077441-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Rinse the sushi rice in a sieve under cold running water for 30 secs (use your h
 
 Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold water and a generous pinch of salt to a pot with a lid and bring to a gentle boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1608562086459-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get perfectly fluffy rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1608562094234-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cover the tomatoes with boiled water until fully submerged and set aside until l
 
 Tip: The boiling water loosens the tomato skins for easy peeling!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1608562114072-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Trim the spring onion<span class="text-danger">[s]</span> then chop into batons
 
 Slice each baton into 4 pieces lengthways – this is your shredded spring onion
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610535701108-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the shredded spring greens to a large baking tray and sprinkle with a genero
 
 Give everything a good mix up, then put the tray in the oven for 8-10 min or until crispy – this is your crispy 'seaweed'
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610535712942-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Chop the tomatoes into quarters, scoop out and discard the seeds and you'll end 
 
 Return the tomato petals to the bowl and add the tamari soy sauce and mirin then set aside to marinate – this is your tomato sashimi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1610535722593-x200.jpg)
 
 ### Step 7
 

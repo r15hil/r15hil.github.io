@@ -27,7 +27,6 @@ These burgers are so good the States want them back. Top juicy plant-based patti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1724149467190-x200.jpg)
 
 ### Step 1
 
@@ -39,13 +38,11 @@ Cut your potatoes (skins on) into wedges, then add them to a large baking tray 
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1724149491022-x200.jpg)
 
 ### Step 2
 
 While the wedges are cooking, slice your cucumber in half lengthways, then slice the halves into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1724149499875-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the cucumber wedges to the bowl and give everything a good mix up, then s
 
 Tip: Give the cucumber the occasional shake while pickling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1724149526014-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Line a separate baking tray with tin foil
 
 Add your meat-free patty[ies] to one side of the lined tray and put the tray in the oven for 10-12 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1724149554402-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine your vegan mayo, ketchup and mustard ketchup in a small bowl – this is your special sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1724149565698-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Return the tray to the oven for 3-4 min or until the cheese flavour slice has me
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1724149791746-x200.jpg)
 
 ### Step 7
 

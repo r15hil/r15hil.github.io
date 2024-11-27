@@ -26,7 +26,6 @@ A Tex-Mex classic, free range chicken enchiladas are a guaranteed crowd-pleaser!
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1715599888769-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a s
 
 Once hot, add your free range chicken breast portion[s] with a pinch of salt and pepper and cook for 3 min on each side or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1715599893452-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ While the chicken is cooking, peel and finely slice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715599897812-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Return the reserved pan to a medium heat with a small drizzle of vegetable oil
 
 Once hot, add the sliced red onion and chopped garlic and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1715602859789-x200.jpg)
 
 ### Step 4
 
 Meanwhile, boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1715602855834-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once fragrant, add 200ml <span class="text-purple">[300ml]</span> <span class="t
 
 While the sauce is thickening, drain and rinse your black beans and sweetcorn
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1715602852190-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the drained black beans, drained sweetcorn and pulled chicken to the pan wi
 
 Return the pot with the enchilada topping to a high heat for 2-3 min or until the sauce has thickened to a double cream consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715599913663-x200.jpg)
 
 ### Step 7
 

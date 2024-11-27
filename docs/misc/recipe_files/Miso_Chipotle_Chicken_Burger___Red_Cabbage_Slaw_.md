@@ -23,7 +23,6 @@ This treat-yourself ‘fakeaway’ sees fiery chipotle and savoury miso come tog
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1526.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the&nbsp;chips&nbsp;to a large baking tray with a drizzle of vegetable oil a
 
 Put the tray in the oven for 25-30 min or until the&nbsp;chips&nbsp;are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1526.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once hot, add the&nbsp;brioche, cut-side down, and cook for 3 min or until toast
 
 Reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1526.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -71,7 +68,6 @@ Add the&nbsp;chicken breast pieces&nbsp;to&nbsp;the corn&nbsp;flour and coat wel
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1526.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Once hot, add the chicken breast pieces and cook for 3-4 min on each side or unt
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1526.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,7 +93,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1526.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -113,7 +107,6 @@ Whisk until fully combined and cook for 2 min or until thickened and warmed thro
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1526.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Swap tomato for BBQ in this easy-peasy pizza. You’ll layer smoky BBQ sauce wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684910606380-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely slice your red onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684910609707-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and finely chop (or grate) your garlic
 
 Drain and rinse your sweetcorn
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684910613509-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684910617244-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add the bbq sauce to a bowl with your tomato paste, chopped garlic, dried oregan
 
 Add 4 tbsp <span class="text-purple">[6 tbsp] </span><span class="text-danger">[8 tbsp]</span> cold water and stir it all together – this is your bbq base
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684910620571-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Remove the heated tray[s] from the oven and add the pizza bases
 
 Divide the bbq base between the pizza bases and spread it evenly all over them with the back of a spoon
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684910626803-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the
 
 Tip: Make sure the pizzas don’t overlap on the tray to avoid raw dough!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684910627839-x200.jpg)
 
 ### Step 7
 

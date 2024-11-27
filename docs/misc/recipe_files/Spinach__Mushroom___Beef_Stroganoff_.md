@@ -24,7 +24,6 @@ Beef stroganoff - a classic Russian dish made with beef, mushrooms, smoked papri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/966.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced mushroom and cook for 3 min, turning once halfway, or until they're golden and caramelised&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/966.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once done, transfer the caramelised mushrooms to a plate and keep the pan for th
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/966.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Return the pan to a medium heat with a very large knob of butter
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 8-10 min, or until softened and beginning to brown&nbsp;slightly&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/966.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,7 +77,6 @@ Re-boil a kettle&nbsp;
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/966.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,7 +91,6 @@ Dissolve the beef stock cube<span class="text-danger">[s]</span> in 250ml <span 
 
 Wash the&nbsp;<span class="text-highlight">baby</span> spinach and chop it roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/966.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,7 +102,6 @@ Cook for 4 min or until browned and starting to crisp, breaking the mince up wit
 
 Once browned, return the caramelised mushrooms to the pan with the&nbsp;tomato paste and smoked paprika and cook for 1 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/966.-step-7-x200.jpg)
 
 ### Step 7
 

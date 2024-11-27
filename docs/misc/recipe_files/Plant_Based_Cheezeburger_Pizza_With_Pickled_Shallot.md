@@ -26,7 +26,6 @@ Looking for a new pizza topping? You’re in luck. Try layering your pizza base 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1711640057026-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once hot, add your meat-free mince (remove the paper if required!) and umami sea
 
 Once browned, remove the pan from the heat and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1711640061243-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Peel and slice your shallot[s] as thinly as you can
 
 Grate your cheddar flavour block[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1711640090930-x200.jpg)
 
 ### Step 3
 
 Add the sliced shallot to a bowl with your cider vinegar and a pinch of salt and sugar and set aside to pickle – this is your quick-pickled shallot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1711640097767-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add your tomato paste to a separate bowl with the grated garlic and a pinch of s
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp] </span>cold water and stir it all together – this is your tomato base
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1711640104501-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Top with the meat-free mince and grated cheeze
 
 Tip: Make sure the pizza[s] don’t overlap on the tray[s] to avoid raw dough!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1711640110968-x200.jpg)
 
 ### Step 6
 
 Put the tray in the oven for 13-15 min or until the bases are crisp – this is your plant-based cheezeburger pizza[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1711640115205-x200.jpg)
 
 ### Step 7
 

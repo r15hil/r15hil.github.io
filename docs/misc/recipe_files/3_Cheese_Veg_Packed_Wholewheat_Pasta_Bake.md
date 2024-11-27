@@ -31,7 +31,6 @@ Layer this wholewheat courgette pasta with not one, but three cheeses for a tast
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1590577465245-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/wholewheat-tortiglioni-1731574755396-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once cooked, drain the wholewheat tortiglioni
 
 Re-boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1590577473925-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced courgette and cook for 4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1590577479535-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, dissolve your vegetable stock mix, dried basil, balsamic vinegar, tom
 
 Cut your cherry tomatoes in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1590577483808-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the stock with the halved cherry tomatoes and chopped tomatoes and bring to 
 
 Season with a pinch of salt and a generous grind of black pepper and cook for 3-4 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1590577487646-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Drain and tear your mozzarella into rough bite-sized pieces
 
 Chop your basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1590577492416-x200.jpg)
 
 ### Step 7
 

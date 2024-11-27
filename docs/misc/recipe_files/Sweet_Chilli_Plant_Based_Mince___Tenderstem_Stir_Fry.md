@@ -25,7 +25,6 @@ For this rapid plant-based stir-fry, you'll sizzle meat-free mince with Tenderst
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/10mm-Step-1-small-1608566582456-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1608567180127-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and run them under cold running water and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580126165564-x200.jpg)
 
 ### Step 3
 
@@ -61,25 +58,21 @@ Cut your Tenderstem broccoli in half
 
 Once hot, add your meat-free mince (remove the paper if required!) and halved Tenderstem and cook for 5-6 min or until the mince is browned, stirring occasionally
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580126168695-x200.jpg)
 
 ### Step 4
 
 Meanwhile, top, tail and grate your carrot[s]<span class="text-danger"> </span>(no need to peel!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580126172698-x200.jpg)
 
 ### Step 5
 
 Combine your red chilli relish, rice vinegar and soy sauce with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil and 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> water in a small bowl – this is your sweet chilli sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580126181924-x200.jpg)
 
 ### Step 6
 
 Once the meat-free mince has browned, add the grated carrot and ginger & garlic paste and cook for 2 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580126186605-x200.jpg)
 
 ### Step 7
 

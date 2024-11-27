@@ -21,7 +21,6 @@ Master the art of PizzaExpress at home with a classic Funghi Di Bosco. You'll ha
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1666198613825-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut the PizzaExpress pizza dough in half
 
 Shape the dough into 2 <span class="text-danger">[4]</span> balls and set aside for 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-copy-1666198618261-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Dice the mozzarella into small bite-sized pieces and add to some kitchen paper
 
 Press down on the diced mozzarella with another piece of kitchen paper to squeeze out as much liquid as you can
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1666198623475-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Slice the portobello mushrooms
 
 Strip the rosemary leaves from their stems and chop them finely, discard the stems
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1666198629761-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Repeat with the other dough ball<span class="text-danger">[s]</span> – these a
 
 Transfer the pizza bases to a baking paper-lined baking tray (or 2!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1666198636192-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Top with the sliced mushrooms, diced mozzarella and chopped rosemary
 
 Drizzle over the garlic oil and season with a double pinch of black pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1666198640172-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Put the tray in the oven and cook for 9-19 min or until the pizza bases are gold
 
 Tip: Cooking for 4? You may have to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1666198644035-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ This hearty classic is a new family favourite. You’ll pan-fry juicy chicken th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670341283676-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add your diced chicken thigh with a very generous pinch of salt and pepper and cook for 6-7 min on each side or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670341287628-x200.jpg)
 
 ### Step 2
 
@@ -41,13 +39,11 @@ While the chicken is cooking, peel and chop your shallot[s] into wedges
 
 Wash your leek[s] thoroughly to remove any grit, then top, tail and slice into rounds
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670341291510-x200.jpg)
 
 ### Step 3
 
 Dissolve your chicken stock mix and Henderson's Relish in 300ml <span class="text-purple">[400ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your chicken stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670341295936-x200.jpg)
 
 ### Step 4
 
@@ -55,7 +51,6 @@ Once the chicken is golden, reduce the heat to medium-high
 
 Add the shallot wedges and leek rounds to the pan and cook for 3-4 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670341299996-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Top, tail, peel and slice your carrot[s]<span class="text-danger"> </span>on the
 
 Peel and chop your potatoes into bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670341303807-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Once the shallot & leek have softened, add the chopped garlic, dried thyme and a
 
 Once fragrant, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 30 secs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670341308068-x200.jpg)
 
 ### Step 7
 

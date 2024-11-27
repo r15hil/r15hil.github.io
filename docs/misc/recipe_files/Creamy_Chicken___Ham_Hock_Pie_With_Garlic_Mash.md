@@ -26,7 +26,6 @@ Rich, indulgent and utterly delicious, this chicken and ham hock pie will bring 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2060.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Rich, indulgent and utterly delicious, this chicken and ham hock pie will bring 
 
 <span class="text-highlight">Once hot, add the sliced onion with a pinch of salt and cook for 6-7 min or until softened</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2060.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Strip the thyme leaves and chop finely, discarding the stems 
 
 Dissolve 1/2 <span class="text-danger">[1]</span> Knorr chicken stock cube in 150ml <span class="text-danger">[250ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2060.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Score a 1cm border around the edge of the pastry with a knife
 
 Crimp the borders with a fork and put the tray in the oven for 15-20 min or until puffed up and golden – these are your pie lids
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2060.-step-4-1-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Add 1 tsp <span class="text-danger">[2 tsp]</span> flour with the Chinese rice 
 
 Once thickened, stir through the ham hock and chopped thyme – this is your creamy chicken &amp; ham hock filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2060.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,7 +90,6 @@ Once done, drain and set aside to steam dry
 
 Boil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2060.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Once the potatoes have been boiling for 10 min, add the Tenderstem broccoli and 
 
 Drain and set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2060.-step-7-x200.jpg)
 
 ### Step 7
 

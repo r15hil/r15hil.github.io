@@ -28,7 +28,6 @@ Swap out your pasta sheets in this veg-packed courgette bake. You’ll layer ric
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616514069533-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1616514073631-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the chopped onion and chopped carrot to the pan
 
 Add a pinch of salt and cook for 5-6 min or until softening
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1616514078174-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Grate your lighter cheese finely
 
 Drain and rinse your green lentils
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1616514081536-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Dissolve your vegetable stock mix in 25ml <span class="text-purple">[30ml]</span
 
 Add your dried basil and umami seasoning – this is your savoury stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1616514085620-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once fragrant, add the drained lentils, chopped tomatoes and savoury stock to th
 
 Bring to the boil, then reduce the heat to low and cook for 10-12 min or until the sauce has thickened – this is your lentil ragù
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1616514089255-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Gradually whisk 50ml <span class="text-purple">[100ml] </span><span class="text-
 
 Add your soft cheese, grated Italian hard cheese and a pinch of salt and pepper (Tip: Add a little water if the sauce is looking a little thick!) – this is your béchamel sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1616514093449-x200.jpg)
 
 ### Step 7
 

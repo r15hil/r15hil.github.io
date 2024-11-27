@@ -27,7 +27,6 @@ Spice up your usual fish cakes with mouthwatering Indian flavours. You'll pack '
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-5-1657628461539-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop your sweet potato[es] (skins on) into large, bite-sized pieces, then add to
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-5-1657628472405-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Give everything a good mix up until the haddock is fully coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-4-1657628483701-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Once cooked, flake the cooked haddock roughly with a fork and reserve the tray[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-5-1657628508907-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the flaked haddock to the crushed sweet potato with a good pinch of salt and
 
 Divide the mix and shape into 2 fish cakes per person, then press into the panko breadcrumbs firmly to evenly coat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-5-1657628522333-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the coated fish cakes to the reserved tray[s] with a drizzle of olive oil (l
 
 Put the tray[s] in the oven for 15-20 min or until golden and crispy – these are your curried haddock fish cakes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1657628529192-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Trim, then slice your spring onion[s]
 
 Add the grated carrot, sliced radishes and sliced spring onion to a bowl with half your white wine vinegar, half your nigella seeds (you'll use the rest later!), 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and a pinch of salt – this is your tangy slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-5-1657628539012-x200.jpg)
 
 ### Step 7
 

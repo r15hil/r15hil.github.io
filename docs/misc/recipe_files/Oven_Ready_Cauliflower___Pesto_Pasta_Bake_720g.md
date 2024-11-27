@@ -19,7 +19,6 @@ Pack size (720g). Refer to package for cooking instructions.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Three-Cheese-Cauliflower-Pasta-Al-Forno-With-Pesto-_-Garlic-Ciabatta-Crumb-Packaging14557-copy-1705400099864-x200.jpeg)
 
 ### Step 1
 
@@ -33,37 +32,31 @@ Check food is piping hot throughout before serving.
 
 Do not reheat.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Three-Cheese-Cauliflower-Pasta-Al-Forno-With-Pesto-_-Garlic-Ciabatta-Crumb-Packaging14557-copy-1705400107834-x200.jpeg)
 
 ### Step 2
 
 -
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Three-Cheese-Cauliflower-Pasta-Al-Forno-With-Pesto-_-Garlic-Ciabatta-Crumb-Packaging14557-copy-1705400110929-x200.jpeg)
 
 ### Step 3
 
 -
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Three-Cheese-Cauliflower-Pasta-Al-Forno-With-Pesto-_-Garlic-Ciabatta-Crumb-Packaging14557-copy-1705400114046-x200.jpeg)
 
 ### Step 4
 
 -
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Three-Cheese-Cauliflower-Pasta-Al-Forno-With-Pesto-_-Garlic-Ciabatta-Crumb-Packaging14557-copy-1705400118401-x200.jpeg)
 
 ### Step 5
 
 -
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Three-Cheese-Cauliflower-Pasta-Al-Forno-With-Pesto-_-Garlic-Ciabatta-Crumb-Packaging14557-copy-1705400122934-x200.jpeg)
 
 ### Step 6
 
 -
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Three-Cheese-Cauliflower-Pasta-Al-Forno-With-Pesto-_-Garlic-Ciabatta-Crumb-Packaging14557-copy-1705400126853-x200.jpeg)
 
 ### Step 7
 

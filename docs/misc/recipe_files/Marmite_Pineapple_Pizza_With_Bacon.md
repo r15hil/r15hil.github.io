@@ -23,7 +23,6 @@ Love it or hate it.. we’ve put pineapple on a pizza and glazed it in Marmite! 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1600784924905-x200.jpg)
 
 ### Step 1
 
@@ -35,13 +34,11 @@ Tip: Cooking for 4? Use 2 trays!
 
 Drain your pineapple thoroughly, stack them up and cut them into quarters
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600784934505-x200.jpg)
 
 ### Step 2
 
 Add the pineapple slices to a bowl with your Marmite and give it a good mix up until all of the pineapple is coated – this is your Marmite pineapple
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1600784942490-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp] </span>cold water and give everything a good mix up – this is your tomato sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600784953630-x200.jpg)
 
 ### Step 4
 
@@ -59,13 +55,11 @@ Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1600784960729-x200.jpg)
 
 ### Step 5
 
 Chop your smoked streaky bacon into small pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1600784966648-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Remove the heated tray[s] from the oven and add your pizza bases
 
 Divide the tomato sauce between the pizza bases and spread it evenly all over them with the back of a spoon
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600784975546-x200.jpg)
 
 ### Step 7
 

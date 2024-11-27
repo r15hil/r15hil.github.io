@@ -24,7 +24,6 @@ Juicy roasted portobello mushrooms are the star of this plant-based dish. Serve 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1555.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Cut the tomato<span class="text-danger">[es]</span> in half 
 
 Peel and roughly chop the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1555.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Drizzle with olive oil and season generously with salt and pepper
 
 Put the tray in the oven for 20-25 min or until golden and tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1555.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ While the vegetables are cooking, add the chopped potatoes and garlic to a pot o
 
 Once cooked, remove from the heat without draining
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1555.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Meanwhile, peel and finely chop the shallot<span class="text-danger">[s] </spa
 
 Finely chop the coriander, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1555.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add the chilli flakes, red wine vinegar, 2 tbsp <span class="text-danger">[4 tbs
 
 Season generously with salt and pepper – this is your chimichurri
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1555.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once <span class="text-highlight">the mushrooms and tomato<span class="text-dang
 
 Return the tray to the oven and cook for a further 2-4 min or until the pumpkin seeds are golden and toasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1555.-step-7-x200.jpg)
 
 ### Step 7
 

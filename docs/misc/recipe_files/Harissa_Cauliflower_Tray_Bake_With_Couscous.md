@@ -24,7 +24,6 @@ Spicy, fragrant roasted cauliflower stars in this mouthwatering tray bake. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632821922856-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and chop the red onion<span class="text-danger">[s] </span>into wedges
 
 Top, tail and slice the courgette<span class="text-danger">[s]</span> into rounds
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632821932492-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the red onion wedges and courgette rounds to 1<span class="text-danger"> [2]
 
 Sprinkle over the ras el hanout, the juice of 1/2 <span class="text-danger">[1]</span> lemon, 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and pepper and give it a good mix up until everything is coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632821940664-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Add the cauliflower wedges and toss until it's fully coated in the spice paste
 
 Add the coated cauliflower wedges to the tray<span class="text-danger">[s] </span>with the courgette and red onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632821947918-x200.jpg)
 
 ### Step 4
 
 Put the tray<span class="text-danger">[s]</span> in the oven for an initial 30-35 min or until everything is cooked through and starting to crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632821955408-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Add the couscous and vegetable stock mix to a heatproof bowl with 130ml <span cl
 
 Fluff with a fork before serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632821962856-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Chop the parsley finely, including the stalks
 
 Combine the mayo with most of the chopped mint and parsley (save some for garnish!), the juice of the remaining lemon and a pinch of salt in a small bowl – this is your herby lemon mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632821967156-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Our sticky-sweet chicken skewers are packed with mega mango flavour. You'll gril
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641914506626-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Peel and dice your sweet potato[es] into small bite-sized pieces
 
 Soak your skewers in water (this prevents them from burning whilst cooking)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641914514324-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the diced sweet potato to the pan and cook for 5 min for until lightly brown
 
 Once lightly browned, add the sliced shallot and cook for 3-4 min further or until slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641914545630-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add your basmati rice with 350ml<span class="text-purple"> [525ml]</span> <span 
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641914552467-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Chop your chicken thighs into small bite-sized pieces
 
 Add the chopped chicken to a large bowl with your mango chutney, remaining curry powder and a pinch of salt and pepper give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641914565496-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Thread the marinated chicken onto the soaked skewers and add them to a tin foil-
 
 Add a drizzle of vegetable oil to the chicken skewers and put the tray under the grill for 16-18 min, turning once halfway, or until slightly charred and cooked through (no pink meat!) – these are your mango chicken skewers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641914587092-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Chop your coriander finely, including the stalks (save some leaves for garnish!)
 
 Add half the chopped coriander (you'll use the rest later!) to a bowl with your natural yoghurt and a pinch of salt and pepper and give everything a good mix up – this is your coriander yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641914637453-x200.jpg)
 
 ### Step 7
 

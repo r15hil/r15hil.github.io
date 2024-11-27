@@ -29,7 +29,6 @@ This Indonesian-style chicken rice is a delicious three in one – it's spicy, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599559868386-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), over a 
 
 Once hot, add the sliced chestnut mushrooms and cook for 2-3 min or until they're starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599559876825-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599559881740-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ Once the mushrooms have browned, add the spring onion whites and the chopped ch
 
 Cook for 2-3 min or until the chicken has started to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599559892165-x200.jpg)
 
 ### Step 4
 
 Once the chicken has browned, stir the chopped garlic, chopped ginger, half of the soy sauce (save the rest for later!), and half of the chopped chilli (can't handle the heat? Go easy!) into the pan and cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599559898173-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once fragrant, add your basmati rice and 300ml<span class="text-danger"> <span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed, the rice is cooked and the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599559902347-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Stir in the juice of half your lime[s] and the remaining soy sauce – this is
 
 Cut the remaining lime into<span class="text-danger"> </span>wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599559911615-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ For this speedy option, you'll sizzle up smoky chorizo and juicy tomatoes with y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2274.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2274.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,19 +47,16 @@ Meanwhile, chop the cherry tomatoes in half
 
 Once the pan is hot, add the halved cherry tomatoes with the chorizo and a pinch of pepper and cook for 2-3 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2274.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2274.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the cherry tomatoes have softened, add the sliced pepper with the roasted garlic paste and cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2274.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Once fragrant, add the steamed basmati rice with the pitted black olives and to
 
 Cook for 2-3 min further or until the rice is warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2274.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the rice is warmed through, add the soy sauce and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2274.-step-7-x200.jpg)
 
 ### Step 7
 

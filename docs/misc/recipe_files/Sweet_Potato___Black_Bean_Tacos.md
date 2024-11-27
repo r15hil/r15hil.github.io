@@ -22,7 +22,6 @@ These tacos are all about balance. You've got creamy, smoky, dark black beans, r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/673.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Preheat the oven to 220&deg;C/ 200&deg;C (fan)/ 425&deg;F/ Gas 7
 
 Cut the sweet potato<span class="text-danger">[es]</span> (skins on) in half length ways and then into strips (see picture)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/673.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Season generously with salt &nbsp;
 
 Put the tray in the oven for 20-25 min or until the sweet potatoes are tender and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/673.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Meanwhile, chop the coriander finely, including the stalks&nbsp;
 
 Juice the lime<span class="text-danger">[s]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/673.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Grind to a rough paste - this is your salsa
 
 Tip: add a splash of hot water from a recently boiled kettle if your salsa is too thick&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/673.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once hot, add the smoked paprika and chipotle paste
 
 Cook for 1 min, until sizzling&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/673.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Reduce the heat to low and cook&nbsp;for 5 min or until warmed through
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/673.-step--7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This hearty soup is big on flavour and perfect for cold nights. You'll cook gian
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/883.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop (or grate) your garlic
 
 Pick your basil leaves from their stalks and chop the stalks finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/883.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Combine your pork & beef mince with the chopped basil stalks (save the leaves fo
 
 Mix until combined (clean hands is the best way), then roll into 3 meatballs per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/883.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add the meatballs and cook for 4 min, turning occasionally with tongs 
 
 Once browned, set aside on a plate (reserve the pan) – these are your pork & beef polpette
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/883.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once hot, add the chopped shallot with a pinch of salt and cook for 3 min or u
 
 Add the chopped garlic and cook for a further 1 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/883.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Stir until combined, then bring to the boil over a high heat
 
 Once boiling, add your giant couscous and cook for 5 min or until beginning to soften – this is your tomato & basil broth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-basil-on-board-1668674669502-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Chop the basil leaves roughly (save some for garnish!)
 
 Grate your Italian hard cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/883.-step-7-x200.jpg)
 
 ### Step 7
 

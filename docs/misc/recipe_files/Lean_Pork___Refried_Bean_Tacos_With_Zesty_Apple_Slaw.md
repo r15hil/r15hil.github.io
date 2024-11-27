@@ -30,7 +30,6 @@ These delicious lean pork and bean tacos are rich, smoky and a little spicy. Whe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675071560714-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your red wine vinegar, 2 tsp<span class="text-purple"> [3 tsp]</span> <span
 
 Slice half your red onion[s] as thinly as you can, then add them to the bowl and set aside to pickle – this is your quick-pickled red onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675071564334-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the drained black beans, soy sauce and 150ml <span class="text-purple">[225
 
 Cook, covered for 10 min or until the beans are very soft
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675071567637-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Zest (try to grate lightly with a micro-plane or sharp box grater and avoid gra
 
 Core and slice your apple[s]<span class="text-danger"> </span>into matchsticks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675071571460-x200.jpg)
 
 ### Step 4
 
@@ -74,19 +70,16 @@ Add your chipotle paste (can't handle the heat? Go easy), chopped garlic and 
 
 Season with salt and pepper and cook for 5-7 min until crispy and cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675071574415-x200.jpg)
 
 ### Step 5
 
 While the pork mince is cooking, combine the apple matchsticks with the lime juice, lime zest and mayo in a small bowl – this is your zesty apple slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1681912025511-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675071580230-x200.jpg)
 
 ### Step 7
 

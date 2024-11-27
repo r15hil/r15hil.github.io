@@ -24,7 +24,6 @@ Live life on the kedge..ree. You'll simmer basmati rice with cherry tomatoes, sp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1716222364293-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1716222371363-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Wash your spinach, pat dry with kitchen paper and roughly chop
 
 Cut your lemon[s] into 2 wedges per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-3-1716222504503-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Tear the top corner of the pouch[es] (just a little!) and put the pouch in the m
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1716222393314-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tear the smoked mackerel into rough, bite-sized pieces
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1716222405142-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add the halved cherry tomatoes to the pan and cook for 1 min
 
 Add your curry powder, ground turmeric and ground coriander and cook for 30 secs further or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1716222417013-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1716222428837-x200.jpg)
 
 ### Step 7
 

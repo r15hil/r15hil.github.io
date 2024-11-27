@@ -29,7 +29,6 @@ Step up your stew game with this umami-rich plant-based staple, packed full of v
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669138426237-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669138430588-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the chopped aubergine and butternut squash cubes and cook for 3-4 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669138434681-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once lightly browned, add the chopped garlic, chopped ginger and gochujang paste
 
 Give everything a good mix up and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669138438522-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once fragrant, add your creamy single soy and soy sauce to the pan and mix it al
 
 Reduce the heat to medium and cook, covered, for a further 12-15 min or until the butternut squash is tender and the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669138442638-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669138446439-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Cut the lime<span class="text-danger">[s]</span> in half
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669138449982-x200.jpg)
 
 ### Step 7
 

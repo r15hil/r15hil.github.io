@@ -23,7 +23,6 @@ You’ll pan-fry hake fillets until perfectly crispy-skinned and flaky then rest
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2064.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a large drizzle of veg
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-6 min or until softened but not coloured
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2064.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ While the onion softens, dissolve the Knorr vegetable stock cube<span class="te
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2064.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once the onion has softened, stir the arborio rice and chopped garlic into
 
 Add the Chinese rice wine and cook for 30 sec further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2064.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add 1/3 of the stock and stir continuously with a wooden spoon until it has ab
 
 Continue to add the stock, a ladle at a time, stirring more or less continuously for 20-25 min, until all the stock is absorbed and the rice is cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2064.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Grate the cheddar cheese
 
 Pat the hake fillets dry with kitchen paper and season both sides with a pinch of salt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2064.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Flip the fish and cook for 1-2 min further or until cooked through
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2064.-step-7-x200.jpg)
 
 ### Step 7
 

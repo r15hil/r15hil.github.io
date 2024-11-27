@@ -31,7 +31,6 @@ Veggie or not, this plant-based tikka masala is a must-try. Serve the mild yet r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1429.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your fragrant rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1429.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion and cook for 6-8 min or until soft
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1429.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Chop your tomato[es] finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1429.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add the chopped tomato and chopped garlic to the pan and cook for 4-5 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1429.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Dissolve your vegetable stock mix, chopped creamed coconut and tomato paste in
 
 Add your ground paprika, curry powder and drained chickpeas to the pan and cook for 1-2 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1429.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the coconut stock and mango chutney to the pan and cook for 6-7 min further or until it's thickened in consistency – this is your chickpea tikka masala
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1429.-step-7-new-x200.jpg)
 
 ### Step 7
 

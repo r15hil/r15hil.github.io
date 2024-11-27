@@ -26,7 +26,6 @@ Supersize your week with a cheesy bubble and squeak. You’ll pan-fry leeks, spr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1582200402124-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582200409684-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and finely slice your red onion[s]
 
 Wash your leek[s] carefully to remove any grit from between the leaves, then top, tail and slice finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1582200416171-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the chopped garlic, dried thyme, sliced leek and half the sliced onion (you
 
 Meanwhile, rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582200419863-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add half your grated Italian hard cheese (you'll use the rest later!) and mash e
 
 Increase the heat to high and cook for 3-4 min or until the bottom is starting to crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582200424142-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Combine your cider vinegar, Dijon mustard and 1/2 tbsp [3/4 tbsp] [1 tbsp] oli
 
 Wash your salad then pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1582200430242-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Put the pan under the grill for 4-5 min or until the cheese has melted – this 
 
 Tip: Make sure you leave the pan handle outside of the oven and the door open whilst grilling!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582200436148-x200.jpg)
 
 ### Step 7
 

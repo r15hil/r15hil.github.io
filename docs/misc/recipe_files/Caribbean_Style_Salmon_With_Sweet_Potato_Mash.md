@@ -23,7 +23,6 @@ Grab a taste of the Caribbean with crispy salmon coated in an allspice breadcrum
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-6-1725449003067-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the zest of your lime[s] (try to avoid the white pith, as this is very bitte
 
 Give everything a good mix – this is your Caribbean-style crumb
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-6-1725449011735-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Put the tray[s] in the oven for 14-15 min or until the fish is cooked through an
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-6-1725449018467-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Boil a kettle
 
 Peel and chop your sweet potato[es] into bite-sized chunks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-6-1725449023766-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once boiling, reduce the heat to medium and cook for 10-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-6-1725449031511-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ While the sweet potato is cooking, dice your tomato[es]
 
 Trim, then slice your spring onion[s] finely, separating the white parts from the green parts
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-6-1725449037038-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Cut your lime[s] in half
 
 Add your mango chutney, the juice of half of your lime and a drizzle of olive oil and give everything a good mix up – this is your tomato salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-6-1725449043177-x200.jpg)
 
 ### Step 7
 

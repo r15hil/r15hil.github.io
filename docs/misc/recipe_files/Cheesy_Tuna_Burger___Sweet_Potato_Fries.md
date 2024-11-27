@@ -25,7 +25,6 @@ You'll flavour your tuna patties with lovely grated cheddar and sandwich them be
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1144.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Add the grated cheese, panko breadcrumbs, drained tuna and egg<span class="text-
 
 Knead&nbsp;the tuna mix with clean hands for 1 min or until smooth
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1144.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Put the patties in the freezer to firm up
 
 Tip: if the mixture is too wet, add some flour
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1144.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Add the chips to a large baking tray with a drizzle of vegetable oil and a pinch
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1144.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Combine the red wine vinegar and 1 tsp <span class="text-danger">[2 tsp]</span> 
 
 Once the sugar has&nbsp;dissolved, add the sliced shallot and set aside &ndash; this is your pickled shallot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1144.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,7 +89,6 @@ Tear the remaining leaves into bite-sized pieces
 
 Add the torn leaves to a bowl with 1-2 tbsp olive oil, a pinch of&nbsp;salt&nbsp;&amp;&nbsp;pepper &amp;&nbsp;give everything a good mix&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1144.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -112,7 +106,6 @@ Once toasted, transfer them to a plate and reserve the pan
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1144.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ For this dish you'll make a punchy marinade with lemongrass, ginger, garlic, oni
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2115.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the sliced radish to a bowl with the rice vinegar and a small splash of cold
 
 Mix it together and set aside to pickle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2115.-step-2new-x200.jpg)
 
 ### Step 2
 
@@ -59,7 +57,6 @@ Peel and roughly chop the garlic
 
 Peel and roughly chop the brown onion<span class="text-danger">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2115.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the chopped lemongrass, ginger, garlic and onion to a food processor with t
 
 Add 2 tbsp<span class="text-danger"> [4 tbsp]</span> vegetable oil and whizz until a paste has formed – this is your marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2115.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Cut the chicken thighs into large pieces
 
 Combine the chicken with the marinade and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2115.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2115.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Add the chicken and any remaining marinade to a baking tray (use tin foil to avo
 
 Put the tray under the grill for 10 min, turning the tray once half way, until cooked through (no pink meat!) – this is your Vietnamese-style lemongrass chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2115.-step-7-x200.jpg)
 
 ### Step 7
 

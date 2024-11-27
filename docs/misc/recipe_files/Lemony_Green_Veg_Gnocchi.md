@@ -21,7 +21,6 @@ Brighten up dinnertime with a plateful of vibrant green vegetables and crisp gno
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654008623486-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Trim, then chop your green beans in half
 
 Slice your mangetout in half lengthways
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1608310016564-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Cook for 3 min or until the gnocchi begins to rise to the top of the pot
 
 Once done, drain everything
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1608310020461-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim, then chop your spring onion[s] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1608310026371-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Once hot, add the drained gnocchi, Tenderstem broccoli, sliced mangetout and gre
 
 Tip: Don't stir too often as this will prevent the gnocchi from crisping!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1608310052741-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Meanwhile, peel half your Italian hard cheese with a peeler until you end up wit
 
 Grate the remaining Italian hard cheese finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2497Step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Once the gnocchi has crisped, add 20g <span class="text-purple">[30g] </span><sp
 
 Season with a generous pinch of salt and pepper and give everything a good mix up until the butter has melted – this is your lemony green veg gnocchi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2497Step-7-x200.jpg)
 
 ### Step 7
 

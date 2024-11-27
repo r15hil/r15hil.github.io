@@ -26,7 +26,6 @@ Berbere spice adds a kick of heat to Ethiopia’s favourite stew. You’ll simme
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671538045128-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your sweet potato[es] (skins on) into small bite-sized pieces
 
 Peel and finely slice your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671538056281-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large pot with a small drizzle of vegetable oil over a medium-high heat
 
 Once hot, add the chopped aubergine and sweet potato to the pan with the sliced onion and a small pinch of salt and cook for 3-4 min or until the onion has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671538067214-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Rinse your red lentils in a sieve under cold running water
 
 Once the onion has softened, add the remaining berbere seasoning and tomato paste to the pot with your ginger & garlic paste and give everything a good mix up and cook for a further 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671538071284-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cook for a further 15-20 min or until the lentils are tender and the sweet potat
 
 While everything's cooking, reboil the kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671538076853-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Once boiling, cook for exactly 8 min for a perfect, mid-boiled egg, then fill a 
 
 Set aside, then once cooled, peel the cooled soft-boiled egg[s] and cut them in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1704991187529-x200.jpg)
 
 ### Step 6
 
 When the sweet potatoes are nearly fork-tender, add your naan[s] to a toaster for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Parsley-1704991357727-x200.jpg)
 
 ### Step 7
 

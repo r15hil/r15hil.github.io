@@ -25,7 +25,6 @@ Planning a nacho night? Make it great with these sweet potato slices smothered i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2152-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the sweet potato discs to a baking tray with 1 tbsp <span class="text-danger
 
 Tip: If you're cooking for 4, use 2 trays!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2152-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely chop (or grate) the garlic
 
 Drain and rinse the black beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2152-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add 3/4 of the chopped onion (save the rest for later!) and cook for 2
 
 Once the onion has softened, add the chopped garlic and cook for 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2152-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add 50ml<span class="text-danger"> [80ml]</span> water and the soy sauce and coo
 
 Once thickened, mash gently – these are your refried beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2152-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Squeeze in the juice of 1/2 <span class="text-danger">[1]</span> lime and season
 
 Cut the remaining lime into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2152-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Add a pinch of salt and mash with a fork until smooth
 
 Once smooth, add the juice of 1 <span class="text-danger">[2]</span> lime wedges and give it a good mix up – this is your smashed avocado
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2152-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Donburi is a Japanese rice bowl with an array of umami-rich toppings. To make ou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1726737941606-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1726737944897-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Whilst the rice is cooking, peel your ginger (scrape the skin off with a teaspoo
 
 Slice your cucumber[s] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1726737954733-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Combine 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-d
 
 Add your red wine vinegar, ginger matchsticks and sliced cucumber and set aside to pickle until serving – these are your quick-pickled vegetables
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1726737958335-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook for 3-4 min or until lightly browned on both sides
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1726737962177-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the chicken has browned, add the chopped garlic, tamari soy sauce, mirin, h
 
 Cook, covered, for 10 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened and is sticky in consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1726737965559-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Slice your mangetout in half lengthways
 
 Add the sliced mangetout to a large bowl, cover with boiled water and set aside to soften
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1726737968539-x200.jpg)
 
 ### Step 7
 

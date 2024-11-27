@@ -24,7 +24,6 @@ For this punchy sandwich, you'll fill ciabatta rolls with spicy chicken, lettuce
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1587459481820-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1587459538748-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the chopped potatoes to a baking tray (or two!) and drizzle with 1 tbsp<span
 
 Put the tray[s] in the oven for 25 min or until golden and crisp – these are your herby roast potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/437_step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Add your chicken breast portion[s] to a plate with your cayenne pepper (can't 
 
 Refrigerate until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/437_step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Peel and finely chop (or grate) your garlic
 
 Add the sliced spring onion to a bowl with your mayo, chopped garlic (don't like raw garlic? Go easy!), white wine vinegar, salt, pepper and a drizzle of olive oil – this is your garlic mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1613037498742-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Once hot, add the spiced chicken and cook for 3 min on each side or until golden
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/437.-step-6.new2-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Add your ciabatta[s] to a separate baking tray (or two!) and put the tray[s] in 
 
 Carefully slice in half before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1613037504630-x200.jpg)
 
 ### Step 7
 

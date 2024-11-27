@@ -26,7 +26,6 @@ These sticky hoisin pork loin steaks are easy, quick and packed with flavour. Wh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Rice-in-a-pan-1595348288130-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1629.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Trim your spring onion[s], then cut each spring onion into thirds
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1629.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the steak[s] and cook for 5-6 min on each side or until browned and cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1629.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once done, transfer the cooked pork loin steak[s] to a clean chopping board or p
 
 Reserve the pan for the next step
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1629.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add the pak choi leaves, chopped spring onion and a pinch of salt a
 
 Once softened, add the chopped garlic with your toasted sesame oil and cook for 1 min further – this is your sesame pak choi & spring onions
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1629.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Meanwhile, heat a second pan (preferably non-stick) over medium-low heat
 
 Once hot, add your soy sauce, hoisin sauce and maple syrup and cook for 1-2 min or until thickened to a sticky consistency – this is your sticky sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1629.-step-7-x200.jpg)
 
 ### Step 7
 

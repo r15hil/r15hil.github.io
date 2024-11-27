@@ -23,7 +23,6 @@ Layer up halloumi and aubergine for this vegetarian treat. To balance the savour
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600360679445-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain thoroughly and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600360685592-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tip: Cut the slices of the narrow end slightly wider than that of the fatter end
 
 Pat the halloumi dry with kitchen paper then cut into 6 <span class="text-danger">[12]</span> even slices
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600360692302-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the aubergine slices to a large baking tray with a drizzle of olive oil and 
 
 Give it a good mix up then put the tray in the oven for 12-15 min or until the aubergine is soft and golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600360696451-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Strip the thyme leaves from their stalks and chop the leaves finely (reserve a f
 
 Combine the juice of 1/2 <span class="text-danger">[1] </span>lemon with the honey, chopped thyme, chopped garlic (not a fan of raw garlic? Just add a little!), 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, and a pinch of salt and pepper in a small bowl – this is your honey-thyme dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600360717759-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add half of the honey-thyme dressing to the pan and cook for 2-3 min further on 
 
 Once done, remove from the heat and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600360725987-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Wash the rocket, then pat it dry with kitchen paper
 
 Fluff the drained bulgur wheat with a fork then add the sultanas, rocket and 1 tbsp<span class="text-danger"> [2 tbsp]</span> honey-thyme dressing and gently mix – this is your bulgur salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600360770360-x200.jpg)
 
 ### Step 7
 

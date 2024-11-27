@@ -25,7 +25,6 @@ A healthy yet tasty dish with colourful vegetables and silky noodles: crunchy, n
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/422.step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Boil a kettle
 
 <span style="font-size: 140%; font-family: arial, sans, sans-serif;" data-sheets-value="[null,2," data-sheets-userformat="[null,null,15167,[null,0],[null,2,13434879],[null,[[null,2,0,null,null,[null,2,0]],[null,0,0,2],[null,1,0,null,1]]],[null,[[null,2,0,null,null,[null,2,0]],[null,0,0,2],[null,1,0,null,1]]],[null,[[null,2,0,null,null,[null,2,0]],[null,0,0,2],[null,1,0,null,1]]],[null,[[null,2,0,null,null,[null,2,0]],[null,0,0,2],[null,1,0,null,1]]],null,null,4,0,null,[null,2,0],">&nbsp;<br /></span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/422__step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Slice the mange tout into thin strips
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/422.step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Combine the peanut butter with the soy sauce, honey, toasted sesame oil, cayenne
 
 Mix&nbsp;to form a smooth paste &ndash; this is your peanut sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/422__step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once hot, add the carrot batons&nbsp;and pepper&nbsp;and stir-fry for 4 min or u
 
 Once browned, reduce the heat to medium-high &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/422__step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,7 +86,6 @@ Cook for 5-7 min or until the noodles have softened, then remove the lid
 
 Tip:&nbsp;shake the pan or stir occasionally to prevent the noodles from sticking
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/422.step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Meanwhile, chop the roasted&nbsp;peanuts coarsely (or bash them in a bag)
 
 Trim then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/422__step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This is nacho average burger. You'll top your beef patty with a cheesy sauce, fr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1716895294027-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1716895297203-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your coriander finely, including the stalks
 
 Add the chopped tomato, diced shallot and chopped coriander to a bowl with a pinch of salt and pepper and mix it all together – this is your tomato salsa
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1716895303816-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Massage the meat with clean hands for 1 min (this helps the patty hold its shape
 
 Divide and shape the mince into 1 thin patty per person – this is your burger patty[ies]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1716895307554-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Slice your green chilli[es] into rounds
 
 Combine the chilli rounds with your white wine vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> boiled water and a pinch of salt and sugar – this is your quick-pickled chilli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1716895310686-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[20
 
 Cook over a medium heat for 2-3 min, stirring frequently, or until the cheese has melted and the sauce has thickened – this is your nacho cheese sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1716895314340-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once hot, add your brioche halves, cut-side down, and cook for 2-3 min or until 
 
 Set aside until serving, reserving the pan
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1716895317770-x200.jpg)
 
 ### Step 7
 

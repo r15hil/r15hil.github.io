@@ -26,7 +26,6 @@ Citrus, spice and dried fruit add the flavours of Morocco to this tagine-inspire
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1661516350004-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely chop (or grate) your garlic
 
 Zest your lemon[s] and cut into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1661516353045-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add your ras el hanout and cook for 1 min or until fragrant
 
 Once fragrant, add the sliced onion and chopped garlic with a pinch of salt to the pan and cook for 5-6 min or until the onion has caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1661516355838-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Chop your free range chicken breast portions into rough, bite-sized pieces
 
 Dissolve half your chicken stock mix in 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1661516358511-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the onions have caramelised, add 1 tbsp <span class="text-purple">[1 1/2 tb
 
 Pour in the chicken stock, bring to the boil over a high heat and cook for 2-3 min or until the sauce thickens
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661516361154-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once thickened, add the chopped chicken, halved green beans and diced apricots
 
 Reduce the heat to medium and cook, covered, for a further 12-15 min or until the chicken is cooked through (no pink meat!) – this is your Moroccan-style free range chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1661516364840-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[40
 
 Fluff with a fork before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661516367607-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ This massaman-inspired curry is a fragrant feast from the east. You’ll simmer 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677672011669-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel and chop your brown onion[s]<span class="text-danger"> </span>into wedges
 
 Chop your waxy potatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677672021417-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Once cooked, remove from the heat and discard the outer lemongrass layers, keep 
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677672027646-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the cardamom pods, chopped lemongrass core, your ground cinnamon (not a fan of cinnamon? Only add a little!), ginger & garlic paste and red Thai curry paste and cook for 30 secs or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677672042360-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once fragrant, add the onion wedges with a pinch of salt and cook for 2-3 min or
 
 Once beginning to soften, add the halved waxy potatoes and cook for 2 min further or until the potatoes are coated in spices
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677672048939-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Dissolve the chopped creamed coconut, your vegetable stock mix and 1 tsp <span
 
 Add the coconut stock and your tamarind paste to the pan and cook, covered, for 13-15 min or until the potatoes are almost fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677672054307-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ While the potatoes are cooking, deseed your pepper[s] (scrape the seeds and pith
 
 Crush your roasted peanuts with a rolling pin
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677672058981-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Welcome to flavour town. We’re serving soft tortillas piled with crispy, meat-
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626797307545-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626797328897-x200.jpg)
 
 ### Step 2
 
@@ -46,19 +44,16 @@ Once hot, add the pepper strips and sliced onion to the pan with the smoked papr
 
 Cook for 4 min or until the vegetables begin to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626797371159-x200.jpg)
 
 ### Step 3
 
 Once the vegetables begin to soften, add the meat-free chicken to the pan and cook for a further 4-5 min, or until everything is warmed through – this is your sweet 'n' smoky BBQ meat-free chicken fajita filling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626797382367-x200.jpg)
 
 ### Step 4
 
 While everything is cooking, chop the tomatoes roughly, until they resemble a salsa-like consistency
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626797400012-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Add the chopped tomato to a bowl with the chilli flakes (cooking for kids? Skip 
 
 Stir it all together – this is your salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626797416650-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Put them in the oven for 2-3 min or until they're warmed through (alternatively,
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626797422158-x200.jpg)
 
 ### Step 7
 

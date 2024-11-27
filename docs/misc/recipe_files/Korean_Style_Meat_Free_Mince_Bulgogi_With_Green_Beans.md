@@ -26,7 +26,6 @@ Bulgogi is found practically everywhere across Korea. To make it at home, you'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1621863957806-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621863962214-x200.jpg)
 
 ### Step 2
 
 While the rice is cooking, trim, then cut your green beans in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621863966972-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Trim, then slice your spring onion[s] finely, keeping the whites and greens sepa
 
 Grate your apple[s] (skin on) into a bowl
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1621863971480-x200.jpg)
 
 ### Step 4
 
 Add your meat-free mince (remove the paper if required!), chopped ginger, chopped garlic, sliced spring onion whites, soy sauce, toasted sesame oil and 2 tsp<span class="text-purple"> [3 tsp]</span> <span class="text-danger">[4 tsp]</span> brown sugar to the grated apple and mix thoroughly with clean hands – this is your Korean-style meat-free mince
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621863975330-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once hot, add the Korean-style meat-free mince and the halved green beans
 
 Spread the mixture out and cook for 4 min, without stirring
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621863979500-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Flip the mince, and cook for a further 4 min on the other side
 
 Once cooked, break up the mince into rough bite-sized pieces with a wooden spoon – this is your Korean-style meat-free mince bulgogi with green beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621863983616-x200.jpg)
 
 ### Step 7
 

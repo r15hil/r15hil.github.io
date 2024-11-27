@@ -23,7 +23,6 @@ These Thai flavoured beef meatballs are red, hot and yummy. Flavoured with our a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/478_step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel the ginger (scrape the skin off with a teaspoon) and grate or chop finely
 
 Cut the coriander stems from their leaves and chop the stems and the leaves finely, keeping them separate&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/478_step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Refrigerate until later&nbsp;
 
 Tip: chilling the meatballs helps them hold their shape when cooking&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/478__step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Boil for 4-6 min, or until they're cooked through but with a slight bite
 
 Once cooked, drain and rinse them briefly under cold water, shaking off the excess water before returning them to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/478_step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Chop or crush the roasted peanuts coarsely
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/478_step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Once hot, add the chilled meatballs and cook them for 4 min, or until they've br
 
 Tip: use tongs to turn them regularly for even cooking
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/478_step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Once browned, cover with a lid, reduce the heat to medium-low and cook for a fur
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/478_step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Prepped in just 5 mins, this Korean-style rice bowl is packed with spicy, garlic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1653318882719-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1653318892188-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add the pork mince (remove the paper if required!) to the dish and cook for 1-2 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653318903217-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Whilst the mince is browning, deseed the pepper<span class="text-danger">[s]</sp
 
 Crush the garlic cloves open by squashing them with the side of a knife and remove the skins
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1653318913796-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the soy sauce, mirin, chicken stock mix and 3/4 of the gochujang paste (can'
 
 Cover with a lid and put it in the oven for 20 min or until the pork is cooked through (no pink meat!) – this is your oven-baked Korean-style pork
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1653318920858-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Meanwhile, add the sushi rice to an oven-proof dish with a pinch of salt and 250
 
 Cover tightly with tin foil and put the dish in the oven for 25 min or until all the water is absorbed and the rice is cooked – this is your sticky rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1653318934200-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ While the rice is cooking, cut the cucumber in half lengthways, then slice finel
 
 Add the chopped cucumber to a bowl with the rice vinegar, mayo and the remaining gochujang paste (not a fan of spice? Just add a little!) and give everything a good mix up – this is your gochujang cucumber
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653318939565-x200.jpg)
 
 ### Step 7
 

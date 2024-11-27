@@ -21,7 +21,6 @@ For this elegant pasta dish, you'll pan-fry smoked basa in garlic oil, before st
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720449063137-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Add your gluten free linguine to a pot of boiled water with a pinch of salt, t
 
 Once cooked, drain the linguine and reserve a cup of the starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720449068828-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Once hot, add the sliced garlic and cook for 1 min
 
 Remove the pan from the heat and leave the garlic to infuse the oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720449073678-x200.jpg)
 
 ### Step 3
 
 Chop your smoked basa fillet[s] into small bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720449080049-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Return the pan with the garlic oil to a medium-high heat
 
 Once hot, add the chopped basa and cook for 4-5 min or until beginning to cook through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720449088831-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ While the basa is cooking, zest half your lemon[s] (try to grate lightly with a 
 
 Slice the remaining non-zested lemon into 1 wedge per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720449089661-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Season very generously with salt and pepper and cook for 1-2 min further or unti
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720449095056-x200.jpg)
 
 ### Step 7
 

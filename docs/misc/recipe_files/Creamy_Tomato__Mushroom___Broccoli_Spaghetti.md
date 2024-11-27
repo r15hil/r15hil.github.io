@@ -26,7 +26,6 @@ Tuck into this speedy spaghetti in 10. You’ll sauté chestnut mushrooms in a c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-3-1728543838325-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676976577004-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Crumble your chestnut mushrooms roughly into the pan with your hands and cook for 3-4 min or until the mushrooms have browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676976580551-x200.jpg)
 
 ### Step 3
 
 While the mushrooms are browning, chop your Tenderstem broccoli in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676976584399-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cook for 2-3 min or until everything is cooked with a slight bite
 
 Once done, drain the spaghetti & Tenderstem, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676976587237-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Add your roasted garlic paste to the pan with the tomato paste and give everythi
 
 Cook for a further 2-3 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676976591085-x200.jpg)
 
 ### Step 6
 
 Add your sun-dried tomato pesto, soft cheese and vegetable stock mix to the pan with a splash of the reserved starchy pasta water and stir it all together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676976594126-x200.jpg)
 
 ### Step 7
 

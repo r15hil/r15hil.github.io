@@ -21,7 +21,6 @@ Balsamic creates a sweet, syrupy glaze for our steaks which gives them a tart, y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/541.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the potatoes and whole garlic cloves to a pot (with a matching lid) of salte
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/541.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once cooked, drain and return to the pot with a knob of butter and splash of mil
 
 Tip: Covering the hot, cooked potatoes encourages them to steam and they will mash more easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/541.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Chop the tomato<span class="text-danger">(es)</span> into a large dice
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/541.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Reduce the heat to medium-low, add the tomatoes with a pinch of sugar and cook f
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/541.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Pat the steaks dry with kitchen towel, rub both sides with vegetable oil and sea
 
 Heat a separate pan over a medium-high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/541.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Flip the steak and add the balsamic vinegar with a pinch of sugar (this helps it
 
 Cook for 1 min further, then transfer the cooked steaks (with any remaining balsamic) to a plate and cover with a tea towel to 'rest' until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/541.-step-7-x200.jpg)
 
 ### Step 7
 

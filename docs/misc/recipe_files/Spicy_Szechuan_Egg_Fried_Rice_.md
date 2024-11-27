@@ -24,7 +24,6 @@ Looking for a kick? Serve up the spice with this speedy Szechuan-style fried ric
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627987552195-x200.jpg)
 
 ### Step 1
 
@@ -32,13 +31,11 @@ Heat a large, wide-based pan or wok (preferably non-stick) with a drizzle of veg
 
 Once hot, add the cashew nuts, garlic & ginger paste and rainbow veg mix and cook for 2-3 min or until fragrant
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627987486355-x200.jpg)
 
 ### Step 2
 
 Meanwhile, combine the hoisin sauce, tomato paste, toasted sesame oil, soy sauce, sriracha and cayenne pepper (can't handle the heat? Go easy!) in a small bowl – this is your Szechuan sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627987508854-x200.jpg)
 
 ### Step 3
 
@@ -46,7 +43,6 @@ Once fragrant, push the veg to one side of the pan and crack in the eggs
 
 Scramble the eggs with a wooden spoon and cook for 1 min or until just set
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627987519962-x200.jpg)
 
 ### Step 4
 

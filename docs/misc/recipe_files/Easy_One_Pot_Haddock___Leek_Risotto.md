@@ -22,7 +22,6 @@ Few things are more relaxing than stirring risotto. For this recipe, you'll slow
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1478Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Top, tail and slice finely
 
 Peel and finely slice your shallot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1478Step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced leek and shallot and cook for 3-4 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1478Step-3-x200.jpg)
 
 ### Step 3
 
 While the leek softens, dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span><span class="text-danger"> [1.4L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1478Step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min o
 
 Tip: Add a splash more water if it's looking a little dry!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1478Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Season your haddock bites with a pinch of salt and pepper
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1478Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once the rice is tender with a slight bite, stir through the juice of half the
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1478Step-7-x200.jpg)
 
 ### Step 7
 

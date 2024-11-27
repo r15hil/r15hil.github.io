@@ -27,7 +27,6 @@ Fill your bowl with the flavours of Seoul. You’ll whip up a fiery stew, packed
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678356832143-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678356844208-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678356855370-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the sliced radishes to a small bowl with your rice vinegar and a pinch of su
 
 Give everything a good mix up and set aside for later – this is your quick-pickled radish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678356867453-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678356885920-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Dissolve your gochujang (can't handle the heat? Go easy!) and soy sauce in 225ml<span class="text-purple"> [300ml] </span><span class="text-danger">[400ml] </span>boiled water with your fish sauce, cornflour and 1/2 tsp <span class="text-purple">[3/4 tsp]</span><span class="text-danger"> [1 tsp] </span>sugar – this is your gochujang stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678356904358-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, add the chopped garlic and chopped ginger and cook for 30 secs or unti
 
 Once fragrant, add the sliced carrots and gochujang stock to the pan and cook, covered, for 4-5 min until the carrots are almost tender – this is your Korean-style stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678356914920-x200.jpg)
 
 ### Step 7
 

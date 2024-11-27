@@ -25,7 +25,6 @@ For this quick, punchy pasta, you'll toss spaghetti with garlic, sizzling prawns
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1668184148357-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668184225861-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the halved tomatoes with a generous pinch of salt and cook for 2 min or until slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668184229768-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Drain your king prawns
 
 Once softened, add the king prawns and chilli flakes (can't handle the heat? Go easy!) to the pan with a pinch of salt and cook for 4-5 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668184233859-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the cooked spaghetti, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1651597069270-x200.jpg)
 
 ### Step 5
 
 Peel and roughly slice (don't chop) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1651597084568-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Tip: Be careful when adding the water to the pan, it may splash!
 
 Return the pan to the heat, then sprinkle in your vegetable stock mix and tear your parsley into the pan and stir it all together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1651597096427-x200.jpg)
 
 ### Step 7
 

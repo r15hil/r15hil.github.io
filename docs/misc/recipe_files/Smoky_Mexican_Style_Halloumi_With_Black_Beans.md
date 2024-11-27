@@ -26,7 +26,6 @@ Inspired by the vibrant flavours of Mexico, this warm halloumi salad is bursting
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1731418111609-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1731418114814-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and finely chop (or grate) your garlic
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731418118537-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cook over a high heat for 3 min until charred around the edges
 
 Once charred, reduce the heat to low, add the chopped garlic and cook for a further 10-15 min until softened and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/469_-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Combine your mayo, chipotle paste with 2 tbsp <span class="text-purple">[3 tbsp
 
 This is your chipotle dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/469_-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Chop your coriander finely, including the stalks
 
 Trim then finely slice your spring onion[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/469_-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the peppers are caramelised, add 1 tsp <span class="text-purple">[1 1/2 tsp
 
 Add the peppers and beans to the drained brown rice (reserve the pan for the next step!) – this is your Mexican rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/469_-step-7-x200.jpg)
 
 ### Step 7
 

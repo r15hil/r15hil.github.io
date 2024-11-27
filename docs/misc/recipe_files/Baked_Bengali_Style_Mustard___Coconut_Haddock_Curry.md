@@ -29,7 +29,6 @@ This creamy, coconutty curry is oven-ready in 5. You’ll simmer a rich coconut,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675779680687-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675779691601-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, hob-safe oven-proof casserole dish with a drizzle of vegetable oil
 
 Peel and slice your shallot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675779701018-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Chop your creamed coconut roughly (if required!)
 
 Trim, then slice your spring onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675779710468-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the shallot is slightly softened, add your curry powder and cook for 1 min 
 
 Once fragrant, add the chopped tomatoes and chopped creamed coconut to the dish with your wholegrain mustard and ginger & garlic paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675779718748-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Bring to the boil over a high heat
 
 Once boiling, put the dish in the oven and cook, uncovered, for an initial 22 min or until thickened – this is your mustard & coconut curry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675779728406-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675779736444-x200.jpg)
 
 ### Step 7
 

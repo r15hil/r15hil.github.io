@@ -28,7 +28,6 @@ This is peri peri chicken, with an Italian twist. After roasting chicken breast 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1698169329221-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Cut your lemon[s] in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1698169354491-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine your chipotle paste, tomato paste, dried oregano and chopped chilli (can
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and a pinch of salt and mix to combine – this is your peri peri sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1698169361195-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Chop your pepper[s] roughly
 
 Tip: Slice into rings for speedy chopping
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1698169367185-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Transfer the chopped pepper to a tin foil-lined baking tray (or two!) and put th
 
 Once the pepper has had an initial 5-10 min, add the coated chicken breast to the tray[s] and return the tray[s] to the oven for a final 12-15 min or until the chicken is cooked through (no pink meat!) – this is your peri peri chicken breast
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1698169372704-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml] </span>boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1698169381335-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once fragrant, add the remaining peri peri sauce, soft cheese and chicken stock
 
 Cook for 4-5 min or until the sauce has thickened – this is your peri peri pasta sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1698169390878-x200.jpg)
 
 ### Step 7
 

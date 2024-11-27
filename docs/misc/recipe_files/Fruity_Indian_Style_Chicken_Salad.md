@@ -30,7 +30,6 @@ This chicken salad is awash with vibrant colour and flavour. You'll pan-fry tend
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1065.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your basmati rice, ground turmeric, sultanas, a generous pinch of salt and 
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1065.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Meanwhile, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon)
 
 Peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1065.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Combine your mayo with the juice of half of your lime[s] and 2 tbsp <span class=
 
 Season with a pinch of salt and pepper – this is your lime dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1065.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped chicken, curry powder and a generous pinch of salt and cook for 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1065.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Cut the remaining lime into wedges
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1065.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once cooked, remove the chicken pan from the heat, then add your mango chutney a
 
 Add the cooked basmati rice to a sieve and run it under cold running water until cool
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1065.-step-7-x200.jpg)
 
 ### Step 7
 

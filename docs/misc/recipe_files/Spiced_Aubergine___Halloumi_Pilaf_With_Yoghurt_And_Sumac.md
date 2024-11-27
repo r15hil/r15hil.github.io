@@ -24,7 +24,6 @@ Pile your plate high with this fragrant pilaf. You’ll pan-fry aubergine and ha
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1681231195645-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1681231212912-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1681231208641-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Return the reserved pan to a high heat with a generous drizzle of olive oil
 
 Once hot, add the chopped aubergine and cook for 4-5 min or until slightly softened and charred
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1681231217022-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Cut your halloumi into small bite-size cubes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1681231221751-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Cook for 3-4 min or until the onion has begun to soften
 
 Meanwhile, chop your parsely finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1681231226576-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once fragrant, add 120ml<span class="text-purple"> [150ml]</span><span class="te
 
 Once boiling, reduce the heat to medium-high and cook, covered, for 8-10 min or until the aubergine has completely softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1681231231837-x200.jpg)
 
 ### Step 7
 

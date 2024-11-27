@@ -20,7 +20,6 @@ This super simple dish will bring you a comforting Italian flavour combo – swe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1436_-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once done, transfer the pancetta to kitchen paper
 
 Reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1436_-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely slice (don't chop!) the garlic
 
 Dissolve 1/2&nbsp;<span class="text-danger">[1]&nbsp;</span>chicken stock cube in 150ml<span class="text-danger"> [300ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1436_-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the butternut squash cubes and chopped&nbsp;rosemary with a pinch 
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1436_-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cook the&nbsp;tortiglioni&nbsp;for 10-12 min or until cooked with a slight bite
 
 Once done, drain the&nbsp;tortiglioni, reserving a large cup of the&nbsp;starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1436_-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once the butternut squash is coloured, add a generous splash of water to the pan
 
 Meanwhile, grate the cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1436_-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Mash half the butternut squash cubes with a masher until smooth
 
 Add the chicken stock and give everything a good mix up&nbsp;until a sauce has formed
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1436_-step-7-x200.jpg)
 
 ### Step 7
 

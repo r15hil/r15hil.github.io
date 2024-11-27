@@ -24,7 +24,6 @@ Not a fan of rocket? This should convert you.This salad is balanced with the swe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/810.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender
 
 Once tender, drain in a sieve and return to the pot to cool&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/810.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,13 +52,11 @@ Place them cut-side up onto a baking tray,&nbsp;drizzle<span class="text-highlig
 
 Put the tray in the oven and bake for 20-25 min or until the tomatoes are starting to blister
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/810.-step-3-x200.jpg)
 
 ### Step 3
 
 Wash, dry, then roughly chop the rocket&nbsp;salad and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/810.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Combine the chopped&nbsp;garlic, sliced&nbsp;shallot, ground&nbsp;cumin, mango c
 
 Season with salt and pepper <span class="text-highlight">&ndash;</span> this is your dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/810.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Carefully slice the goats' cheese into 6 <span class="text-danger">[12]</span> e
 
 Mix the panko breadcrumbs with the nigella seeds <span class="text-highlight">&ndash;</span>&nbsp;this is your breadcrumb-seed mixture&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/810.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,7 +99,6 @@ Place the floured cheese into the&nbsp;egg, and then the&nbsp;breadcrumb-seed mi
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/810.-step-7-x200.jpg)
 
 ### Step 7
 

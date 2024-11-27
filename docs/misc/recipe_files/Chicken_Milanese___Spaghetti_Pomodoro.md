@@ -25,7 +25,6 @@ Sink your teeth into this unbelievably crispy chicken Milanese. You’ll coat ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1698421524148-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Boil a kettle
 
 Cover your chicken breast portion[s] in cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1698421527371-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Add a splash of milk to a shallow bowl
 
 Add your panko breadcrumbs to a separate plate with a generous pinch of salt and pepper and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1698421530215-x200.jpg)
 
 ### Step 3
 
 Coat the flattened chicken in the flour, then add to the milk and finally firmly press into the breadcrumbs to evenly coat all over – this is your breaded chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1698421532841-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once hot, add the breaded chicken and cook for 5-6 min on each side or until gol
 
 Transfer to a clean board, cover with a tea towel to keep warm and reserve the pan – this is your chicken Milanese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1698421535280-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Reboil half a kettle
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1698421537966-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Dissolve your chicken stock mix and tomato paste in 100ml <span class="text-purp
 
 Add your dried oregano, a pinch of sugar and a generous pinch of salt and pepper and stir it all together – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1698421540681-x200.jpg)
 
 ### Step 7
 

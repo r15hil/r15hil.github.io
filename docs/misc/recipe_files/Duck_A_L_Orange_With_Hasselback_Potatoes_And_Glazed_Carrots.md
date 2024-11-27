@@ -27,7 +27,6 @@ Get a taste of fine dining from the comfort of your own home. You’ll roast duc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692807002873-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut narrow slices widthways (about the width of a pound coin) into your waxy pot
 
 Tip: Place chopsticks either side of the potatoes to stop you cutting all the way through!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692807008496-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the hasselback potatoes to a baking tray (use tin foil to avoid mess!) with 
 
 Put the tray in the oven for 35-40 min or until tender and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692807016925-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add your Chantenay carrots to the other side of the tray (cooking for 3 or more?
 
 Put the tray[s] in the oven for 28-30 min or until the duck is golden and crispy and the carrots are tende
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692807021667-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Chop your parsley finely, including the stalks
 
 Zest half your orange[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692807030291-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once hot, add the chopped shallot and cook for 2-3 min or until beginning to sof
 
 Whilst the shallot is cooking, dissolve your cornflour in your soy sauce and add your chicken stock mix with 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[450ml] </span>boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692807034886-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once boiling, cook for 10-12 min or until thickened
 
 Once thickened, remove from the heat and stir in the orange zest with a knob of butter – this is your orange sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692807039610-x200.jpg)
 
 ### Step 7
 

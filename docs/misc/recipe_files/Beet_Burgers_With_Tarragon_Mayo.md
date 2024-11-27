@@ -23,7 +23,6 @@ Burgers don't have to be junk. These babies are probably our favourite veggie di
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/162__step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the wedges to a baking tray skin-side down (to prevent sticking) with a driz
 
 Put the tray in the oven for 30 min or until the potatoes are golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/162__step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Meanwhile, drain and grate the beetroot into a sieve (over a bowl), then press a
 
 Season the grated beetroot generously with salt and pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/162__step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely chop (or grate) the garlic
 
 Combine the grated beetroot, oats, garlic and egg<span class="text-danger">[s]</span>&nbsp;with half of the chopped&nbsp;tarragon (you'll use the rest later) and mix well to combine thoroughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/162__step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Make 2 <span class="text-danger">[4]</span>&nbsp;patties from the burger mix, sq
 
 Meanwhile, peel and finely slice the red&nbsp;onion<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/162__step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add the sliced&nbsp;onion with a pinch of salt and cook for 5 min unti
 
 Reduce the heat to medium-low, add the reserved beetroot juice and cook for a further 5 min or until caramelised
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/162__step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Season lightly with salt and pepper
 
 Transfer the cooked, caramelised onions to a plate, reserving the pan for later
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/162__step-7-x200.jpg)
 
 ### Step 7
 

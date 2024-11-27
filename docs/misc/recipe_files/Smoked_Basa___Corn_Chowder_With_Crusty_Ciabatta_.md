@@ -23,7 +23,6 @@ Rustle up a bowl of chowder in just 10 minutes. This one’s brimming with smoky
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1614683393555-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2034Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Slice your ciabatta[s] in half and place in the toaster for 1-2 min or until war
 
 Tip: For a little extra indulgence, butter the hot ciabatta once it's out of the toaster
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2034Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Drain your sweetcorn
 
 Trim, then slice your spring onion[s] roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2034Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the pan is hot, add the sliced spring onion, bay leaf[ves] and drained swe
 
 Cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2034Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Add your smoked basa fillet[s], and cook, covered, for 5 min or until the fish 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2034Step-6-x200.jpg)
 
 ### Step 6
 
 Once the basa is cooked, break it into bite-sized pieces with a wooden spoon – this is your smoked basa & corn chowder
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727882196460-x200.jpg)
 
 ### Step 7
 

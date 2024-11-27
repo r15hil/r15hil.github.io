@@ -23,7 +23,6 @@ A classic with a hearty twist. You'll roast sausages in the oven before serving 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-10-1691497243621-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Top, tail, peel and chop your carrot[s] roughly
 
 Top, tail, peel and chop your parsnip[s] into quarters lengthways, then into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-11-1691497248326-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-11-1691497251532-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add your sausages to a baking tray (use tin foil to avoid mess!)
 
 Put the tray in the oven for 20-25 min or until the sausages are cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-10-1691497255155-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once melted, add the sliced apple with 1 1/2 tsp <span class="text-purple">[2 1/
 
 Tip: Watch these like a hawk to make sure they don't burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-9-1691497259971-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once caramelised, add 1 tbsp <span class="text-purple">[1 1/2tbsp] </span><span 
 
 Gradually stir in your onion stock and cook for 5 min or until a smooth, thick sauce remains – this is your toffee apple gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-9-1691497263245-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Trim, then add your green beans to a pot, cover them with boiled water (just eno
 
 Bring to the boil over a high heat and cook for 3-4 min or until tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-13-1691497266294-x200.jpg)
 
 ### Step 7
 

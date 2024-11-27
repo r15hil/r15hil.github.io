@@ -21,7 +21,6 @@ This salad is anything but boring. You'll combine crispy chicken and peppery bab
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1618246708104-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop the potatoes (skins on) into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1618246743454-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Give everything a good mix up and put the tray in the oven for an initial 15 min
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1618246757838-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Pat the chicken thighs dry with kitchen paper and season them generously on both
 
 Once hot, add the seasoned chicken, skin-side down, and cook for 10 min or until the skins have browned and crisped
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1618246784533-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add the blanched peas to a colander and pour boiled water all over them to refre
 
 Mix the chopped mint leaves (save a little for garnish!) through the refreshed peas then set aside for later – these are your minty peas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1618246796710-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Combine the Dijon mustard and cider vinegar with 1 tbsp <span class="text-danger
 
 Wash the lamb's lettuce, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1618246806285-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the potatoes have had an initial 15 min, remove them from the oven and tran
 
 Return the tray<span class="text-danger">[s]</span> to the oven for 10-12 min further or until the chicken is crisp and cooked through (no pink meat!) and the potatoes are roasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1618246821385-x200.jpg)
 
 ### Step 7
 

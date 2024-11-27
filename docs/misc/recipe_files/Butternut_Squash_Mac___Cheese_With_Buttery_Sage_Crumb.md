@@ -25,7 +25,6 @@ Butternut squash is the key to this creamy mac and cheese. Toss pasta and veg in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1725448572619-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Boil a full kettle
 
 Grate your cheddar cheese
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1725448580869-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ After an initial 3-4 min, add your butternut squash cubes to the pot and cook fo
 
 Once tender, drain the macaroni and butternut squash, reserving a cup<span class="text-danger"> </span>of starchy pasta water and reserve the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1725448584431-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, add your panko breadcrumbs to a bowl with 1 tbsp <span class="text-pu
 
 <span class="text-danger">Tip: Cooking for kids? Leave out the sage and keep the crumb plain!</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1725448590624-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Heat a large wide-based pan (preferably non-stick) over a medium-high heat
 
 Add the breadcrumbs to the pan and cook for 3-4 min or until toasted and golden – this is your sage crumb
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1725448601045-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add your Tenderstem broccoli to a baking tray (or two!) with a drizzle of vegeta
 
 Put the tray[s] in the oven for 10-12 min or until tender, golden and crisp – this is your smoky Tenderstem
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1725448607136-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[17
 
 Cook over a medium heat for 3-4 min, stirring frequently, or until the cheese has melted and the sauce has thickened – this is your cheesy sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1725448614669-x200.jpg)
 
 ### Step 7
 
@@ -89,7 +82,6 @@ Add the drained macaroni and butternut squash to the pot with your cheesy sauce 
 
 Tip: Add a splash of starchy pasta water if your sauce is looking a little dry!
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/08-07-24_12h19m58s-APIC-1720451450445-x200.jpg)
 
 ### Step 8
 

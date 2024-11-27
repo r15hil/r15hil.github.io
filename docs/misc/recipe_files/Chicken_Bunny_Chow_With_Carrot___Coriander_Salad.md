@@ -30,7 +30,6 @@ Need a new twist on curry? Head to Durban, South Africa, with our take on their 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1652182300721-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the chopped potato to a heatproof bowl, then cover the bowl with cling film 
 
 Put the bowl in the microwave for 6-8 min or until the potato is fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1652182307312-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh, cook for 3-4 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1652182310318-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once browned, add the diced onion and cook for a further 2-3 min or until soften
 
 Once softened, add your ginger & garlic paste, ground cumin, chilli flakes (can't handle the heat? Go easy!) and 1 tbsp <span class="text-purple">[1 1/2 tbsp] <span class="text-danger">[2 tbsp]</span> </span>flour, then cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1652182312905-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once fragrant, add your chopped tomatoes, chicken stock mix, garam masala and st
 
 Cook for 6-8 min or until everything is cooked through (no pink meat!) and the sauce has thickened to a curry-like consistency – this is your chicken curry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1652182321403-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Chop your tomato[es] finely
 
 Chop your coriander finely, including the stalks (reserve some leaves for garnish!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652182319128-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Combine the grated carrot, chopped tomato and shredded lettuce in a large bowl w
 
 Season with a pinch of salt and a drizzle of olive oil and give everything a good mix up – this is your carrot & coriander salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652182324636-x200.jpg)
 
 ### Step 7
 

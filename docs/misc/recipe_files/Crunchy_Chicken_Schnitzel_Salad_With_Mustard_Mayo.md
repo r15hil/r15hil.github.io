@@ -24,7 +24,6 @@ This springtime salad is the perfect pick-me-up. You’ll toss together crispy p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678917398465-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678917401357-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add your chicken breast portion[s] to a clean chopping board and cover with clin
 
 Bash the chicken breast portion[s] with a rolling pin until evenly flattened – this is your chicken escalope
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678917404141-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Spread most of your Dijon mustard (save the rest for later!) over both sides of 
 
 Press the chicken escalope into the breadcrumbs firmly to evenly coat all over – this is your breaded chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678917407848-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once hot, add the breaded chicken and cook for 5-6 min on each side or until gol
 
 Tip: Cooking for 5? You may need to do this in batches!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678917411836-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Cut your cucumber in half lengthways, then slice finely
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678917415376-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Combine the remaining Dijon mustard, your mayo, cider vinegar and a pinch of sal
 
 Give everything a good mix up – this is your mustard mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678917423023-x200.jpg)
 
 ### Step 7
 

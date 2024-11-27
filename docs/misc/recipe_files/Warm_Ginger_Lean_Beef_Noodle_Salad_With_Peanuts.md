@@ -28,7 +28,6 @@ Our lean beef noodle salad is all about texture & flavour. Fine egg noodles are 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1729507961521-x200.jpg)
 
 ### Step 1
 
@@ -40,13 +39,11 @@ Once hot, add your roasted peanuts and cook for 2-3 min or until toasted and lig
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-copy-1729507993109-x200.jpg)
 
 ### Step 2
 
 Add your rice vinegar and red chilli relish to a small bowl with half your soy sauce (you'll use the rest later!), 1 tsp<span class="text-purple"> [1 1/2 tsp]<span class="text-danger"> </span>[2 tsp]</span> sugar and 1 tbsp <span class="text-purple"><span class="text-danger">[1 1/2 tbsp]</span> [2 tbsp] </span>olive oil – this is your chilli dressing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1710847269271-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1710847272462-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once hot, add your lean beef mince and cook for 2-3 min or until starting to bro
 
 Once starting to brown, add the chopped ginger, chopped garlic and remaining soy sauce and cook for 5-6 min or until the beef is cooked through (no pink meat!) and starting to crisp – this is your ginger lean beef
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-3-1710847275788-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles, return them to the bowl and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1710847279115-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1710847282657-x200.jpg)
 
 ### Step 7
 

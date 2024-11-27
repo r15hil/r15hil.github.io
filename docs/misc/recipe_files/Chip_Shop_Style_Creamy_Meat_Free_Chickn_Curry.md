@@ -26,7 +26,6 @@ Give your local chippy a run for its money with this meat-free version of a clas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666000773739-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a large baking tray (cooking for 4? Use 2 trays!) with a drizzl
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666000778238-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the diced onion to a small heat-proof bowl and cover with boiled water to so
 
 Once softened, drain and return to the bowl with your rice vinegar, a pinch of sugar, a pinch of salt and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> boiled water and set aside – this is your quick-pickled onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666000783549-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Reserve a few coriander leaves for garnish
 
 Chop the remaining coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666000787376-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666000792313-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Remove the pot from the heat and gradually whisk in your creamy single soy, a li
 
 Return the pot to a low heat and cook for 4-5 min or until a smooth, creamy sauce remains – this is your creamy curry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666000796165-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop your meat-free chick'n into bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666000801291-x200.jpg)
 
 ### Step 7
 

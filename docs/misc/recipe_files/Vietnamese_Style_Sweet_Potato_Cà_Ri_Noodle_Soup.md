@@ -28,7 +28,6 @@ One slurp of cà ri and your kitchen will feel like the streets of Vietnam, brim
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1628776581407-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and chop the sweet potato<span class="text-danger">[es]</span> into bite-si
 
 Peel and finely slice (don't chop!) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1628776587101-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the cumin seeds, ground turmeric, cayenne pepper (can't handle the
 
 Tip: Watch the spices like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1628776590369-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Return the pan to a medium heat with a generous drizzle of vegetable oil and a l
 
 Once hot add the chopped sweet potato and cook for 7-8 min or until browned all over and beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1628776594919-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ While the sweet potato is softening, bash the lemongrass with a rolling pin
 
 Remove the tough outer layer<span class="text-danger">[s]</span> and set them aside, then chop the soft inner core<span class="text-danger">[s]</span> roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1628776598873-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Dissolve the chopped creamed coconut in 900ml <span class="text-danger">[1.8L
 
 Add the vegetable stock mix and 1 tsp <span class="text-danger">[2 tsp]</span> sugar – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1628776603883-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the sweet potato has browned and softened slightly, add the sliced garlic, 
 
 Add the Tenderstem broccoli, coconut stock and lemongrass outer layer<span class="text-danger">[s]</span> and cook for an initial 3-4 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1628776607831-x200.jpg)
 
 ### Step 7
 

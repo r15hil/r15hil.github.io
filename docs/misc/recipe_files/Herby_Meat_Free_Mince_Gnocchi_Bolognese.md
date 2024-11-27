@@ -25,7 +25,6 @@ Tuck into this meat-free bolognese in no time! You'll whip up a ragù with Meatl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619514665481-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600698506019-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free mince (remove the paper if required!) to the pan and cook for 4 min or until starting to brown, breaking it up with a wooden spoon as you go, then cook for a further 3 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600698430959-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600698511728-x200.jpg)
 
 ### Step 4
 
 Once the meat-free mince has started to brown, add your Marmite to the pan with your dried oregano, dried basil, chilli flakes (can't handle the heat? Go easy!) and roasted garlic paste and cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600698517245-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Once fragrant, add your chopped tomatoes with 125ml <span class="text-purple">[
 
 Cook for 2-3 min or until the meat-free mince has cooked through and the sauce has thickened to a ragù-like consistency
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1600698528961-x200.jpg)
 
 ### Step 6
 
 Once the sauce has thickened, stir through the drained gnocchi – this is your herby meat-free mince gnocchi bolognese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600698534722-x200.jpg)
 
 ### Step 7
 

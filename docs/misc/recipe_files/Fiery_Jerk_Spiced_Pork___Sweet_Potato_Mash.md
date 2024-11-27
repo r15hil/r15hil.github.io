@@ -21,7 +21,6 @@ Give healthy eating a kick with sticky jerk-spiced pork. You’ll coat juicy por
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1719319944072-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the chopped sweet potato to a pot of boiled water over a high heat and bring
 
 Cook for 10-12 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1719319950753-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add your pork loin steak[s] to a bowl with half your jerk paste, half your white
 
 Add a pinch of salt and pepper and give everything a good mix up – this is your jerk-spiced pork
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1719319958272-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the jerk-spiced pork and cook for 5-6 min on each side or until slightly charred and cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1719319962576-x200.jpg)
 
 ### Step 4
 
@@ -59,13 +55,11 @@ Combine your carrot & cabbage slaw mix with your mayo and the remaining white wi
 
 Add a pinch of salt and pepper and give everything a good mix up – this is your slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1719319969421-x200.jpg)
 
 ### Step 5
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml] </span>boiled water with the remaining jerk paste, a pinch of sugar and a generous pinch of salt and pepper – this is your jerk-spiced stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1719319982458-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Add a small knob of butter and a pinch of salt to the potatoes and mash them unt
 
 Cover with a lid to keep warm until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723624486768-x200.jpg)
 
 ### Step 7
 

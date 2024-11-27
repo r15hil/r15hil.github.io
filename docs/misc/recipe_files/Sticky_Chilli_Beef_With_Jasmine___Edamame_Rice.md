@@ -23,7 +23,6 @@ This speedy stir-fry is low in calories, packed with pre-chopped veg and tastier
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624269236895-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cook for 1-2 min without stirring to get colour on one side of the beef
 
 After 1-2 min, turn the beef and cook for 1-2 min further or until browned all over
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624269240864-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Tip: Don't worry if it's not fully cooked yet, it'll go back in the sauce later!
 
 Return the pan to a medium-high heat and once hot, add the ginger & garlic paste to the pan with the chopped pepper & onion and cook for 4-5 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624269245918-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ While the veg is softening, combine the chilli flakes (can't handle the heat? Go
 
 Meanwhile, add the edamame & jasmine rice to a large, heatproof bowl and put the bowl in the microwave for 2-3 min or until piping hot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624269250651-x200.jpg)
 
 ### Step 4
 

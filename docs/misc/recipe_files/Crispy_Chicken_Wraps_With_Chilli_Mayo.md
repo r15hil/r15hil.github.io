@@ -26,7 +26,6 @@ These wraps are crispy, cheesy and so easy. You'll bake spiced chicken strips wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585753129022-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Add a handful of flour to a plate along with your ground smoked paprika and a generous pinch of salt and pepper and mix it all together – this is your spiced flour
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585753132631-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Grate your cheddar cheese
 
 Add your panko breadcrumbs to another plate with the grated cheese, lots of pepper and a generous drizzle of olive oil and mix it all together – these are your cheesy breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585753137749-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Coat the chicken breast strips in the spiced flour (make sure to tap off any exc
 
 Add the coated chicken strips to the milk and finally press them into the cheesy breadcrumbs firmly to coat evenly – these are your breaded chicken strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585753213896-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add the breaded chicken strips to the tray and top them with any remaining chees
 
 Put the tray in the oven for 18-20 min or until golden and cooked through (no pink meat!) – these are your crispy chicken strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633102262026-x200.jpg)
 
 ### Step 5
 
@@ -72,13 +67,11 @@ While the chicken strips are cooking, slice your tomato[es] finely
 
 Wash your lettuce, then pat dry with kitchen paper and shred
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1585753222219-x200.jpg)
 
 ### Step 6
 
 Add your red chilli relish to a bowl with your mayo and a drizzle of olive oil and give it a good mix up – this is your chilli mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1585753227639-x200.jpg)
 
 ### Step 7
 

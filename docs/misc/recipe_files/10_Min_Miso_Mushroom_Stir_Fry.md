@@ -26,7 +26,6 @@ Get this delicious plant-based dish on the table in minutes. Pan-fried portobell
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Wash your fruit and veg
 
 Note: <span class="text-highlight">Equipment</span> and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1641.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Heat a very large, wide-based pan (preferably non-stick) with a matching lid, wi
 
 Meanwhile, slice the portobello mushrooms
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1641.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once hot, add the portobello mushrooms to the pan with the baby chestnut mushroo
 
 Crumble over the chestnut mushrooms and cook for 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1641.-step-4.2-x200.jpg)
 
 ### Step 4
 
@@ -74,19 +70,16 @@ Add the miso paste, ginger paste, soy sauce, toasted sesame oil, chilli jam
 
 Cook, covered, for a further 2 min or until the mushrooms have softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-new-x200.jpg)
 
 ### Step 5
 
 <span class="text-highlight">Meanwhile, squeeze the pouch<span class="text-danger">[es]</span> of steamed white basmati rice to separate the grains</span><br /><br /><span class="text-highlight">Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a little!) and microwave for 2 min or until piping hot</span><br /><br /><span class="text-highlight">Tip: if you're cooking two pouches, pop them in together but increase the microwave cook time accordingly</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1641.-step-6.2-x200.jpg)
 
 ### Step 6
 
 Add the baby kale to the pan and cook, covered, for 1-2 min further or until wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1641.-step-7-x200.jpg)
 
 ### Step 7
 

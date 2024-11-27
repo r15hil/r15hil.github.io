@@ -29,7 +29,6 @@ Cook up a succulent bowlful of soy-glazed aubergine to serve with sticky sushi r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626717678340-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Rinse your sushi rice in a sieve under cold water for 30 secs (use your han
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> cold water to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626717718799-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time for fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634034359228-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Slice your red chilli[es] finely
 
 Chop off and discard the roots from your pak choi, separate the leaves and give them a wash, then pat dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634034363702-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Transfer the scored aubergine to a tin foil-lined baking tray (or two!) then dri
 
 Put the tray[s] in the oven for 25-30 min or until the aubergine is tender – this is your soy-glazed aubergine
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634034368484-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Combine the chopped garlic (not a fan of raw garlic? Just add a little!), tahini
 
 Season with salt and pepper – this is your Japanese-style dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634034372959-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Slice your sugar snap peas in half lengthways
 
 Add the grated carrot, apple matchsticks and halved sugar snap peas to the Japanese-style dressing and give everything a good mix up – this is your Japanese-style slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634034377915-x200.jpg)
 
 ### Step 7
 

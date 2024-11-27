@@ -27,7 +27,6 @@ This sweet and sour meal is lip-smackingly delicious. Marinate aubergine in a ta
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634037349036-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Transfer the aubergine wedges to a baking tray (or two) and toss in the toasted 
 
 Put the tray<span class="text-danger">[s]</span> in the oven for an initial 20 min or until the aubergine is tender and lightly golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634037363585-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634037398950-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ While the rice is cooking, combine the tamarind paste with the agave, ginger & g
 
 Give everything a good mix up – this is your sticky tamarind marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634037408012-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Tip: If you don’t have a rolling pin, just chop them roughly!
 
 Combine the crushed peanuts, toasted sesame seeds and coconut flakes in a small bowl – this is your nut & seed mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634037426654-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Sprinkle over the nut & seed mix and return the tray<span class="text-danger">[s
 
 Tip: Watch the nuts like a hawk to make sure they don't burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634037458767-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Trim the green beans
 
 Once hot, add the trimmed green beans and cook for 1-2 min or until starting to brown
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634037497277-x200.jpg)
 
 ### Step 7
 

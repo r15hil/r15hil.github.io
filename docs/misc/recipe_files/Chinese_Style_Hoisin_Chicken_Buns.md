@@ -27,7 +27,6 @@ Inspired by the beloved dim sum staple, these buttery, flaky puffs are filled wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652708681444-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652708688627-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped shallot, diced chicken breast and half the chopped ginger (you'll use the rest later!) and cook for an initial 6-7 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652708696067-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Unwrap the puff pastry and roll it out into a rectangle approx. 15cm wide and 30
 
 Cut the pastry rectangle into 6 <span class="text-danger">[12]</span> squares
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652708704782-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the chicken is cooked, add the hoisin sauce, chilli flakes (can’t handle 
 
 Remove the pan from the heat and pull any larger pieces of chicken apart using two forks – this is your Chinese-style hoisin filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652708715604-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Tip: Cooking for 2? Save the rest of the five-spice mix for another recipe
 
 Put the tray in the oven for 25-30 min or until the chips are golden and crispy – these are your five-spice chips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652708724740-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Brush the edge of each pastry square with a little bit of cold water, then bring
 
 Add the Chinese-style hoisin buns to a non-stick baking paper-lined baking tray and put them in the oven for 15 min or until golden and crisp
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1652708732935-x200.jpg)
 
 ### Step 7
 

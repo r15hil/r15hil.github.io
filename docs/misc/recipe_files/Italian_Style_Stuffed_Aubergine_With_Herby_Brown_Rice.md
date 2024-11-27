@@ -28,7 +28,6 @@ Italians know how to do veg right. See for yourself with roasted aubergine halve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696241149745-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your aubergine[s] in half lengthways (including the stalk[s]), then score th
 
 Add the scored aubergine halves to a baking tray (or two!), cut-side down, and put the tray[s] in the oven for 25-30 min or until the flesh is tender and golden brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696241152972-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696241156445-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and sugar and cook for 6-7 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696241159773-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tip: If you don’t have a rolling pin, just chop them roughly!
 
 Chop your parsley finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696241163686-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once softened, add your balsamic sun-dried tomato paste to the pan with half you
 
 Cook for 1 min or until fragrant, then crumble half your goats’ cheese (you’ll use the rest later!) into the pan, stir it all together and keep covered – this is your stuffing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696241166933-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Divide the aubergine stuffing between the aubergine skin[s] and top with the rem
 
 Return the tray[s] to the oven and cook for 4-5 min or until the cheese has melted – this is your Italian-style stuffed aubergine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696241170531-x200.jpg)
 
 ### Step 7
 

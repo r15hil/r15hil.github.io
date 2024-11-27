@@ -29,7 +29,6 @@ Cook your way to Greece with this fully loaded feast. You'll load warm pizza bas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688115315165-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chips to one side of a baking paper-lined baking tray (or two!) with a d
 
 Give everything a good mix up
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688115318424-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add your chicken thighs to a bowl with half the grated garlic (you'll use the re
 
 Add the marinated chicken to the other side of the baking tray[s] and put the tray[s] in the oven for 20-25 min or until the chicken is cooked through (no pink meat!) and the chips are golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688115321269-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Cut 2 slices per person from the tomato[es]
 
 Chop the remaining tomato finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688115324863-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Cut your cucumber in half lengthways, then slice half the cucumber finely, and g
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems, then combine the grated cucumber with your natural yoghurt, remaining grated garlic (not a big garlic fan? Try using less!), chopped mint and a generous grind of black pepper – this is your tzatziki
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688115328081-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated halloumi and cook for 2-3 min on each side or until golden and crispy – these are your halloumi fries
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688115331034-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add your pizza base[s] to a baking tray and put the tray in the oven for 3-5 min
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688115334356-x200.jpg)
 
 ### Step 7
 

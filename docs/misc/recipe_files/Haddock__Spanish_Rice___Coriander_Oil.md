@@ -23,7 +23,6 @@ This succulent haddock is served over cherry tomato, red onion and cumin spiced 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/628.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Slice the cherry tomatoes in half
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/628.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/628.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once hot, add the onion and celery and cook for 3-4 min or until beginning to br
 
 Meanwhile, chop the thyme leaves and stalks finely, throwing away any woody parts
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/628.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Transfer the contents of the pan to a bowl and set aside&nbsp;
 
 Wipe out the pan carefully with kitchen paper and return it to a high heat with 1 tsp <span class="text-danger">[2 tsp]</span> vegetable oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/628.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Once your pan is very hot, add the haddock&nbsp;and cook on one side for 2 min
 
 Turn the haddock then cook for a further 2-3 min, then remove from the heat (your fish is cooked when it turns opaque and flakes easily)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/628.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Once cooled, chop the coriander finely then grind with a pinch of salt and peppe
 
 Add&nbsp;3 tbsp<span class="text-danger"> [6 tbsp]</span> olive oil and mix well - this is your coriander oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/628.-step-7-x200.jpg)
 
 ### Step 7
 

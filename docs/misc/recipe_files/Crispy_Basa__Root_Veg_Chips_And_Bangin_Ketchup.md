@@ -26,7 +26,6 @@ Do away with deep frying, and get a load of our crispy, cheesy fish instead. Add
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1900Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your carrot[s] (skins on) lengthways into quarters
 
 Cut your potato[es]<span class="text-danger"> </span>and sweet potato[es] (skin on) into chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1900Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,19 +44,16 @@ Tip: Cooking for 3 or more? Use a 2 trays!
 
 Put the tray in the oven for an initial 10-15 min or until everything is starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1900Step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, grate your cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1900Step-4-x200.jpg)
 
 ### Step 4
 
 Add your panko breadcrumbs to a bowl with the grated cheese, 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> olive oil and a generous pinch of salt – these are your cheesy breadcrumbs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1900Step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ While the root vegetables are cooking, add your tomato paste, honey, Henderson'
 
 Season with a pinch of salt and pepper – this is your bangin' ketchup
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1900Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Return the tray[s] to the oven for a further 12-15 min or until the fish is co
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1900Step-7-x200.jpg)
 
 ### Step 7
 

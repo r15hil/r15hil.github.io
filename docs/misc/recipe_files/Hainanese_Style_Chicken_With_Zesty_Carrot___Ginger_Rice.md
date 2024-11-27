@@ -31,7 +31,6 @@ This Southeast Asian dish takes poached chicken to another level, with punchy li
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637066574658-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Top, tail, peel and grate your carrot[s]
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) half your ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637066578974-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Give everything a good mix up, cover tightly with tin foil and put the dish in t
 
 Once cooked, remove from the oven and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637066582126-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ While the rice is cooking, trim, then roughly chop 1/3 of your<span class="text-
 
 Roughly chop the remaining ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637066584838-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add 500ml <span class="text-purple">[750ml]</span> <span class="text-danger">[1L
 
 Once boiling, reduce the heat to low and simmer for 10-15 min (turning the chicken half way) or until the chicken is cooked through (no pink meat!), then drain – this is your Hainanese-style chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637066588240-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Slice your cucumber into discs
 
 Chop your tomato[es]<span class="text-danger"> </span>in half, then slice finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637066590562-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Chop your coriander finely, including the stalks
 
 Cut the lime[s] in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637066593485-x200.jpg)
 
 ### Step 7
 

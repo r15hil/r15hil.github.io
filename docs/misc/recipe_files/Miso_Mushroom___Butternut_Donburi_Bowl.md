@@ -26,7 +26,6 @@ Dive into a colourful bowl of goodness! This delicious plant-based donburi bowl 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1428.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Tear the chestnut mushrooms&nbsp;into&nbsp;large bite-sized pieces&nbsp;(this sa
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1428.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Drizzle with vegetable oil and season with a pinch of salt
 
 Put the tray in the oven for 25 min, or until the vegetables are golden and softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1428.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Meanwhile, rinse the brown rice, add it to a pot with plenty of cold water and b
 
 Once boiling, reduce the heat to medium and cook for an initial 15 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1428.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Slice the&nbsp;radishes&nbsp;as finely as you can
 
 Combine 100ml <span class="text-danger">[200ml]</span> boiled water with&nbsp;the&nbsp;red wine vinegar,&nbsp;ginger matchsticks and sliced radishes and set aside until serving &ndash; these are your pickled radishes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1428.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,13 +84,11 @@ Once cooked, drain and return to the pot
 
 Mix the<span class="text-highlight"> baby&nbsp;kale thr</span>ough the brown rice and keep covered until serving&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1428.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1428.-step-7-x200.jpg)
 
 ### Step 7
 

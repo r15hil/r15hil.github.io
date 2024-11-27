@@ -23,7 +23,6 @@ This method for creating an ‘open’ lasagne celebrates all the joy of rich be
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/280__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the&nbsp;lasagne verdi sheets,&nbsp;one at a time,&nbsp;with a drizzle of ol
 
 Cook for 12 min or until they have softened&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/280.step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Meanwhile, peel and finely chop (or grate) the garlic&nbsp;
 
 Peel and chop the carrot<span class="text-danger">[s]</span> finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/280.step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the beef mince, break it up with a wooden spoon and cook for a further 30 se
 
 Add the chopped&nbsp;garlic and cook for a further 3 min, or until the meat is no longer pink
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/280.step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Reduce the heat to medium and cook for a further 4 min&nbsp;
 
 Meanwhile, chop the chestnut&nbsp;mushrooms into quarters
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/280.step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Cook for a further 5 min or until the mushrooms are tender and the sauce has thi
 
 Season with salt and pepper &ndash;&nbsp;this is your ragu
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/280.step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Chop (or tear)&nbsp;the basil finely, including the stalks
 
 Grate the&nbsp;cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/280__-step-7-x200.jpg)
 
 ### Step 7
 

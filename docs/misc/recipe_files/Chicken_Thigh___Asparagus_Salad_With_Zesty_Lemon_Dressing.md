@@ -21,7 +21,6 @@ This speedy salad sings with the flavours of summer. Pan-fry juicy chicken thigh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1-1654011106288-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654011117155-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced chicken thigh with a very generous pinch of salt and pepper and cook for an initial 3-4 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654011123137-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the halved potatoes to a heatproof bowl, cover the bowl with cling film an
 
 Put the bowl in the microwave for 4-8 min or until the potatoes are fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654011128253-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Tip: Alternatively, bend the woody ends of the asparagus until they snap!
 
 Chop your tomato[es] into wedges
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654011133622-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ After the chicken has had an initial 3-4 min, add the trimmed asparagus to the p
 
 Cook for 4-5 min further or until the chicken is cooked through (no pink meat!) and the asparagus is tender – this is your pan-fried chicken & asparagus
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654011143167-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Combine your mayo and your wholegrain mustard in a large bowl with the juice of 
 
 Cut the remaining lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654011146422-x200.jpg)
 
 ### Step 7
 

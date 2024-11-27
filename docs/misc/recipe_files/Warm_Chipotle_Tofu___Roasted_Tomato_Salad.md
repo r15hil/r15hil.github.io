@@ -27,7 +27,6 @@ Pack in the plants with this sensational salad. You’ll build your bowl with sm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681286205201-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a baking tray with your ground smoked paprika, a dri
 
 Put the tray in the oven for an initial 15 min or until starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681286212372-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once golden, transfer them to a plate and reserve the pan
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681286222749-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Tear the tofu into large bite-sized pieces
 
 Add the torn tofu to a bowl with your soy sauce, half your chipotle paste (can't handle the heat? Go easy!) and your cornflour and give everything a good mix up until all the tofu is coated – this is your coated tofu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681286231310-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once the potatoes have had an initial 15 min, remove the tray from the oven and 
 
 Return the tray to the oven for a final 12-15 min or until the potatoes are cooked through and the sweetcorn is charred – this is your roasted veg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681286238923-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Return the reserved pan to a high heat with a generous drizzle of vegetable oil
 
 Once hot, add the coated tofu to the pan and cook for 6-7 min or until golden and crispy – this is your crispy tofu
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681286245878-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger"
 
 Wash your baby leaf salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681286252403-x200.jpg)
 
 ### Step 7
 

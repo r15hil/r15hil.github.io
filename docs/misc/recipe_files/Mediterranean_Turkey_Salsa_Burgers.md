@@ -24,7 +24,6 @@ These turkey burgers are pummeled with olives, dried dill and red onion and serv
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/131-step.-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut the potatoes (skins on) into bite-size pieces
 
 Add them to a baking tray, drizzle with 1-2 tbsp olive oil and season generously with salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/131-step.-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Quarter the cherry tomatoes
 
 Chop the basil finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/131-step.-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Chop the olives roughly
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/131-step.-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Season&nbsp;with salt and plenty of pepper
 
 Check on your potatoes before continuing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/131-step.-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Combine the remaining red onion, olives, garlic, turkey mince and dried dill in 
 
 Divide and shape into&nbsp;2 <span class="text-danger">[4]</span> burgers (approx. 2cm thick)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/131-step.-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Once hot, add the burgers and cook for 3 min on each side or until browned
 
 Tip:&nbsp;Try not to fiddle with the burgers too soon, you want to seal them for flipping- this helps them stay together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/131-step.-7-x200.jpg)
 
 ### Step 7
 

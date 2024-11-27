@@ -30,7 +30,6 @@ Give this classic Japanese curry the ultimate fakeover. You’ll dip sliced aube
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681817090551-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span c
 
 Remove the pot from the heat and keep covered for a further 10 min before serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681817095561-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Combine your cornflour and vegetable stock mix in a bowl with 3 tbsp <span class
 
 Add your panko breadcrumbs to a plate with a generous pinch of salt and a generous drizzle of vegetable oil and mix it all together
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681817099638-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the coated aubergine rounds to a baking paper-lined tray (or two!) and drizz
 
 Put the tray[s] in the oven for 30-35 min or until crisp, golden and cooked through – this is your yasai katsu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681817103782-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Finely chop (or grate) the remaining ginger
 
 Add the peeled ginger to a small bowl, cover with boiled water and set aside for later – this is your soaked ginger
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681817108869-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Heat a separate pot with a generous drizzle of vegetable oil over a medium heat
 
 Once hot, add the chopped onion, chopped garlic, chopped ginger and a generous pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681817114624-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once fragrant, add 300ml <span class="text-purple">[390ml]</span><span class="te
 
 Cook for 5-6 min or until the sauce has thickened to a curry-like consistency, then blitz until smooth with a (stick) blender – this is your curry sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681817119572-x200.jpg)
 
 ### Step 7
 

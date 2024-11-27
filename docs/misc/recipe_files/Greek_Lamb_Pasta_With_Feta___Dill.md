@@ -25,7 +25,6 @@ For a Greek twist on bolognese, we've combined rich lamb with olives and oregano
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/418.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely chop (or grate) the garlic
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/418.step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once hot, add the diced onion with a pinch of salt and cook for 3-5 min or unti
 
 Meanwhile, chop the black olives and tomato<span class="text-danger">[es]</span> coarsely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/418.step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, add the conchiglie pasta to a large pot of boiled water with a pinch 
 
 Cook over a high heat for 8-12 min or until cooked but with a slight bite
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/418.step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add the lamb mince, tomato paste, dried oregano and chopped garlic to the onion
 
 Cook for 2-4 min or until the mince has started to brown, breaking it up as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/418.step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ While the pasta is cooking, add the chopped tomato, chopped black olives, tomato
 
 Reduce the heat to low and cook for 5 min or until everything is bubbling and starting to caramelise (and go a little bit crispy)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/418.step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Break up the feta cheese
 
 Chop the dill finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/418.step-7-x200.jpg)
 
 ### Step 7
 

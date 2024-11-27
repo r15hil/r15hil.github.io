@@ -29,7 +29,6 @@ A vibrant fish curry inspired by sunny Caribbean flavours – creamy coconut, sw
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1718Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-8 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1718.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix and the chopped creamed coconut in 350ml <span class="text-purple">[525ml] </span><span class="text-danger">[700ml]</span> boiled water – this is your coconut stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1718.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1718.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the chopped sweet potato and mix well until coated in the spices
 
 Add the coconut stock and cook, covered, for 15-20 min or until the sweet potato has softened and the stock has thickened to a curry-like consistency
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1718.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1718.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once boiling, reduce heat to medium and cook, covered, for a further 5 min or un
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1718.-step-7-x200.jpg)
 
 ### Step 7
 

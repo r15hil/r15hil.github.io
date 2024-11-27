@@ -25,7 +25,6 @@ For tasty slow-release energy, you'll spice lean free range chicken breast with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597159462710-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Top, tail then slice your courgette[s] into rounds
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597159471438-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the pepper strips and courgette rounds to a baking tray (or two!) with 1/2 t
 
 Put the tray[s] in the oven for 15-20 min or until everything is cooked through and tender – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597159482021-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once cooked, drain and return to the pot
 
 Meanwhile, heat a large, dry, wide based pan (preferably non-stick with a matching lid) over a medium-high heat
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597159495708-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once toasted, transfer to a plate and reserve the pan
 
 Add your free range chicken breast portion[s] to a separate plate with your ras el hanout and rub until fully coated – this is your spiced chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597159506059-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add a couple of splashes of cold water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597159517465-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add most of the chopped parsley and mint (save the rest for garnish!) to the coo
 
 Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597159525336-x200.jpg)
 
 ### Step 7
 

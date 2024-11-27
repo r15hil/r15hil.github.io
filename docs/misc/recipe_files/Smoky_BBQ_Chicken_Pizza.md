@@ -23,7 +23,6 @@ To make your own BBQ pizza, you'll spread sticky homemade BBQ sauce over a flame
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1604937402896-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Put a large baking tray (or two!) in the oven to heat up (this will stop the piz
 
 Slice your chicken breast strips into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604937411437-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604937419486-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your chicken breast strips and chopped pepper with a pinch of salt and cook for 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604937433282-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Meanwhile, add your tomato paste to a jug with your smoked paprika, chipotle pas
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your BBQ sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604937447615-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Drain your mozzarella, then pat it dry with kitchen paper (squeeze as much liqui
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604937467911-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Divide the BBQ sauce between the pizza base[s] and spread it evenly all over wi
 
 Top with the torn mozzarella
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604937485301-x200.jpg)
 
 ### Step 7
 

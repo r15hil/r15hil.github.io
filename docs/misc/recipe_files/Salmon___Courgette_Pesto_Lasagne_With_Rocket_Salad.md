@@ -22,7 +22,6 @@ When in Rome, eat as the Romans do. This modern Italian classic is a festive fav
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678183030008-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a medium-sized pot with a drizzle of olive oil over a medium-high heat, the
 
 Once softened, transfer it to a large bowl and reserve the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678183036336-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Hold the tail end firmly and using a sharp knife, make a cut between the flesh a
 
 Tip: Keep your knife flat against the board to stop you from cutting through the skin!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678183044398-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Chop the skinless salmon fillet into large bite-sized pieces
 
 Add the chopped salmon and half your balsamic vinegar (you'll use the rest later!) to the softened courgette with a pinch of salt and give everything a good mix up – this is your salmon & courgette mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678183058362-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once melted, add 20g <span class="text-purple">[30g]</span> <span class="text-d
 
 Gradually whisk 250ml <span class="text-purple">[375g]</span> <span class="text-danger">[500ml] </span>milk into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678183072290-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add your pesto and vegetable stock mix to the pot with a pinch of salt and whisk
 
 Peel half your Italian hard cheese until you end up with a pile of cheese shavings (save the rest for later!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678183079749-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tip: You may need to layer differently depending on the size of your dish!
 
 Grate the remaining Italian hard cheese on top
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678183090882-x200.jpg)
 
 ### Step 7
 

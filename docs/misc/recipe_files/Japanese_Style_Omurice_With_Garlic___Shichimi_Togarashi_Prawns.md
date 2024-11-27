@@ -27,13 +27,11 @@ This easy omurice is a home cooking favourite across Japan. You’ll pan-fry pra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681807072463-x200.jpg)
 
 ### Step 1
 
 Rinse your sushi rice in a sieve under cold running water for 30 secs (use your hands to really wash the grains!), then set aside to drain fully
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681807080333-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once boiling, reduce the heat to low until very gently bubbling and cook, covere
 
 Once the rice has had 15 min, remove the pot from the heat and keep covered
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681807085626-x200.jpg)
 
 ### Step 3
 
@@ -51,13 +48,11 @@ While the rice is cooking, combine your tomato ketchup and soy sauce in a bowl w
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681807093392-x200.jpg)
 
 ### Step 4
 
 Whisk your egg[s] and a splash of milk in a jug with a pinch of pepper – this is your omelette mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681807099761-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once melted, drain then add your king prawns, sliced garlic and shichimi togarashi (can't handle the heat? Go easy!) and cook for 4-5 min or until cooked through – these are your garlic & shichimi togarashi king prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681807105091-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Add your vegetable stock mix and blanched peas and give everything a good mix up
 
 Cover and set aside – this is your king prawn rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681807110229-x200.jpg)
 
 ### Step 7
 

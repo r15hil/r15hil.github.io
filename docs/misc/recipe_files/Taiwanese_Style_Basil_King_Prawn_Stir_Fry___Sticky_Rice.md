@@ -29,7 +29,6 @@ This mouthwatering meal is inspired by San Bei Ji, a Taiwanese sauce that's equa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1686047852705-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml<span class="text-purple"> [300ml]</span> <span class="text-danger">[400ml]</span> cold water and a small pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1686047864886-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1686047871867-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Wash your pak choi, and pat it dry with kitchen paper, then chop the roots from 
 
 Chop your basil stalks finely, keeping the leaves and chopped stalks separate
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1686047875104-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Drain your king prawns
 
 Once hot, add the king prawns and cook for an initial 1-2 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1686047878898-x200.jpg)
 
 ### Step 5
 
 Add the chopped ginger, chopped garlic and basil stalks to the pan with your chilli flakes (can't handle the heat? Go easy!) and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1686047882125-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add your toasted sesame oil, soy sauce and Chinese rice wine with 1 tbsp <span c
 
 Add the chopped pak choi bases and cook for 1 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1686047885533-x200.jpg)
 
 ### Step 7
 

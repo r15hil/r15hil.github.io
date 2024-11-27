@@ -25,7 +25,6 @@ Ratatouille, traditionally a French stew of sweet mixed vegetables, normally req
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1067.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and 
 
 Cut the chestnut mushrooms into quarters (or crumble them into rough pieces)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1067.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the chopped courgette, aubergine and mushrooms to a baking tray (use tin foi
 
 Put the tray in the oven for 20 min or until the vegetables are golden and tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1067.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-8 min or until beginning to soften and caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1067.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Cook over a high heat for 12-15 min or until tender with a slight bite
 
 Once cooked, drain and return to the pot and leave to cool&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1067.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Grate the Italian hard cheese finely&nbsp;
 
 Chop the basil roughly,&nbsp;including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1067.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Add the chopped tomatoes, dried&nbsp;oregano, balsamic vinegar, 1 tsp<span class
 
 Once cooked, remove the softened vegetables from the oven, add them to the pan and give everything a good old mix up - this is your ratatouille
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1067.-step-7-x200.jpg)
 
 ### Step 7
 

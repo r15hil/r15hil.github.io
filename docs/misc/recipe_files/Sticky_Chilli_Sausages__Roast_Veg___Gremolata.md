@@ -24,7 +24,6 @@ Sticky, sweet sausages sit atop a zesty wheat berry and roast vegetable salad. Y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1118.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Top, tail and chop the courgette<span class="text-danger">[s]</span> into bite-s
 
 Cut the red onion<span class="text-danger">[s] </span>into quarters, keeping the skin on
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1118.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the chopped courgette and onion quarters to the other side and scatter with 
 
 Put the tray in the oven for an initial 20 min or until the sausages and vegetables are starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1118.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Chop the parsley, garlic, lemon zest and capers together as finely as you can an
 
 Add a pinch of salt, 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and the juice of 1/2 <span class="text-danger">[1]</span> lemon and mix well – this is your gremolata dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1118.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Cook over a high heat for 12-15 min or until tender with a slight bite
 
 Once cooked, drain and return to the pot and leave to cool
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1118.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once the sausages and vegetables have started to brown, add the baby plum tomato
 
 Return the tray to the oven for 10 min further until the tomatoes have started to burst and the sausages are cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1118.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once warm, add the chilli jam and the juice of the remaining lemon and cook for 
 
 Once cooked, add the sausages and give everything a good mix up until the sausages are fully coated in the sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1118.-step-7-x200.jpg)
 
 ### Step 7
 

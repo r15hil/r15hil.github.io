@@ -22,7 +22,6 @@ Fast forward to your Sunday roast with this speedy tray bake. You’ll roast jui
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1712846960130-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1712846964783-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Top, tail and chop your radishes in half
 
 Top, tail and chop your leek[s] into rounds, then wash thoroughly to remove any grit
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1712846968636-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Peel and cut your brown onion[s] into wedges
 
 Grate your Italian hard cheese finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1712846972272-x200.jpg)
 
 ### Step 4
 
@@ -56,13 +52,11 @@ Line a baking tray (or two!) with baking paper
 
 Add the chopped potatoes and halved radishes to the baking tray[s] with the chopped leek, onion wedges and a drizzle of olive oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1712846978378-x200.jpg)
 
 ### Step 5
 
 Season with half your dried thyme (you'll use the rest later!) and a generous pinch of salt and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1712846982056-x200.jpg)
 
 ### Step 6
 
@@ -72,7 +66,6 @@ Top the chicken with the grated cheese and a pinch of salt and pepper
 
 Put the tray[s] in the oven for 30-35 min or until the veg is roasted and tender and the chicken is cooked through and golden (no pink meat!) – this is your spring roast chicken tray bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1712846985418-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This portobello mushroom, carrot and lentil ragout (vegetable stew) is 3 of your
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/608.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Peel and slice the onion<span class="text-danger">[s]</span> finely
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/608.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan with a matching lid (preferably non-stick) with 2 t
 
 Once hot, add the carrot, celery and onion and cook, covered, for 4-6 min or until softened slightly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/608.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, add the bulgur to a pot with plenty of boiled water (the same as you 
 
 Re-boil the kettle for your stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/608.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cut the mushrooms into wedges (see photo)
 
 Add the garlic and the tomato paste to the vegetable pan and cook for 1 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/608.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Meanwhile, dissolve the stock cube in 300ml <span class="text-danger">[600ml]</s
 
 Cook for a further 2-3 min or until a sauce forms
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/608.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Meanwhile, chop the basil finely, including the stalks, keeping the leaves and s
 
 Grate the cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/608.-step-7-x200.jpg)
 
 ### Step 7
 

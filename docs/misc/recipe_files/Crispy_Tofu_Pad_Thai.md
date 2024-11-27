@@ -27,7 +27,6 @@ This street food favourite will take your taste buds straight to Bangkok. You’
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723800115999-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated tofu to the pan (reserve the bowl) and cook for 10-12 min or until golden – this is your crispy tofu
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723800125713-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add 2 tsp<span class="text-purple"> [3 tsp]</span> <span class="text-danger">[4 
 
 Give everything a good mix up until well combined – this is your pad Thai sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723800133353-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add the chopped pepper to the pan
 
 Cook for a further 5-6 min or until the pepper is tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1723800138748-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ While the pepper is cooking, add your rice noodles to a pot and cover with boile
 
 Bring to the boil over a high heat and cook for 4-5 min or until cooked with a slight bite, then drain the noodles and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1723800144315-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop the remaining lime into 1 wedge per person
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1723800149617-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Push the pepper to one side of the pan and crack your egg[s] into the other side
 
 Stir the egg[s] with a wooden spoon to break the yolk[s] and cook for 1-2 min until it resembles scrambled egg, then mix it all through the pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1723800156295-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Whip up an easy, colourful stir-fry in no time. You'll sear succulent soy hake, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1712324991891-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1712324995289-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your hake fillet[s] into large, bite-sized pieces
 
 Add the chopped hake and cornflour to a bowl with half your soy sauce (you'll use the rest later!) and give everything a good mix up – this is your coated hake
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1712324998515-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Once golden, transfer the soy hake to a plate and set aside for later, reserving the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1712325001396-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the carrot discs to the pan and cook for an initial 4-5 min or until the carrot is starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1712325004695-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughl
 
 Peel and finely chop (or grate) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1712325009701-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Combine your chilli relish and toasted sesame oil in a bowl with the remaining s
 
 Give everything a good mix up – this is your sesame chilli sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1712325014105-x200.jpg)
 
 ### Step 7
 

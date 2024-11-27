@@ -22,7 +22,6 @@ Boiling halloumi removes some of its saltiness and alters the texture so it beco
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/326-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil a kettle
 
 Add the bulgur to a pot with plenty of salted boiled water over a high heat and cook&nbsp;for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/326-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Season&nbsp;generously with salt and pepper and mix well to combine
 
 This is your dressing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/326-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Slice the halloumi in half, lengthways, so you end up with 2 <span class="text-d
 
 Boil another kettle (used in step 5)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/326-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once hot, add the bashed walnuts and cook on a medium-low heat for 4 min or unti
 
 Transfer the toasted walnuts to a plate and set aside, then wipe the pan clean for step 7
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/326-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Once boiling, carefully add the halloumi slices and boil for 4-5 min
 
 Drain the boiled halloumi and carefully pat the slices dry with a clean tea towel or kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/326-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Using a rolling pin, flatten and roll out the stretchy halloumi until it's appro
 
 These are your halloumi steaks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/326-step-7-x200.jpg)
 
 ### Step 7
 

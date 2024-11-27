@@ -20,7 +20,6 @@ This iron-packed Popeye-inspired green risotto is flavoured with spinach and gar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/421.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Dissolve the stock cube<span class="text-danger">(s)</span> with 800ml<span clas
 
 Re-boil the kettle (for step 2)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/421.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ When hot, add the shallot with a pinch of salt, then cook on a medium low heat f
 
 Meanwhile, pour the boiled water over the spinach in the colander so that it wilts (leaving to cool until step 7)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/421.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add 1/3 of the stock to the rice and stir continuously with a wooden spoon until
 
 Continue to add the stock, a ladle at a time, stirring continuously for 15-20 min, until all the stock is absorbed and the rice is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/421.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once toasted, transfer to a pestle and mortar (or processor) and reserve the pan
 
 Meanwhile, cut the mushrooms into 1/2cm thick slices
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/421.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Cook them on either side for 3 min, or until golden and caramelised
 
 Tip: Do this in batches as overcrowding prevents proper browning
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/421.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Tip: Omit the raw garlic if you're not keen on that strong flavour
 
 Bash in a pestle and mortar (or blitz) until you have a coarse nutty oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/421.-step-7-x200.jpg)
 
 ### Step 7
 

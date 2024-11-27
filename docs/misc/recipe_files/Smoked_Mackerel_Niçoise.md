@@ -23,7 +23,6 @@ Salade niçoise (French pronunciation: ​[ni' swaz]) is traditionally presented
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/556_step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the potatoes&nbsp;(skins on)&nbsp;into large, bite-size pieces&nbsp;
 
 Trim the green beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/556_step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once done, cool the egg<span class="text-danger">[s]</span>&nbsp;by running them
 
 Tip: cooling the eggs completely makes them easier to peel!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/556_step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Cut tomato<span class="text-danger">[es]</span><span class="text-danger">&nbsp;<
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/556_step-4-x200.jpg)
 
 ### Step 4
 
 Combine the garlic, red wine vinegar and Dijon mustard with&nbsp;3 tbsp <span class="text-danger">[6 tbsp]</span>&nbsp;olive oil &nbsp;and a pinch of salt and pepper - this is your dressing&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/556_step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Leave the pot off the heat for 4 min or until the potatoes are cooked&nbsp;and t
 
 Drain&nbsp;and return the potatoes and beans back to the pot, off the heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/556_step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add&nbsp;a drizzle of&nbsp;olive oil and a pinch of salt and pepper to the potat
 
 Peel and quarter the cooled egg<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/556_step-7-x200.jpg)
 
 ### Step 7
 

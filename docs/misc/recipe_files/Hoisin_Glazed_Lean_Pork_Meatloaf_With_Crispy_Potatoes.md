@@ -31,7 +31,6 @@ An Asian-inspired spin on the classic roast. You'll marinate lean pork mince wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684244448831-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then peel and finely dice your 
 
 Peel (scrape the skin off with a teaspoon) and grate your ginger, then cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684244454958-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add half of the chopped chilli (can't handle the heat? Go easy!) and half of the
 
 Using clean hands, knead the lean pork mixture until fully combined, then add it to one side of a tin foil-lined baking tray and shape into a loaf (or two!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684244462554-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chopped potatoes to the other side of the tray (or another tray!)
 
 Add your five-spice mix to the chopped potatoes with a drizzle of olive oil and a pinch of salt and pepper and give them a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684244469601-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Put the tray[s] in the oven for 35-40 min or until the meatloaf[ves] is cooked t
 
 Meanwhile, combine your hoisin sauce and your Chinese rice wine in a small bowl – this is your hoisin glaze
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684244482550-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once cooked through, pour half of the hoisin-glaze over the top of the meatloaf[
 
 Return the tray[s] to the oven for a final 5 min or until golden and sticky – this is your hoisin glazed lean pork meatloaf and crispy potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684244492886-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Once everything is almost done, heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684244500906-x200.jpg)
 
 ### Step 7
 

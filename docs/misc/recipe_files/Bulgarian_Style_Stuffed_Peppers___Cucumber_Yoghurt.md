@@ -26,7 +26,6 @@ These are no ordinary stuffed peppers. Inspired by the Bulgarian dish, palneni c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603366038694-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Put the red pepper halves into an oven-proof dish and put into the oven for 12-1
 
 Meanwhile, grate the cucumber and put into a sieve with a generous pinch of salt over a bowl, keeping aside for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603366064727-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and grate the carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1603366077436-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the chopped red onion with a pinch of salt and cook for 5-6 min or
 
 Once the onion starts to caramelise, add the grated carrot and cook for a further 3-4 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603366092633-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once fragrant, add the chopped tomatoes with 1/2<span class="text-danger"> [1]</
 
 Once boiling, reduce to a simmer for 5-6 min or until thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603366114187-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon
 
 Once browned, add the smoked paprika, tomato paste and the remaining beef stock cube with a splash of water and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1603366145157-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Meanwhile, chop the dill roughly
 
 Add the chopped dill to a bowl with the drained grated cucumber (discarding any liquid), Greek-style yoghurt and a pinch of pepper, stirring to combine
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603366221237-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This creamy pasta bake gives mac ‘n’ cheese a run for its money. You’ll pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728890580457-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728890583609-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once softened, add a knob of butter with the sliced mushrooms, a pinch of salt a
 
 Increase the heat to high and cook for 4-5 min or until the mushrooms have softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728890586916-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once done, drain the tortiglioni
 
 Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728890590258-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Grate your cheddar cheese
 
 Combine the grated cheese, your panko breadcrumbs and truffle oil in a bowl – these are your cheesy truffle breadcrumbs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728890597435-x200.jpg)
 
 ### Step 5
 
@@ -85,13 +80,11 @@ Once fragrant, add your Chinese rice wine and creamy stock, bring to the boil ov
 
 Add your chicken breast portion to a baking tray with a drizzle of olive oil, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728890600477-x200.jpg)
 
 ### Step 6
 
 Once thickened, stir the drained tortiglioni through the sauce and season with a generous grind of black pepper – this is your creamy mushroom pasta
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728890604352-x200.jpg)
 
 ### Step 7
 

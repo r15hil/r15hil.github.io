@@ -21,7 +21,6 @@ This rich, creamy spaghetti is packed with cherry tomatoes, spinach and tender h
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623403205769-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2296-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Chop the cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2296-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add the roasted garlic paste, halved cherry tomatoes and spinach to th
 
 Meanwhile, dissolve the vegetable stock mix in 150ml<span class="text-danger"> [250ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2296-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Cook the pasta for 3-4 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2296-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Cook for 1 min further or until the sauce is starting to thicken
 
 Tip: Add a splash of starchy pasta water if your sauce is looking a little dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2296-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add the haddock bites with a pinch of salt and cook for 3 min further or until 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2296-Step-7-x200.jpg)
 
 ### Step 7
 

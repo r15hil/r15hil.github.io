@@ -23,7 +23,6 @@ Set your sights on Scandinavia with this Danish delight. You’ll jumble smoked 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701096821916-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Top, tail, peel and slice your carrot[s] on the diagonal
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701096826643-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the chopped potatoes and sliced carrot to one side of a baking paper-lined b
 
 Put the tray in the oven for an initial 25 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701096836536-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Meanwhile, slice your apple[s] finely
 
 Chop your chives finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701096842217-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Combine your natural yoghurt and your horseradish cream in a small bowl with you
 
 Season with a generous pinch of salt and give everything a good mix up – this is your horseradish dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701096847070-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ After the initial 25 min, take the tray[s] out the oven and add the skinned mack
 
 Put the tray[s] in the oven for a further 6-7 min or until the potatoes are golden and crisp and the mackerel is cooked through (your fish is cooked once it turns opaque and flakes easily)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701096852448-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Once the potatoes are golden, remove the tray[s] from the oven
 
 Transfer the smoked mackerel to a clean chopping board and flake into bite-sized pieces, using two forks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701096858407-x200.jpg)
 
 ### Step 7
 

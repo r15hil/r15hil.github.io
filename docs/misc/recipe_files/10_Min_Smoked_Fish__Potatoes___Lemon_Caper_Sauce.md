@@ -19,7 +19,6 @@ This speedy fish supper features smoked fish cooked simply in a lemon & caper sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2049.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your fruit and veg
 
 Note: <span class="text-highlight">Equipment</span> and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2049.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the diced potatoes with a generous pinch of salt and pepper and cook for 6-7 min or until golden and crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2049.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,19 +61,16 @@ Once the butter has melted, add the basa fillets and cook for 2-3 min on each s
 
 Tip: <span class="text-highlight">Your</span> fish is cooked through when it turns opaque!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2049.-step-4-x200.jpg)
 
 ### Step 4
 
 <span class="text-highlight">While the fish is cooking, cut</span> the lemon<span class="text-danger">[s]</span> into quarters
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2049.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the clotted cream and capers to the fish and cook for 1 min or until the cream has melted and the sauce has started to thicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2049.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Transfer the crispy potatoes to a plate (use the ones you'll serve on!) and ret
 
 Add the spinach with a pinch of salt and cook for 1 min or until starting to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2049.-step-7-x200.jpg)
 
 ### Step 7
 

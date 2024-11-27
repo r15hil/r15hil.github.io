@@ -25,7 +25,6 @@ Bake a pie in half the time with our favourite time-saving twist! You'll cook up
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609258750795-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609258761726-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely chop (or grate) your garlic
 
 Slice your chestnut mushrooms finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609258769681-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once the onion has softened, add your lean beef mince to the pan with 1 tsp<span
 
 Increase the heat to medium-high and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609258777093-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Rip the leaves off your spring greens, discard the tough stalks, then layer the 
 
 Wash the sliced spring greens, then pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609258802868-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the beef stock, give everything a good mix up and bring to the boil over a h
 
 Reduce the heat to medium and cook for 15-18 min or until thickened to a bolognese-like consistency and cooked through (no pink meat!) – this is your lean beef & mushroom pie mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609258822461-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Transfer the pastry to a non-stick baking paper-lined baking tray (or two!), the
 
 Crimp the borders with a fork and put the tray[s]<span class="text-danger"> </span>in the oven for 15 min or until puffed up, golden and cooked through – this is your pie lid
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1611144656676-x200.jpg)
 
 ### Step 7
 

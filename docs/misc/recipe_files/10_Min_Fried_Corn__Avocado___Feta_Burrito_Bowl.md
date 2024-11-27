@@ -24,7 +24,6 @@ Get this Mexican veggie feast ready in a flash! Build your burrito bowls with pr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1637.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Wash your fruit and veg
 
 Note: <span class="text-highlight">Equipment</span> and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1637.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Drain the sweetcorn
 
 Once hot, add the drained sweetcorn and cook for 7 min, stirring occasionally, until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1637.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Once hot, add the drained sweetcorn and cook for 7 min, stirring occasionally, u
 
 <span class="text-highlight">Tip: If you're cooking two packets, pop them in together but increase the microwave cook time accordingly</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1637.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,13 +74,11 @@ Shred the little gem lettuce<span class="text-danger">[s] </span>finely
 
 Chop the cherry tomatoes in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1637.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine the chipotle paste <span class="text-highlight">(can't</span> handle the heat? Go easy!), honey, soy sauce and red wine vinegar with 1 tbsp <span class="text-danger">[2 tbsp]</span> cold water and 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil <span class="text-highlight">–</span> this is your dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1637.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Scoop the avocado <span class="text-highlight">out of</span> the skin<span class
 
 Slice the avocado finely, lengthways
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1637.-step-7-x200.jpg)
 
 ### Step 7
 

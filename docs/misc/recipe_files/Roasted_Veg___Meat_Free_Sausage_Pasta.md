@@ -26,7 +26,6 @@ Who doesn't love a sausage pasta? You'll pack this flavoursome sauce full of roa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2466Step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and chop your red onion[s] into large bite-sized pieces
 
 Trim the green stalk off your aubergine[s] and chop into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2466Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped veg to a baking tray with 1 tbsp <span class="text-purple">[1 1/
 
 Give it a good mix up and put the tray[s] in the oven for 15-20 min or until everything is cooked through and tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3--1623064498428-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the chopped meat-free sausages to a separate lightly oiled tray and put the 
 
 Tip: Make sure the pieces have space between them!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1623064523424-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once done, drain the cooked tortiglioni, reserving a cup of the starchy pasta wa
 
 Reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2466Step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add your tomato paste and balsamic vinegar and stir it all together – this is
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2466Step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once hot, add the sliced garlic and cook for 1 min
 
 Add the tomato stock and dried oregano and cook for 3-4 min or until reduced to a thick tomato sauce-like consistency
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2466Step-7-x200.jpg)
 
 ### Step 7
 

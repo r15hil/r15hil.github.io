@@ -28,7 +28,6 @@ Pack a punch with this Indochinese-style dish. You'll pan-fry paneer and green p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1642078305575-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1642009984295-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the cubed paneer and cook for an initial 4 min or until beginning to golden, turning occasionally for even colouring
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1642009998157-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Combine your tomato ketchup, sriracha (can't handle the heat? Go easy!), soy sau
 
 Add your cornflour, half your chilli flakes (not a fan of spice? Just add a little!) and 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp] </span>sugar with 150ml <span class="text-purple">[200ml]<span class="text-danger"> </span>[250ml] </span>boiled water – this is your Manchurian-style sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1642010040441-x200.jpg)
 
 ### Step 4
 
 After an initial 4 min, add the chopped pepper to the pan and cook for 2-3 min or until beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Microwave-rice-1650986593917-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1642010066441-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once hot, add your blanched peas and a pinch of salt and cook for 1-2 min or unt
 
 Once the rice is cooked, add the cooked rice to the pan with your toasted sesame oil and give everything a good mix up – this is your sesame fried rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1642010081751-x200.jpg)
 
 ### Step 7
 

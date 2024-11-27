@@ -25,7 +25,6 @@ For this hearty, homey one-pot minestrone, you’ll simmer mushroom-stuffed tort
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1667320523746-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667320486293-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Once hot, add the sliced leek with a pinch of salt and cook for 2-3 min or until the leek is beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667320491546-x200.jpg)
 
 ### Step 3
 
@@ -61,19 +58,16 @@ Top, tail and grate your carrot[s]
 
 Drain and rinse your cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667320495434-x200.jpg)
 
 ### Step 4
 
 Once softened, add the drained cannellini beans, grated carrot, sliced garlic and your dried oregano to the pot with the leek and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667320499817-x200.jpg)
 
 ### Step 5
 
 Combine your vegetable stock mix and chopped tomatoes with 450ml <span class="text-purple">[675ml]</span> <span class="text-danger">[900ml] </span>boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667320504490-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once fragrant, add the tomato stock to the pot and bring to a boil over a high h
 
 Grate your Italian hard cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667320509967-x200.jpg)
 
 ### Step 7
 

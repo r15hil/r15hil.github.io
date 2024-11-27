@@ -24,7 +24,6 @@ For a fresh and zingy dinner, you'll pan fry these plant-based cakes until golde
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2117.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and chop the potatoes into large, bite-sized pieces and add to a pot with
 
 Once boiling, cook for 10-15 min or until the potatoes are fork-tender then drain, return to the pot and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2117.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Meanwhile, trim, then slice the spring onions finely
 
 Chop the coriander finely, including the stalks, keeping the leaves and stalks separate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2117.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Combine the juice of 1/2 <span class="text-danger">[1]</span> lime with the chil
 
 Cut the remaining lime into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2117.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add the diced tomato to a bowl with the chopped coriander leaves
 
 Season with a pinch of salt and set aside – this is your tomato salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2117.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil, the panko breadc
 
 Season with 1 tsp <span class="text-danger">[2 tsp]</span> salt and a generous grind of pepper and give everything a good mix up – this is your sweetcorn potato mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2117.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once hot, add the patties to the pan and cook for 2-3 min on each side or until
 
 Tip: You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2117.-step-7-x200.jpg)
 
 ### Step 7
 

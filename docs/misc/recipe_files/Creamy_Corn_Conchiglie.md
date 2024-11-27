@@ -26,7 +26,6 @@ This Cajun-style pasta is perfectly creamy. You’ll rustle up a cheesy sauce wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678877225156-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cook the conchiglie for 8-10 min or until cooked with a slight bite
 
 Once done, drain the conchiglie, reserving a cup of the starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678877234463-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely slice your shallot[s]
 
 Drain your sweetcorn
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678877247348-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Grate your cheddar cheese
 
 Combine your vegetable stock mix and tomato paste with 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678877259584-x200.jpg)
 
 ### Step 4
 
@@ -66,19 +62,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced shallot with a pinch of salt and pepper and cook for 2-3 min or until beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678877269226-x200.jpg)
 
 ### Step 5
 
 Once softened, add the chopped garlic, drained sweetcorn, ground smoked paprika and dried oregano and cook for 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678877278172-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add the tomato stock and your soft cheese to the pan and cook for 2-3 min further or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678877289944-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Tuck into a quick twist on this favourite. For an irresistible chicken breast ko
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1638267414006-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Crush your cardamom pods open by squashing them with a knife
 
 Heat a pot with a matching lid with a large knob of butter over a medium heat and once melted, add the crushed cardamom pods and cook for 30 secs or until fragrant
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638267418155-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638267421015-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1638267424787-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once melted, add the diced onion with a generous pinch of salt and cook for 3-5
 
 Once softened, add your garam masala, ground turmeric, chopped garlic and chopped ginger and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1638267427312-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Meanwhile, chop your chicken breast portion[s] into bite-sized pieces
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638267430323-x200.jpg)
 
 ### Step 6
 
 Increase the heat to high and add the chopped chicken to the pan and cook for 5-6 min or until browned all over
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638267433199-x200.jpg)
 
 ### Step 7
 

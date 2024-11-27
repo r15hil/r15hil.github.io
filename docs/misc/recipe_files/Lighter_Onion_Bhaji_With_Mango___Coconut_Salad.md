@@ -27,7 +27,6 @@ Transform our Indian-inspired burger into a veg-packed salad. You’ll whip up a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1656255380697-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop (or grate) the garlic
 
 Chop the coriander roughly (including the stalks)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656255384827-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the sliced onion to the bowl with the chopped coriander, chopped ginger and 
 
 Massage the mixture for 30 secs, squeezing the onions to form a thick mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1656255391704-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Divide the onion bhaji mixture into 2 <span class="text-danger">[4]</span>, then
 
 Put the tray in the oven for 20-25 min, turning once halfway, or until the bhajis are golden and crispy – these are your onion bhajis
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1656255396216-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Give everything a good mix up and put the tray in the oven for 12-15 min or unti
 
 Once done, remove the tray from the oven and allow to cool
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1656255400765-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Stand the peeled mango<span class="text-danger">[es]</span> upright and very car
 
 Tip: If you feel resistance against your knife, it means you are hitting the stone!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1656255405021-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Chop the tomatoes roughly
 
 Cut the cucumber in half lengthways, then slice finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1656255409831-x200.jpg)
 
 ### Step 7
 

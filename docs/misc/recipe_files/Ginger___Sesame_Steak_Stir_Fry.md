@@ -31,7 +31,6 @@ For this spicy stir-fry, you'll sear rump steak in a flavour-packed sauce with c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595339938800-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel and finely slice (don't chop!) your garlic, then peel (scrape the skin off 
 
 Trim, then chop your spring onion[s] into thirds
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595339945771-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595339958331-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Meanwhile, add your cornflour to a plate with a generous pinch of salt and peppe
 
 Add your rump steak[s] to the plate and coat both sides in the cornflour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595339971801-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once very hot, add the coated steak to the pan and cook for 2 min or until browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595340324792-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add your mirin and soy sauce to the pan and cook for 2 min further or until the 
 
 Rinse your blanched edamame beans under cold running water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595340333706-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Give everything a good mix up and cook for 1 min or until the sauce has thicken
 
 Meanwhile, trim any fat from the steak and slice thinly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595340471003-x200.jpg)
 
 ### Step 7
 

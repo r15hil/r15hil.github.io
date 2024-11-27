@@ -25,7 +25,6 @@ Freekeh is an ancient Middle Eastern grain that’s packed with nutty, smoky aro
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-31-1714477284844-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 6-8 min or until all the qu
 
 Once cooked, drain, return it to the pot until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-30-1714477291888-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Cut the lemon[s] in half
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-36-1714477295304-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Combine the chopped garlic, honey, wholegrain mustard, dried oregano and 1 tbsp 
 
 Season with a generous pinch of salt – this is your honey mustard marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-31-1714477300038-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray[s] in the oven for 17-18 min or until cooked through (no pink meat!) – these are your baked honey mustard free range chicken thighs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-32-1714477303272-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Peel and slice your shallot[s] finely
 
 Chop your parsley finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-32-1714477306612-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the chopped cucumber, chopped tomatoes, sliced shallot and the lemon zest to
 
 Add a drizzle of olive oil with a generous pinch of salt and pepper and toss – this is your Mediterranean-style salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-32-1714477310409-x200.jpg)
 
 ### Step 7
 

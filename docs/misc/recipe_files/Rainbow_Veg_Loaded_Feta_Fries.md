@@ -25,7 +25,6 @@ A taste of the Med... with chips? Yes please! You'll pile saucy roasted veg over
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629799274687-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Top, tail and chop your courgette[s] into batons
 
 Chop your potatoes (skins on) into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629799292753-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the pepper strips and chopped onion to a tray with 1/2 tbsp <span class="tex
 
 Give everything a good mix up and put the tray in the oven for an initial 15-20 min until the veg has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629799344459-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, add the potato wedges and courgette batons to a separate tray (or two
 
 Give it a good mix up and put the tray[s] in the oven for 20-25 min or until cooked through and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629799364720-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add your tomato paste and balsamic vinegar and give it a good mix up – this is
 
 Chop your cherry tomatoes in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629799377124-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the pepper and onion have softened, remove the tray from the oven and add t
 
 Give everything a good mix up and return the tray to the oven for a further 5-8 min – this is your roasted rainbow veg
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629799390803-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Return the tray[s] to the oven for 5-8 min or until the cheese has melted a litt
 
 Once done, set aside for a few min to cool slightly – these are your rainbow veg loaded feta fries
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Washed-baby-leaf-salad-low-res-1646221405606-x200.jpg)
 
 ### Step 7
 

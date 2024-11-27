@@ -28,7 +28,6 @@ Take a classic freezer food to the next level with crispy air fried chicken gouj
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675250551778-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add a handful of flour to a plate and a splash of milk to a small bowl, then add
 
 Chop your chicken breast strips in half, lengthways, then season with a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675250554717-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the breaded chicken strips to the air fryer basket and spray generously with
 
 Tip: Air fryers work best when the food is spaced out in a single layer. You may need to do this in batches!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675250559119-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Put the bowl in the microwave for 6-10 min or until the potatoes are fork-tender
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675250562634-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Cut your apple[s] (skin on) into matchsticks
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675250566709-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add your mayo to a large bowl with your cider vinegar and a pinch of salt and gi
 
 Add the grated carrot, apple matchsticks and shredded lettuce to the slaw dressing and toss together – this is your apple slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675250570343-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Gradually stir in 150ml <span class="text-purple">[200ml]</span> <span class="te
 
 Put the gravy mix in the microwave for 2 min or until thickened, stirring thoroughly halfway – this is your gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675250574822-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ While pork mince sizzles in a honey and hoisin sauce, you'll give cucumber a bas
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611159414646-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595944076635-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once the pan is hot, add your pork mince (remove the paper if required!) with your roasted garlic paste and a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595944100188-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the w
 
 Combine the bashed cucumber, toasted sesame oil, half your soy sauce (save the rest for later!) and half your chilli flakes (can't handle the heat? Go easy!) in a bowl and set aside – this is your smashed sesame cucumber
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595944109180-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add your fine egg noodles to a large bowl, cover them with boiled water and stir
 
 Set aside to soak for 4 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595944123790-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Once the mince is beginning to brown, add the remaining soy sauce, Chinese rice 
 
 Add your honey to the pan and cook for a further 4 min or until the mince is a little sticky and cooked through (no pink meat!) – this is your honey hoisin pork
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Medium-noodles-colander-1634921767138-x200.jpg)
 
 ### Step 6
 
 Once softened, drain the noodles in a sieve
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595944145833-x200.jpg)
 
 ### Step 7
 

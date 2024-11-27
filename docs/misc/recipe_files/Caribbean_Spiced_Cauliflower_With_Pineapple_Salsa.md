@@ -26,7 +26,6 @@ Fire up your oven for a plant-based recipe full of bold Caribbean flavours! You'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2243-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut the red pepper<span class="text-danger">[s]</span> in half (scrape the seeds
 
 Add the ground allspice, smoked paprika, soy sauce, cayenne pepper (can't handle the heat? Go easy!) and a generous drizzle of vegetable oil to a large bowl
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2243-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the coated cauliflower and chopped red pepper to a baking tray
 
 Put the tray in the oven for 20-25 min or until everything is cooked through and tender – this is your Caribbean-spiced cauliflower and roasted red pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2243-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2243-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surfa
 
 Add the juice and zest of the lime<span class="text-danger">[s]</span> to a small bowl with a drizzle of olive oil and stir it all together – this is your lime dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2243-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Chop the coriander finely, including the stalks
 
 Drain (save the juice for later!) and finely chop the pineapple
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2243-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Combine the sliced spring onion, chopped coriander, pineapple, and red chilli (n
 
 Drain and rinse the kidney beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2243-Step-7-x200.jpg)
 
 ### Step 7
 

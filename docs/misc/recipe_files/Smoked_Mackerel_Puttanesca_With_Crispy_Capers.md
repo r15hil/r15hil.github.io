@@ -24,7 +24,6 @@ This classic Italian dish brings a choir of punchy Mediterranean flavours togeth
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1121.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once hot, add your capers and cook for 5-6 min, stirring frequently, or until cr
 
 Once crisp, transfer them to a plate, reserving the pan and any remaining oil – these are your crispy capers
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1121.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1121.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Return the reserved pan to a medium heat
 
 Once hot, add the diced onion with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1121.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Cook the linguine for 8-10 min or until it's cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1121.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once the onion has softened, add the chopped garlic, chilli flakes (can't handle
 
 Add your chopped tomatoes and a grind of pepper and cook for 6-7 min or until a thick pasta sauce remains
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1121.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Remove the skin from your smoked mackerel fillet[s] and discard
 
 Tear the mackerel into rough, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1121.-step-7-x200.jpg)
 
 ### Step 7
 

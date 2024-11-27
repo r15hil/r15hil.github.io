@@ -28,7 +28,6 @@ Full of flavour and easy to prepare, this Spanish chicken & pepper stew is a sur
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-18-1703077418294-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your free range chicken thighs to a baking tray (use tin foil to avoid mess!
 
 Sprinkle over your ground smoked paprika and give everything a good mix up, then put the tray in the oven for 17-18 min or until cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-19-1703077423599-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your cherry tomatoes in half
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-23-1703077429733-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-18-1703077436152-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once hot, add the chopped cherry tomatoes and half the chopped garlic with a pin
 
 Once slightly softened, reduce the heat to medium-low and cook, covered, for 6-8 min or until the cherry tomatoes begin to break down
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-19-1703077442285-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Dissolve your chicken stock mix and tomato paste in 300ml <span class="text-purp
 
 Chop your black olives roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-19-1703077448099-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once boiling, reduce the heat to medium-low and cook for 6-8 min or until the sa
 
 Meanwhile, combine the remaining garlic (Don't like raw garlic? Go easy!), white wine vinegar and mayo in a small bowl and mix everything together – this is your garlic aioli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-18-1703077454431-x200.jpg)
 
 ### Step 7
 

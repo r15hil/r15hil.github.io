@@ -24,7 +24,6 @@ We like to think of the combination of this Fragrant Chicken, Rice and Dal as th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/581.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice half the <span class="text-danger">[whole]</span> onion
 
 Finely dice the remaining (see picture)&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/581.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Crumble in the stock cube<span class="text-danger">[s]</span> and mix very thoro
 
 Heat a large, wide-based pan (with a matching lid) over a medium-high heat with 2 tbsp <span class="text-danger">[4 tbsp]</span> vegetable oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/581.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Meanwhile, chop the courgette<span class="text-danger">[s]</span> into thick dis
 
 Add the basmati rice, kaffir lime leaves, courgettes and 175ml <span class="text-danger">[350ml]</span> cold water to the pan with a generous pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/581.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Cover tightly with foil and place in the oven for 30 min or until the chicken is
 
 Reserve the pan for the next step
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/581.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Meanwhile, deseed the pepper<span class="text-danger">[s]</span> (scrape the see
 
 Peel and finely chop (or grate) the garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/581.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Add the remaining cumin, turmeric and red lentils with 300ml <span class="text-d
 
 Reduce the heat to low, cover and cook for a further 10-15 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/581.-step-7-x200.jpg)
 
 ### Step 7
 

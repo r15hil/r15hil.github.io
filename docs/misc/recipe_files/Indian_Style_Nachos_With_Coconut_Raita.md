@@ -30,7 +30,6 @@ Curry meets nachos in this crunch-tastic twist. You'll top crispy baked tortilla
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585748626194-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop your coriander finely, including the stalks
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585748630802-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the sliced shallot to a bowl with the chopped coriander, half of the halved 
 
 Give it a good mix up and set aside – this is your tomato salsa
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585748635462-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the tortilla triangles to a tray (or two!) with a drizzle of vegetable oil 
 
 Give everything a good mix up, then spread them out and put the tray[s] in the oven for 6-8 min or until lightly browned and crisp – these are your nachos
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585748639901-x200.jpg)
 
 ### Step 4
 
@@ -72,13 +68,11 @@ Peel and finely chop (or grate) your ginger and garlic
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a medium-high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585748645028-x200.jpg)
 
 ### Step 5
 
 Once hot, add the chopped ginger, garlic, curry powder, drained chickpeas and remaining halved cherry tomatoes to the pan and cook for 3-4 min or until the tomatoes have started to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1585748652920-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once the tomatoes have softened, add the tomato stock to the pan and cook for 2 
 
 Once thickened, stir through your mango chutney – this is your chickpea curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1585748657089-x200.jpg)
 
 ### Step 7
 

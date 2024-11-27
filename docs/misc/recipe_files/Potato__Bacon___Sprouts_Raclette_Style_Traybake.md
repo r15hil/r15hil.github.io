@@ -24,7 +24,6 @@ Roll out the raclette for this Swiss-inspired traybake. Load your roasted potato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1.-1690355131259-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a large, oven-proof dish (or two!) with a drizzle of
 
 Put the dish[es] in the oven for an initial 20 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1722959463835-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Trim the ends from your Brussels sprouts, then cut in half
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3.-1690355158170-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Peel and finely slice your shallot[s]
 
 Add the sliced shallot to a bowl with your cider vinegar and mix it all together, then set aside – this is your quick-pickled shallot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4.-1690355162662-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[50
 
 Cook for 3-4 min or until the cheese has melted and the sauce has thickened – this is your cheese sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5.-1690355167918-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ After the initial 20 min, remove the dish[es] from the oven and add the halved B
 
 Drizzle with vegetable oil and return the dish[es] to the oven for a further 15 min or until the vegetables are cooked through and golden – this is your potato, bacon & sprouts traybake
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6.-1690355172971-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once the vegetables are golden, remove the dish[es] from the oven and pour the c
 
 Turn the grill on high and put the dish[es] under the grill for 5-6 min or until everything is golden and bubbling – this is your potato, bacon & sprouts raclette-style traybake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7.-1690355177023-x200.jpg)
 
 ### Step 7
 

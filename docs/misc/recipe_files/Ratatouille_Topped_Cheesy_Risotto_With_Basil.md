@@ -30,7 +30,6 @@ For this delicious twist on two Mediterranean favourites, you'll top melty, chee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1650.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Deseed your sweet pointed pepper[s]<span class="text-danger"> </span>(scrape the
 
 Trim the green stalk off your aubergine[s]<span class="text-danger"> </span>and courgette[s] and chop them into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1650.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the chopped aubergine, courgette and pepper to a baking tray (or two!) with 
 
 Sprinkle over your dried oregano, give everything a good mix up and put the tray[s] in the oven for an initial 20 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1650.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1650.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ While the onion is cooking, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1650.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once evaporated, add the vegetable stock a ladle at a time, stirring continuousl
 
 Tip: Add a splash of water if the risotto is looking a little dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1650.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once the vegetables have had 20 min, remove the tray[s] from the oven and add th
 
 Mix it all together and return the tray[s] to the oven for a further 5-8 min – this is your ratatouille
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1650.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ To recreate this classic curry's rich sauce, you'll sizzle onions, tomato and su
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1731064797985-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1731064807113-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 On a separate board, chop your chicken breast portion[s] into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1731064819707-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the sliced onion and the chopped chicken (cooking for 4 or more? Use two pans!) with a generous pinch of salt and cook for 3-4 min or until the chicken has browned and the onion is starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1731064826058-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once melted, add your cumin seeds and cook for 1 min or until starting to sizzle
 
 Once sizzling, add your basmati rice, stirring to coat the grains in the butter and oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1731064834316-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your jeera rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1731064841404-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the chicken has browned, add the sliced pepper and tomato wedges and cook f
 
 Meanwhile, dissolve your chicken stock mix in 200ml <span class="text-purple">[250ml]</span> <span class="text-danger">[300ml]</span> boiled water and stir in your tomato paste and a pinch of sugar – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1731064846569-x200.jpg)
 
 ### Step 7
 

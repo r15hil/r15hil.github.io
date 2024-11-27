@@ -23,7 +23,6 @@ Needing less than 15 mins of prep, these summery flatbreads are the ideal option
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1618.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut the cherry tomatoes in half
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1618.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the naan bread to a baking tray
 
 Put the tray in the oven and cook for 5 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1618.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Give everything a good mix up – this is your vegetable topping
 
 Add the vegetable topping to a baking tray and put the tray in the oven for 10 min or until the vegetables are starting to soften and brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1618.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Meanwhile, tear the mozzarella into rough bite-sized pieces
 
 Cut the black olives in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1618.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Remove the browned vegetables from the oven
 
 Divide the topping between naan breads
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1618.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Top with the olives
 
 Return the topped naan to the oven for 10-15 min or until the cheese has melted and started to brown – this is your roasted vegetable flatbread
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1618.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -32,7 +32,6 @@ This supremely delicious curry isn't just for our veggie friends. The paneer soa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2337-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 While the rice is cooking, chop your paneer into bite-sized cubes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2337-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once the pan is hot, add the paneer cubes and cook for 3-5 min until golden, t
 
 Once cooked, transfer the golden paneer to a plate for later (reserve the pan!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2337-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2337-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,13 +70,11 @@ Add the chopped garlic, ginger and chilli (can't handle the heat? Go easy!) and 
 
 Once fragrant, add your chopped tomatoes, garam masala and ground turmeric and cook for 2-3 min or until the tomatoes have started to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646410511721-x200.jpg)
 
 ### Step 5
 
 Dissolve your vegetable stock mix in 200ml<span class="text-danger"> <span class="text-purple">[250ml]</span> [300ml]</span> boiled water with your tomato paste and a pinch of sugar – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1675093568538-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ While the sauce thickens, add your garlic & coriander naan[s] to a toaster for 1
 
 Tip: For a little extra indulgence, butter the hot naan once it's out of the toaster!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2337-Step-7-x200.jpg)
 
 ### Step 7
 

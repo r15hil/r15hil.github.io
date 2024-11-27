@@ -24,7 +24,6 @@ For this warming sausage casserole, you'll pan-fry our British Cumberland sausag
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1847.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and finely dice the carrot<span class="text-danger">[s]</span>
 
 Peel and finely dice the brown onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1847.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the Cumberland sausages and cook for 2 min on each side or until browned all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1847.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the chopped carrot and onion to the pan with the sausages with a pinch of sa
 
 Reduce the heat to medium and cook for 6-8 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1847.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the potatoes to a pot of boiling water with a pinch of salt, bring to the bo
 
 Once done, drain and return to the pot to steam dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1847.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Crumble in the chicken stock cube<span class="text-danger">[s]</span> and<span 
 
 Give everything a good mix up and cook for 10-15 min or until the sauce has thickened and the sausages are cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1847.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once boiling, cook for 3-4 min or until tender with a bite
 
 Once done, drain and return to the pot and keep covered until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1847.-step-7-x200.jpg)
 
 ### Step 7
 

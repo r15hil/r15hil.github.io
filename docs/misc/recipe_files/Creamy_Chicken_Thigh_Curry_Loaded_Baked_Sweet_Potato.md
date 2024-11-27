@@ -28,7 +28,6 @@ This coconutty chicken curry tastes incredible over a baked sweet potato. To top
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652200861948-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Pierce your sweet potato[es] with a fork, then cook in the microwave for 5-7 min
 
 Transfer the softened sweet potato to a baking tray with a drizzle of vegetable oil and a generous pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652200869222-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely chop your brown onion[s]
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger, then peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652200872627-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once hot, add the diced chicken thigh and cook for an initial 2-3 min or until s
 
 Once slightly browned, add the chopped onion with a pinch of salt and cook for 4-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652200875879-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Dissolve your chicken stock mix and chopped creamed coconut in 200ml <span class
 
 Add your tomato paste and stir it all together – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652200880207-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze the water out of the spinach
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652200884735-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once the potato is cooked, add your cashew nuts to the tray and return it to the
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1652200890406-x200.jpg)
 
 ### Step 7
 

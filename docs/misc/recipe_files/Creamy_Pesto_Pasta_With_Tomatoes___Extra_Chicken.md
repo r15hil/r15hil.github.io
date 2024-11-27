@@ -28,7 +28,6 @@ This recipe will show you how to nail homemade pesto. Our secret ingredient? Ric
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728894190750-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once done, transfer the toasted seeds to a food processor
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728894193782-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ While the pine nuts & seeds are toasting, chop your tomato[es] into wedges and a
 
 Put the tray[s] in the oven for 20 min or until softened – these are your roasted tomatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728894196634-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cook the farfalle for an initial 9 min
 
 Grate your Italian hard cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728894199827-x200.jpg)
 
 ### Step 4
 
@@ -68,19 +64,16 @@ Peel your garlic and add it to the food processor with your basil (chuck it in, 
 
 Blitz until well combined and smooth – this is your extra creamy pesto
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728894204411-x200.jpg)
 
 ### Step 5
 
 Trim, then chop your green beans in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1728894207444-x200.jpg)
 
 ### Step 6
 
 Once the farfalle has been cooking for an initial 9 min, add the halved green beans to the pot and cook for 3-4 min further or until the farfalle is cooked through and the green beans are tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1728894210660-x200.jpg)
 
 ### Step 7
 

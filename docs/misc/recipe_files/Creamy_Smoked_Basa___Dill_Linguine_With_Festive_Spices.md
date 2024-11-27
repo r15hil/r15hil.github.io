@@ -22,7 +22,6 @@ This luscious linguine really hits the spot, and there’s a bit of Christmas in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1631107555731-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel and cut the onion<span class="text-danger">[s]</span> in half
 
 Push the cloves into 1 <span class="text-danger">[2]</span> onion half<span class="text-danger">[ves] </span>–<span class="text-danger"> </span>this is your studded onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631107561056-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once boiling, reduce the heat to medium and cook for 3-4 min or until the basa i
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631107565498-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Pour the milk from the pan into a jug (save the pan for later!) – this is your
 
 Tip: Keep the studded onion in the milk to allow it to infuse further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631107569503-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once done, drain the cooked linguine, reserving 50ml <span class="text-danger">[
 
 Add the reserved starchy pasta water to the jug with the spiced milk
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631107574439-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add the sliced onion to the pan and cook for 3-4 min or until softened
 
 Once softened, add 1 tbsp <span class="text-danger">[2 tbsp] </span>flour and cook for 1 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631107578863-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Chop the dill finely, including the stalks
 
 Break the creamy smoked basa into small chunks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631107583257-x200.jpg)
 
 ### Step 7
 

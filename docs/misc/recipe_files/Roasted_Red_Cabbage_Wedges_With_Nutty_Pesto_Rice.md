@@ -25,7 +25,6 @@ Red cabbage gets a mouthwatering makeover with this delicious plant-based recipe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2455Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely slice (don't chop!) the garlic
 
 Slice the lemon<span class="text-danger">[s]</span> into 4 <span class="text-danger">[8]</span> wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2455Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the red cabbage wedges to a baking tray, drizzle with olive oil and the ba
 
 Put the tray in the oven and cook for 25-30 min or until the stalks of the cabbage are fork-tender – these are your roasted red cabbage wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2455Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 16-18 min or un
 
 Once done, remove from the heat and keep covered
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2455Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the pine nuts, blanched almonds and hazelnuts and cook for 2-3 mi
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2455Step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the mint leaves with the basil and the juice of 2 <span class="text-dange
 
 Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, 2 tbsp <span class="text-danger">[4 tbsp]</span> cold water and 1/2 tsp <span class="text-danger">[1 tsp]</span> salt and pulse until roughly blitzed – this is your nutty pesto
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2455Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once hot, add the grated courgette and sliced garlic with a generous pinch of sa
 
 Once fragrant, add the cooked rice and cook for 1 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2455Step-7-x200.jpg)
 
 ### Step 7
 

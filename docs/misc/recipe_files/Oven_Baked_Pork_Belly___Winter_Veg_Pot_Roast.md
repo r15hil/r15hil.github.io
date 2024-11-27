@@ -22,7 +22,6 @@ Hearty pot roast with only 5 mins prep? Say no more. You’ll simmer succulent p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1696240289890-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696240293734-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Pat your pork belly dry with kitchen paper, then score the fatty side of the por
 
 Season with a generous pinch of salt and rub it deep into the criss-cross pattern
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696240299077-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once hot, add the seasoned pork belly, fat side down and cook for 4 min or until
 
 Reserve the dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696240303496-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Top, tail and chop your carrot[s] into quarters
 
 Top, tail and chop your parsnip[s] into quarters
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696240307254-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Give everything a good mix up, then add 350ml<span class="text-purple"> [450ml] 
 
 Once boiling, return the crispy pork belly to the dish, skin-side up, then put in the oven, uncovered, for 45 min, or until the pork is cooked through and the vegetables are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696240310824-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil 
 
 Put the tray[s] in the oven for 40-45 min, turning halfway or until golden and crisp
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696240315052-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Steak your claim on this classic rump. This pan-sizzled steak pairs perfectly wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683722324942-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Before you start cooking, take your steak[s] out of the fridge, open the packet 
 
 Cut your potatoes in half, lengthways, then score the cut side in a criss-cross pattern, taking care not to cut all the way through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683722337911-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once boiling, reduce the heat to medium and cook for 12 min, then drain and rins
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683722342852-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Line a baking tray (or two!) with baking paper and add the grated Italian hard c
 
 Mix everything together until fully combined, being careful not to spread the mixture out too thin – this is your Italian cheese & garlic base
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683722348196-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once cooked and slightly cooled, add the boiled potatoes to the Italian cheese &
 
 Drizzle over a little olive oil with a pinch of salt and put the tray[s] in the oven for 18-20 min or until the potatoes and cheese are golden and crispy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683722352166-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add your red wine paste and beef stock mix with 3 tsp <span class="text-purple">
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until reduced by half to a sauce-like consistency, then stir through a large knob of cold butter – this is your red wine jus
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683722357831-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the trimmed green beans to a large piece of tin foil (or two!) with a pinch 
 
 Scrunch the foil around the green beans to form a tightly sealed parcel[s], then add<span class="text-danger"> </span>to a separate tray[s] and put it in the oven for 10-12 min or until the beans are tender with a slight bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683722368776-x200.jpg)
 
 ### Step 7
 

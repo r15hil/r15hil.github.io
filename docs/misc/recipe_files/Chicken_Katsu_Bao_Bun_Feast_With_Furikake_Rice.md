@@ -32,7 +32,6 @@ Catch this chicken katsu while you can. For the ultimate takeaway treat, you’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687441285256-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Take your chicken out of the fridge, open the packet and let it air, then rinse 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> cold water to a pot with a lid and bring to the boil over a high heat, then reduce the heat to low until very gently bubbling and cook, covered, for 15 min, then remove the pot from the heat and keep covered for a further 10 min before serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687441290376-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced mushrooms and spring onion batons and cook for 5-6 min or until golden and crisp, then set aside and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687441294860-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [
 
 Coat the flattened chicken in the flour, then add to the milk and firmly press into the breadcrumbs to evenly coat all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687441298672-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once hot, add the breaded chicken and cook for 5-6 min on each side or until th
 
 On a clean board, slice the breaded chicken finely into strips – this is your chicken katsu (cooking for 5? You may need to do this in batches!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687441303683-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the w
 
 Add the smashed cucumber to a bowl with your rice vinegar and a pinch of sugar – this is your quick-pickled cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687441309023-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Gradually stir in 250ml <span class="text-purple">[325ml] </span><span class="te
 
 Put the jug in the microwave for 2 min, stirring halfway, or until the sauce has thickened – this is your katsu sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687441313000-x200.jpg)
 
 ### Step 7
 

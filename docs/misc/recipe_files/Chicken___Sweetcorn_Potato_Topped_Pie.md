@@ -22,7 +22,6 @@ Tuck into old-school comfort with this creamy pie. You’ll caramelise sweetcorn
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670929063437-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel your potatoes and chop them into large bite-sized pieces, then add to a po
 
 Cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670929068001-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once hot, add your sweetcorn (no need to drain) to the pan with a generous pinch
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670929085518-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ While the sweetcorn is caramelising, peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670929095881-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Once slightly caramelised, add the diced onion and chopped garlic to the pan and
 
 Meanwhile, dissolve your chicken stock mix and Dijon mustard in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[300ml]</span> boiled water and 50ml <span class="text-purple">[65ml]</span><span class="text-danger"> [80ml]</span> milk – this is your chicken stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670929106512-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Once lightly browned, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <
 
 Add the chicken stock and bring to the boil over a high heat, once boiling reduce the heat to medium-high and cook for 4-5 min or until slightly thickened – this is your chicken & sweetcorn pie filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670929116692-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Return the drained potatoes to a low heat with a large knob of butter
 
 Season with a very generous pinch of salt and pepper and mash until smooth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670929121380-x200.jpg)
 
 ### Step 7
 

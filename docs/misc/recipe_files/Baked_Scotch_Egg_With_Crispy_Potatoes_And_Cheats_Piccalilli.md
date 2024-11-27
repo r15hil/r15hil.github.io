@@ -23,7 +23,6 @@ For perfect picnic fare, take scotch eggs up a notch with a  flavour-packed cris
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617202250120-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Give everything a good mix up and sprinkle over half of the black mustard seeds
 
 Put the tray in the oven for 35 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617202289549-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the eggs to a pot of boiled water with a pinch of salt (salt prevents the eg
 
 Once boiling, cook for exactly 6 min, then fill a bowl of very cold water and add the cooked eggs to the bowl to cool down quickly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617202303646-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Remove 2 of the sausages from their skins and combine to form a giant meatball, 
 
 Repeat this with the remaining sausages until you have 2 <span class="text-danger">[4] </span>sausage meat circles
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617202363026-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add a peeled egg to the centre of each sausage meat circle
 
 Wrap the sausage meat around each egg and seal it tightly on all sides so that there aren't any gaps – these are your sausage-coated eggs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617202376176-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add a drizzle of olive oil to a separate plate
 
 Turn the sausage-coated eggs in the olive oil, shake off the excess, then add them to the crushed crispy onions and press firmly until they're evenly coated all over – these are your scotch eggs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617202428810-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Meanwhile, add the cornichons to a food processor with the mustard ketchup, cide
 
 Add 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil and pulse until you're left with a chunky texture – this is your cheat's piccalilli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617202485372-x200.jpg)
 
 ### Step 7
 

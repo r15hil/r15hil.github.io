@@ -23,7 +23,6 @@ Imam bayildi translates to ‘the Imam fainted’. Why? Because he was overwhelm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1687524107525-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Score the aubergine flesh with a sharp knife in a criss-cross pattern, then rub 
 
 Add the scored aubergine halves to a baking tray, cut-side down, and put in the oven for 25-30 min or until the flesh is tender and golden brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1687524114846-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-2-1687524120650-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) over a medium-hig
 
 Once hot, add the minced beef with a generous pinch of salt and cook for 5-6 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1687524124629-x200.jpg)
 
 ### Step 4
 
@@ -61,19 +57,16 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1687524130238-x200.jpg)
 
 ### Step 5
 
 Once the mince has browned, add the sliced shallot to the pan and cook for 3-4 min or until starting to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1687524134204-x200.jpg)
 
 ### Step 6
 
 Once softened, add the baharat and chopped garlic and cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1687524138633-x200.jpg)
 
 ### Step 7
 

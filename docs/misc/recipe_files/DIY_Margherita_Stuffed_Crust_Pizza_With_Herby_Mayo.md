@@ -25,7 +25,6 @@ Roll, stretch and toss your way to pizza night at home. You’ll stuff your home
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678209002292-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your dried yeast to a large bowl with 100ml <span class="text-purple">[150ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678209006636-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Combine your tomato paste, half your dried oregano and 3/4 of the grated garlic 
 
 Drain your mozzarella, pat and squeeze as much liquid out as you can with kitchen paper and tear into small bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678209043069-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip the dough out onto a floured work surface and cut into 1 ball per person
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678209068965-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Tip: Dust with extra sprinkles of flour as you go to stop it sticking!
 
 Dot a quarter of your<span class="text-danger"> </span>torn mozzarella (save the rest for later!) evenly around the edge of each pizza base
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678209073765-x200.jpg)
 
 ### Step 5
 
 Roll the edge of the dough over the mozzarella and press to seal, forming a thick crust – these are your stuffed crust pizza bases
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678209087406-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the tomato sauce onto each pizza and spread it evenly with the back of a spo
 
 Top them evenly with the remaining torn mozzarella and put the tray[s] in the oven for 12-15 min or until the cheese has melted and the crust has puffed up and browned – these are your pizzas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678209100124-x200.jpg)
 
 ### Step 7
 

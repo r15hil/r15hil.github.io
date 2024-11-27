@@ -20,7 +20,6 @@ Silky linguine, tossed in a homemade basil pesto with caramelised portobello mus
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/826.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the grill to a high heat, then boil a kettle
 
 Put the tray directly under the grill and cook for 12-15 min or until they're nicely caramelised
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/826.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the 3 seed mix to a large pot&nbsp;over a high heat and cook for 1-2 min or 
 
 Once toasted, set aside on a plate and keep the pot for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/826.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the linguine with plenty of boiled water with a pinch of salt, bring to the 
 
 Once cooked, drain and reserve a cup of the starchy cooking water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/826.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Chop the basil finely, including the stalks&nbsp;
 
 Grate the cheddar cheese finely&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/826.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Tip: if you don't have a pestle and mortar, chop the basil very finely, then mix
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/826.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add the grated cheese to the basil with 2-3 tbsp olive oil
 
 Season with a generous pinch of salt and pepper and mix thoroughly &ndash; this is your pesto
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/826.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Take a trip to Spain with this Catalonian-inspired dish. You'll elevate a salmon
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1727100160466-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughl
 
 Crush half your<span class="text-danger"> </span>garlic (you'll use the rest later!) open by squashing with the side of a knife and remove the skin
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727100170038-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chopped pepper to the middle of the tin foil with the crushed garlic, a 
 
 Scrunch the edges of the foil around the pepper to form a sealed parcel[s] and add to one side of a baking tray
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727100185050-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15 min or until the pepper has softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727100194053-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Combine your panko breadcrumbs with half the chopped parsley, half your ground s
 
 Combine the chopped garlic and your mayo in a small bowl with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> cold water – this is your aioli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727100204243-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Put the tray[s] in the oven for 14-15 min or until the fish is cooked through �
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727100214302-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Meanwhile, add the softened pepper, garlic, remaining ground smoked paprika, fla
 
 Season with a pinch of salt and pepper, then blitz until you have a coarse paste – this is your romesco sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727100223395-x200.jpg)
 
 ### Step 7
 

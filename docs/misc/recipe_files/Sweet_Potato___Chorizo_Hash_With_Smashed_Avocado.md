@@ -23,7 +23,6 @@ Turn an old school Sunday breakfast into a wholesome, mouthwatering dinner. You'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673341693113-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the chopped sweet potato to a heat proof bowl then cover the bowl with cling
 
 Put the bowl in the microwave for 5-10 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673341702848-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Peel and finely slice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673341712234-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Rinse the wilted kale under cold running water until it's cool
 
 Once cool, squeeze as much water out of the kale as you can
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673341723543-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Crush the potatoes lightly and cook for 3-4 min or until starting to brown
 
 Tip: Stir as little as possible to give the potatoes a chance to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673341729375-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Cook for a further 6-7 min, stirring occasionally, until the chorizo is cooked t
 
 Tip: Reduce the heat to low if the potatoes start to burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673341739138-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Cook for 1 min further until fragrant
 
 Once fragrant, add the wilted kale, give everything a good mix up and cook for a further 2-3 min or until the kale has softened – this is your sweet potato & chorizo hash
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673341750466-x200.jpg)
 
 ### Step 7
 

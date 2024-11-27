@@ -30,7 +30,6 @@ To recreate this classic curry's rich sauce, you'll sizzle onions, tomato and su
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2371Step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2371Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your tomato[es] into wedges
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1628680339799-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1628680627667-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once melted, add your cumin seeds and cook for 1 min or until starting to sizzle
 
 Once sizzling, add your basmati rice, stirring to coat the grains in the butter and oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1628680635586-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your jeera rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2371Step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the onion has softened, add the sliced pepper and tomato wedges to the pan 
 
 Meanwhile, dissolve your vegetable stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water and stir in your tomato paste and a pinch of sugar – this is your tomato stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2371Step-7-x200.jpg)
 
 ### Step 7
 

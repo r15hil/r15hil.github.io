@@ -27,7 +27,6 @@ For this takeaway classic, you'll coat meat-free chicken pieces in cornflour and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616582323059-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add your white long grain rice to a pot with a lid with 225ml<span class="text-p
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then once done, transfer the rice to a plate and spread it out flat to help cool down
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616582335812-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ While the rice is cooking, add your cornflour to a bowl along with 1 tsp <span 
 
 Add your meat-free chick'n to the bowl and give everything a good mix up until all the pieces are coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616582375777-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of
 
 Once the pan is very hot, add the coated meat-free chick'n and cook for 5-6 min on each side until golden and crispy – this is your crispy meat-free chick'n
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616582384231-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Peel and finely chop (or grate) your garlic
 
 Finely slice your red chilli[es] into rounds
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1616582396920-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once the meat-free chick'n is crispy, add the spring onion batons, chilli rounds
 
 Once done, transfer everything to a plate (save the pan!) and set aside until serving – this is your salt & pepper meat-free chick'n
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1616582408110-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the cooled rice, blanched peas, toasted sesame oil and soy sauce and cook for 2-3 min until everything is combined
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1616582414235-x200.jpg)
 
 ### Step 7
 

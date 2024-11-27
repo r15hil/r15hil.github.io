@@ -29,7 +29,6 @@ This warming Japanese stew, also known as Nikujaga, is a hearty combination of d
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1691060265529-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691060244163-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Add your diced beef to the dish with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour, stir it all together, and cook for 2-3 min or until lightly browned all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691060246944-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Peel and chop your potato[es] (skin on) into bite-sized pieces
 
 Crush your garlic open by squashing with the side of a knife and discard the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691060249334-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Add your beef stock mix, 400ml <span class="text-purple">[550ml]</span> <span cl
 
 Cover with the lid and put the dish in the oven for an initial 55 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691060252363-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691060254762-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the stew has been cooking for 25 min, reboil a kettle and add your white lo
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691060259526-x200.jpg)
 
 ### Step 7
 

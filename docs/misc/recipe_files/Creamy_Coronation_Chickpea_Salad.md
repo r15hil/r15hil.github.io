@@ -27,7 +27,6 @@ You've heard of Coronation chicken, but what about chick... peas? For a royally 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2122.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the halved potatoes to a pot with plenty of boiled water and a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain, return to the pot and set aside for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2122.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Wash the lettuce and pat dry with kitchen paper, then remove your outer lettuce 
 
 Finely shred the inner core
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2122.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Pick your coriander leaves from their stalks and set aside for garnish
 
 Chop the coriander stalks finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2122.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add your cultured coconut to a large bowl with your mango chutney, chopped coria
 
 Season with a pinch of salt and pepper and stir it all together – this is your coronation mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2122.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Combine the juice of the remaining lime with 2 tbsp <span class="text-purple">[3
 
 Drain and rinse your chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2122.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, add the drained chickpeas with your curry powder and cook for 2-3 min 
 
 Once fragrant, add the curried chickpeas to the coronation mix and stir it all together – these are your creamy coronation chickpeas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2122.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ These Indonesian-style noodles are packed with prawns and vegetables. To serve, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581614357989-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Trim, then chop your red chilli[es] roughly
 
 Tip: Deseed the chilli first if you're not a fan of spice!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581614362257-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Blitz until smooth – this is your speedy sambal
 
 Tip: If you don't have a food processor, use a pestle and mortar!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581614366203-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Top, tail, peel and chop your carrot[s] into quarters lengthways, then chop fine
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and chop them into large, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581614369939-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the carrot strips and cook for 2 min
 
 Add the chopped spring greens and cook for 1 min further, then add a very small splash of cold water and cook for a further 3-4 min or until tender with a bite
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581614375610-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, add your medium egg noodles to a pot and cover them with boiled water
 
 Bring to the boil over a high heat and cook for 5-6 min or until cooked with a slight bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581614380022-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the vegetables are tender, drain your king prawns, then add them to the pan
 
 Add your soy sauce and toasted sesame oil and cook for 4-5 min further or until the prawns are cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581614384328-x200.jpg)
 
 ### Step 7
 

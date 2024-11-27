@@ -25,7 +25,6 @@ Full of flavour and simple to make, you'll be able to get this North African-ins
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2037.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2037.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -58,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the diced chicken breast with the roasted garlic paste, ras el hanout and harissa paste <span class="text-highlight">(can't</span> handle the heat? Go easy!) and cook for 2-3 min or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2037.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Meanwhile, dissolve the <span class="text-highlight">Knorr</span> chicken stock
 
 Add the couscous, stir, cover and set aside until later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2037.-step-4-1-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Drain the chickpeas
 
 Slice the courgette<span class="text-danger">[s] </span>finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2037.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Cook, covered, for a further 4-5 min or until the chicken <span class="text-high
 
 Note: <span class="text-highlight">Please</span> ensure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2037.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Note: <span class="text-highlight">Please</span> ensure you cook your chicken th
 
 Cut the remaining lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2037.-step-7-x200.jpg)
 
 ### Step 7
 

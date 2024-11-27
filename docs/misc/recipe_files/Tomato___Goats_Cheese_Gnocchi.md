@@ -26,7 +26,6 @@ This colourful dish is rich, cheesy, and served up in no time. Simply toss gnocc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612374943780-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1536.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Boil a kettle
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1536.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Chop your basil roughly, including the stalks
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1536.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the cooked gnocchi, reserving a cup of the starchy cooking water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1536.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the halved cherry tomatoes to the pan with a pinch of salt and cook for 30 secs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1536.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add your roasted garlic paste, tomato paste and chilli flakes (can't handle the 
 
 Add your Chinese rice wine with a generous pinch of sugar to the pan and cook for 1 min further
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1536.-step-7-x200.jpg)
 
 ### Step 7
 

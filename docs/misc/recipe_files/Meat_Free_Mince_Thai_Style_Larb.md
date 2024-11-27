@@ -25,7 +25,6 @@ For a tasty 10 minute delight, whip up this plant-based twist on Thai larb, flav
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1614008420892-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2474Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Trim, then chop your spring onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2474Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once hot, add your meat-free mince (remove the paper if required!) and chopped s
 
 Tip: Try not to stir too often so the mince gets nice and brown!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2474Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and slice roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2474Step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Squeeze the pouch[es] of cooked white long grain rice to separate the grains
 
 Add your cooked white long grain rice and ginger & garlic paste to the browned meat-free mince and cook for 2-3 min, breaking the rice up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2474Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Meanwhile, wash your lettuce then pat it dry with kitchen paper and separate the
 
 Roughly shred the inner cores
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2474Step-7-x200.jpg)
 
 ### Step 7
 

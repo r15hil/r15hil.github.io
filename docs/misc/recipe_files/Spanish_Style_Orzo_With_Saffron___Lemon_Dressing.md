@@ -29,7 +29,6 @@ Inspired by the paella, this ones a veggie twist on the Spanish staple. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706622083524-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706622090872-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Cut your lemon[s] in half
 
 Dissolve your vegetable stock mix and tomato paste in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[1L] </span>boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706622104790-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Combine the chopped parsley, saffron and a squeeze of lemon juice in a bowl with
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706622111468-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the chopped onion with a pinch of salt and cook onion for 4-5 min 
 
 Once softened, add the diced pepper and cook for a further 2-3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706622118466-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the chopped garlic with your ground smoked paprika and dried thyme and cook 
 
 Once fragrant, add your orzo and stir to coat the grains in the spices
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706622125238-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706622130843-x200.jpg)
 
 ### Step 7
 

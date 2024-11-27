@@ -25,7 +25,6 @@ A great Caesar needs a creamy, tangy dressing, which you'll make with Dijon must
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1622103885058-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2200.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large wide-based pan (preferably non-stick) over a high heat with a drizz
 
 Chop your chicken breast strips into smaller strips, then add to the pan with a pinch of salt and pepper and cook for 8-10 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2200.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,19 +56,16 @@ While the chicken is cooking, tear your ciabatta[s] into bite-sized pieces and 
 
 Put the tray[s] in the oven for 6-7 min or until crisp and golden – these are your ciabatta croutons
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2200.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, thoroughly wash your lettuce[s], pat it dry with kitchen paper then separate the outer leaves and shred the inner core[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Finely-chopped-garlic-1618416589930-x200.jpg)
 
 ### Step 5
 
 Peel and finely chop (or grate) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2200.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add your capers, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span clas
 
 Season with a pinch of pepper and give everything a good mix up – this is your Caesar dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2200.-step-7-x200.jpg)
 
 ### Step 7
 

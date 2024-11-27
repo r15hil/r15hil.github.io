@@ -27,7 +27,6 @@ For this Mediterranean-inspired recipe, you'll bake lemony basa on top of potato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610730937174-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606304606485-x200.jpg)
 
 ### Step 2
 
@@ -47,13 +45,11 @@ Boil half a kettle
 
 Chop your potatoes (skins on) into small bite-sized pieces and add them to a large oven-proof dish (or two!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606304615381-x200.jpg)
 
 ### Step 3
 
 Crush your garlic open by squashing them with the side of a knife (but keep the skins on!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606304620112-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add the crushed garlic to the dish[es] with your cherry tomatoes, a generous dri
 
 Give everything a good mix up and put the dish[es] in the oven for an initial 35 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665479361238-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Slice half your lemon[s] into rounds and set them aside for later
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606304635077-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Top with your basa fillet[s]
 
 Squeeze over the juice of the remaining lemon and top the basa with the reserved lemon slices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606304652985-x200.jpg)
 
 ### Step 7
 

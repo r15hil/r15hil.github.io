@@ -26,7 +26,6 @@ Like your sarnies with spice? You’re in for a treat. You'll load ciabatta roll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682415680286-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your potatoes (skins on) into chips, then add them to a baking tray (or two
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp – these are your spiced chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682415687463-x200.jpg)
 
 ### Step 2
 
@@ -44,19 +42,16 @@ While the chips are cooking, heat a large, wide-based pan (preferably non-stick 
 
 Once hot, add your chicken breast portion[s] and cook for 3 min on each side or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682415692800-x200.jpg)
 
 ### Step 3
 
 Once browned, add 50ml <span class="text-purple">[65ml]<span class="text-danger"> </span>[85ml]</span> cold water to the pan and cook, covered, for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682415698234-x200.jpg)
 
 ### Step 4
 
 Meanwhile, cut your lemon[s] into 1 wedge per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682415702333-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Combine your mayo and a squeeze of lemon juice in a large bowl with your harissa
 
 Add your carrot & cabbage slaw mix to the bowl along with a pinch of salt and give everything a good mix up – this is your harissa slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682415705514-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Put your ciabatta[s] in the oven for 5 min or until they're warm and crusty, then carefully slice them in half before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682415708886-x200.jpg)
 
 ### Step 7
 

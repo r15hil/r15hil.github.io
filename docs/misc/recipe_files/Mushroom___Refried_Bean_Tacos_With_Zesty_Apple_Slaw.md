@@ -28,7 +28,6 @@ These beany mushroom tacos are rich, smoky and a little fiery. When serving, top
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1623081117332-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your red wine vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span>
 
 Peel and finely slice half your red onion[s], then add to the bowl and set aside to pickle – these are your quick-pickled red onions
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1623081124286-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the drained black beans, soy sauce and 150ml <span class="text-purple">[225
 
 Cook, covered, for 10 min or until the beans are very soft
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1623081131371-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Zest (try to grate lightly with a micro-plane or sharp box grater and avoid gra
 
 Core and slice your apple[s] into matchsticks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1623081144034-x200.jpg)
 
 ### Step 4
 
@@ -74,19 +70,16 @@ Tear your flat white mushrooms into rough, bite-sized pieces and add to the pan 
 
 Cook, covered, for 5-7 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1623081157262-x200.jpg)
 
 ### Step 5
 
 While the mushrooms are cooking, combine the apple matchsticks, lime juice and zest with your mayo – this is your zesty apple slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1623081165408-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1623081183207-x200.jpg)
 
 ### Step 7
 

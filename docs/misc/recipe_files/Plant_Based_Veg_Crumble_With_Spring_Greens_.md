@@ -26,7 +26,6 @@ A British corker with a plant-based twist. You'll top creamy veg stew with a gol
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632822577899-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut the chestnut mushrooms into quarters
 
 Chop the leek<span class="text-danger">[s] </span>into rounds, then wash to remove any grit from between the leaves and pat dry with kitchen paper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632822583154-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a dri
 
 Once hot, add the quartered mushrooms and leek rounds with a pinch of salt and cook for 5-6 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632822588166-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and dice the shallot<span class="text-danger">[s]</span>
 
 Peel and chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632822592190-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Strip the rosemary and thyme leaves from their stems and chop them roughly toget
 
 Once the mushrooms and leek have started to soften, add the diced shallot, chopped garlic, sliced potatoes, carrot discs and half the chopped herbs (save the rest for later!) to the pan and cook for 3-4 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632822596951-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Dissolve the vegetable stock mix and creamy single oat in 150ml <span class="te
 
 Add the creamy stock to the pan with the Chinese rice wine and cook, covered, for 10 min further or until the veg has softened – this is your veg stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632822601685-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ With the tips of your fingers rub the mixture together until it resembles breadc
 
 Transfer the veg stew to an oven-proof dish, top with the herby crumble, then put the dish in the oven for 20-25 min or until golden – this is your veg crumble
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632822606947-x200.jpg)
 
 ### Step 7
 

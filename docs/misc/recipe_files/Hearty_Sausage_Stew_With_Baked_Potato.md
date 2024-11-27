@@ -22,7 +22,6 @@ Taking extra time to bake potatoes is so worth it, as the result is a soft fluff
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1835.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,13 +39,11 @@ Put the tray in the oven and cook for 60 min or until cooked through and crisp 
 
 Tip: If you're in a hurry, microwave your potatoes for 10-15 mins or until cooked through!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1835.-step-2-x200.jpg)
 
 ### Step 2
 
 Use the next 20 min to set the table, have a cup of tea or simply chill!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1835.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and finely dice the brown onion<span class="text-danger">[s]</span>
 
 <span class="text-highlight">Top, tail, peel and dice the carrot<span class="text-danger">[s]</span></span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1835.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sausage pieces and cook for 3-5 min or until browned all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1835.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add the sausage pieces and cook for 3-5 min or until browned all over
 
 <span class="text-highlight">Drain and rinse the cannellini beans</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1835.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once the onions and carrots have softened, increase the heat to medium-high a
 
 <span class="text-highlight">Transfer any remaining chopped tomatoes to a bowl, cover and keep in the fridge to use up to 3 days later</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1835.-step-7-x200.jpg)
 
 ### Step 7
 

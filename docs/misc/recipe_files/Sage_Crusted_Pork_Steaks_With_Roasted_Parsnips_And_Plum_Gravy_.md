@@ -25,7 +25,6 @@ Cosy up to a classic roast. You'll serve roast potatoes and parsnips alongside s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641305767794-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Slice your parsnip[s] (skins on) into discs, approx. 1cm thick
 
 Peel and cut your red onion[s] into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641305772271-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the potato discs, parsnip discs and onion wedges to a baking tray (or two!),
 
 Put the tray[s] in the oven for an initial 20 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641305775618-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add your dried sage, grated garlic and panko breadcrumbs to a small bowl with a 
 
 Give it a good mix up – this is your sage crumb
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641305779568-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the veg has had 20 min, add the sage-crusted pork steak[s] to the tray[s]
 
 Return the tray[s] to the oven for a final 13-15 min or until the crumb is golden and the pork is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Shredded-spring-greens-1676659889653-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Meanwhile, wash your spring greens then pat it dry with kitchen paper
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641305787144-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Scrunch the edges of the foil around the greens to form a sealed parcel[s] and a
 
 Put the tray[s] in the oven for 10-12 min or until the greens are tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641305791236-x200.jpg)
 
 ### Step 7
 

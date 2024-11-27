@@ -24,7 +24,6 @@ Italian for ‘angry’, ‘arrabbiata’ sauce is as spicy as they come. For ou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1647345126156-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1647345089352-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Peel and slice (don't chop!) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1647345092597-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, boil a kettle
 
 Once hot, add the sliced garlic and your chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1-2 min or until fragrant – this is your chilli oil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1647345097350-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Trim the ends off your Tenderstem broccoli then chop into thirds
 
 Grate your Italian hard cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1647345101857-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Cook for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tortelloni and broccoli, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1647345107518-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ While the tortelloni is cooking, add your chopped tomatoes, tomato paste, and ve
 
 Season with a pinch of salt, sugar and a grind of black pepper and cook for 2-3 min or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1647345111872-x200.jpg)
 
 ### Step 7
 

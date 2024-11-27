@@ -27,7 +27,6 @@ This nutritious bowl is packed with crunchy carrot ribbons, crisp peppery radish
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1501.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1501.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Slice in half as if you were cutting a burger bun, so you are left with two thin
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1501.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1501.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surfa
 
 Combine the rice vinegar, lime juice, chopped chilli&nbsp;and&nbsp;fish sauce&nbsp;in a small bowl &ndash; this is your Vietnamese dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1501.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Slice the radishes as finely as you can into thin rounds
 
 Combine the carrot ribbons, sliced cucumber and radishes with the Vietnamese dressing and a pinch of salt&nbsp;in a large bowl&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1501.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,7 +102,6 @@ Trim and finely slice the spring onion<span class="text-danger">[s]</span>
 
 Chop the roasted peanuts coarsely (or bash them in their bag)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1501.-step-7-x200.jpg)
 
 ### Step 7
 

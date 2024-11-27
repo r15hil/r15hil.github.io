@@ -27,7 +27,6 @@ Make stuffing the star of the show with this twist on a roast dinner. You’ll t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688739303590-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop your leek[s]<span class="text-danger"> </span>in half lengthways, wash thor
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688739307725-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Give everything a good mix up and put the tray in the oven for 25-30 min or unti
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688739311396-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once done, drain and return to the pot to steam dry
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688739314489-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once hot, add your chicken breast portion[s] and cook for 3 min on each side or 
 
 Meanwhile, add your sausage meat (remove the paper if required!) and dried sage to a bowl with a pinch of pepper and mix until fully combined – this is your stuffing mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688739317906-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Return the tray[s] to the oven for 15-18 min or until the chicken is cooked thro
 
 Once done, transfer the chicken to a clean board and leave to rest for a couple of min before slicing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688739321424-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Once softened, add 2 tsp<span class="text-purple"> [3 tsp]</span> <span class="t
 
 Gradually add 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[90ml]</span> milk, 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[90ml] </span>boiled water, soft cheese and grated cheese, then season with a generous grind of black pepper and cook for 3-4 min or until thickened – these are your creamed leeks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1688739325414-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ That may look like lavish layers of dauphinoise, but you won’t believe the ric
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1663067210385-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and finely slice your potatoes into thin discs (roughly the thickness of a £1 coin)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663067214840-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add a drizzle of olive oil and a pinch of salt and give everything a good mi
 
 Sprinkle with cold water (this will help the potatoes cook through!) and put the tray[s] in the oven for 15-20 min or until softened and slightly golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663067219454-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your tomato[es] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663067224372-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and chopped tomato with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663067229938-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Cook for 3-4 min further or until browned all over, breaking it up with a wooden
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663067235219-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Season with a generous pinch of salt and pepper, bring to the boil and cook for 
 
 Combine your double cream with the remaining garlic and a pinch of salt – this is your garlic cream
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663067240477-x200.jpg)
 
 ### Step 7
 

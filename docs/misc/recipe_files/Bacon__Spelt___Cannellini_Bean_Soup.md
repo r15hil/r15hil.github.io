@@ -31,7 +31,6 @@ This rustic soup is just as good as grandma’s. You’ll simmer bacon, spelt an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1693827084784-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Heat a large, wide-based pot with a drizzle of olive oil over a medium-high heat
 
 Once hot, add your bacon lardons and cook for<span class="text-danger"> </span>5-6 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1693827088094-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Top, tail, peel and dice your carrot[s]<span class="text-danger"> </span>finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1693827095386-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ Once the bacon is crisp, add the sliced onion[s], sliced leek[s] and chopped car
 
 Cook for a further 2-3 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1693827099320-x200.jpg)
 
 ### Step 4
 
 Drain and rinse your cannellini beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1693827102716-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the vegetables have started to soften, add the chopped garlic, tomato paste
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1693827108638-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Once fragrant, add the drained cannellini beans and spelt to the pot with your c
 
 Cook for 20 min or until the spelt is tender (it will still have a slight bite when cooked) – this is your bacon, spelt & cannellini bean soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1693827111226-x200.jpg)
 
 ### Step 7
 

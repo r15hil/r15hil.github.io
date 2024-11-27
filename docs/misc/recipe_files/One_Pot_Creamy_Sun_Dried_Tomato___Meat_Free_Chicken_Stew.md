@@ -26,7 +26,6 @@ Prep a creamy stew in 5 minutes, full of tangy sun-dried tomatoes, tender potato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-2-1732293113811-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1732293117654-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Crush your garlic open by squashing it with the side of a knife, remove the skin and chop roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1732293121643-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Chop your potatoes (skins on) into small bite-sized pieces
 
 Add the chopped potatoes, chopped garlic, cherry tomatoes, tomato paste and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>flour to the dish and stir it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1732293125212-x200.jpg)
 
 ### Step 4
 
@@ -66,19 +62,16 @@ Tip: Nestle the potatoes into the stock as much as you can!
 
 Bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1732293130961-x200.jpg)
 
 ### Step 5
 
 Cover with a lid and put the dish in the oven for 25 min or until the potatoes are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1732293134394-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1732293137895-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Spike sausage rolls with a hit of sage and dunk into festive cranberry ketchup f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2382Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Combine your sausage meat (remove the paper if required!), vegetable stock mix, 
 
 Mix everything together until the breadcrumbs are fully incorporated – this is your pork filling
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2382Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the pastry rectangle[s] to the tray[s]
 
 Divide the pork filling equally and press into a sausage shape (1 per person) and lay in the middle of the pastry rectangle[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2382Step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add half your cranberry sauce (you’ll use the rest later) to a small bowl with
 
 Top the pork filling with the cranberry mustard
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2382Step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Place the seal-side underneath, press the open ends together with your fingers t
 
 Score the top of the sausage roll[s] with a sharp knife and sprinkle over half your dried sage (you'll use the rest later!) and a pinch of salt
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2382Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Add the chopped potatoes to separate a baking tray (or two!) with a small drizzl
 
 Put the trays in the oven for 25-30 min or until the potatoes are crispy and the sausage roll[s] are golden and cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2382Step-6-x200.jpg)
 
 ### Step 6
 
 While everything is cooking, combine the remaining cranberry sauce and your tomato ketchup in a small bowl – this is your cranberry ketchup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2382Step-7-x200.jpg)
 
 ### Step 7
 

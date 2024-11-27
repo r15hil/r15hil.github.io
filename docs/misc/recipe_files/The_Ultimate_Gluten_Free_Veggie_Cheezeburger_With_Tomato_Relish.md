@@ -25,7 +25,6 @@ Get excited! Whether you’re meat-free on Mondays or all week long, our ultimat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679572701407-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut your potatoes (skins on) into chips and add to a baking tray with a drizzl
 
 Strip your rosemary leaves from their stems and chop them roughly, discard the stems, then sprinkle the chopped rosemary all over the chips and put the tray in the oven for 20-25 min or until crisp – these are your rosemary chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679572704142-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the chopped tomato with a pinch of salt and cook for 2-3 min o
 
 Whilst the tomatoes are cooking, peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679572753225-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Add 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[15
 
 Once boiling, cook for 5-6 min or until the tomatoes have broken down and it's reduced to a ketchup-like consistency – this is your tomato relish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679572755915-x200.jpg)
 
 ### Step 4
 
 Add your meat-free burger patties to one side of a baking paper-lined tray, then put the tray in the oven for an initial 10 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679572758938-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Remove 2 outer leaves per person from the lettuce and chop the inner core[s] int
 
 Peel and slice your shallot[s] into rounds
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679572762224-x200.jpg)
 
 ### Step 6
 
 Once the patties have had 10 min, remove the tray from the oven and top them with your cheese flavour slices – these are your cheezy meat-free patties
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679572765192-x200.jpg)
 
 ### Step 7
 

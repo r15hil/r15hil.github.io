@@ -27,7 +27,6 @@ Transport your taste buds to the Greek islands with this traditional family favo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670927830119-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and spinach and cook for 3-4 min or until the spinach is wilted and the onion has softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702382444578-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Grate your cucumber and squeeze out any excess water
 
 Peel and finely grate your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670927839280-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add the softened onion and wilted spinach to the bowl with the sliced spring oni
 
 Season with salt and pepper and give everything a good mix up – this is your spanakopita filling
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670927848875-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the wedges to a baking tray (or two!) with your dried oregano, a drizzle of 
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your oregano wedges
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670927865956-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Unwrap your puff pastry and roll it out into a rectangle shape (or two!), approx
 
 Add the rolled pastry to a baking tray (or two!) lined with non-stick baking paper, then add the spanakopita filling to the centre of the pastry in a sausage shape leaving a 2cm border at each end
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670927869945-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Cut even strips into the pastry sides, roughly 3cm wide
 
 Tuck the top and bottom ends of the pastry over the filling, then fold the strips over the filling in a criss-cross pattern until the mixture is completely covered – this is your spanakopita
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670927881322-x200.jpg)
 
 ### Step 7
 

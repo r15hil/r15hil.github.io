@@ -27,7 +27,6 @@ This mac ‘n’ cheese is an absolute smoke show. You’ll flavour pasta with c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670329796050-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop your leek[s] in half lengthways, wash thoroughly then top, tail and slice f
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670329801296-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add your bacon lardons and sliced mushrooms and cook for 3-4 min or un
 
 Transfer to a plate (reserve the pan for later!) – these are your crispy lardons & mushrooms
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670329804593-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once done, drain the macaroni, reserving a cup of the starchy pasta water
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670329809419-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once melted, add the sliced leek, chopped garlic, half your ground smoked paprik
 
 Once softened, add 15g <span class="text-purple">[25g]</span> <span class="text-danger">[30g]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste coats the leek – this is your leek roux
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670329813205-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Meanwhile, grate your cheddar cheese
 
 Combine half the grated cheese (save the rest for later!) with your panko breadcrumbs in a small bowl with the remaining ground smoked paprika – these are your smoky breadcrumbs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670329816431-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add a few splashes of starchy pasta water to loosen the mixture
 
 Tip: You want your sauce to be quite loose as it will continue to thicken in the oven!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670329820328-x200.jpg)
 
 ### Step 7
 

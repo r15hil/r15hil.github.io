@@ -25,7 +25,6 @@ This classic dish is one of Korea's most famous exports. It's simple to prepare,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1617029608627-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span c
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1617029647012-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1617029789075-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel (scrape the skin off with a teaspoon) and roughly chop your ginger
 
 Add the chopped onion, garlic and ginger to a food processor with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water and blitz until smooth – this is your ginger & garlic paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1617029793548-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add your beef strips to a large bowl with the ginger & garlic paste, soy sauce, 
 
 Give everything a good mix up and set aside to marinate
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1617029798295-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Top, tail peel and chop your carrot[s] into thin batons
 
 Slice your chestnut mushrooms finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1617029802552-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, add the chopped vegetables with a pinch of salt and cook for 4-5 min o
 
 Once done, transfer them to a plate and set aside for later
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1-1617029807773-x200.jpg)
 
 ### Step 7
 

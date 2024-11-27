@@ -30,7 +30,6 @@ A sunny brunch is ideal this time of year. For a colourful plateful, you'll cook
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597164857536-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add half the sliced onion (save the rest for later!) and cook for 4-5 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597164867836-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once the onion has softened, add the halved cherry tomatoes to the pan and cook 
 
 Meanwhile, drain and rinse your butter beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597164874951-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the chopped potatoes, butter beans, ground turmeric, curry powder, half you
 
 Once fragrant, add 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[500ml]</span> boiled water to the potatoes with a very generous pinch of salt and pepper and cook, covered, for 18-20 min or until the potatoes are fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597164893138-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Whilst the potatoes are cooking, roll your lime[s] with your hand on a hard surf
 
 Add the remaining sliced onion to a small bowl and squeeze the juice of the lime[s] over, season with a pinch of salt and place the squeezed lime[s] on top for added pickling – this is your lime quick-pickled onion
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597164904778-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Chop your coriander roughly and cut your avocado[s] in half lengthways, around t
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597164915005-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Tip: If it's looking a little dry, add a splash of water to loosen the sauce
 
 Add your garlic & coriander naan[s] to a toaster for 1-2 min or until warmed through, then cut into bite-sized fingers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597164925603-x200.jpg)
 
 ### Step 7
 

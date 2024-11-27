@@ -27,7 +27,6 @@ Bulgogi is found practically everywhere across Korea. To make it at home, you'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1621939570605-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1621939575824-x200.jpg)
 
 ### Step 2
 
 While the rice is cooking, trim, then cut your green beans in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1621939582157-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Trim, then slice your spring onion[s] finely, keeping the white parts and green 
 
 Grate your apple[s]<span class="text-danger"> </span>(skin on) into a large bowl and discard the core[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624890307703-x200.jpg)
 
 ### Step 4
 
 Add your lean beef mince, chopped ginger, chopped garlic, sliced spring onion whites, soy sauce, toasted sesame oil and 2 tsp<span class="text-danger"> <span class="text-purple">[3 tsp] </span>[4 tsp] </span>brown<span class="text-danger"> </span>sugar to the grated apple and mix thoroughly with clean hands – this is your Korean-style lean beef mince
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1621939609531-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once hot, add the Korean-style lean beef mince and the halved green beans
 
 Spread the mixture out and cook for 4 min, without stirring
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1621939617294-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Flip the meat, and cook for a further 4 min on the other side (no pink meat!)
 
 Once cooked, break up the beef mince into rough bite-sized pieces with a wooden spoon – this is your Korean-style lean beef bulgogi with beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1621939628675-x200.jpg)
 
 ### Step 7
 

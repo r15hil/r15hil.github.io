@@ -26,7 +26,6 @@ An insanely delicious plant-based curry – ready in a hurry! You'll simmer fres
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1659004725513-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1659435699445-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, tear your chestnut mushrooms into the pan and cook for 3 min or unti
 
 Tip: Try not to stir the mushrooms too often, as this will stop them from caramelising!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1659004733735-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Chop your pepper[s] in half, deseed (scrape the seeds and pith out with a teasp
 
 Add the chopped pepper to the pan and cook for 2 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1659004737836-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, trim, then roughly chop your spring onions
 
 Add the chopped spring onion to the pan and cook for 2 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1659004741758-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Whilst everything is cooking, chop your creamed coconut roughly (if required!)
 
 Dissolve your red Thai curry paste, peanut butter, chopped creamed coconut and soy sauce in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[500ml] </span>boiled water – this is your nutty stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1659004746149-x200.jpg)
 
 ### Step 6
 
 Add your mangetout and nutty stock to the pan and cook for 2-3 min further or until thickened – this is your nutty three veg curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659004749713-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Pack in your greens with this classic pea soup. You’ll pan-fry garlic, leek an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674830955107-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Crush your garlic open by squashing them with the side of a knife and discard the skin
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674830965787-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Once hot, add the chopped leek and crushed garlic to the pot
 
 Cook for 3-4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674830973238-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Boil a kettle
 
 Chop your potato[es] (skin on) into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674830981664-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once the leek has softened, add the chopped potato[es] to the pot with your drie
 
 Cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674830992858-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Add your chicken stock mix and 600ml <span class="text-purple">[900ml] </span><s
 
 Once boiling, reduce the heat to medium-low and cook, covered, for 15-18 min or until the potato is fork-tender – this is your soup base
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674831001693-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ When the soup base is nearly ready, heat a large, wide-based pan (preferably non
 
 Once hot, add your diced chorizo and cook for 4-5 min or until crisped – this is your crispy chorizo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674831014445-x200.jpg)
 
 ### Step 7
 

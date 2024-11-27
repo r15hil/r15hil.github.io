@@ -26,7 +26,6 @@ Who doesn't love a chicken burger? For this crowd pleaser, you'll crisp breaded 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679406740138-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your potatoes (skins on) into thin fries
 
 Add the fries to a baking paper-lined baking tray with a small drizzle of vegetable oil and a pinch of salt and pepper, give everything a good mix up and put the tray in the oven for 20-25 min or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679406746088-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Add your chicken strips, soy sauce and ground smoked paprika to a bowl, give eve
 
 Add your panko breadcrumbs to a plate with a pinch of salt and pepper and mix everything together – this is your breadcrumb mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679406748513-x200.jpg)
 
 ### Step 3
 
 Press the chicken strips into the breadcrumb mixture firmly to evenly coat all over – these are your breaded chicken strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679406762696-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add the breaded chicken strips to a baking paper-lined baking tray
 
 Put the tray in the oven for<span class="text-danger"> </span>15-18 min<span class="text-danger"> </span>or until cooked through (no pink meat!) and crispy – this is your crispy breaded chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679406762617-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Dice half your tomato[es] finely
 
 Slice the remaining tomato[es] finely into rounds
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679406762577-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Combine the chopped garlic (not a big garlic fan? Try using less!) and your mayo
 
 Combine your cider vinegar with a small drizzle of olive oil and a pinch of salt and pepper in a separate bowl – this is your dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679406766743-x200.jpg)
 
 ### Step 7
 

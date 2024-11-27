@@ -22,7 +22,6 @@ These nachos are a total game changer. You'll bake tortilla chips with our famou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1610980779384-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the tortilla triangles to a tray (or two!) with a drizzle of olive oil and 
 
 Give everything a good mix up, then spread them out and put the tray in the oven for 4-5 min or until lightly browned and beginning to crisp, then remove from the oven
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610980747126-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the ultimate vegan burger patties to the pan breaking them up with
 
 Cook for 3-4 min or until starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1610980810741-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Peel and finely chop (or grate) the garlic and chop the cornichons roughly
 
 Once the vegan mince is beginning to crisp, add the chopped garlic and cook for 1 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1610980912084-x200.jpg)
 
 ### Step 4
 
@@ -60,19 +56,16 @@ Add half the tortilla triangles to an oven-proof dish, then top with half the ve
 
 Then repeat one more layer and put the dish in the oven for 3-4 min or until the vegan cheese has melted
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610980919436-x200.jpg)
 
 ### Step 5
 
 Meanwhile, roughly chop the tomato<span class="text-danger">[es]</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610980947606-x200.jpg)
 
 ### Step 6
 
 Wash, then shred the little gem lettuce<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612175074850-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ Originating in Pakistan, Karahi is a dry, spicy curry. We've teamed our paneer v
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679486305977-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Tip: Watch them like a hawk so they don't burn!
 
 Once toasted, transfer the toasted coconut & almonds to a plate and reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679486311242-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679486316360-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once hot, add the cubed paneer and cook for 3-5 min or until golden, turning occ
 
 Once cooked, transfer the golden paneer to a plate and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679486320827-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Peel (scrape the skin off with a teaspoon) and finely slice a few matchsticks fr
 
 Slice your green chilli[es] in half lengthways
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679486330538-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Chop your coriander finely, including the stalks
 
 Dissolve the vegetable stock mix and tomato paste in 150ml <span class="text-purple">[225ml] </span><span class="text-danger">[300ml] </span>boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679486335425-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Reduce the heat to medium and cook for 6-8 min or until sauce has thickened – 
 
 Tip: Don't worry if it's a little thick, karahi is drier than most curries!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679486340528-x200.jpg)
 
 ### Step 7
 

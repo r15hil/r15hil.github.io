@@ -24,7 +24,6 @@ For a fantastic fried chicken burger, you'll coat free range chicken thighs in c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1695718924621-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-14-1695718927744-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Add the chicken strips to a bowl with the cayenne pepper (can't handle the heat?
 
 Add the cornflour and give everything a good mix up until the chicken is fully coated in the cornflour mixture – these are your coated chicken strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-21-1695718930838-x200.jpg)
 
 ### Step 3
 
 Combine the sriracha (not a fan of spice? Just add a little!) with the mayo in a small bowl – this is your sriracha mayo
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-20-1695718934251-x200.jpg)
 
 ### Step 4
 
@@ -62,13 +58,11 @@ Cut the remaining lettuce in half
 
 Slice the tomato<span class="text-danger">[es] </span>finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-20-1695718937877-x200.jpg)
 
 ### Step 5
 
 Combine the white wine vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper in a separate small bowl – this is your dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-17-1695718943079-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once hot, add the coated chicken strips and cook for 4-5 min on each side or u
 
 Tip: Add more oil to the pan if it is looking a little dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-6-1695718947706-x200.jpg)
 
 ### Step 7
 

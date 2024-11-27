@@ -21,7 +21,6 @@ Belazu Genovese Pesto makes this crispy breaded chicken the stuff of dreams. Bak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682083585674-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Combine the traditional Italian pesto with a knob of butter and a generous grind
 
 Tip: If your butter is not soft then microwave for a few secs or until soft to the touch but not melted
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682083589569-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the panko breadcrumbs to a plate with a pinch of salt and pepper – this is
 
 Add a generous drizzle of olive oil to a separate plate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682083593602-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Transfer the breaded chicken, filling-side up, to a baking paper-lined baking tr
 
 Put the tray in oven for 20-22 min or until golden and cooked through (no pink meat!) – this is your pesto stuffed chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682083597077-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682083600255-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the trimmed green beans to the pan with a pinch of salt and cook for 4-5 min or until tender with a slight bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682083604307-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Meanwhile, return the cooked potatoes to a low heat with a generous knob of butt
 
 Season with a generous pinch of salt and mash until smooth – this is your mash
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682083607344-x200.jpg)
 
 ### Step 7
 

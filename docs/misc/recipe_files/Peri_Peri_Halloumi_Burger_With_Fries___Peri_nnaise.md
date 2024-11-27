@@ -28,7 +28,6 @@ Say hallou-mi to this peri-peri burger packed with fiery chilli. You’ll stack 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1665999526923-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1665999533955-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Crush your garlic clove[s] open with the side of a knife and remove the skin[s]
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1665999539405-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the chopped pepper, crushed garlic and shallot quarters with a small splash of cold water and cook for 5 min or until slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1665999543821-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Reserve the pan with the remaining pepper for later
 
 Add your ground smoked paprika and chopped chilli (can't handle the heat? Go easy!) to the food processor with your tomato paste, white wine vinegar, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and a drizzle of olive oil and blitz until smooth – this is your peri-peri sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1665999549971-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Return the reserved pan with the pepper to a medium-high heat with a drizzle of 
 
 Add the sliced halloumi with 1 tbsp of peri-peri sauce per person (you’ll use the rest later!) and cook for 2-3 min on each side or until the halloumi is browned and the reserved pepper is tender – this is your pepper & peri-peri halloumi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1665999557092-x200.jpg)
 
 ### Step 6
 
 Combine your mayo and remaining peri-peri sauce with a grind of black pepper – this is your peri-nnaise
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1665999563796-x200.jpg)
 
 ### Step 7
 

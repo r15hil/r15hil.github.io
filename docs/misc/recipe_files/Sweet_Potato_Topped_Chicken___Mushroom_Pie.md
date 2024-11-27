@@ -25,7 +25,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1951.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop your brown onion[s]
 
 Slice your chestnut mushrooms
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1951.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once hot, add the chopped onion and mushrooms with a pinch of salt and cook for 
 
 Meanwhile, dissolve your chicken stock mix in 350ml <span class="text-purple">[450ml]</span> <span class="text-danger">[550ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1608221960207-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the chicken stock and whisk until smooth
 
 Cook, covered, for a further 10-12 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1951.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once done, drain and return them to the pot, covered to keep warm
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> butter and a pinch of salt to the potatoes and mash them until smooth
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1951.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once the chicken is cooked, transfer it to a clean board and shred apart using t
 
 Return the pulled chicken to the pan, add your soft cheese, Dijon mustard (not a mustard fan? Go easy!) and a generous grind of black pepper and give everything a good mix up – this is your pie filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1951.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Put the dish in the oven and cook for 10-15 min or until golden and bubbling –
 
 Reboil a kettle
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1951.-step-7-x200.jpg)
 
 ### Step 7
 

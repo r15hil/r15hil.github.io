@@ -24,7 +24,6 @@ Let the Greek flavours of cinnamon, oregano, olives and feta take you on an adve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2390Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2390Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,19 +49,16 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the lamb mince, crumble in 1/2 <span class="text-danger">[1]</span> Knorr beef stock cube and cook for 1 min, <span class="text-highlight">breaking it up</span> with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2390Step-3-x200.jpg)
 
 ### Step 3
 
 Add the roasted garlic paste, dried oregano, cinnamon and tomato paste and cook for 1 min further or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2390Step-4-x200.jpg)
 
 ### Step 4
 
 Once fragrant, add the spinach to the pan and cook for 1 min or until wilted
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/steamed-white-rice-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2390Step-6-x200.jpg)
 
 ### Step 6
 
 Chop the tomato<span class="text-danger">[es]</span> roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2390Step-7-x200.jpg)
 
 ### Step 7
 

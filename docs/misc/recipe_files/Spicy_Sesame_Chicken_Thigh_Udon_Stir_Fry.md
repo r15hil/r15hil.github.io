@@ -24,7 +24,6 @@ Whip out the wok for this chicken stir-fry, packed with pepper and full of carro
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1678715738346-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678715744349-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Top, tail and grate your carrot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678715752395-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh and chopped pepper to the pan with a pinch of salt and cook for 6 min or until the chicken has browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678715766048-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your soy sauce and toasted sesame oil in a small bowl with your sriracha (can't handle the heat? Go easy!), cornflour, 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> sugar and 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp]</span> cold water and mix until smooth – this is your spicy sesame sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678715771189-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Once the chicken is browned, add your ginger & garlic paste, grated carrot and u
 
 Tip: Gently separate the noodles with a fork!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678715776699-x200.jpg)
 
 ### Step 6
 
 Trim, then finely slice your spring onion[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678715781277-x200.jpg)
 
 ### Step 7
 

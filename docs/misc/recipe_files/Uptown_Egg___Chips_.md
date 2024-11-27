@@ -21,7 +21,6 @@ Away with greasy spoon fare – we’ve upgraded this retro British classic with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/393__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut the potatoes (skins on) into chunky chips
 
 Add the chips to a baking tray with 1-2 tbsp olive oil, then season&nbsp;with salt and pepper and oven roast for 30 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/393__-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cube approx. 30g <span class="text-danger">[60g]</span>&nbsp;butter and add to a
 
 Mix and mash the butter thoroughly with a fork &ndash; this is your garlic butter
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/393__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Divide the garlic butter between the mushrooms inside the caps
 
 Place the mushrooms on a separate baking tray and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/393__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Add the cherry tomatoes and chopped shallot to a sheet of tin foil
 
 Drizzle with the white wine vinegar, 1 tbsp <span class="text-danger">[2 tbsp]</span>&nbsp;olive oil, 1 tsp <span class="text-danger">[2 tsp]</span>&nbsp;sugar and season with salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/393__-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Scrunch the foil into a sealed package (see photo) and add to the baking tray wi
 
 Put it in the oven for 15 min until the mushrooms are tender and the cherry tomatoes have softened slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/393__-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Transfer the cherry tomatoes to a small pan
 
 Heat gently over a medium-high heat until they break down into a warm relish (and most of the liquid has absorbed)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/393__-step-7-x200.jpg)
 
 ### Step 7
 

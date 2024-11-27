@@ -25,7 +25,6 @@ Taco chance on this Korean-Mexican fusion. You’ll pan-fry tender chunks of chi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684508025574-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Trim, then slice your spring onion[s] finely, keeping the whites and greens sepa
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684508043751-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once hot, add your diced chicken thigh and cook for 4-5 min or until lightly bro
 
 Tip: Unevenly sized diced chicken thigh? Chop any larger ones into bite-sized pieces!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684508050983-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp] </span
 
 Give everything a good mix up – this is your gochujang stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684508057603-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Once the chicken is lightly browned, reduce the heat to medium-high and add the 
 
 Stir it all together and cook, stirring occasionally, for 6-8 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your Korean-style glazed chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684508063831-x200.jpg)
 
 ### Step 5
 
 While the chicken is cooking, combine your shredded red cabbage, grated carrot and spring onion whites in a large bowl – this is your slaw mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684508070561-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Add your mayo, remaining rice vinegar, toasted sesame oil and a generous pinch o
 
 Mix until fully combined – this is your sesame slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684508076642-x200.jpg)
 
 ### Step 7
 

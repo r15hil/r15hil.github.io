@@ -25,7 +25,6 @@ Cosy up to our plant-based portobello, lentil and carrot pie, enriched with Hend
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610818511644-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607608162201-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of o
 
 Chop your portobello mushroom[s] into 8 wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607608175061-x200.jpg)
 
 ### Step 3
 
 Add the portobello mushroom wedges to the dish with a generous pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607608186343-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Top, tail, peel and chop your carrot[s] into rounds
 
 Add the carrot rounds to the dish with 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp] </span>[2 tbsp]</span> flour
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607608201088-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add your beluga lentils to the dish with the dried oregano and give everything a
 
 Wash your lamb's lettuce, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607608212207-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add in your vegetable stock mix<span class="text-danger"> </span>with your<span 
 
 Stir through your Marmite and bring to the boil over a high heat – this is your pie filling
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607608222785-x200.jpg)
 
 ### Step 7
 

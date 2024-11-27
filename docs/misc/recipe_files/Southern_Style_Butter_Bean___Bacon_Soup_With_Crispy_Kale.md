@@ -28,7 +28,6 @@ Time for a lil’ Southern flavour. You’ll pan-fry bacon, butter beans and veg
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694436576247-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your shredded kale to a large baking tray with a pinch of salt, 1 tsp <span 
 
 Give everything a good mix up, then put the tray in the oven for 25-30 min or until crispy – this is your crispy kale
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694436579324-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a medium sized pot over a medium heat with a drizzle of vegetable oil
 
 Once hot, add your bacon lardons and cook for 3-4 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694436581888-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Drain and rinse your butter beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694436585429-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the bacon is golden, add the sliced leek and diced carrot to the pot with a
 
 Dissolve your chicken stock mix and soft cheese with 700ml <span class="text-purple">[1.1L]</span> <span class="text-danger">[1.4L]</span> boiled water – this is your creamy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694436588755-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once the vegetables have softened, add half the chopped garlic (you'll use the r
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694436591296-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once fragrant, add the creamy stock with a generous grind of black pepper and br
 
 Once boiling, reduce the heat to medium and cook for 8-10 min or until the vegetables are tender and the stock has thickened slightly – this is your southern-style butter bean & bacon soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694436594082-x200.jpg)
 
 ### Step 7
 

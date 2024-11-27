@@ -21,7 +21,6 @@ In this dish, we're showcasing samphire- a beautiful sea vegetable that grows on
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/587.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the hazelnuts and sesame seeds to a baking tray
 
 Put the tray in the oven for 10 min or until the nuts and seeds have slightly darkened (toasted)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/587.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Bring to the boil and cook for 8-10 min, or until cooked but with a slight bite
 
 Once cooked, drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/587.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Pat the salmon fillets dry with kitchen towel and season on both sides with salt
 
 Once the pan is hot, add the salmon, skin-side down and cook for 3-4 min or until the skin is crispy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/587.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once done, transfer (reserve the tray for the next step!) the toasted hazelnut m
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/587.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Put&nbsp;the salmon in the oven for 4-6 min or until the salmon has cooked&nbsp;
 
 Tip:&nbsp;Your fish is done when it is opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/587.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Meanwhile, crush (or pulse in a food processor) the cooled nuts and seeds to a s
 
 Season with a pinch of salt and pepper - this is your dukkah&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/587.-step-7-x200.jpg)
 
 ### Step 7
 

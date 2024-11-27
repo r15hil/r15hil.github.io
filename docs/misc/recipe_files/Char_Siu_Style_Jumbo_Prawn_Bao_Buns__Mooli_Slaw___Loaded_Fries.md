@@ -28,7 +28,6 @@ Transport your taste buds to China with these char siu jumbo bao buns. Legend ha
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670922195006-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670922201114-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Meanwhile, add your mooli slaw mix and rice vinegar to a large bowl with 1 tsp <
 
 Give everything a good mix up and set aside – this is your quick-pickled mooli slaw
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670922213089-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Combine your sriracha (can't handle the heat? Go easy!) and mayo in a small bowl
 
 Pick your coriander leaves from the stalks, discard the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670922223490-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Combine the grated garlic, five-spice mix, hoisin sauce, honey and soy sauce in 
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> cold water and 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp] </span>[2 tbsp]</span> vegetable oil and stir everything together – this is your char siu-style sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670922231797-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Drain, then add your jumbo prawns to a large bowl with 1 tbsp <span class="text-
 
 Once hot, add the coated jumbo prawns to the pan and cook for an initial 4-5 min or until golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670922248285-x200.jpg)
 
 ### Step 6
 
 Once the prawns are golden, add the char siu-style sauce to the pan and cook for a further 3-4 min or until the sauce has thickened and the prawns are cooked through – these are your char siu-style jumbo prawns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670922258159-x200.jpg)
 
 ### Step 7
 

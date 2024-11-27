@@ -21,7 +21,6 @@ This one's for all you pork lovers out there! You'll be pan frying pork tenderlo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1198.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel the garlic<span class="text-highlight">,&nbsp;then peel and chop the potato
 
 <span class="text-highlight">Cook over a high heat for 10-15 min or until fork-tender, then drain and return them to the pot</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1198.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, re-boil a kettle
 
 Roll each piece of pork tenderloin in 2 rashers of smoked streaky bacon
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1198.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the wrapped pork&nbsp;to the pan and cook for 4-5 min on each side
 
 Tip: turn the pork very gently so the bacon doesn't fall off&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1198.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once done, remove from the oven and leave to rest until serving
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1198.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add the sliced spring greens to a pot of plenty of boiling water with a pinch of
 
 Once tender, drain and set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1198.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Meanwhile, return the drained potatoes to a low heat with a splash of milk and a
 
 Mash until smooth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1198.-step-7-x200.jpg)
 
 ### Step 7
 

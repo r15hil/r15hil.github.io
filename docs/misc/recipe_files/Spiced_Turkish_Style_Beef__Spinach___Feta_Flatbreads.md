@@ -28,7 +28,6 @@ These flatbreads are a speedier twist on Turkish beef gözleme. You'll stuff sof
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586946796314-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your beef mince and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1586946801744-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, chop your tomato[es]<span class="text-danger"> </span>finely
 
 Peel and finely dice your red onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1586946805501-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Combine the diced tomato and the remaining diced onion in a bowl with 1 tbsp <sp
 
 Stir it all together and set aside – this is your tomato salad
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1586946809530-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the chopped garlic and ground cumin to the pan with the ground coriander, sm
 
 Once fragrant, add your tomato paste, beef stock mix and 100ml <span class="text-purple">[150ml] </span> <span class="text-danger">[200ml] </span>cold water and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1586946813768-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once boiling, wash your spinach, then add it to the pan and cook, covered, for 2
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your spiced beef filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1586946818512-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Break your feta up into small pieces on the top of the filling
 
 Fold each tortilla over so you're left with 3<span class="text-danger"> </span>half moon-shaped sandwiches per person – these are your spiced Turkish-style beef, spinach & feta flatbreads
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1586946826419-x200.jpg)
 
 ### Step 7
 

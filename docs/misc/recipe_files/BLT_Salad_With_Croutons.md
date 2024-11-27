@@ -22,7 +22,6 @@ For this iconic sando-inspired salad, you’ll toss lettuce and tomatoes in a cr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714492558212-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potato[es] (skin on) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714492561598-x200.jpg)
 
 ### Step 2
 
@@ -38,7 +36,6 @@ Add the chopped potato to a baking tray (or two!) with a drizzle of olive oil an
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714492564523-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Tear the outer lettuce leaves into rough, bite-sized pieces and shred the inner 
 
 Tear your ciabatta[s] into small, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714492567540-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add your smoked streaky bacon to a tin foil-lined baking tray (or two!)
 
 Put the tray[s] in the oven for 12-15 min or until golden and crispy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714492571324-x200.jpg)
 
 ### Step 5
 
@@ -66,13 +61,11 @@ Once the potato is golden, remove the tray[s] from the oven and top with the tor
 
 Top with a generous drizzle of olive oil, then return the tray[s] to the oven for a further 7-8 min or until golden and crisp
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714492574017-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your mayo and white wine vinegar in a large bowl with your dried oregano, 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt, pepper and sugar – this is your creamy dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714492577241-x200.jpg)
 
 ### Step 7
 

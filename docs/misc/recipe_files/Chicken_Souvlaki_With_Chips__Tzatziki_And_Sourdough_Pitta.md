@@ -26,7 +26,6 @@ This iconic street food dish is famous throughout Greece. For your version, you�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1713879347078-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Soak your skewers in cold water (this stops them from burning whilst cooking!)
 
 Cut your potatoes (skins on) into chips, then add them to a baking paper-lined baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and put in the tray[s] in the oven for an initial 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1713879350483-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Add half the grated garlic (you'll use the rest later!) to a bowl with your chic
 
 Give everything a good mix up and season with a pinch of salt and pepper – these are your marinated chicken thighs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1713879383602-x200.jpg)
 
 ### Step 3
 
 Thread the marinated chicken thighs onto the soaked skewers in a snake-like fashion – these are your marinated chicken skewers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1713879387059-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Tip: This will allow your chips to soak up all the juices and give them extra fl
 
 Return the tray[s] to the oven for 22-25 min or until the chicken is slightly charred and cooked through (no pink meat!) – these are your chicken souvlaki skewers
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1713879390538-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Grate the deseeded cucumber and squeeze out any excess water
 
 Chop your tomato[es] roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1713879395740-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the cucumber discs, chopped tomato and the remaining sliced shallot to a bow
 
 Season with a pinch of salt and give everything a good mix up – this is your cucumber & tomato salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1713879399652-x200.jpg)
 
 ### Step 7
 

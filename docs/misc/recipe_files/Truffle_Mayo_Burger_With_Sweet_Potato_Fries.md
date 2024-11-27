@@ -26,7 +26,6 @@ It’s the combo you asked for. Literally. This cheddar-topped beef burger's smo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624268417341-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Remove 15g <span class="text-purple">[25g]</span><span class="text-danger"> [30g
 
 Peel and cut your sweet potato[es] into fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624268421194-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add a drizzle of vegetable oil, a pinch of salt and pepper and your ground smoke
 
 Put the tray[s] in the oven for 25-30 min or until cooked through and golden – these are your smoky sweet potato fries
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624268425972-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, combine your mayo, truffle oil, your white wine vinegar and a generou
 
 Peel and finely chop (or grate) your garlic, then add it to a separate bowl with your dried oregano and softened butter and give everything a good mix up – this is your garlic & herb butter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624268430489-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Massage the meat with clean hands for 1 min (this helps them to hold their shape
 
 Divide the mince and shape them into 1 patty per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624268434144-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip the patty[ies] and reduce the heat to medium-high and cook for 3 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624268438969-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add to a baking tray (or two!), butter-side up, and put the tray[s] in the oven 
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624268443024-x200.jpg)
 
 ### Step 7
 

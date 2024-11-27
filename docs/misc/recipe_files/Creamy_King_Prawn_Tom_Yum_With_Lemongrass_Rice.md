@@ -29,7 +29,6 @@ Try your hand at Thai-style tom yum soup from scratch. You’ll whip up a coconu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1714735808519-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Remove the tough outer layers of the lemongrass and set aside for later
 
 Chop the softer inner core[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1714735843660-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving - this is your lemongrass rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1714735880619-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Zest your lime[s] (try to grate lightly with a micro-plane or sharp box grater a
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1714735909490-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-dange
 
 Tip: Don’t have a pestle & mortar? Pulse in a food processor!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1714735922941-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Chop your tomato[es] into wedges
 
 Slice your baby button mushrooms finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1714735932201-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once hot, add your tom yum paste, cook for 1-2 min or until fragrant
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1714736013830-x200.jpg)
 
 ### Step 7
 

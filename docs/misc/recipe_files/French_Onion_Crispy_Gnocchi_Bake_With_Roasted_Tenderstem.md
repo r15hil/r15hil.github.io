@@ -26,7 +26,6 @@ This is French comfort food with an Italian twist. You’ll caramelise onions an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682186059836-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Slice your chestnut mushrooms finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679405526377-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Give everything a good mix up and put the dish in the oven
 
 Cook for 25 min or until the gnocchi is crispy – this is your crispy gnocchi
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679405530591-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once melted, add the sliced onion, sliced mushrooms and dried thyme
 
 Add 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[125ml]</span> cold water and cook, covered, for 8-10 min or until the onions and mushrooms are completely softened, stirring occasionally
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679405534023-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Scrunch the foil around the Tenderstem broccoli to form a tightly sealed parcel,
 
 Tip: Cooking for 3 or more? Make 2 separate parcels!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679405537821-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Tip: Watch them like a hawk and stir frequently to make sure they don't burn!
 
 Put the broccoli parcel[s] in the oven for 10-12 min or until tender with a slight bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679405542101-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once fragrant, add 200ml <span class="text-purple">[260ml]</span> <span class="t
 
 Bring to the boil and cook for 1 min or until slightly thickened – this is your French onion & mushroom sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679405546723-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ By combining Indian spices with slow-cooked pepper, coconut and coriander, you'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682669064893-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut i
 
 Peel and finely slice your red onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682669090910-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once hot, add the chicken breast portion[s] with a large pinch of salt and cook
 
 Once browned, transfer them to a tin foil-lined baking tray (save the pan!) and put the tray in the oven for 12-14 min or until the chicken is cooked through (no pink meat!) and the juices run clear
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682669094586-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the pepper strips and sliced onion with a big pinch of salt and sugar
 
 Cook for 5 min, then reduce the heat to low and cook for 15 min further or until softened and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682669097750-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Peel your ginger (scrape the skin off with a teaspoon) and peel the garlic, then
 
 Bash your lemongrass stalk[s] with a rolling pin, cut down the middle lengthways, remove the tough outer layers and set aside for later, then chop the soft inner core[s] finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682669101179-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your lemongrass rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682669103973-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the chopped ginger, chopped garlic, chopped lemongrass core, curry powder
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682669107335-x200.jpg)
 
 ### Step 7
 

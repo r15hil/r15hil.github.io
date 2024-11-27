@@ -24,7 +24,6 @@ These street food-inspired tacos are surf 'n' turf-ilicious! You'll fill soft to
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1596553680181-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Roll your lime[s] with your hand on a hard surface (to release more juice!) and cut in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1596553689664-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add your blanched peas to a pot of boiled water with a pinch of salt, bring 
 
 Once cooked, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1596553701337-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Combine your natural yoghurt, chopped garlic (not a big garlic fan? Try using le
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1596553709649-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once melted, add the chopped chilli (can't handle the heat? Go easy!)
 
 Mash until you're left with a coarse pea mash – these are your smashed chilli peas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1596553718740-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chorizo and cook for 4-5 min or until crisped
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1709105695857-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Meanwhile, add your tortillas to a plate and pop in the microwave for 20 secs on
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1596553739700-x200.jpg)
 
 ### Step 7
 

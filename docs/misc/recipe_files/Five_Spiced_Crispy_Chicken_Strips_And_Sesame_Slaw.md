@@ -26,7 +26,6 @@ Feed your cravings with this fakeaway twist on sweet and sour chicken. You’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1673871861696-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Cut your potatoes (skins on) into fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1673871866494-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 25-30 min or until the fries are golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1673871870114-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add your honey and tomato ketchup with your rice vinegar, soy sauce, 1 tsp<span 
 
 Cook for 2-3 min or until the sauce has thickened – this is your sweet & sour dipping sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1673871876008-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Add your carrot & cabbage slaw mix to a large bowl with your black sesame seeds 
 
 Mix until fully combined – this is your sesame slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1673871881622-x200.jpg)
 
 ### Step 5
 
 Heat a large, wide-based pan (preferably non-stick) with 4 tbsp<span class="text-purple"> [6 tbsp]</span><span class="text-danger"> [8 tbsp] </span>vegetable oil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1673871885772-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Add your chicken breast strips to a large bowl with the remaining cornflour, 2 t
 
 Give everything a good mix up – this is your coated chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1673871890035-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Aromatic lemongrass makes this curry a dinner table standout. Pan-fry sea bass t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1729670996038-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add your white long grain rice to an oven-proof dish with the outer lemongrass l
 
 Put the dish in the oven for an initial 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729671001078-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop the softer inner lemongrass core[s] finely
 
 Peel and finely slice your shallot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729671009031-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Chop your coriander roughly, including the stalks
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729671015400-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add the sliced shallot and chopped lemongrass and cook for 2-3 min or 
 
 Once softening, add the chopped tomato with 1 tsp <span class="text-purple">[1 1/2 tsp]<span class="text-danger"> </span>[2 tsp] </span>sugar and cook for 3-4 min, stirring often, or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729671021299-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Cook over a medium heat for 8-10 min or until the shallot is softened and the sa
 
 Tip: Add another splash of water if its looking a little dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729671025922-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once the rice has had 15 min, remove the dish from the oven and add the pak choi
 
 Re-cover tightly with the foil and return to the oven for a final 15 min or until all the water has been absorbed and the pak choi is tender – this is your sticky rice & pak choi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729671033429-x200.jpg)
 
 ### Step 7
 

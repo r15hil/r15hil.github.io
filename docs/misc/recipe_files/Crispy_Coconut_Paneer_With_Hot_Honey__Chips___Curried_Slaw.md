@@ -27,7 +27,6 @@ Paneer we go again. You’ll pan-fry cheese bites in a crispy coconut crumb befo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1700585404817-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chips to a baking tray (or two!) with half your curry powder (you'll use
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your spiced chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1700585409652-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Combine the ground coconut and cornflour on a plate with a generous pinch of sal
 
 Cut your paneer into bite-sized cubes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1700585415319-x200.jpg)
 
 ### Step 3
 
 Season the cubed paneer with a pinch of salt, then drizzle with a little vegetable oil and press them into the ground coconut mix firmly to evenly coat all over – this is your coated paneer
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1700585424516-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated paneer and cook for 5-6 min until golden, turning occasionally for even colouring
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1700585431873-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ While the paneer is cooking, combine your natural yoghurt, rice vinegar and rema
 
 Season with a pinch of salt and sugar and mix it all together – this is your curried dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1700585437664-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Chop your coriander finely, including the stalks
 
 Add your mooli slaw mix and chopped coriander to the curried dressing and give everything a good mix up – this is your curried slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1700585442966-x200.jpg)
 
 ### Step 7
 

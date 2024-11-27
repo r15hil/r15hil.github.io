@@ -23,7 +23,6 @@ Whip up this tasty one-pot in no time! Family comfort food, packed with Mediterr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1587.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,13 +54,11 @@ Meanwhile,&nbsp;microwave&nbsp;the&nbsp;steamed pure basmati rice&nbsp;according
 
 Tip: if you're cooking two packets, pop them in together but increase the microwave cook time accordingly!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1587.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the diced chicken to the pan and cook for 3 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1587.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Season with a pinch of&nbsp;salt&nbsp;and&nbsp;pepper&nbsp;and give everything a
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1587.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,13 +81,11 @@ Add the&nbsp;dried oregano&nbsp;to the pan with the&nbsp;remaining garlic paste&
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1587.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, dissolve the chicken stock cube<span class="text-danger">[s]</span> in 100ml<span class="text-danger"> [180ml]</span> boiled water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1587.-step-7-x200.jpg)
 
 ### Step 7
 

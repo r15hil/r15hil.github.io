@@ -29,7 +29,6 @@ Keema is an Indian street food made with mince and curry spices. For this sensat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627570243894-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely slice your brown onion[s], then heat a large, wide-based pan (p
 
 Once hot, add your sliced onion with a pinch of salt and sugar and cook for 3 min, or until starting to soften, then add your meat-free mince (remove the paper if required!) and cook for a further 3 min, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627570247761-x200.jpg)
 
 ### Step 2
 
@@ -49,25 +47,21 @@ Peel and grate (or finely chop) your garlic
 
 Tip: Take the meat-free mince off the heat if you need longer to chop to avoid burning!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627570251838-x200.jpg)
 
 ### Step 3
 
 Add the chopped carrot, grated ginger and grated garlic to the pan and cook for 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627570256855-x200.jpg)
 
 ### Step 4
 
 Add your vegetable stock mix, tomato paste and curry powder into the pan and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627570262464-x200.jpg)
 
 ### Step 5
 
 Stir your basmati rice into the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627570267335-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Check and stir occasionally to prevent the rice from sticking to the bottom
 
 Tip: Add a splash of water if the rice looks a little dry!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627570272007-x200.jpg)
 
 ### Step 7
 

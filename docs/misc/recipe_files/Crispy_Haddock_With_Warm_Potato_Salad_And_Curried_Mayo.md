@@ -26,7 +26,6 @@ Forks at the ready for this speedy 10-minute meal, packed with warming South Asi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1656951932219-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656951935545-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Trim, then chop your green beans in half
 
 Wash your spinach and pat dry with kitchen paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1656951940338-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the spinach to a heatproof bowl with the halved waxy potatoes, cover with cl
 
 Put the bowl in the microwave for 4-8 min or until the potatoes are fork-tender and the spinach has wilted
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1656951944092-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the halved green beans to a pot and cover them with boiled water (just enoug
 
 Add a pinch of salt and bring to the boil over a high heat, then cook for 3-4 min or until tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1656951949379-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add your cornflour to a medium sized bowl with your ground turmeric, half your c
 
 Add the haddock bites to the bowl and give everything a good mix up until the haddock bites are fully coated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1656951953803-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once hot, add the coated haddock and cook for 5-6 min, turning once half way, or
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1656951963356-x200.jpg)
 
 ### Step 7
 

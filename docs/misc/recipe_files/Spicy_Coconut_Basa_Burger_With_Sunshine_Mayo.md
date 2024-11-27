@@ -29,7 +29,6 @@ This tropical burger will have you dreaming of palm trees. You'll char spicy, zi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697466216312-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ol
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697466221663-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Peel your garlic
 
 Combine 1 tsp <span class="text-purple">[1 1/ tsp]</span> <span class="text-danger">[2 tsp]</span> sugar in a small bowl with the juice of half your zested lime[s] and the chilli rounds (can't handle the heat? Go easy!) and set aside – this is your quick-pickled chilli
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697466225257-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Tip: Don't have a food processor? Chop the ingredients and grind to a paste in a pestle & mortar instead!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697466230207-x200.jpg)
 
 ### Step 4
 
 Add your mayo to a small bowl with half the coconut marinade (you'll use the rest later!) – this is your sunshine mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1697466239962-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Pat your basa fillet[s] dry with kitchen paper and cut each fillet in half on a 
 
 Add the chopped basa to a large bowl with the remaining coconut marinade and give everything a good mix up – this is your coconut marinated basa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1697466244517-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the coconut marinated basa and cook for 4-5 min on each side or un
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697466249489-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ No Thai road trip would be complete without a Khao Soi. This iconic Chiang Mai s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724063666536-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and roughly chop half your brown onion[s], then slice the remaining onion f
 
 Zest your lime[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724063679186-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the roughly chopped onion and your red Thai curry paste to a food processor 
 
 Add 2 tbsp <span class="text-purple">[3 tbsp] <span class="text-danger">[4 tbsp]</span> </span>vegetable oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]<span class="text-danger"> </span>[2 tbsp] </span>cold water and blitz into a smooth paste – this is your khao soi-style curry paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724063689760-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Chop your coriander finely, including the stalks
 
 Cut the remaining lime into 1 wedge per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724063702621-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add 1/4 of the soaked noodles to a baking tray (or two!) with a drizzle of veget
 
 Put the tray[s] in the oven for 5-6 min or until golden and crispy – these are your crispy noodles
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724063712330-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once hot, add your diced chicken breast and cook for 3-4 min or until starting t
 
 Once the chicken has started to brown, add the sliced onion and khao soi-style curry paste and cook for 2-3 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724063722374-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once fragrant, add your chopped creamed coconut and chicken stock mix to the pot
 
 Cook for 6-8 min or until the chicken is cooked through (no pink meat!) – this is your coconut chicken breast khao soi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724063730514-x200.jpg)
 
 ### Step 7
 

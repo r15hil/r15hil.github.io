@@ -21,7 +21,6 @@ To whip up this warm salad, you’ll toss roasted sweet potato and onion with ba
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721207547890-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut your red onions into quarters, leaving the skins and root on
 
 Tip: This stops them drying out and falling apart when roasting!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721207574378-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Drizzle with olive oil and season with a generous pinch of salt and pepper
 
 Put the tray[s] in the oven for 20-30 min or until the onion is tender and the sweet potato is cooked and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721207594629-x200.jpg)
 
 ### Step 3
 
 Cover your free range chicken breast portion[s] with cling film and bash them with a rolling pin until flattened to roughly 1.5cm thick all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721207624358-x200.jpg)
 
 ### Step 4
 

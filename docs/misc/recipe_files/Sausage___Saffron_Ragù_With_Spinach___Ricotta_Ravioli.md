@@ -23,7 +23,6 @@ Rich, velvety and spiked with saffron, this Sardinian-inspired ragù will have y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1-1654014157947-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1654014163620-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add the sausage meat (remove the paper if required!) to the pan with the bay leaf<span class="text-danger">[ves]</span> and cook for 2-3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1654014167084-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Cook the ravioli for 3-4 min or until cooked with a slight bite
 
 Once done, drain the ravioli, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1654014170727-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Peel and slice (don't chop!) the garlic
 
 Combine the tomato paste and saffron with 150ml <span class="text-danger">[250ml] </span>boiled water – this is your saffron stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1654014173981-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once the sausage meat is starting to brown, add the sliced garlic to the pan and
 
 Once fragrant, add the Chinese rice wine and saffron stock and cook for 2-3 min further or until the sauce thickens slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1654014180563-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the sauce has thickened, add a knob of butter and half the cracked black pe
 
 Wash the rocket, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1654014184946-x200.jpg)
 
 ### Step 7
 

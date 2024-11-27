@@ -29,7 +29,6 @@ For this fusion twist, you'll coat beef burgers with sesame seeds to give them a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1578321057017-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1578321061902-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ While the chips are cooking, trim, then slice your spring onion[s]
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1578321068318-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add your beef mince, chopped ginger, sliced spring onion, soy sauce and panko 
 
 Using clean hands, give everything a very good mix up until fully combined – this is your burger mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1578321072465-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Sprinkle your toasted sesame seeds evenly over the burger patty[ies] – this
 
 Lightly oil a baking tray with vegetable oil and add the sesame beef patty[ies], then put the tray in the oven for 15-20 min or until cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1578321077685-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Top, tail, peel and grate your carrot[s], then peel lengths off your cucumber un
 
 Add the grated carrot and cucumber ribbons to the bowl, give everything a good mix up and set aside – this is your quick-pickled slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1578321083660-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat, and
 
 Tip: Cooking for 3 or more? You might need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1578321087968-x200.jpg)
 
 ### Step 7
 

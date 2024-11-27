@@ -28,7 +28,6 @@ By combining Indian spices with slow-cooked pepper, coconut and coriander, you'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721140700703-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut i
 
 Peel and finely slice your red onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721140707623-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add your free range chicken thighs with a large pinch of salt and cook
 
 Transfer the browned chicken to a tin foil-lined baking tray (save the pan!) and put the tray in the oven for 10 min or until cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721140712749-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the pepper strips and sliced onion with a big pinch of salt and sugar
 
 Cook for 5 min, then reduce the heat to low and cook for 15 min further or until softened and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721140718637-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel your ginger (scrape the skin off with a teaspoon) and your garlic, then fin
 
 Bash your lemongrass stalk[s] with a rolling pin, cut down the middle lengthways, remove the tough outer layers and set aside for later, then chop the soft inner core[s] finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721140725688-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your lemongrass rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721140730729-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the chopped ginger, chopped garlic, chopped lemongrass core, curry powder
 
 Chop the coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721140736620-x200.jpg)
 
 ### Step 7
 

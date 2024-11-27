@@ -30,7 +30,6 @@ Loaded with veg, this masala will make your mouth water. Cook up the perfect cur
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684498608704-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat with a dr
 
 Once hot, add the diced pepper and cook for 3-4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684498611340-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684498620379-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Peel (scrape the skin off with a teaspoon) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684498617583-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tip: No food processor? Chop everything up as finely as you can and mix it toget
 
 Add a drizzle of vegetable oil and a generous pinch of salt and blitz until smooth – this is your masala curry paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684498624689-x200.jpg)
 
 ### Step 5
 
@@ -82,13 +77,11 @@ Once fragrant, add 200ml <span class="text-purple">[260ml]</span> <span class="t
 
 Cook for 4-5 min or until thickened – this is your curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684498628006-x200.jpg)
 
 ### Step 6
 
 Once the rice is ready, stir through your sultanas with a generous pinch of salt – this is your sultana rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684498632319-x200.jpg)
 
 ### Step 7
 

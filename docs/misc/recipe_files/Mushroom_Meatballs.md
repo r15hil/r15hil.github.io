@@ -22,7 +22,6 @@ Ah yes, we see what's happening here: spaghetti and meatballs right? WRONG! Thes
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/445.-step1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a wide based pan with a lid on a medium-high heat with 1 tbsp <span class="
 
 Cook for 8 min, or until browned and the water has evaporated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/445.-step2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely chop or grate the garlic
 
 Add the rosemary, cheddar, oats and 1/3 of the garlic (reserve the rest for step 5) in a food processor
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/445.-step3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add 4 tbsp<span class="text-danger"> (8 tbsp)</span> of cold water
 
 Blitz into a sticky mixture, similar to stuffing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/445.-step4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Divide the mixture into 6 <span class="text-danger">(12)</span> even portions an
 
 Add them to the baking tray and place in the oven for 12-15 min, or until the outsides are golden&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/445.-step5-x200.jpg)
 
 ### Step 5
 
@@ -91,7 +86,6 @@ Return the mushroom pan to a medium-high heat with 1 tbsp <span class="text-dang
 
 Add the onions with a pinch of salt and the remaining garlic and fry for 2-3 min, or until the onions are translucent
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/445.-step6-x200.jpg)
 
 ### Step 6
 
@@ -103,7 +97,6 @@ Increase the heat to high and bring to a boil
 
 Once boiling, reduce the heat to low and simmer gently for 8-10 min with a lid, until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/445.-step7-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Smoked mackerel and lemon are the perfect way to brighten up a weeknight risotto
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/649.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel and finely dice your brown onion[s]
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/649.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a large drizzle of veg
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-6 min or until softened but not browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/649.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Add your Chinese rice wine and cook for a further 30 secs or until it has evapor
 
 Reduce the heat to medium-low
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/649.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add 1/3 of the vegetable stock and stir continuously with a wooden spoon until i
 
 Continue to add the remaining vegetable stock, a ladle at a time, stirring more or less continuously for 25-30 min, until all the stock is absorbed and the rice is cooked – this is your risotto
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/649.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Peel the skin off your smoked mackerel fillet[s] and discard
 
 Tear the smoked mackerel into small, rough pieces (watch out for small bones!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/649.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once all the stock has been absorbed, add the smoked mackerel pieces with a knob
 
 Continue to cook until all of the butter is melted and the risotto is creamy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/649.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -32,7 +32,6 @@ Deck your dining table with a festive curry that's ready in just 20 minutes. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-1-1732010335195-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add your basmati rice, cloves, dried cranberries and ground turmeric with 300ml 
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then once cooked, remove from the heat and keep covered until serving – this is your cranberry rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-2-1732010256824-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Boil a kettle
 
 Peel and finely chop your shallot[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-3-1732010259551-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped shallot with a pinch of salt and pepper and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Copy-of-step-4-1732010259564-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your vegetable stock mix with 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water – this is your vegetable stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1732010492969-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the shallot has softened, add your chopped paneer to the pan with a pinch o
 
 Whilst the paneer is cooking, add your samosas to a baking tray and put in the oven for an initial 8-10 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1732010558240-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the samosas have had an initial 8-10 min, remove the tray from the oven and
 
 Return the tray to the oven and cook for a final 3 min or until the bread is hot and the samosas are golden and crispy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1732010560216-x200.jpg)
 
 ### Step 7
 

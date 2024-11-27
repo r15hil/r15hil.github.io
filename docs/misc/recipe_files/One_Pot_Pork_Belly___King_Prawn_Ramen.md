@@ -30,7 +30,6 @@ Dust off your deepest ramen bowls for this rich, sumptuous dish. You'll slow-coo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1647533160602-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1647533164710-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Boil a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1647533175687-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the pork belly (fat-side down) and cook for 3-4 min or until light
 
 Once golden, flip and cook for 2 min on the other side
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1657624644094-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Trim, then slice your spring onion[s]
 
 Add the sliced spring onion to a bowl with your rice vinegar and a pinch of sugar then give everything a good mix up – this is your quick-pickled spring onion
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657624676279-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ Add your soy sauce, chicken stock mix, toasted sesame oil and 700ml <span class=
 
 Bring to the boil over a high heat, then cover with a lid and put the dish in the oven for an initial 55 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657624667660-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1647533194155-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ For our delicious twist on a keema, sizzle lamb mince with sweet potato and spic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/352-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain and return to the pot, then keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/352-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cut your sweet potato[es] (skin on) into bite-sized pieces
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/352-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add your ground cinnamon, ground cumin and curry powder and cook for 
 
 Add the sliced onion with a pinch of salt and cook for 3 min, then add the chopped garlic and cook for a further 2 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/352-4-x200.jpg)
 
 ### Step 4
 
@@ -67,19 +63,16 @@ Add the chopped sweet potato and lamb mince to the pan and cook for 5 min or un
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water, then add the stock to the pan, cover with a lid and cook for 10 min or until the sweet potato is fork-tender and the lamb mince is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/352-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your coriander finely, including the stalks (some some leaves for garnish!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/352-6-x200.jpg)
 
 ### Step 6
 
 Once the sweet potato is tender, remove the lid from the pan and cook until the liquid has reduced by half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/352-7-x200.jpg)
 
 ### Step 7
 

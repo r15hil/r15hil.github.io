@@ -24,7 +24,6 @@ We looked up scrumptious in the dictionary and got this salad. You'll coat crisp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686068056499-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your sweet potato[es] (skin on) into large, bite-sized pieces
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thick strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686068060503-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Add the chopped sweet potato and pepper strips to a baking tray with the ground 
 
 Season with a pinch of salt and pepper and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686068064775-x200.jpg)
 
 ### Step 3
 
 Put the tray in the oven for 20-25 min or until the potatoes are cooked through and the pepper has charred slightly – this is your roasted sweet potato & pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686068069640-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Pat your chicken thighs dry and season them generously on both sides with salt
 
 Once hot, add the seasoned chicken thighs, skin-side down and cook for 10-15 min or until the skins have browned and crisped
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686068075522-x200.jpg)
 
 ### Step 5
 
 While the chicken is cooking, add your honey to a bowl with your sriracha (can't handle the heat? Go easy!) and chilli flakes (not a fan of spice? Just add a little!) – this is your hot honey
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686068079807-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Wash your lettuce, then pat it dry with kitchen paper and roughly chop
 
 Combine your white wine vinegar and your mayo with a generous grind of black pepper – this is your creamy dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686068083695-x200.jpg)
 
 ### Step 7
 

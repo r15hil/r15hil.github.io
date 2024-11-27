@@ -26,7 +26,6 @@ To rustle up this punchy pasta, you'll stir king prawns into a cherry tomato sau
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716909659176-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop (or grate) the garlic
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716909662705-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once cooked, drain the linguine and set aside until later
 
 While the linguine is cooking, reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716909666527-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add the chopped garlic and chilli flakes (can't handle the heat? Go 
 
 Add the halved cherry tomatoes with a pinch of salt and cook for 2 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716909670926-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Meanwhile, dissolve your tomato paste and vegetable stock mix in 200ml <span cla
 
 Chop your chives finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716909675067-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Drain, then add your king prawns and cook for 4-5 min further or until cooked th
 
 Season with a generous pinch of salt and pepper and remove from the heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716909679144-x200.jpg)
 
 ### Step 6
 
 Stir through your clotted cream and half of the chopped chives (save the rest for garnish!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716909682618-x200.jpg)
 
 ### Step 7
 

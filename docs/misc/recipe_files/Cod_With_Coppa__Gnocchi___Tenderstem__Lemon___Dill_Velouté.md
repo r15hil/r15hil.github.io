@@ -23,7 +23,6 @@ Savour this delicious, restaurant-worthy dish in the comfort of your own home. T
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1360.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Chop the chives and the dill stalks finely (reserve the leaves for garnish!).
 
 Dissolve 1/2 <span class="text-danger">[1]</span> chicken stock cube in 250ml <span class="text-danger">[450ml]</span> boiled water and set aside.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1360.-step-2.new1-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Slice the Tenderstem broccoli until you reach the heads – keep the tips whole
 
 Re-boil a kettle.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1360.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -71,7 +68,6 @@ Once hot, add the sliced coppa ham and cook for 1 minute on each side or until 
 
 Once crisp, transfer the sliced coppa to a baking tray and put it in the oven for 5 minutes.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1360.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -92,7 +88,6 @@ Add the cod to the baking<span class="text-highlight"> tray next</span> to the c
 
 Once done, remove the tray from the oven and leave to rest in a warm place.
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1360.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -110,7 +105,6 @@ Add the Chinese rice wine and cook for 30 seconds.
 
 Gradually whisk the chicken stock into the paste, a little at a time. Cook for 4 minutes or until a smooth, thick sauce remains.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1360.-step-6.new1-x200.jpg)
 
 ### Step 6
 
@@ -125,7 +119,6 @@ Cook for 3 minutes or until cooked through.
 
 Once done, drain the lot and set aside.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1360.-step-7.new1-x200.jpg)
 
 ### Step 7
 

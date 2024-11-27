@@ -28,7 +28,6 @@ Drop the cutlery and reach for your napkins, because you've never had tacos like
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1663090871445-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice your red chilli[es] finely
 
 Strip your mint leaves from their stems and chop finely, discard the stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663090873261-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the grated carrot, sliced cucumber, chopped mint and most of the sliced chil
 
 Reserve the remaining sliced chilli for a garnish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663090889105-x200.jpg)
 
 ### Step 3
 
@@ -58,19 +55,16 @@ Combine your cornflour and 2 tbsp <span class="text-purple">[3 tbsp]</span> <spa
 
 Whisk until a smooth, thick batter remains – this is your turmeric batter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663090897676-x200.jpg)
 
 ### Step 4
 
 Chop your basa fillet[s] into 6 strips per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663090903888-x200.jpg)
 
 ### Step 5
 
 Add the basa strips to the turmeric batter and give everything a good mix up until well coated – these are your coated basa strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663090912734-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, reduce the heat to medium-high and add each coated basa strip to the p
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663090960677-x200.jpg)
 
 ### Step 7
 

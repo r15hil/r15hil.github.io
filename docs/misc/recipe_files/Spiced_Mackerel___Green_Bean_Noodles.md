@@ -27,7 +27,6 @@ These lightly spiced noodles combine fresh summer flavours with a curry kick. Yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1596539735999-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely dice brown onion<span class="text-danger">[s]</span>
 
 Peel and finely slice (don't chop!) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1596539739523-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and sliced garlic with a pinch of salt and cook for 3-4 min or until the onion has softened and begun to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1596539830011-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Trim, then slice the spring onion<span class="text-danger">[s] </span>finely
 
 Strip the mint leaves from their stems and chop them roughly, discard the stems
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1596539837977-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1596539846989-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add a large knob of butter, the black mustard seeds and green beans to the pan a
 
 Meanwhile, slice the red chilli finely into rounds
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1596539856302-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Remove the skin from the smoked mackerel fillets
 
 Tear the mackerel into the pan in rough bite-sized pieces and stir it all together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1596539862298-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Time for a classic chicken Ruby Murray with a fiery kick. You’ll pack in the h
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716459337600-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716459345063-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and cook for 3-4 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716459384600-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ While the chicken is cooking, peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml] </span>boiled water – this is your stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716459394420-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the chicken is lightly browned, reduce the heat to medium-low and add a kno
 
 Add your ground smoked paprika, garam masala and curry powder and cook for 1 min or until very fragrant and the butter has melted
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716459405348-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the stock and your chopped tomatoes to the pan with a generous pinch of salt
 
 Increase the heat to medium-high and cook for 6-8 min or until the sauce has thickened and the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716459429536-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Wash your spinach
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716459445622-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Tuck into comfort food at its best with this crispy chicken schnitzel. You’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1714656001799-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714656006261-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the sliced cucumber and chopped dill to a bowl with your cider vinegar and a
 
 Give everything a good mix up and set aside to pickle – this is your quick-pickled cucumber
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714656011107-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add a handful of flour to a plate and a splash of milk to a shallow bowl, then a
 
 Coat the flattened chicken in the flour, then add to the milk and firmly press into the breadcrumbs to evenly coat all over – this is your breaded chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714656015185-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add the breaded chicken and cook for 2 min on each side or until golde
 
 Once golden, transfer the chicken to a baking tray (reserve the pan!) and put the tray in the oven for 14-15 min or until cooked through (no pink meat!) – this is your chicken schnitzel
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714656025445-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714656033123-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once hot, add the chopped shallot and cook for 2-3 min or until softened
 
 Once softened, add the chopped garlic and cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714656037716-x200.jpg)
 
 ### Step 7
 

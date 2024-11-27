@@ -25,7 +25,6 @@ Inspired by the Vietnamese dish, Bún bò Nam Bộ, this steaming bowl of rice n
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1610384343826-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the beef strips to a bowl with half the soy sauce (you'll use the rest later
 
 Set aside to marinate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610384362144-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1610384374711-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Chop the cucumber into thin batons
 
 Add the cucumber batons to a small bowl with the rice vinegar, 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a generous pinch of salt and set aside – this is your pickled cucumber
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1610384414790-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Peel (scrape the skin off with a teaspoon) and grate the ginger
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610384423852-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Combine the remaining soy sauce, juice from the lime<span class="text-danger">[s
 
 Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610384495317-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the remaining garlic and half the chilli flakes (can't handle the heat? Go easy!) and cook for 1 min or until softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1610384519517-x200.jpg)
 
 ### Step 7
 

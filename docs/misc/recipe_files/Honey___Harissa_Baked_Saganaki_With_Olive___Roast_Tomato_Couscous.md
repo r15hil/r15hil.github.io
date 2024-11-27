@@ -24,7 +24,6 @@ This moreish twist on saganaki is sweet, spicy and punchy. You’ll smother Gree
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683717161457-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and cut the red onion<span class="text-danger">[s]</span> into quarters, th
 
 Chop the cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683717172040-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Sprinkle over 3/4 of the ras el hanout (save the rest for later!) with a grind o
 
 Put the tray<span class="text-danger">[s] </span>in the oven for 15 min or until slightly charred – this is your roast veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683717186030-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, chop the black olives in half
 
 Chop the parsley finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683717195545-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surf
 
 Combine the natural yoghurt and half the harissa paste (can't handle the heat? Go easy!) in a small bowl with half the honey and the juice of 1/4 <span class="text-danger">[1/2]</span> lemon – this is your yoghurt & harissa dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683717201989-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Combine the couscous with the remaining ras el hanout and a drizzle of olive oil
 
 Add 200ml <span class="text-danger">[400ml]</span> boiled water, cover and set aside until all of the liquid has been absorbed
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683717209134-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the Greek cheese to the other side of the baking tray and return the tray<sp
 
 Cook for 4-5 min or until the cheese is warmed through – this is your honey & harissa baked saganaki
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683717219780-x200.jpg)
 
 ### Step 7
 

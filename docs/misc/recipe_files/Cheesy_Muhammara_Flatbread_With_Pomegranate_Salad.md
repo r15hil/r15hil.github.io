@@ -27,7 +27,6 @@ This is smoky muhammara like you’ve never had before. You’ll blitz sweet roa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1712844965443-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the halved pepper to a baking tray (or two!) with a drizzle of olive oil and
 
 Put the tray[s] in the oven for 15 min or until the pepper has softened and browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1712844974924-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Peel your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1712844988780-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Wash your salad and pat it dry with kitchen paper
 
 Combine half your pomegranate molasses in a bowl with half your white wine vinegar (you'll use the rest later!) and a generous drizzle of olive oil – this is your pomegranate dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1712844998730-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the peeled garlic, half your chilli flakes (can't handle the heat? Go easy!)
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>olive oil with a pinch of salt and blitz  – this is your muhammara base
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1712845003194-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Reduce the oven temperature to 200°C/ 180°C (fan)/ gas 6
 
 Add the softened pepper to the muhammara base (reserve the tray[s]) and blitz until smooth – this is your muhammara
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1712845006879-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Spread the muhammara evenly over the pizza base[s] and top with the grated chees
 
 Put the tray[s] in the oven for 18-20 min or until the cheese has melted – this is your cheesy muhammara flatbread
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1712845010340-x200.jpg)
 
 ### Step 7
 

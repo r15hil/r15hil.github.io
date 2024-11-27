@@ -22,7 +22,6 @@ These easy quesadillas are baked with smoky beef and cheddar until melty and irr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2477Step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut the green chilli<span class="text-danger">[es]</span> in half lengthways, de
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2477Step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Add half the chopped chilli (save the rest for later!) with the smoked paprika a
 
 Add the honey and cook for 1 min further or until cooked through and sticky – this is your chilli-honey beef
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2477Step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, grate the cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2477Step-4-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Divide the chilli-honey beef between the tortilla wraps, covering only half of
 
 Top evenly with the grated cheese and fold each tortilla over so you're left with 6 <span class="text-danger">[12]</span> half moon-shaped sandwiches – these are your chilli-honey beef quesadillas
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2477Step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Place a second baking tray on top to weigh them down slightly
 
 Put the stacked baking trays in the oven and cook for 12 min, or until the quesadillas are slightly browned and the cheese has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2477Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Scoop the avocado out of the skin<span class="text-danger">[s]</span> using a sp
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2477Step-7-x200.jpg)
 
 ### Step 7
 

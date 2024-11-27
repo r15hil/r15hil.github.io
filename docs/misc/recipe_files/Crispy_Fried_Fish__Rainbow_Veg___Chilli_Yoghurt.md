@@ -23,7 +23,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1918.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and 
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1918.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the cumin seeds with a pinch of salt and give everything a good mix up 
 
 Put the tray in the oven for 15-20 min or until everything is cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1918.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Meanwhile, trim, then slice the spring onions finely
 
 Chop the coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1918.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Add 3 tsp <span class="text-danger">[6 tsp]</span> flour to a plate with the gro
 
 Give everything a good mix up – this is your flour mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1918.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the basa fillets to the plate and press them into the flour mixture until fully coated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1918.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil�
 
 Once hot, add the coated basa fillets, reduce the heat to medium and cook for 2 min on each side or until cooked through and lightly crisp – this is your crispy fried fish
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1918.-step-7-x200.jpg)
 
 ### Step 7
 

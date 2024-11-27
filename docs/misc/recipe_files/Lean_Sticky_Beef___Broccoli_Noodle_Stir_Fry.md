@@ -30,7 +30,6 @@ Tuck into beef noodles and crisp greens in a sticky sauce. You'll sizzle garlic,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619192913395-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Tip: If you can't handle the heat, save some of the chilli for another recipe!
 
 Trim, then slice your spring onion[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1619192917738-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the chopped garlic, ginger & chilli and cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1619192922462-x200.jpg)
 
 ### Step 3
 
 Once fragrant, add your lean beef mince and your five-spice mix and cook for 4-5 min or until starting to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619192931158-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ While the lean beef mince is cooking, combine your cornflour with 75ml <span c
 
 Add your hoisin sauce, rice vinegar, soy sauce and 1 tsp<span class="text-purple"><span class="text-danger"> [1 1/2 tsp]</span> <span class="text-purple">[2 tsp]</span> </span>sugar – this is your sticky stir-fry sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619192938356-x200.jpg)
 
 ### Step 5
 
 Chop your Tenderstem broccoli in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1619192943802-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Bring to the boil and cook over a high heat for 5 min or until the noodles are c
 
 Once done, drain the noodles & Tenderstem broccoli, reserving a cup of the starchy noodle water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1619192950129-x200.jpg)
 
 ### Step 7
 

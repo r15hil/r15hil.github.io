@@ -21,7 +21,6 @@ Warm your cockles with this alpine-inspired gratin. You'll simmer juicy chestnut
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1628681786565-x200.jpg)
 
 ### Step 1
 
@@ -33,13 +32,11 @@ Heat a large, wide-based pan (preferably non-stick), with a drizzle of vegetabl
 
 Once hot, add the sliced mushrooms with a pinch of salt and cook for 5-6 min or until starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1628681791304-x200.jpg)
 
 ### Step 2
 
 While the mushrooms are cooking, wash the leek<span class="text-danger">[s]</span> carefully to remove any grit from between the leaves, then top, tail and slice finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1628681795535-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ Add the sliced leek to the pan with the mushrooms and reduce the heat to medium
 
 Cook for 8-9 min further or until the leek has softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1628681800346-x200.jpg)
 
 ### Step 4
 
@@ -57,19 +53,16 @@ Combine the panko breadcrumbs with the dried basil, a drizzle of olive oil an
 
 Dissolve the vegetable stock mix in 350ml <span class="text-danger">[550ml]</span> boiled water and add the Dijon mustard, soft cheese and a very generous grind of pepper – this is your stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1628681804988-x200.jpg)
 
 ### Step 5
 
 Add the gnocchi to an oven-proof dish
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1628681809520-x200.jpg)
 
 ### Step 6
 
 Once the leek has softened, add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour to the pan and cook for 1 min, then gradually add the stock and cook for 1-2 min further or until a creamy consistency – this is your creamy mushroom mixture
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1628681815204-x200.jpg)
 
 ### Step 7
 

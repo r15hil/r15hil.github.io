@@ -33,7 +33,6 @@ Chana masala translates simply to 'chickpeas in mixed spices' and our version ha
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1204.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and cook for 10-15 min until softened and caramelised
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1204.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Chop your coriander finely, including the stalks (reserve a few leaves for garni
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1204.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Chop your cherry tomatoes in half
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1204.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Rinse the wilted spinach under cold running water until it’s cool
 
 Once cool, squeeze as much water out of the spinach as you can, then roughly chop
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1204.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,13 +80,11 @@ Add the chopped ginger, coriander and chilli (can't handle the heat? Go easy!) 
 
 Add the vegetable stock, halved cherry tomatoes and drained chickpeas and cook for 10 min or until the liquid has reduced to a thick sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1674048127415-x200.jpg)
 
 ### Step 6
 
 While the sauce is thickening, add your garlic & coriander naan[s] to a toaster for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1204.-step-7-x200.jpg)
 
 ### Step 7
 

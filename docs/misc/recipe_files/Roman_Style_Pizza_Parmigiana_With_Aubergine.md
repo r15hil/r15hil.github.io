@@ -24,7 +24,6 @@ This vegetarian classic is inspired by the crisp pizzas of Rome, topped with ten
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2085.-step-12-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Boil half a kettle
 
 Trim the green stalk[s] from your aubergine[s] and cut it in half lengthways, then finely slice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2085.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Season generously with salt and give everything a good mix up
 
 Put the tray[s] in the oven for 15 min or until the aubergine has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2085.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Chop your baby plum tomatoes in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2085.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once hot, add the chopped garlic and halved baby plum tomatoes with a pinch of s
 
 Add your dried oregano, tomato paste, a pinch of sugar and 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> boiled water and cook for 2 min or until thickened – this is your tomato pizza sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2085.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Tear the mozzarella into rough, bite-sized pieces
 
 Pick your basil leaves from the stalks, discard the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2085step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Remove the softened aubergine from the tray[s]<span class="text-danger"> </span>
 
 Spread the tomato pizza sauce evenly over the pizza base[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2085.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2076.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,13 +34,11 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2076.-step-2-x200.jpg)
 
 ### Step 2
 
 <span class="text-highlight">While the rice is cooking, combine</span> the ground allspice, smoked paprika and cayenne pepper (can't handle the heat? Go easy!) on a plate with a generous pinch of salt and pepper – this is your jerk seasoning
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2076.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Trim the fat from the pork loin steaks
 
 Add the pork loin steaks to the jerk seasoning and turn them until they're fully coated in all the spices
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2076.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once hot, add the coated pork loin steaks and cook for 3-4 min on each side or u
 
 Transfer the cooked steaks to a clean chopping board, cover with a clean tea towel and leave them to rest for 2 min<span class="text-highlight"> – these are your spicy pork steaks</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2076.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Cut the lime<span class="text-danger">[s]</span> in half
 
 Chop the coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2076.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Combine the chopped pineapple and cherry tomatoes with most of the spring onion 
 
 Add a pinch of salt and the juice of 1/2<span class="text-danger"> [1]</span> lime and give it a good mix up – this is your pineapple salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2076.-step-7-x200.jpg)
 
 ### Step 7
 

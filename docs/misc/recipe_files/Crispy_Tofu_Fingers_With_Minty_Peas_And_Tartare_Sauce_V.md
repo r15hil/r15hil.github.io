@@ -25,7 +25,6 @@ These tofu-fied 'fish' fingers are unbelievably good. You'll bake breaded tofu u
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1607349454025-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch o
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until the chips are crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607349458121-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut the lemon<span class="text-danger">[s]</span> into 4 <span class="text-dange
 
 Add the tofu fingers to a bowl with the soy sauce and juice of 1 <span class="text-danger">[2]</span> lemon wedge<span class="text-danger">[s] </span>and set aside to marinate – these are your marinated tofu fingers
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607349469633-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Add 80ml <span class="text-danger">[160ml]</span> cold water and mix thoroughly 
 
 Add the panko breadcrumbs to a separate plate
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607349485672-x200.jpg)
 
 ### Step 4
 
 Dip each marinated tofu finger into the batter, tap off any excess, then add them to the panko breadcrumbs (turn several times to coat completely) – these are your breaded tofu fingers
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607349499975-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once hot, add the breaded tofu fingers to the pan and cook for 6-8 min, turning 
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607349512527-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Give it a good mix up – this is your tartare sauce
 
 Tip: If your tartare sauce is looking a little thick, add a small splash of water!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607349526713-x200.jpg)
 
 ### Step 7
 

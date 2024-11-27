@@ -24,7 +24,6 @@ These smoky chicken skewers can be rustled up with ease. You'll serve them with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1590501897054-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop your potatoes (skins on) into bite-sized pieces, then add them to a baking 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1590501904140-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and finely slice your red onion[s]
 
 Chop your coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1590501910463-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add the pepper strips, sliced onion and a pinch of salt, then cook for
 
 Once softened, reduce the heat to low and cook for 10 min or until caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1590501917394-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Place the chicken strips in a large mixing bowl with your ground smoked paprika 
 
 Thread each coated chicken strip onto a soaked skewer in a snake-like fashion and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1590501925306-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add half of your red wine vinegar (you’ll use the rest later!) to the bowl wit
 
 Stir through the chopped coriander – this is your pepper & onion salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1590501937217-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add the coated chicken skewers and cook for 4 min, turning so they bro
 
 Once browned, reduce the heat to medium-high, cover with a lid and cook for a further 6 min or until cooked through (no pink meat!) – these are your smoky chicken skewers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1590501942862-x200.jpg)
 
 ### Step 7
 

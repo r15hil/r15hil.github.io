@@ -19,7 +19,6 @@ Pack size (800g). Refer to package for cooking instructions.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spicy-Harissa-Chicken-With-Sweet-Potato-_-Dukkah-Packaging14591-copy-1705400548954-x200.jpeg)
 
 ### Step 1
 
@@ -33,37 +32,31 @@ Check food is piping hot throughout before serving.
 
 Do not reheat.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spicy-Harissa-Chicken-With-Sweet-Potato-_-Dukkah-Packaging14591-copy-1705400602258-x200.jpeg)
 
 ### Step 2
 
 -
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spicy-Harissa-Chicken-With-Sweet-Potato-_-Dukkah-Packaging14591-copy-1705400605614-x200.jpeg)
 
 ### Step 3
 
 -
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spicy-Harissa-Chicken-With-Sweet-Potato-_-Dukkah-Packaging14591-copy-1705400609095-x200.jpeg)
 
 ### Step 4
 
 -
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spicy-Harissa-Chicken-With-Sweet-Potato-_-Dukkah-Packaging14591-copy-1705400612599-x200.jpeg)
 
 ### Step 5
 
 -
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spicy-Harissa-Chicken-With-Sweet-Potato-_-Dukkah-Packaging14591-copy-1705400615767-x200.jpeg)
 
 ### Step 6
 
 -
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spicy-Harissa-Chicken-With-Sweet-Potato-_-Dukkah-Packaging14591-copy-1705400621119-x200.jpeg)
 
 ### Step 7
 

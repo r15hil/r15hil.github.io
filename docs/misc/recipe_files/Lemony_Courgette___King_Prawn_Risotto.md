@@ -24,7 +24,6 @@ For a simple, sophisticated risotto, you'll combine creamy arborio rice with che
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/931.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 4 min or until softened but not coloured
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/931.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Meanwhile, dissolve your vegetable stock mix in<span class="text-danger"> </span
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/931.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tip: Add a drizzle more oil if your pan is looking a little dry
 
 Add your vegetable stock, a ladle at a time, stirring continuously for 25-30 min or until all the stock is absorbed and the rice is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/931.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,13 +60,11 @@ Chop your parsley finely, including the stalks
 
 Top, tail and chop your courgette[s] into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/931.-step-5-x200.jpg)
 
 ### Step 5
 
 Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter!) and set aside for garnish
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/931.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Cut the remaining lemon into wedges
 
 Add a knob of butter and the grated cheese to the pan and stir to combine – this is your lemony risotto
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/931.-step-7-x200.jpg)
 
 ### Step 7
 

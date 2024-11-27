@@ -27,7 +27,6 @@ This hearty take on the classic potato salad is packed with flavour. Build your 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660649407705-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil 
 
 Put the tray[s] in the oven for an initial 15 min or until starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660649412131-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely slice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660649419698-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Squeeze the halved tomatoes together with the torn ciabatta so that the juice soaks into the ciabatta – this is your marinated ciabatta
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660649427270-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Return the tray[s] to the oven for a further 15 min or until the potatoes and th
 
 Tip: Watch them like a hawk so they don’t burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660649440994-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Combine your wholegrain mustard and the juice of half your lemon[s] in a bowl wi
 
 Mix everything together – this is your honey mustard dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1726072069595-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Remove the stone[s] using a teaspoon, scoop out the avocado flesh and roughly ch
 
 Cut the remaining lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660649468951-x200.jpg)
 
 ### Step 7
 

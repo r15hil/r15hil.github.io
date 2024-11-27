@@ -26,7 +26,6 @@ For this healthier Milanese you'll coat flattened chicken breast with lemony bre
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chicken-breast-on-a-chopping-board-1587738042475-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6 and boil a kettle
 
 Cover your chicken breast portion[s] in cling film and bash with a rolling pin until evenly flattened and approx. 1cm in thickness
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1933.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box gr
 
 Add the lemon zest to the breadcrumbs and give everything a good mix up – these are your lemony breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1933.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Dip the flattened chicken in the lemon & olive oil, then press firmly into the 
 
 Add the coated chicken to an oiled baking tray (or two!) and put the tray[s] in the oven for 20 min or until cooked through (no pink meat!) – this is your lemony chicken Milanese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1933.-step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Peel and finely chop (or grate) your garlic
 
 Pick your basil leaves from their stems and finely chop, discard the stems
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1933.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add your chopped tomatoes with 50ml <span class="text-purple">[75ml]</span> <sp
 
 Reduce the heat to medium-low and cook for 15 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1933.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once done, drain the spaghetti, reserving the pot
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1933.-step-7-x200.jpg)
 
 ### Step 7
 

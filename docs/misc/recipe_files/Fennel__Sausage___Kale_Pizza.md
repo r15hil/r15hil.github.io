@@ -22,7 +22,6 @@ This homemade pizza's easy as pie. You'll top your bases with sausage and kale c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2280Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel and finely slice your red onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2280Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add your sausage meat (remove the paper if required!), breaking it up
 
 Cook for 3 min or until the sausage meat has slightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2280Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once the sausage meat has browned, push to one side of the pan and add the slice
 
 Add your balsamic vinegar and a pinch of sugar to the softened onions and cook for 2 min further or until the onions are caramelised and the sausage meat is brown and crispy (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2280Step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2280Step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the sausage meat has browned, add the shredded kale to the pan and give e
 
 Cook, covered, for 1-2 min or until the kale is starting to wilt – this is your kale & sausage mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2280Step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Spread the tomato sauce evenly all over on the pizza base[s] with the back of a 
 
 Top with the torn mozzarella and kale & sausage mix
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2280Step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ This is the daddy of steak sandwiches: sweet, sticky caramelised red onions, fla
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/494.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the potatoes (skin on) into 2cm wedges and place on a baking tray with 1 tbs
 
 Toss to coat well and place them in the oven for 30 min or until golden brown&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/494.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once very hot, add the steaks and cook for 1 min on each side
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/494.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the onion with a pinch of salt (to draw out the moisture)
 
 Cook for 5 min or until translucent and softened, stirring occasionally
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/494.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Combine 1 tsp <span class="text-danger">(2 tsp)</span> red wine vinegar (save th
 
 Mix with 3 tbsp <span class="text-danger">(6 tbsp)</span> olive oil and 1 tbsp <span class="text-danger">(2 tbsp)</span> hot water, then season generously with salt and pepper - this is your aioli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/494.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Reduce the heat to very low and simmer gently for another 10-15 min or until sti
 
 Meanwhile, put the ciabattas in the oven for 5 min or until crusty and hot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/494.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Wash half <span class="text-danger">(all)</span> the salad (use any remainder fo
 
 Once hot, remove the ciabattas from the oven and slice in half&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/494.-step-7-new-x200.jpg)
 
 ### Step 7
 

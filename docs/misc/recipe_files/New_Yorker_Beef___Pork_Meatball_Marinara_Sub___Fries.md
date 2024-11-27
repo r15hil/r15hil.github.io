@@ -22,7 +22,6 @@ No need to ask 'how you doing?' after this cause you'll be doing great. You'll p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691681113066-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Finely dice the remaining onion
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691681119826-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a small pinch
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691681124191-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide into 8 <span class="text-danger">[16]</span> and shape them into meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691681127393-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add the meatballs and diced onion to the pan and cook for 2 min on each side or until browned and the onion has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691681144955-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once fragrant, add the chopped tomatoes and beef stock mix with 100ml <span clas
 
 Bring to the boil over a high heat, then reduce the heat to medium and cook, covered, for 10-12 min or until cooked through (no pink meat!) – these are your meatballs & tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691681148639-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Cut a slit into the top of each hot dog bun, being careful not to cut all the way through to the other side and open them out like a book
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691681152308-x200.jpg)
 
 ### Step 7
 

@@ -33,7 +33,6 @@ There’ll be no arguments over dinner with this fragrant classic. You'll simmer
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688730524165-x200.jpg)
 
 ### Step 1
 
@@ -47,7 +46,6 @@ Top, tail, peel and grate your carrot[s]
 
 Bash your coconut flakes in their bag with a rolling pin (keep them in the bag so you don’t lose any!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688730528515-x200.jpg)
 
 ### Step 2
 
@@ -57,13 +55,11 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Strip your mint leaves from their stems and chop them finely, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688730532441-x200.jpg)
 
 ### Step 3
 
 Dissolve your vegetable stock mix and tomato paste in 175ml <span class="text-purple">[230ml]</span> <span class="text-danger">[300ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688730536005-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once toasted, transfer the toasted coconut flakes to a bowl, reserve the pan
 
 Add the chopped mint to the bowl and give everything a good mix up – this is your coconut crumb
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688730540462-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat, mix through your chopped dates and keep covered until serving – this is your date rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688730544734-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once softened, add the chopped garlic with your chopped ginger, garam masala and
 
 Cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688730548907-x200.jpg)
 
 ### Step 7
 

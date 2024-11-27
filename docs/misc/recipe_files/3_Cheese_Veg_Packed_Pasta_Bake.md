@@ -31,7 +31,6 @@ This hearty pasta dish doesn't just have a rich tomato sauce, it's layered with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2023.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2023.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once cooked, drain the tortiglioni
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2023.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced courgette with a pinch of salt and cook for 4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2023.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, dissolve your vegetable stock mix, dried basil, balsamic vinegar, tom
 
 Chop your cherry tomatoes roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2023.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the stock with the chopped cherry tomatoes and your chopped tomatoes and bri
 
 Season with a generous grind of black pepper and cook for 3-4 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2023.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Chop your parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2023.-step-7-x200.jpg)
 
 ### Step 7
 

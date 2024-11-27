@@ -27,7 +27,6 @@ Golden brown chestnut mushrooms add immense flavour to this creamy mushroom sauc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2376Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your fennel seeds to a pestle & mortar and grind (or chop if you don't have
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium-high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2376Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once the pork has started to brown, add the sliced chestnut mushrooms and cook 
 
 Tip: Try not to move the mushrooms too much as this will stop them from caramelising!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2376Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water and return to the pot with a drizzle of olive oil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2376Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the pork and mushrooms have browned, add the chopped shallot, garlic and 
 
 Dissolve your chicken stock mix in 50ml <span class="text-purple"><span class="text-danger">[75ml]</span> <span class="text-purple">[100ml]</span> </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2376Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Add the chicken stock and cook for 2 min further until the pork is cooked throug
 
 Meanwhile, roughly strip your thyme leaves from their stems, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2376Step-6-x200.jpg)
 
 ### Step 6
 
 Once the pork steaks are cooked through, remove them from the pan and slice into thin strips
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2376Step-7-x200.jpg)
 
 ### Step 7
 

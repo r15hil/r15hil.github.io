@@ -23,7 +23,6 @@ This speedy recipe is inspired by Spanish 'Patatas Bravas', and you'll get it on
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2103.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2103.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat with a dr
 
 Once hot, add the diced chicken and most of the roasted garlic paste (save some for later) with a pinch of salt and cook for 30 secs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2103.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the dried chilli flakes (can't handle the heat? Go easy!) and tomato paste
 
 Tip: Add more olive oil if the pan is looking a little dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2103.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Once the pan is hot, add the potatoes to the pan with the smoked paprika and se
 
 Cook for 6 min or until crisp and cooked through – these are your paprika potatoes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2103.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Add the chicken stock to the chicken pan and cook for a further 3-4 min or unti
 
 Note: Please ensure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2103.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Meanwhile, add the remaining garlic paste to a bowl with the mayonnaise, half t
 
 Give everything a good mix up and season with a pinch of salt and black pepper – this is your garlic aioli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2103.-step-7-x200.jpg)
 
 ### Step 7
 

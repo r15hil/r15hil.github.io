@@ -30,7 +30,6 @@ Staying in never tasted so good with this hearty harissa stew. You’ll simmer p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682436027610-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Chop your tomatoes finely
 
 Peel and chop your potato[es]<span class="text-danger"> </span>into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682436032245-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Once hot, add sliced shallot with a pinch of salt and cook for 3-4 min or until 
 
 Once softened, add the sliced garlic and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682436036144-x200.jpg)
 
 ### Step 3
 
 Once fragrant, add the chopped tomatoes and cook for 5 min or until beginning to break down
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682436040332-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Grate your Italian hard cheese finely
 
 Drain and rinse your cannellini beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682436044323-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Once the tomatoes have completely softened, add the harissa stock to the pot wit
 
 Bring to the boil over a high heat, once boiling reduce the heat to medium and cook, covered, for 15-20 min or until the potatoes are fork-tender – this is your cannellini bean & harissa stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682436048896-x200.jpg)
 
 ### Step 6
 
 Whilst the stew is cooking, combine your panko breadcrumbs and grated Italian hard cheese in a bowl with your ground sumac and a drizzle of olive oil – this is your sumac crumb
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682436053081-x200.jpg)
 
 ### Step 7
 

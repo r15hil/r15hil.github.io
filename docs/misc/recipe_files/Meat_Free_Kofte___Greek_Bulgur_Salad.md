@@ -27,7 +27,6 @@ These plant-based koftes are just as moreish as their meaty counterpart. You’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1580806757815-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Slice the remaining onion as finely as you can
 
 Peel and grate (or finely chop) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580806763333-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Using clean hands, give everything a good mix up until fully combined
 
 Once combined, divide the mixture into 3 per person and shape them into kofte
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580806767666-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the kofte to the tray
 
 Put the tray in the oven and cook for 10-15 min or until browned all over and cooked through – these are your meat-free kofte
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580806813486-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580806779084-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Strip your mint leaves from their stems and chop them finely, discard the stems
 
 Cut your lemon[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580806785410-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add your dried oregano, juice of half your lemon[s], the remaining garlic (don'
 
 Give everything a gentle mix up – this is your Greek bulgur salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580806822646-x200.jpg)
 
 ### Step 7
 

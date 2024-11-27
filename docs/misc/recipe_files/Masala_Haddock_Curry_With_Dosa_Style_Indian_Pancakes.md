@@ -27,7 +27,6 @@ Try your hand at South Indian-style pancakes, flavoured with fragrant cumin seed
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636450659063-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Transfer the fragrant cumin seeds to a bowl with the gram flour and a generous p
 
 Slowly whisk in 150ml <span class="text-danger">[300ml] </span>cold water until smooth, then pour it into a measuring jug and set aside – this is your dosa-style batter
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636450699524-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large pot over a medium heat with a drizzle of olive oil
 
 Once hot, add half the sliced red onion (you'll use the rest later!) and cook for 5-6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636450728049-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Chop the tomato<span class="text-danger">[es]</span> roughly
 
 Combine the remaining sliced red onion with the white wine vinegar and 1 tsp <span class="text-danger">[2 tsp]</span> sugar in a bowl and set aside – this is your pickled red onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636450762366-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Cook for 1-2 min further or until fragrant
 
 Drain and rinse the green lentils
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636450811660-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once the spices are fragrant, add the tomato stock and drained green lentils to 
 
 Meanwhile, return the reserved non-stick pan to a medium-high heat with a generous drizzle of olive oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636450839751-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once set, use a spatula to carefully flip it over and cook for 3 min further –
 
 Transfer to a plate and cover with tin foil then repeat for the final 1 <span class="text-danger">[3] </span>pancake<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636450897888-x200.jpg)
 
 ### Step 7
 

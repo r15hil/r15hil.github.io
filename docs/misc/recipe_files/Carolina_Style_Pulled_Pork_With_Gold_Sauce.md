@@ -27,7 +27,6 @@ Ain’t no ‘cue finer than North Carolina, where you’ll recreate their spice
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650990691405-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop (or grate) the garlic
 
 Peel and finely dice 1/2 <span class="text-danger">[1]</span> brown onion, then finely slice the remaining onion
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650990694547-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Sprinkle over the ground cumin and smoked paprika with 2/3 of the cider vinegar 
 
 Cover with tin foil and put the dish in the oven for 25 min, removing the foil for the final 5 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650990697481-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ While the macaroni is cooking, melt 15g <span class="text-danger">[30g]</span> b
 
 Reboil half a kettle and grate the cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650990701602-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once softened, add 15g <span class="text-danger">[30g]</span> flour and stir wit
 
 Gradually whisk 300ml <span class="text-danger">[600ml]</span> milk into the roux, a little at a time, and cook for 4-5 min or until a smooth, thick sauce remains
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650990705781-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the drained macaroni to the béchamel sauce with a grind of pepper and a pin
 
 Transfer the cheesy macaroni to an oven-proof dish, reserving the pan (use individual ones for fancy presentation!) and top with the remaining grated cheddar and 1/4 tsp <span class="text-danger">[1/2 tsp]</span> cayenne pepper (can't handle the heat? Go easy!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650990710783-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once hot, add the sliced onion and remaining chopped garlic and cook for 3-4 min
 
 Wash the shredded spring greens, then pat them dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650990714088-x200.jpg)
 
 ### Step 7
 

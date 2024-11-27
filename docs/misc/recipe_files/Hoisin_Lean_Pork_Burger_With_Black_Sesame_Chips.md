@@ -24,7 +24,6 @@ If you love Asian flavours, this sweet, sticky burger has your name on it. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678109190307-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1677077840084-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Meanwhile, add your lean pork mince, panko breadcrumbs and soy sauce to a bowl a
 
 Divide the pork mince into 1 burger patty per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1677077850564-x200.jpg)
 
 ### Step 3
 
 Add the burger patty[ies] to a separate baking tray and put the tray in the oven for 15-20 min or until cooked through (no pink meat!) – this is your lean pork patty[ies]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678109197365-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Chop your cucumber into discs
 
 Slice each cucumber disc into matchsticks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1677077880583-x200.jpg)
 
 ### Step 5
 
 Add the cucumber matchsticks to a bowl with your rice vinegar and a pinch of salt – this is your cucumber salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678109283017-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once hot, add the brioche halves, cut-side down, and cook for 3 min or until toa
 
 Tip: Cooking for 4? You may need to do this in batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1677077923187-x200.jpg)
 
 ### Step 7
 

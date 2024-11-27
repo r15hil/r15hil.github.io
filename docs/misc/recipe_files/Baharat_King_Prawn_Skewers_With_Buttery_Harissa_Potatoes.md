@@ -26,7 +26,6 @@ Aromatic Middle Eastern spices are the perfect partners for sweet king prawns. Y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683884727739-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Chop your waxy potatoes in half, lengthways
 
 Add the chopped potatoes to a baking paper-lined baking tray (or two!) with a drizzle of vegetable oil and a generous pinch of salt and give everything a good mix up, then put the tray[s] in the oven for 25-30 min or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683884732152-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Wash your lettuce, then pat it dry with kitchen paper
 
 Cut the lettuce into quarters, lengthways, then chop roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1683884736241-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add your harissa paste (can't handle the heat? Go easy!) and softened butter to 
 
 Tip: If your butter is not softened then microwave for a few secs or until soft to the touch but not melted!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683884740504-x200.jpg)
 
 ### Step 4
 
@@ -70,13 +66,11 @@ Add the king prawns and the chopped spring onion to a bowl with your baharat and
 
 Season with a pinch of salt and give everything a good mix up – these are your marinated king prawns & spring onion
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683884745231-x200.jpg)
 
 ### Step 5
 
 Thread the marinated king prawns & spring onion evenly onto the skewers – these are your loaded skewers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683884754361-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the potatoes are almost cooked, heat a large, wide-based pan (preferably no
 
 Once hot, add the loaded skewers to the pan and cook for 2-3 min on each side or until the prawns are nicely charred and cooked through – these are your baharat king prawn skewers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683884761686-x200.jpg)
 
 ### Step 7
 

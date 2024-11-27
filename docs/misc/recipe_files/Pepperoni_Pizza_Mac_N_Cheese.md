@@ -29,7 +29,6 @@ This pizza-style mac ‘n’ cheese is the ultimate combo you never knew you nee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686133777328-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cook the macaroni for 6-7 min or until cooked with a bite
 
 Once done, drain the macaroni and set aside until later, reserving 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[200ml]</span> starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686133780060-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686133783380-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over a
 
 Once melted, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and half the chopped garlic (you'll use the rest later!) and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686133786477-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Once thickened, stir through the grated cheddar and half the torn mozzarella (sa
 
 Season with a good grind of black pepper – this is your cheese sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686133789657-x200.jpg)
 
 ### Step 5
 
 Combine your panko breadcrumbs, remaining chopped garlic, dried oregano and tomato paste in a bowl with a drizzle of olive oil – these are your tomatoey breadcrumbs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686133793125-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Transfer the mac 'n' cheese mixture to an oven-proof dish and top with the remai
 
 Put the dish in the oven for 10-12 min or until golden and bubbling – this is your pepperoni pizza mac 'n' cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686133796556-x200.jpg)
 
 ### Step 7
 
@@ -99,7 +92,6 @@ Combine your balsamic vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</sp
 
 Add the salad and halved cherry tomatoes to the dressing and toss – this is your dressed salad
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-8-1686133799828-x200.jpg)
 
 ### Step 8
 

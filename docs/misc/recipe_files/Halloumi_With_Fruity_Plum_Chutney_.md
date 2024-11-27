@@ -20,7 +20,6 @@ This warm freekeh dish contrasts salty halloumi with a homemade fruity plum & re
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/425.-step1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Place the washed freekeh in a pot with plenty of water
 
 Bring to the boil over a high heat and cook for 20-25 min or until the freekeh is tender with a slight bite
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/425.-step2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Peel and finely slice the red onion<span class="text-danger">(s)</span>
 
 Chop the plums into rough pieces, discarding the stones
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/425.-step3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook&nbsp;for 6-8 min or until the onions have softened and the plums are tender
 
 Add the almonds to a baking tray and oven roast until browned, approx. 7-13 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/425.-step4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the balsamic vinegar, 1 tbsp <span class="text-danger">(2 tbsp)</span> sugar
 
 Increase the heat to medium and cook for 10-15 min or until jammy, then set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/425.-step5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Slice the halloumi in half widthways to make 2 <span class="text-danger">(4)</sp
 
 Strip&nbsp;the mint leaves from the stems, save a few for garnish, and chop the rest finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/425.-step6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Chop the cooled, toasted almonds coarsely (or bash them in a bowl with a rolling
 
 Drain the cooked freekeh and return it to its pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/425.-step7-x200.jpg)
 
 ### Step 7
 

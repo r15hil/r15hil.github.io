@@ -26,7 +26,6 @@ The recipe for this fragrant fried chicken hails from the town of Hat Yai in Sou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629302713871-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop most of the coriander finely, including the stalks (save some for garnish!)
 
 Combine the chopped coriander, garlic, soy sauce in a large bowl with 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a pinch of salt and pepper – this is your Hat Yai marinade
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629302741698-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Remove 1 tbsp<span class="text-danger"> [2 tbsp] </span>from the Hat Yai marinad
 
 Cut the chicken thighs in half and add them to the large bowl of Hat Yai marinade, give everything a good stir and set aside to marinate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629302756581-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629302776263-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once the pan is very hot, add the coated chicken and cook for 5-6 min on each side until the chicken is cooked through (no pink meat!) and crispy – this is your Thai-style Hat Yai garlic fried chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629302793892-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Peel the carrot<span class="text-danger">[s]</span>, then continue to peel lengt
 
 Wash and shred the gem lettuce finely, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629302865073-x200.jpg)
 
 ### Step 6
 
 Combine the sriracha and chilli jam in a bowl – this is your sweet chilli sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629302882361-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This creamy, wholesome stew is inspired by the traditional Italian soup, ribolll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1638807239557-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and grate the garlic
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1638807242617-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the sliced onion and cook for 5-6 min or until softened
 
 Once softened, add the dried oregano and half the grated garlic (you'll use the rest later!) and cook for a further 2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1638807245450-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel and chop the sweet potato<span class="text-danger">[es]</span> into bite-si
 
 Drain and rinse the cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1638807249372-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once fragrant, add the drained cannellini beans, chopped sweet potato and a pinc
 
 Once boiling, reduce the heat to medium and cook, covered, for 15 min or until the sweet potato is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1638807251674-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Spread the remaining grated garlic over the ciabatta and add a generous drizzle 
 
 Add the cherry tomatoes to the other side of the tray and put it in the oven for 10 min or until the ciabatta is lightly toasted and golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1638807254364-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Wash the shredded spring greens then pat dry with kitchen paper
 
 Chop the basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1638807259109-x200.jpg)
 
 ### Step 7
 

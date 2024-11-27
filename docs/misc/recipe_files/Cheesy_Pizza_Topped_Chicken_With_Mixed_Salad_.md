@@ -26,7 +26,6 @@ Give lean chicken breast some cheesy pizza goodness with rich tomato sauce and m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586949555860-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Add your chicken breast portion[s] to a tin foil-lined baking tray (or two!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586949560835-x200.jpg)
 
 ### Step 2
 
 Combine your tomato paste and a pinch of your dried oregano (you'll use the rest later!) with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and a pinch of salt in a bowl – this is your pizza sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586949565802-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Tear your basil leaves roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586949572010-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Spread the pizza sauce over the chicken
 
 Top with the torn mozzarella and torn basil leaves
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586949576768-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Put the tray[s] in the oven for 15 min or until the chicken is cooked through (n
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586949581364-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Peel and slice your shallot[s]<span class="text-danger"> </span>as finely as you
 
 Add the halved cherry tomatoes, sliced cucumber and sliced shallot to a large bowl with the salad and give it a gentle mix up – this is your mixed salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586949587679-x200.jpg)
 
 ### Step 7
 

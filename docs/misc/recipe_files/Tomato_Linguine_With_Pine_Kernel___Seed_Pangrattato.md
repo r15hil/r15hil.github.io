@@ -30,7 +30,6 @@ Roasted tomatoes are the star of this dish. You'll stir them into a rich pasta s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1687.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your cherry tomatoes to a baking tray with a drizzle of olive oil and a pinc
 
 Put the tray in the oven and cook for 25-30 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1687.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 10-12 min or until softened but not coloured
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1687.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1687.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine and return to the pot, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1687.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once the garlic has softened, add the vegetable stock, roasted tomatoes (reserve
 
 Cook for a further 5-6 min until thickened – this is your roasted tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1687.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Put the tray in the oven for 3-5 min or until everything is golden and crisp –
 
 Tip: Watch it like a hawk to make sure it doesn't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1687.-step-7-x200.jpg)
 
 ### Step 7
 

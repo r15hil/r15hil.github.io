@@ -29,7 +29,6 @@ Plant-based mapo tofu? Don’t mind if I do. You’ll pan-fry tofu bites and che
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680167419566-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680167425888-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Drain your tofu and pat it dry with kitchen paper
 
 Cut half the tofu into bite-sized cubes (save the rest for later!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680167436786-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once hot, crumble the remaining tofu finely into the pan
 
 Add the grated mushroom and cook for 7-8 min, stirring occasionally, or until the mushrooms and tofu are browned and crispy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680167440452-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then slice your spring onion[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680167443840-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the diced onion to the pan with a small pinch of salt and cook for 3-4 min o
 
 Once softened, add the chopped ginger, chopped garlic and tofu cubes to the pan and give everything a good mix up, then cook for 1-2 min further or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680167447325-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Combine your black bean paste and soy sauce in a bowl with your cornflour, toast
 
 Add 150ml <span class="text-purple">[195ml] </span><span class="text-danger">[250ml]</span> cold water to the bowl and mix until fully combined – this is your Sichuan-style spicy black bean sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680167451211-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Low-carb comfort food with classic French flavours that will be ready in just te
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1808.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1808.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Heat a <span class="text-highlight">large,</span> wide-based pan<span class="tex
 
 <span class="text-highlight">Slice</span> the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1808.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once hot, add the sliced spring onion and thyme <span class="text-highlight">(n
 
 <span class="text-highlight">Season with</span> a pinch of salt and cook for<span class="text-highlight"> 1-2 min</span> or until fragrant and starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1808.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Once hot, add the sliced spring onion and thyme <span class="text-highlight">(n
 
 Drain and rinse the lentils
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1808.-step-5-x200.jpg)
 
 ### Step 5
 
 <span class="text-highlight">Add</span> the garlic paste <span class="text-highlight">to the pan and</span> cook for <span style="background-color:#ffff00;">30 sec</span> or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1808.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add 300ml <span class="text-danger">[550ml]</span> boiled water to the pan with
 
 <span class="text-highlight">Cook</span>, covered, for 4-5 min or until the cavolo nero is <span class="text-highlight">tender with a slight bite</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1808.-step-7-x200.jpg)
 
 ### Step 7
 

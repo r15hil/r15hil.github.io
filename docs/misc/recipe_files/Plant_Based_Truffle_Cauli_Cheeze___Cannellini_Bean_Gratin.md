@@ -24,7 +24,6 @@ This is cheese gratin, the plant-based way. You’ll bake cauliflower florets an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693916108791-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the cauliflower florets to a pot of plenty of boiled water and bring to the 
 
 Once boiling, cook the florets for 4-5 min or until tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693916112193-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Meanwhile, grate your cheddar flavour block
 
 Drain and rinse your cannellini beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693916117648-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once melted, add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="t
 
 Gradually whisk the reserved vegetable water into the roux, a little at a time, then add your creamy single oat and half the grated cheeze (save the rest for later!) with a pinch of salt and cook for 4-5 min or until a smooth, thick sauce remains – this is your cheezy sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693916121306-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the drained cannellini beans and sliced stem[s] & leaves to the sauce with y
 
 Season with a generous pinch of salt and pepper and give everything a good mix up – this is your cheezy bean mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693916125005-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Pour the cheezy bean mixture over the cauliflower, making sure everything's cove
 
 Cover the dish with tin foil and put it in the oven for an initial 15 min or until the cauliflower is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693916127999-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add a drizzle of olive oil and a pinch of salt and give everything a good mix up
 
 Wash your baby leaf salad and pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693916131804-x200.jpg)
 
 ### Step 7
 

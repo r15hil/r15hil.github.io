@@ -26,7 +26,6 @@ This classic Cantonese-style dish is packed with delicious umami flavour. You'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1624273159192-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Tip: Cooking for 4? Spread your ingredients out over two smaller dishes to avoid overcrowding!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624273162958-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Trim, then chop the green beans in half
 
 Add the chopped green beans to a baking paper-lined oven-proof dish (or deep baking tray) with a drizzle of vegetable oil and put the tray in the oven for an initial 10 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624273167506-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Add the white long grain rice to a separate oven-proof dish with 300ml <span cla
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624273171938-x200.jpg)
 
 ### Step 4
 
 Combine the ginger & garlic paste with 1 tsp<span class="text-danger"> [2 tsp]</span> sugar, the soy sauce and Chinese rice wine in a small bowl – this is your seasoned soy sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646061160016-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Strip the coriander leaves from the stems, discard the stems
 
 Wash the spinach, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624273179124-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Return the dish to the oven for 12-15 min further or until the veg is tender and
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624273182864-x200.jpg)
 
 ### Step 7
 

@@ -29,7 +29,6 @@ Whip up Indonesian-style fried rice tossed with seared king prawns, ginger, garl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2206.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your basmati rice and 300ml <span class="text-purple">[390ml]</span> <span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has been absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2206.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Trim, then slice your spring onion[s] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2206.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once the rice is cooked, fluff it with a fork and transfer it to a plate
 
 Spread the cooked rice out evenly on the plate and set aside to cool
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2206.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add half your dried chilli flakes (can't handle the heat? Go easy!) and a genero
 
 Tip: If you don't have a pestle and mortar, just mix the two together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2206.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the chopped smashed cucumber to a bowl with the chilli salt, toasted sesame 
 
 Give everything a good mix up and set aside
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2206.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, drain, then add your king prawns to the pan with the chopped ginger, g
 
 Cook for 2-3 min, then add the cooled rice and soy sauce and cook for a further 2-3 min or until the prawns are cooked through – this is your Indonesian-style king prawn fried rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2206.-step-7-x200.jpg)
 
 ### Step 7
 

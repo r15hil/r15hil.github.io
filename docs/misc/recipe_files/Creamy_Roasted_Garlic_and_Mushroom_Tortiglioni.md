@@ -25,7 +25,6 @@ Roasting the garlic beforehand helps add a delicious depth of flavour to this cr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1630417506927-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Lay your garlic cloves (skins on) in the middle of the paper, drizzle with olive
 
 Scrunch the edges of the baking paper together around the garlic to form a sealed parcel
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630417515569-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the chopped mushrooms to one side of a baking tray and spread them out as mu
 
 Add the garlic parcel to the other side of the tray[s] and put the tray[s] in the oven for 10-15 min or until the mushrooms are starting to shrivel
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1630417516875-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once done, drain the tortiglioni and drizzle with a little olive oil in the cola
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630417521734-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Dice your tomato[es]
 
 Dissolve your vegetable stock mix in 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630417528035-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once the mushrooms have had 10-15 min, add your dried oregano with a drizzle of 
 
 Give them a good mix up and return the tray[s] to the oven for 5-6 min further or until tender – these are your herby mushrooms
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1630417533331-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once the mushrooms are done, carefully squeeze the roasted garlic out of the ski
 
 Mix the drained pasta and mashed roasted garlic in the pot – this is your creamy roasted garlic tortiglioni
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630417538688-x200.jpg)
 
 ### Step 7
 

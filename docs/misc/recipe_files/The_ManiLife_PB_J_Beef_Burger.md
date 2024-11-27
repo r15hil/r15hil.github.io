@@ -26,7 +26,6 @@ Kitchen rebels, get ready to smother ManiLife peanut butter and chilli jam all o
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1619713653509-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Cut the potatoes into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1619713667833-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the potato wedges to a baking tray with a drizzle of vegetable oil, a pinch 
 
 Put the tray in the oven and cook for 25-30 min or until the wedges are golden and crispy – these are your smoky wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1619713705831-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add the sliced shallots to a bowl with the red wine vinegar and a pinch of sugar
 
 Set aside to pickle – these are your pickled shallots
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1619713748075-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the beef mince to a bowl with generous pinch of salt and pepper and mix tho
 
 Divide the mince into 2 <span class="text-danger">[4]</span>, shape them into patties and refrigerate until later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648481833908-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Wash the lettuce, separate the leaves and set aside for serving then pat it dry 
 
 Grate the cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1619713829879-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once hot, add the brioche halves to the pan, cut-side down, and cook for 3-4 min
 
 Once golden, transfer to a plate and set aside for later
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1619713845992-x200.jpg)
 
 ### Step 7
 

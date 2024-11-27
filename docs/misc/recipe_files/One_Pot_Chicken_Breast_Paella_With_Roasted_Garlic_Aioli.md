@@ -28,7 +28,6 @@ Get this Spanish classic oven ready in 5. You’ll pan-fry chicken breast with p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1686318036676-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ This recipe takes around 5-10 min to prep, so get all your ingredients ready, th
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1686316907977-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your diced chicken breast with a pinch of salt and pepper and cook for 2-3 min or until beginning to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686317965651-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Slice your sweet pointed pepper[s] into rings
 
 Once the chicken is starting to brown, add the onion wedges and sliced pepper and cook for 1-2 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686317991075-x200.jpg)
 
 ### Step 4
 
 Add your arborio rice, ground smoked paprika, saffron and half your roasted garlic paste (you'll use the rest later!) to the dish and stir everything together
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686316931867-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Bring to the boil over a high heat
 
 Once boiling, cover with a lid and put the dish in the oven for 25-30 min or until most of the water has absorbed and the rice and chicken is cooked (no pink meat!) – this is your one pot chicken breast paella
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686318027101-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the remaining roasted garlic paste (not a big garlic fan? Try using less!) and mayo in a bowl with 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>cold water and season with a pinch of salt and pepper – this is your roasted garlic aioli
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686316927079-x200.jpg)
 
 ### Step 7
 

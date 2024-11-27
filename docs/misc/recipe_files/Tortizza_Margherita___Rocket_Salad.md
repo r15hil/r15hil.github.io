@@ -21,7 +21,6 @@ These tortilla-based pizzas are a quick and easy twist on the Neapolitan classic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/975_-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once browned, remove the tortillas from the oven and set them aside
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/975_-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,13 +52,11 @@ Strip the basil leaves from their stalks and chop the stalks finely, leaving the
 
 Combine the tomato paste with 100ml <span class="text-danger">[200ml]</span> boiled water in a heat-proof bowl
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/975_-step-3-x200.jpg)
 
 ### Step 3
 
 Add the chopped&nbsp;garlic, chopped basil stalks, 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a pinch of salt and pepper to the bowl &ndash; this is your tomato sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/975_-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Pat the torn mozzarella&nbsp;with kitchen paper, pressing down very firmly so th
 
 Cut the baby&nbsp;plum tomatoes in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/975_-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,13 +79,11 @@ Top with the torn&nbsp;mozzarella, basil leaves and halved baby plum tomatoes
 
 Season with a pinch of salt and return to the oven for a further 8-10 min or until the mozzarella has fully melted and the tortillas are crispy &ndash; these&nbsp;are your tortizzas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/975_-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, slice the Italian hard cheese&nbsp;finely with a peeler, until you end up with a pile of cheese shavings
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/975_-step-7-x200.jpg)
 
 ### Step 7
 

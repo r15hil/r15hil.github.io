@@ -27,7 +27,6 @@ This pasta bake's perfect for veggies. You'll roast portobello mushrooms and pep
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1603112117342-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Slice the flat white mushrooms finely
 
 Deseed the sweet pointed pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and chop roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1603112131848-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Put the tray in the oven for 15 min or until the pepper is beginning to char –
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1603112143004-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and cook for 5-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1603112150626-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
 Once done, drain the conchiglie, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1603112167465-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Dissolve the vegetable stock mix with the tomato paste in 200ml <span class="tex
 
 Once the onion has softened, add the chopped garlic and ground smoked paprika and cook for 1 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1603112182778-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Season with a crack of black pepper and a pinch of salt and cook for 2-3 min or 
 
 Grate the cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1603112195651-x200.jpg)
 
 ### Step 7
 

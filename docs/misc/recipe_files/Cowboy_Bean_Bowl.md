@@ -23,7 +23,6 @@ There’s no smoke without fire and no chilli without ‘tude. Our Cowboy Bean B
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/261.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut each tortilla in half, lay them on a baking tray, drizzle with 1-2 tbsp of o
 
 Put in the oven for 15 min, or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/261.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Meanwhile, crush the garlic with the side of a knife, peel it and chop finely
 
 Remove the stem(s) of the pepper(s),deseed and slice finely (approx. 1cm thick)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/261.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook for 3 min, then add the tomato paste and chipotle paste
 
 Cook the paste for another min or until it releases aromas, stirring continuously
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/261.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add them to the pan and cook for 2 min, or until the liquid has evaporated
 
 Add 250ml (500ml) of water and cook for 5 min, or until half of the liquid has evaporated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/261.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Grate the cheddar
 
 Chop the spring onion(s) finely, discarding the root end(s)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/261.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Cook for 2 min, or until all the liquid has evaporated
 
 Season to your taste with salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/261.-step-7-x200.jpg)
 
 ### Step 7
 

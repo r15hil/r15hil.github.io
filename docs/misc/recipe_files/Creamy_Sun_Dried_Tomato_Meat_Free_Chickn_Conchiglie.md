@@ -27,7 +27,6 @@ If a big comforting bowl of delicious pasta is what you're after, look no furthe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1633087787950-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Boil a kettle
 
 Add your meat-free chick'n to a bowl along with your dried basil and dried oregano and mix well until evenly coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1633087790934-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once hot, add the coated meat-free chick'n and cook for 6-7 min or until brown a
 
 Reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1633087796675-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once hot, add the diced onion and cook for 4-5 min or until softened
 
 Once softened, add the chopped garlic and cook for 1-2 min further or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1633087800320-x200.jpg)
 
 ### Step 4
 
@@ -69,19 +65,16 @@ Cook the conchiglie for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked conchiglie, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633087804068-x200.jpg)
 
 ### Step 5
 
 Once the garlic is fragrant, wash your spinach, then pat it dry with kitchen paper and add to the pan along with your ground paprika and cook for 2-3 min or until wilted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633087809770-x200.jpg)
 
 ### Step 6
 
 Cut your sun-dried tomatoes in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1633087812935-x200.jpg)
 
 ### Step 7
 

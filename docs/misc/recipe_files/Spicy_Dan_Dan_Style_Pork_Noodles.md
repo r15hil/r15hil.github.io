@@ -28,7 +28,6 @@ Looking for an extra kick? These spicy noodles are for you. You’ll whip up a f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695894881950-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice each individual cucumber disc into matchsticks
 
 Add the cucumber matchsticks to a small bowl with your rice vinegar and a pinch of sugar and set aside to pickle – these are your quick-pickled cucumber matchsticks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695894884732-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a medium pot with 1 tbsp <span class="text-purple">[1 1/2 tbsp]<span class=
 
 Once hot, carefully pour the heated oil (reserve the pot!) into the bowl, give everything a good mix up and set aside for later – this is your chilli oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695894892439-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your pork mince (remove the paper if required!) with the remaining grated garlic & ginger and five-spice mix and cook for 7-8 min or until browned and cooked through (no pink meat!), breaking it up with a wooden spoon as you go – this is your spiced pork
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695894895437-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside, reserving 175ml <span class="text-purple">[230ml] </span><span class="text-danger">[300ml] </span>starchy noodle water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695894898413-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695894902492-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Give everything a good mix up – this is your tahini sauce
 
 Trim, then slice your spring onion[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695894905885-x200.jpg)
 
 ### Step 7
 

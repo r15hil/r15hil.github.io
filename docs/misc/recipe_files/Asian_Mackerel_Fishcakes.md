@@ -21,7 +21,6 @@ These Asian inspired mackerel fishcakes are served with a fresh and crunchy nood
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/881.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the potatoes to a pot of boiled water with a pinch of salt and cook over a h
 
 Once cooked, drain and leave them to steam-dry&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/881.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Flake the flesh into bite-sized pieces
 
 Combine the chilli jam and a splash of &nbsp;cold water in a small bowl - this is your sweet chilli dressing&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/881.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Shred the little gem lettuce
 
 Slice the&nbsp;sugar snaps&nbsp;in half length-ways
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/881.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/881.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Divide the dough into 6 <span class="text-danger">[12]</span>&nbsp;pieces and ro
 
 Pat each ball down - these are your mackerel fishcakes&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/881.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,7 +102,6 @@ Once done, transfer the fishcakes to kitchen paper to soak up any excess oil and
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/881.-step-7-x200.jpg)
 
 ### Step 7
 

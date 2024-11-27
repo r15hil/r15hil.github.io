@@ -26,7 +26,6 @@ Is there anything better than crispy chicken? Not for us. You'll make a simple b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1829.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once hot, add the chicken, skin-side down and cook for 10 min
 
 Once the chicken skin is crispy, transfer it to a plate, skin-side up, and reserve the pan for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1829.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the halved shallots, garlic, star anise, bay leaf<span class="text-danger">[
 
 Tip: the milk only needs to simmer gently
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1829.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Cut the carrot<span class="text-danger">[s]</span> (skin on) into rounds
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1829.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Add the crispy chicken to the tray, skin-side up, and put the tray in the oven f
 
 Meanwhile, boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1829.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Add 1 tsp <span class="text-danger">[2 tsp]</span> flour to the pan and stir f
 
 Stir in the chicken stock and Henderson's Relish and cook for 4-5 min or the gravy has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1829.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Add the clotted cream and panko breadcrumbs to the milk with a generous pinch o
 
 Give everything a good mix up and cook for 1-2 min or until the breadcrumbs have soaked up most of the liquid – this is your bread sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1829.-step-7-x200.jpg)
 
 ### Step 7
 

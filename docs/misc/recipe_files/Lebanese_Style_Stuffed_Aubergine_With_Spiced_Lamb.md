@@ -25,7 +25,6 @@ We were inspired by Lebanese flavours for this irresistible dish. You'll stuff s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597162840317-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Slice the aubergine<span class="text-danger">[s]</span> lengthways into halves (
 
 Place the halved aubergine onto a plate and put the plate in the microwave for 5 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597162856731-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and cook for 3-4 min or until softened, then add the garlic and cook for a further 1-2 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597162874732-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add a drizzle of olive oil and a generous pinch of salt and pepper and put the t
 
 Boil a full kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597162888684-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the onion and garlic has softened, add the ground cinnamon, ground coriande
 
 Add the lamb mince and cook for 4-5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597162925728-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return it to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597162935610-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the lamb mince has browned, add the tomato stock to the pan and cook for 7-
 
 While the sauce is reducing, strip the mint leaves from their stems and chop them finely, discard the stems
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597162957131-x200.jpg)
 
 ### Step 7
 

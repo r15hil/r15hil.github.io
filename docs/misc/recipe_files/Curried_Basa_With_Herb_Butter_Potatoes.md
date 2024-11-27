@@ -26,7 +26,6 @@ Spice up a simple combo with this summery twist. You’ll prep your fish in a cu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2197.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the potatoes to a pot of boiling water with a pinch of salt, bring to the bo
 
 Once cooked, drain, and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664878673547-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Chop your coriander roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664878687239-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the coated basa and cook for 4-5 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664878697881-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ While the fish is cooking, chop your cucumber in half and slice finely
 
 Peel and slice your shallot[s]<span class="text-danger"> </span>(as finely as you can!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664878705539-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Combine your cider vinegar and chopped ginger in a small bowl with the sliced cu
 
 Season with a pinch of salt and sugar – this is your quick-pickled cucumber salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664878715852-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the chopped mint and chopped coriander to the drained potatoes with a genero
 
 Season with a pinch of salt and pepper  – these are your herb butter potatoes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664878725553-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Fancy being the ghostess with the mostest? Then top your spooky farfalle (those 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634048244275-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the tomato wedges to a tin foil-lined baking tray with a little drizzle of o
 
 Put the tray in the oven for 12-15 min or until beginning to blister, once done, remove the tray from the oven and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634048282230-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced red onion and chopped garlic and cook for 4-5 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634048290867-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once the onion has softened, add your butternut squash cubes and dried oregano a
 
 Add the creamy stock and chopped tomatoes and cook, covered, over a high heat for 5-6 min or until the squash has begun to soften – this is your squash & tomato sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634048306332-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
 Once done, drain the farfalle, reserving 80ml <span class="text-purple">[100ml]</span> <span class="text-danger">[120ml]</span> of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634048325687-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634048331047-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the drained farfalle to the squash & tomato sauce with the reserved pasta wa
 
 Transfer the mixture to an oven-proof dish
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634048342169-x200.jpg)
 
 ### Step 7
 

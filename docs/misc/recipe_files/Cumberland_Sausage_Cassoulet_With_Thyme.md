@@ -26,7 +26,6 @@ Smoky bean stew, topped with peppery Cumberland sausages served over creamy mash
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/942.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Put the tray in the oven for 10-12 min or until the bacon is very crispy
 
 Once done, transfer the&nbsp;crispy bacon&nbsp;to kitchen paper (you'll use this for garnishing at the end) and keep the baking tray for later!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/942.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -59,7 +57,6 @@ Once cooked, drain the potatoes and return them to the pot, leaving them to stea
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/942.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -71,7 +68,6 @@ Cut the remaining bacon into small bite-size pieces
 
 Add the Cumberland sausages to the reserved baking tray and put the tray in the oven for 15-20 min or until they're golden and cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/942.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -86,7 +82,6 @@ Once done, transfer the crispy bacon to&nbsp;kitchen paper
 
 Reduce the heat to low and add the sliced onion with a pinch of salt and cook for 10 min or until it's softened&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/942.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -107,7 +102,6 @@ Roughly chop the tomato<span class="text-danger">[es]</span>&nbsp;
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/942.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -125,7 +119,6 @@ Add the tomato stock and cook, covered, for 3-4 min or until everything has redu
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/942.-step-7-x200.jpg)
 
 ### Step 7
 

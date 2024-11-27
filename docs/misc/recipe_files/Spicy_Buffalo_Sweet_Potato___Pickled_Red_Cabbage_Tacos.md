@@ -24,7 +24,6 @@ Dang, these tacos are hot diggity delicious. You’ll pack warm tortillas with s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708343704001-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Cut your sweet potato[es] (skins on) into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708343706556-x200.jpg)
 
 ### Step 2
 
@@ -42,13 +40,11 @@ Add a drizzle of vegetable oil and a generous pinch of salt and give everything 
 
 Put the tray[s] in the oven for 20 min or until the wedges are tender and starting to crisp – these are your spicy sweet potato wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708343709858-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine your shredded red cabbage and your red wine vinegar with a pinch of salt and sugar - this is your quick-pickled red cabbage
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708343713460-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Once melted, remove the pot from the heat and add your Henderson's relish, srira
 
 Stir everything together until it combines and becomes a sauce-like consistency – this is your buffalo sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708343715819-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Meanwhile, grate your cheddar cheese
 
 Trim, then slice your spring onion[s]<span class="text-danger"> </span>finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708343718499-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Chop your chives finely
 
 Combine your soured cream with the chopped chives – this is your soured cream & chive sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708343721203-x200.jpg)
 
 ### Step 7
 

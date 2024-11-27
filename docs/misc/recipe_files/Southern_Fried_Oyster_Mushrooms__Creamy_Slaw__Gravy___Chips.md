@@ -22,7 +22,6 @@ Our original recipe mushroom fakeover is lip-smackin’ good. You’ll marinate 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681818809168-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681818813777-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add the carrot & cabbage slaw mix to a large bowl with the mayo and a pinch of salt and sugar and give everything a good mix up – this is your creamy slaw
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681818822603-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Dissolve the vegetable stock mix and Marmite in 200ml <span class="text-danger">
 
 Peel and grate (don't chop!) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681818828413-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Once hot, add the grated garlic, 1 tbsp <span class="text-danger">[2 tbsp] </spa
 
 Whisk in the stock, then bring to the boil over a high heat and cook for 4-5 min or until thickened – this is your gravy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681818835283-x200.jpg)
 
 ### Step 5
 
@@ -66,13 +61,11 @@ Crack the egg<span class="text-danger">[s] </span>into a shallow bowl and beat l
 
 Add 4 tbsp <span class="text-danger">[8 tbsp]</span> flour to a plate with the southern fried seasoning and a generous pinch of salt and pepper – this is your seasoned flour
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681818843322-x200.jpg)
 
 ### Step 6
 
 Add the oyster mushrooms to the beaten egg and then coat in the seasoned flour
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681818850436-x200.jpg)
 
 ### Step 7
 

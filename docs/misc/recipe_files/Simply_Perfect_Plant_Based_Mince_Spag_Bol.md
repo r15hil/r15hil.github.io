@@ -26,7 +26,6 @@ Brilliant for weeknights and slurp-tastic for adults and children alike. Rustle 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-11-1647971878182-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Top, tail, peel and finely chop the carrot<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-11-1647971882180-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the chopped onion and carrot and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-11-1647971887181-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-9-1647971891883-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Once the onion and carrot are beginning to soften, add the plant-based mince to
 
 Cook for 3-4 min further or until beginning to brown all over, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-11-1647971896191-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite then drain a
 
 Meanwhile, dissolve the vegetable stock mix and soy sauce in 200ml <span class="text-danger">[400ml] </span>boiled water – this is your stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-11-1647971901969-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Add the chopped garlic, tomato paste, stock, chopped tomatoes, dried basil 
 
 Season with a grind of black pepper, bring to the boil over a high heat and cook for 3-4 min further or until thickened and the beef is cooked through – this is your plant-based mince bolognese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-11-1647971907093-x200.jpg)
 
 ### Step 7
 

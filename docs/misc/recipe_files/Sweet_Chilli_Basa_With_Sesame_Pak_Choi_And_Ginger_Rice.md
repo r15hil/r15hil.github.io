@@ -26,7 +26,6 @@ For a light, zingy supper in under half an hour, you'll infuse basa with punchy 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/917.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/917.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your ginger rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/917.-step-3-x200.jpg)
 
 ### Step 3
 
 While the rice is cooking, combine your red chilli relish, chipotle paste (can't handle the heat? Go easy!) and 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil in a bowl – this is your sweet chilli sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/917.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Put the tray[s] in the oven for 12-15 min or until the fish is cooked through �
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/917.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Wash your pak choi, then pat it dry with kitchen paper and cut in half, separati
 
 Boil half a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/917.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once hot, add the pak choi white bases and sliced garlic and cook for 1-2 min or
 
 Add 50ml <span class="text-purple">[75ml]</span><span class="text-danger"> [100ml]</span> boiled water to the pan and cook, covered, for a further 2-3 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/917.-step-7-x200.jpg)
 
 ### Step 7
 

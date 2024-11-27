@@ -31,7 +31,6 @@ Recreate a feast of Chinese-inspired dishes. You'll serve up sticky mushrooms in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1610982387151-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Tear the chestnut mushrooms into small pieces and add to a baking tray (or two!)
 
 Put the tray<span class="text-danger">[s]</span> in the oven for an initial 15-20 min, or until starting to brown and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610982398106-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1610982469342-x200.jpg)
 
 ### Step 3
 
@@ -73,7 +70,6 @@ Add the shredded spring greens to a large baking tray and sprinkle with a genero
 
 Set this aside for later, then boil a full kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1610982487293-x200.jpg)
 
 ### Step 4
 
@@ -89,7 +85,6 @@ Turn the heat down to low and cook, covered for 8-10 min – this is your tofu w
 
 Tip: Remove the lid for the final few minutes if your sauce needs thickening!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1610982498804-x200.jpg)
 
 ### Step 5
 
@@ -107,7 +102,6 @@ Add the fine egg noodles to a large bowl, cover them with boiled water and stir 
 
 Set aside to soak for 4 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1610982588901-x200.jpg)
 
 ### Step 6
 
@@ -121,7 +115,6 @@ Once combined, push the rice to one side of the pot and crack the egg<span class
 
 Stir the egg<span class="text-danger">[s]</span> with a wooden spoon to break the yolk<span class="text-danger">[s]</span> and cook for 1-2 min until it resembles scrambled egg, then mix it all through the rice – this is your egg fried rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1610982615612-x200.jpg)
 
 ### Step 7
 

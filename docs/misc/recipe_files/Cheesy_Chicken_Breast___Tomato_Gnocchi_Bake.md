@@ -24,7 +24,6 @@ For this one-dish meal, you'll bake gnocchi in a spinach and tomato sauce, and t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1709045759631-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Boil half a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1709045762744-x200.jpg)
 
 ### Step 2
 
@@ -44,19 +42,16 @@ Chop your cherry tomatoes in half
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1709045766249-x200.jpg)
 
 ### Step 3
 
 Add the diced chicken breast to a bowl with a drizzle of vegetable oil and a generous pinch of salt and pepper and give everything a good mix up – this is your seasoned chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1709045769590-x200.jpg)
 
 ### Step 4
 
 Combine your tomato paste, chicken stock mix, chopped garlic and a pinch of sugar with 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml]</span> boiled water in an oven-proof dish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1709045773238-x200.jpg)
 
 ### Step 5
 
@@ -64,13 +59,11 @@ Wash and add your spinach, halved cherry tomatoes and half of your gnocchi to t
 
 Top with the remaining gnocchi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1709045777157-x200.jpg)
 
 ### Step 6
 
 Add the seasoned chicken and grated cheddar and season with a generous grind of black pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1709045780689-x200.jpg)
 
 ### Step 7
 

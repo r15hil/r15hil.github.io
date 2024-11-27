@@ -29,7 +29,6 @@ Bangladesh called, it wants its meatballs back. You’ll pack juicy lean beef ko
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702404304705-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Peel and finely chop (or grate) your garlic
 
 Slice half your green chilli[es] into rounds and finely chop the remaining
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702404310534-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide and shape into 3 koftas per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702404324281-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once the koftas have browned, transfer them to a plate and set aside, these will
 
 Reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702404335148-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Chop your tomato[es] finely
 
 Dissolve your chicken stock mix and tomato paste in 120ml <span class="text-purple">[150ml]<span class="text-danger"> </span>[200ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702404344551-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once softened, add the remaining chopped garlic with the remaining ground corian
 
 Cook for 1-2 min further or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702404350829-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once broken down, add the tomato stock and bring to the boil over a high heat
 
 Once boiling, return the browned koftas to the pan and cook, covered, for 12-15 min or until cooked through (no pink meat!) – this is your Bangladeshi-style lean beef kofta curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702404357766-x200.jpg)
 
 ### Step 7
 

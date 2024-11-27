@@ -26,7 +26,6 @@ Give your go-to chicken soup a bit of Indian flavour. You’ll simmer lentils an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1667320637886-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut the remaining onion into wedges
 
 Top, tail and slice your carrot[s] into discs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667320641162-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the diced onion and carrot discs and cook for 4-6 min or until sta
 
 Rinse your red lentils in a sieve under cold running water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667320645732-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add your chicken breast strips to the other side of the tray[s]
 
 Put the tray[s] in the oven for 15-20 min or until the chicken is cooked through (no pink meat!) and the onion wedges are caramelised and slightly charred – this is your roasted chicken & onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667320649629-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once the onion is softened, add a knob of butter to the pot with your tomato pas
 
 Give everything a good mix up, season with a generous pinch of salt and pepper and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667320652588-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once boiling, reduce the heat to low and cook covered for 15-20 min or until the
 
 Once softened, remove the pot from the heat and blitz with a (stick) blender until smooth, then return to a low heat to keep warm – this is your curried lentil soup
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667320657763-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once the chicken is cooked through, transfer the cooked chicken to a clean board
 
 Separate the roasted onion into petals – these are your tandoori-style onion petals
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667320662806-x200.jpg)
 
 ### Step 7
 

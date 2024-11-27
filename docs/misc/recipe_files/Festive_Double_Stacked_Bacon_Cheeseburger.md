@@ -30,7 +30,6 @@ Our most decadent burger to date. You'll sandwich a gravy-soaked layer of bread 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1604316186213-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Boil half a kettle
 
 Cut your potatoes (skin on) into thin chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1604316202625-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Give everything a good mix up and put the tray[s] in the oven for an initial 15-
 
 Meanwhile, dissolve your beef stock mix and Henderson's Relish in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1604316211461-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once melted, add 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="
 
 Gradually whisk in your beef stock into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your gravy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1604316224614-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your beef mince to a bowl, season with salt and pepper and roll into 2 meatb
 
 Once the chips are starting to brown, push them to one side of the tray[s], add your smoked streaky bacon to the other and return to the oven for 12-15 min or until the chips are crispy and the bacon is golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1604316278697-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once hot, add the meatballs, press them down firmly with a spatula to form a thi
 
 Flip the burgers and top half with the grated cheese and cook, covered, for 2-3 min further or until the burgers are cooked through (no pink meat!) and the cheese has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1604316304368-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Slice your brioche bun[s] in half
 
 Add the ciabatta and brioche halves to a separate tray and put the tray in the oven for 3-4 min or until toasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1604316347732-x200.jpg)
 
 ### Step 7
 

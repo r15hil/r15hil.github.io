@@ -23,7 +23,6 @@ This one's full of delicious, wholesome goodness. You'll toss bulgur wheat with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1240.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1240.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray[s] in the oven and cook for an initial 5 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1240.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Chop your Tenderstem broccoli in half
 
 Peel your red onion[s] and cut into quarters
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1240.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the onion quarters and halved Tenderstem broccoli to the tray[s] with a pinc
 
 Return the tray[s] to the oven for 20 min or until all the veg is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1240.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, set the toasted hazelnuts aside to cool before chopping finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1240.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your red wine vinegar, honey, chopped garlic (not a fan of raw garlic? Just add a little!), a very generous drizzle of olive oil and a pinch of salt in small bowl – this is your honey dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1240.-step-7-x200.jpg)
 
 ### Step 7
 

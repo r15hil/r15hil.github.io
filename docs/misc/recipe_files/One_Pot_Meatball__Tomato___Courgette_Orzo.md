@@ -24,7 +24,6 @@ This one-pot twist on spaghetti and meatballs is a warming, comforting treat, wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2462Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the pork & beef ragù mince to a bowl with the panko breadcrumbs and a ge
 
 Divide the mixture into 10 <span class="text-danger">[20]</span> and shape them into meatballs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2462Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once done, transfer the browned meatballs to a plate and set aside
 
 Reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2462Step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Return the reserved pan to a medium heat and add the chopped onion with pinch of
 
 Cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2462Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Top, tail and chop the courgette<span class="text-danger">[s]</span> into quarte
 
 Dissolve 1/2 <span class="text-danger">[1]</span> Knorr beef stock cube in 400ml<span class="text-danger"> [750ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2462Step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the onion has softened, add the chopped garlic, chopped courgette and orzo 
 
 Add the beef stock with the tomato frito, balsamic vinegar and a generous grind of pepper and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2462Step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Top the orzo with the browned meatballs and cook, covered, for 12-15 min or unti
 
 Tip: Keep an eye on the orzo and stir it to stop it from sticking!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2462Step-7-x200.jpg)
 
 ### Step 7
 

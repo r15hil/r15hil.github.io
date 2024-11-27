@@ -21,7 +21,6 @@ Quick, simple and packed with summery Italian flavours. You’ll pan-fry meaty p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657548381911-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the chicken stock mix in 500ml <span class="text-danger">[1L]</span> boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657548385626-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Heat a medium sized pot with 2 tbsp <span class="text-danger">[3 tbsp]</span> ol
 
 Once hot, and the chopped garlic and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657548389730-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657548393861-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Combine the chopped basil and white wine vinegar with 1 tbsp <span class="text-d
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your basil vinaigrette
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657548398138-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once hot, add the steaks with a pinch of salt and pepper and cook for 4-5 min on
 
 Once done, transfer the cooked steaks to a clean chopping board, cover with a clean tea towel and leave them to rest for 2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657548403043-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the orzo is cooked, add the chopped tomatoes to the pot with a pinch of sal
 
 Cook for 2-3 min further or until the sauce has thickened slightly – this is your tomato orzo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657548406732-x200.jpg)
 
 ### Step 7
 

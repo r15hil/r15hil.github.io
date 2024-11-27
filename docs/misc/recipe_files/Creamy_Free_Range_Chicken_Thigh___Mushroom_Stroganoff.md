@@ -25,7 +25,6 @@ In this silky stroganoff, you'll smother pulled free range chicken and smoky car
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1698229413407-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your free range chicken thighs with a pinch of salt and cook for an initial 3 min on each side or until starting to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1698229418748-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut your chestnut mushrooms into quarters
 
 Strip your thyme leaves from their stems and chop them finely, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1698229424055-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once the chicken has browned, add the sliced onion and mushroom quarters to the 
 
 Cook for 10 min further or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1698229428992-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1698229433564-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the chicken is cooked through, transfer it to a clean board and shred apart
 
 Reduce the heat to medium-high and cook the onion & mushrooms for a further 3-4 min or until caramelised
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1698229439084-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add a pinch of salt and a generous grind of pepper and cook for 1 min further or
 
 Dissolve your chicken stock mix in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1698229444724-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Give your mid-week Indian a makeover! You’ll flavour beef kebabs with spices b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648544994533-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 20-25 min or until golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648544997024-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Meanwhile, peel and grate half of your red onion[s]
 
 Finely dice the remaining onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648545000081-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Mix thoroughly until fully combined, then shape into 1 sausage shaped kebab per 
 
 Tip: Wet your hands to stop the mince sticking to them!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648545002478-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Reduce the heat to medium-high and cook, covered, for a further 6-7 min then rem
 
 Cook, uncovered, for 2-3 min or until the kebabs are cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648545005792-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Strip your mint leaves from their stems and chop them finely, discard the stems
 
 Combine the cucumber ribbons, chopped mint and your natural yoghurt in a bowl with a pinch of salt – this is your cucumber raita
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648545008273-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Combine the diced tomato, diced cucumber, diced red onion and chopped coriander 
 
 Put your naan[s] in the oven for 3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648545011040-x200.jpg)
 
 ### Step 7
 

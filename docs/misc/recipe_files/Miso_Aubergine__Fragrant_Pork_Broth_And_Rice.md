@@ -30,7 +30,6 @@ Experience mega umami flavour with sticky caramelised aubergine glazed in savour
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1657622202011-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the drained rice with 200ml<span class="text-purple"> [300ml]</span> <span c
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1657622209482-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1657622216428-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the aubergine rounds to a baking paper-lined baking tray (or two!)
 
 Combine half of your white miso paste (save the rest for later!) with a splash of cold water and 2 tsp <span class="text-purple">[3 tsp] </span><span class="text-danger">[4 tsp]</span> sugar in a small bowl, then divide it equally between the aubergine rounds and put the tray[s] in the oven for 20 min or until golden and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1657622233555-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once hot, add your pork mince (remove the paper if required!) to the pan and rou
 
 Cook for 6-7 min, turning once halfway until browned all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1657622254603-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Peel and finely chop (or grate) your garlic
 
 Combine the remaining white miso paste with 500ml <span class="text-purple">[650ml] </span><span class="text-danger">[850ml]</span> boiled water, your tamari soy sauce, rice vinegar, chicken stock mix and 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar – this is your miso stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1657622264866-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once the pork has browned, add the chopped ginger and garlic to the pan and cook
 
 Once softened, add your cornflour and give everything a good mix up until fully coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1657622272364-x200.jpg)
 
 ### Step 7
 

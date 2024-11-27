@@ -27,7 +27,6 @@ Saddle up your taste buds for our Texas-style dalmatian chicken, sprinkled with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651057234899-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Pat the chicken thighs dry with kitchen paper and season them generously on both
 
 Set aside for 6 min to draw some of the moisture out – this is your quick dry brined chicken
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651057241233-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cut your orange[s] in half
 
 Peel and grate your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651057249104-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a small pot over a medium heat and add the juice of the orange[s] with 25ml
 
 Season with a small pinch of salt and cook for 3-4 min or until the sauce has thickened to a syrup-like consistency, then remove it from the heat and set aside – this is your BBQ sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651057257235-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick) over medium-high heat
 
 Once hot, add the quick dry brined chicken, skin-side down and cook for 10 min or until the skin has browned and crisped
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651057264138-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the sliced cucumber to a small bowl with your cider vinegar and 1 tsp <span 
 
 Season with a pinch of salt, mix everything together and set aside – this is your quick-pickled cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651057270835-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Combine the remaining grated garlic with the warmed butter in a small bowl – t
 
 Slice your ciabatta[s] in half, then spread the garlic butter over the ciabatta halves (reserve the bowl)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651057279943-x200.jpg)
 
 ### Step 7
 

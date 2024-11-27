@@ -22,7 +22,6 @@ This easy chicken dish is cooked with spring onion and a touch of chilli, served
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/670.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Dissolve half the&nbsp;<span class="text-danger">[whole]</span>&nbsp;stock cube 
 
 Add the couscous to the stock, cover and set aside&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/670.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Chop the spring onion<span class="text-danger">[s]</span> finely discarding the 
 
 Set aside a small pinch of chopped spring onions for garnish
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/670.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Add the chicken to a bowl with the&nbsp;spring onion, chilli flakes (can't handl
 
 Mix very well and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/670.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surfa
 
 Combine the juice of half a&nbsp;<span class="text-danger">[whole]</span> lime with the saffron and honey - this is your glaze
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/670.step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with 1 tbsp
 
 Once hot, add the chicken mixture and cook for 5-7 min or until cooked through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/670.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Fluff the couscous, add the chopped coriander&nbsp;and the juice of the remainin
 
 Season generously with salt and pepper and stir in a drizzle of olive oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/670.-step-7-x200.jpg)
 
 ### Step 7
 

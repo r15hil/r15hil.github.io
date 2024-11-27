@@ -24,7 +24,6 @@ Serve up summer on a plate with these vibrant, herby fish and pepper skewers. On
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1594052417106-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the wedges to a large baking tray with a drizzle of vegetable oil and a gene
 
 Put the tray in the oven for 30-35 min or until the wedges are tender and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1594052425120-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the chopped pepper to a separate baking tray (use tin foil to avoid mess!) w
 
 Put the tray in the oven for 5-6 min or until lightly charred and starting to soften, then remove from the oven and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1594052433617-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and grate the garlic
 
 Soak the skewers in cold water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1594052444100-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Combine the grated garlic, ground turmeric and chopped mint in a bowl with half 
 
 Squeeze in the juice of 1/2<span class="text-danger"> [1]</span> lemon and season with a very generous pinch of salt and pepper – this is your herby marinade
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1594052455973-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Chop the basa fillets into bite-sized pieces
 
 Add the chopped basa to the herby marinade and give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1594052463351-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the loaded skewers to the reserved tray and put the tray in the oven for 8-1
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1594052480293-x200.jpg)
 
 ### Step 7
 

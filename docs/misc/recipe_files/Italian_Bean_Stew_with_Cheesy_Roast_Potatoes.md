@@ -28,7 +28,6 @@ These beans aren't just good for your heart, they're downright delectable. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1661184250820-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Chop your waxy potatoes into quarters and add to a baking tray with a drizzle of
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp – these are your roast potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1661184253095-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the halved tomatoes and a generous pinch of salt and cook for 3-4 min or until they’re beginning to break down
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1661184256747-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Finely chop your sun-dried tomatoes
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1661184260722-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Dissolve your vegetable stock mix and tomato paste in 50ml<span class="text-purp
 
 Add the chopped garlic, chopped sun-dried tomatoes, your balsamic vinegar, half your chilli flakes (can’t handle the heat? Go easy!) and half your dried oregano (you'll use the rest later!) with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a grind of black pepper to the pan and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661184265314-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Drain and rinse your cannellini beans then add them to the pan with your finely 
 
 Give everything a good mix up, reduce the heat to low-medium and cook, covered for 10 min or until the bean stew has thickened slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1661184272736-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Wash your spinach, then pat dry with kitchen paper
 
 Once the bean stew has thickened slightly, stir the spinach through and cook with a lid on, for 2-3 min further or until the spinach has wilted – this is your Italian bean stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661184279312-x200.jpg)
 
 ### Step 7
 

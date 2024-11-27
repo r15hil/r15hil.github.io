@@ -23,7 +23,6 @@ Looking for a comforting dish full of rich, meaty flavour? Then this goulash is 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612275403360-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and cut the brown onion<span class="text-danger">[s]</span> into wedges
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and chop roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612275417783-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated beef strips and cook for 2-3 min or until browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612275429343-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once browned, add the onion wedges, chopped pepper and ground paprika and cook f
 
 Dissolve the beef stock mix in 350ml <span class="text-danger">[600ml] </span>boiled water and stir in the tomato paste and Henderson's Relish – this is your beef stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612275450357-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add the beef stock to the pan and bring to the boil
 
 Once boiling, reduce the heat to low and cook, covered, for 30 min or until the sauce has thickened and everything's cooked through – this is your warming beef goulash
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612275458350-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the chopped potatoes to a pot of boiling water with a pinch of salt ov
 
 Once cooked, drain and return to the pot to steam dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612275472210-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ While the potatoes are cooking, chop the parsley finely, including the stalks
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612275481258-x200.jpg)
 
 ### Step 7
 

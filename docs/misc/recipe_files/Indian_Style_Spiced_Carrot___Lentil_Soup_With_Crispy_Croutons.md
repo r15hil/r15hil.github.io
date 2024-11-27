@@ -31,7 +31,6 @@ There are few things more comforting than a bowl of carrot and lentil soup. Espe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/878.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Top, tail and roughly chop your carrot[s]
 
 Heat a large, wide-based pot with a drizzle of olive oil over a medium-high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/878.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/878.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Once the onion has started to soften, add your garam masala, ground turmeric, ch
 
 Meanwhile, dissolve your<span class="text-danger"> </span>vegetable stock mix in 1.2L <span class="text-purple">[1.5L]</span> <span class="text-danger">[2L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/878.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the vegetable stock and cook for 10-15 min or until the lentils and carrots are tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/878.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Place on a baking tray (or two!) and add a drizzle of olive oil and a pinch of 
 
 Put the tray[s] in the oven and cook for 5-6 min or until crispy – these are your crispy croutons
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/878.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Roll your lime[s] with your hand on a hard surface (to release more juice!) and 
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/878.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Relax and enjoy the luxurious, comforting flavours of a classic chicken risotto 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1377Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped chicken and cook for 4 min on each side or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1377Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ While the chicken is cooking, peel and finely dice your brown onion[s]
 
 Chop your chestnut mushrooms in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1377Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Return the pan to a medium heat with a drizzle of olive oil
 
 Once hot, add the chopped onion and halved mushrooms and cook for 7-8 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1377Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1377Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Once the vegetables have softened, add the chopped garlic, chopped thyme and you
 
 Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1377Step-6-x200.jpg)
 
 ### Step 6
 
 While the rice is cooking, grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1377Step-7-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ This dish is inspired by Tuscan sunshine. You'll whizz olives and capers into a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/369_step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/369_step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Dissolve the vegetable stock mix in 600ml <span class="text-danger">[1.2L]</sp
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/369_step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Once hot, add the diced onion and a pinch of salt
 
 Cook for 5 min until softened but not coloured
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/369_step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add 1/3 of the stock and stir continuously with a wooden spoon until the stock i
 
 Continue to add the stock, a little at a time, stirring continuously for 15-20 min, until all the stock is absorbed and the rice is cooked
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/369_step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Drizzle everything with olive oil and season generously with salt and pepper
 
 Season the halved cherry tomatoes with a pinch of sugar
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/369_step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Meanwhile, chop the basil finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/369_step-7-x200.jpg)
 
 ### Step 7
 

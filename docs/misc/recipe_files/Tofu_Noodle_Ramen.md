@@ -25,7 +25,6 @@ Ramen is a Japanese wheat noodle broth that’s usually made with pork or fish s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28.-28.-step1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cut the mushrooms in half then slice finely
 
 Cut the mangetout into bite-size pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28.-28.-step2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel the ginger (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Drain the tofu, pat dry with kitchen towel and cut into cubes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28.-28.-step3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the ginger, chilli flakes (can't handle the heat? Go easy!), mushrooms and s
 
 Add the shaoxing wine and cook for 1 min or until it evaporates, still stirring constantly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28.-28.-step4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add 1L <span class="text-danger">(2L)</span> boiled water and crumble in the sto
 
 Reduce the heat to low, add the tofu and stir
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28.-28.-step5-x200.jpg)
 
 ### Step 5
 
@@ -82,13 +77,11 @@ Add the noodles to the pot
 
 Cook for 4 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28.-28.-step6-x200.jpg)
 
 ### Step 6
 
 Add the soy sauce, the whites of the spring onion (save the green for serving) and cook for 2 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28.-28.-step7-x200.jpg)
 
 ### Step 7
 

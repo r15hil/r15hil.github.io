@@ -22,7 +22,6 @@ Crunchy, golden, parsley-crumbed British chicken breast nuggets – made complet
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1665.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop the chicken breast into roughly bite-sized pieces
 
 Chop the parsley finely, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1665.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Add a handful of flour to a plate and season with a pinch of salt and pepper
 
 Add the panko breadcrumbs and the chopped parsley to a bowl (or plate) with a drizzle of vegetable oil and give it a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1665.-step-3-x200.jpg)
 
 ### Step 3
 
 Chop the potatoes (skins on) into chips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1665.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a generous p
 
 Put the tray in the oven and cook for 25-30 min or until cooked through, golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1665.-step-5.new-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Lightly grease a baking tray with vegetable oil
 
 Add the herby chicken nuggets to the baking tray and put the tray in the oven for 15-20 min or until the chicken is cooked through (no pink meat!) and golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1665.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Heat a wide-based pan (preferably non-stick) with a drizzle of vegetable oil ove
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-6 min or until softened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1665.-step-7-x200.jpg)
 
 ### Step 7
 

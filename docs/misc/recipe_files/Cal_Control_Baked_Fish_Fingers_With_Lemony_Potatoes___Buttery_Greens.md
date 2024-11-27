@@ -24,7 +24,6 @@ Baked-not-fried is the name of the game with our lower-calorie fish fingers. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1640100077595-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, cook for 12-15 min or until fork-tender, then drain and return to 
 
 Keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640100083767-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your panko breadcrumbs to a plate
 
 Add the lemon zest, your dried oregano, 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> olive oil and a pinch of salt and pepper to the breadcrumbs and mix everything together – these are your herby breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1640100103825-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add a handful of flour to a plate and a splash of milk to a small bowl
 
 Coat the basa strips in the flour, tap off any excess, then add into the milk and then firmly press into the herby breadcrumbs to coat evenly – these are your coated fish fingers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1640100113877-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the coated fish fingers to a baking tray (or two!) and put the tray[s] in th
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1640100118116-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Reboil a full kettle
 
 While the fish fingers are cooking, add the juice of half the lemon[s] (not sure about citrus? Try using less!), a drizzle of olive oil and a pinch of salt and pepper to the drained potatoes – these are your lemony potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1640100127748-x200.jpg)
 
 ### Step 6
 
 Combine your mayo and a squeeze of lemon juice in a small bowl with a pinch of salt and pepper and give everything a good mix up – this is your lemony mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1640100135501-x200.jpg)
 
 ### Step 7
 

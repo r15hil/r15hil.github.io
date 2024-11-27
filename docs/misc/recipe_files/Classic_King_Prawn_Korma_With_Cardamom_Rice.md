@@ -27,7 +27,6 @@ For this quick, easy twist on a creamy korma, you'll simmer succulent king prawn
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/939.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a pot with a lid, with a large knob of butter over a medium heat
 
 Once hot, add the crushed cardamom pod[s] and cook for 1 min or until fragrant
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/939.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1660823228900-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then chop your green beans into bite-size pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/939.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the diced onion and a generous pinch of salt and cook for 3-5 min
 
 Once softened, add your ginger paste, curry powder and the chopped garlic and cook for a further 1 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/939.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/939.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the coconut stock to the pan and cook for 2-3 min or until a thick sauce remains
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1660823288903-x200.jpg)
 
 ### Step 7
 

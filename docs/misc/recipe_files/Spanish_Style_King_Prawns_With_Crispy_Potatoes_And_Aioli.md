@@ -26,7 +26,6 @@ These sizzling Spanish-style prawns are smothered in tangy Belazu Balsamic Sun-D
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682082755897-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the potato discs to a baking tray (or two!) with a drizzle of olive oil, gro
 
 Put the tray[s] in the oven for 20-25 min or until the potatoes are golden and crispy – these are your crispy potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682082760662-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box gr
 
 Take 2 tbsp<span class="text-danger"> <span class="text-purple">[3 tbsp]</span> [4 tbsp]</span> butter out of the fridge and set aside to warm up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682082765978-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the halved Tenderstem broccoli and onion wedges to a separate baking tray wi
 
 Put the tray in the oven for 10-12 min or until tender, golden and crisp – this is your roasted veg
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682082769746-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Tip: If your butter is not soft then microwave for a few secs or until soft to t
 
 Season with a pinch of salt and a generous grind of black pepper – this is your sun-dried tomato butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682082774007-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine your mayo, remaining garlic (not a big garlic fan? Try using less!), 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> cold water and a pinch of salt in a small bowl – this is your aioli
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682082777988-x200.jpg)
 
 ### Step 6
 

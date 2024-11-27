@@ -29,7 +29,6 @@ For this healthy recipe, you'll coat fish fillets in a Thai-style marinade inspi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1647964964065-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the fries to a large baking tray (or two!) with a drizzle of vegetable oil a
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until the fries are tender and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1647964988681-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Pat your basa fillet[s] dry with kitchen paper
 
 Add the basa fillet[s] to the marinade and give everything a good mix up, then set aside until later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1647965043356-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel lengths off your cucumber until you end up with a pile of cucumber ribbons
 
 Chop your coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1647965066306-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the carrot and cucumber ribbons to a bowl with the remaining rice vinegar an
 
 Season with a pinch of sugar and salt, give everything a good mix up and set aside until serving – this is your quick-pickled ribbon salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1647965076863-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add your cornflour to the bowl with the marinated basa fillet[s]
 
 Give everything a good mix up until the basa fillet[s] are coated in the Thai-style batter – this is your coated basa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1647965088497-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until crisp
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1647965102739-x200.jpg)
 
 ### Step 7
 

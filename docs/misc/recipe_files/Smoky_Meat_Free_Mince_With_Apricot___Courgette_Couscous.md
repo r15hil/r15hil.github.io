@@ -25,7 +25,6 @@ In this vegan variant, you'll spice up meat-free mince with warming cumin seeds 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650974305871-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel lengths off the courgette<span class="text-danger">[s]</span> with a peeler
 
 Dice the inner stem<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650974309129-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Cover and set aside
 
 Add the courgette ribbons to a pot or separate heat-proof bowl and cover with hot water for 4 min, then drain and squeeze out any excess water with your hands
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650974312359-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely chop (or grate) the garlic
 
 Peel and finely dice the red onion<span class="text-danger">[s]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650974318893-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add 1 tbsp <span class="text-danger">[2 tbsp]</span> of olive oil and the diced 
 
 Cook for 3 min over a medium heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650974322490-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the chopped garlic and diced courgette, cook for a further 2 min, then add t
 
 Cook the mince mixture for 5 min further or until the stock is absorbed and the meat-free mince is cooked through – this is your smoky meat-free mince
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650974326093-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Meanwhile trim, then slice the spring onion<span class="text-danger">[s]</span>
 
 Strip the mint leaves from their stems and chop them finely, discard the stems
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650974328721-x200.jpg)
 
 ### Step 7
 

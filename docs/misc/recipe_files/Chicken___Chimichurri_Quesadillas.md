@@ -22,7 +22,6 @@ Quesadillas are Mexico's delicious answer to cheese toasties. You'll fill tortil
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597826112081-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Boil half a kettle
 
 Add the chicken breast fillets to a bowl with the smoked paprika, a drizzle of olive oil and a generous pinch of salt and mix until coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597826117178-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Heat a large, wide-based dry pan (preferably non-stick) with a matching lid over
 
 Add the coated chicken and cook for 2 min on each side, then add 100ml <span class="text-danger">[200ml]</span> boiled water and cook, covered, for 12-15 min or until cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1597826122574-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Add the wedges to a large baking tray with a drizzle of vegetable oil and a gene
 
 Put the tray in the oven for 20-25 min or until the wedges are tender and starting to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597826127268-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add the chopped coriander, garlic, chilli flakes (can't handle the heat? Go easy
 
 Season generously with salt and pepper and give everything a good mix up – this is your chimichurri sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597826133287-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Drain and pat the mozzarella dry with kitchen paper (squeeze as much liquid out 
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1597826141588-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Divide the chicken & mozzarella mixture between the tortilla wraps, covering onl
 
 Fold each tortilla over and press down firmly so you're left with 6 <span class="text-danger">[12]</span> half moon-shaped sandwiches – these are your chicken quesadillas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1597826150316-x200.jpg)
 
 ### Step 7
 

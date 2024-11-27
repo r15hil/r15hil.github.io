@@ -28,7 +28,6 @@ Inspired by the warm and bold flavours of Morocco, we've given the classic Sheph
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/807.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Boil a kettle
 
 Peel and chop your sweet potatoes<span class="text-danger"> </span>into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/807.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/onion807.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and finely chop (or grate) your garlic
 
 Strip your mint leaves from their stems and chop them finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/807.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your lamb mince, breaking it up with a wooden spoon as you go, and cook for 
 
 Meanwhile, reboil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/807.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Add your sultanas, 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water and the chopped mint and cook for 3-4 min or until the sauce thickens into a gravy-like consistency and the lamb is cooked through (no pink meat!) – this is your Moroccan-style spiced lamb
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/807.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Sprinkle your panko breadcrumbs and ground sumac over the top
 
 Place the dish in the oven and cook for 15-20 min until golden brown – this is your Moroccan-style spiced lamb shepherd's pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/807.-step-7-x200.jpg)
 
 ### Step 7
 

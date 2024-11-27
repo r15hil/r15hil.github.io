@@ -19,7 +19,6 @@ This hearty tart is the perfect mid-week dinner. You’ll top flaky puff pastry 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679066882697-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 10 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679066887227-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ While the onion is softening, dust your work surface with a sprinkling of flour
 
 Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin and cut into 1 rectangle per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679066891705-x200.jpg)
 
 ### Step 3
 
@@ -51,19 +48,16 @@ Prick the inside of the border all over with a fork (this will stop you getting 
 
 Tip: The pastry border will puff up to give you a nice crust!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679066895945-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add your soft cheese to a bowl with a pinch of salt and pepper and mix it all together – this is your soft cheese mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679066901313-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add half your red wine vinegar (you'll use the rest later!) and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and cook for a further 2-3 min or until beginning to caramelise – this is your caramelised onion
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679066905872-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Top with the caramelised onion and tear over your sausage meat (remove the paper
 
 Put the tray[s] in the oven for 15 min or until the sausage meat is cooked through (no pink meat!) and the pastry is golden and cooked through and the edges have puffed up – this is your creamy sausage & red onion tart[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679066911400-x200.jpg)
 
 ### Step 7
 

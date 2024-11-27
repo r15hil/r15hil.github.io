@@ -24,7 +24,6 @@ Get ready to wok with this speedy Japanese style stir-fry. Crisp up fresh green 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1654009047231-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Rinse the brown rice, add it to a pot with plenty of cold water and bring to the
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until it's tender with a slight bite, then drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654009055670-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, transfer the toasted seeds to a plate and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654009060654-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Slice the mangetout in half widthways
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654009065521-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Combine the miso paste, toasted sesame oil and rice vinegar in a bowl
 
 Add 1 tbsp <span class="text-danger">[2 tbsp]</span> of water and a pinch of sugar – this is your miso dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654009072147-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once hot, add the halved green beans and cook for 2-3 min or until starting to s
 
 Wash the spinach, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654009082090-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Cook for 2-3 min further or until the greens are tender with a slight bite
 
 Add in the spinach and a pinch of salt and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654009092241-x200.jpg)
 
 ### Step 7
 

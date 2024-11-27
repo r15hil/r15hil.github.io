@@ -26,7 +26,6 @@ As sweet as it is spicy, the Korean chilli paste gochujang gives this speedy sup
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1651674917171-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651674921590-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh and cook for 6 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651674926965-x200.jpg)
 
 ### Step 3
 
@@ -60,19 +57,16 @@ Meanwhile, top, tail and chop your courgette[s] into quarters lengthways, then s
 
 Peel and finely chop your spring onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651674931511-x200.jpg)
 
 ### Step 4
 
 Add the sliced courgette, chopped spring onion, your ginger & garlic paste and chilli flakes (can't handle the heat? Go easy!) to the chicken and cook for 2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651674938008-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your cornflour and 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar in a small bowl with 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>boiled water, then stir in your soy sauce and gochujang paste (not a fan of spice? Just add a little!) – this is your gochujang sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651674943415-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add your udon noodles to the pan, gently separating them with a fork
 
 Once separated add the gochujang sauce and cook for 2 min further, stirring until the noodles are coated in the sauce and your chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651674948648-x200.jpg)
 
 ### Step 7
 

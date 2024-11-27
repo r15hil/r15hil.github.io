@@ -23,7 +23,6 @@ This classic sandwich from Philadelphia is as messy as it is delicious. It's pac
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1645031100482-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the halved potatoes to a pot of plenty of boiled water with a pinch of salt 
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and rinse them under cold water until cooled slightly (save the pot for later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1645031105324-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once very hot, add the seasoned steaks to the pan and cook for 2 min on each sid
 
 Tip: You'll be returning these to the pan later!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1645031327139-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once the steaks are done, transfer them to a plate to rest
 
 Return the pan to a medium heat, add the sliced onion and pepper strips with a pinch of salt and cook, covered, for 6-8 min or until starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1645031330977-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Trim the fat from the steaks and discard
 
 Slice the rested steaks as finely as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1645031335652-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut the ciabattas in half and spread with a thin layer of butter
 
 Add the buttered halved ciabattas to a baking tray and put the tray in the oven for 3-4 min or until warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1645031340317-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the onion and peppers have caramelised, add the sliced steaks and soy sau
 
 Top with the grated cheese and cook, covered, for 2-3 min further or until the cheese has melted – this is your Philly cheesesteak filling
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1645031344229-x200.jpg)
 
 ### Step 7
 

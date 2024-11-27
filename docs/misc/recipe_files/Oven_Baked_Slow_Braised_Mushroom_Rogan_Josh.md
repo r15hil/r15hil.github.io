@@ -31,7 +31,6 @@ This one-pot curry will be bubbling away in five. You’ll add chunks of slow-br
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1639998445065-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1639998438516-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Boil a kettle
 
 Heat a large, hob-safe oven-proof casserole dish with a drizzle of vegetable oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-17-1732008235299-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Chop your tomato[es] into wedges
 
 Add the wedged tomato and onion and with your Fable pulled mushrooms
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1639999023928-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Crush your garlic open by squashing them with the side of a knife and remove the
 
 Crush your cardamom pods open by squashing them with the side of a knife
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-17-1732008196809-x200.jpg)
 
 ### Step 5
 
 Add the crushed garlic and cardamom pods to the dish with your ground turmeric, ground coriander, curry powder and chilli flakes (can't handle the heat? Go easy!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-16-1732008263897-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Bring to the boil over a high heat
 
 Once boiling, put the dish in the oven, uncovered, for 30-35 min or until the the sauce has thickened and everything's cooked through – this is your one-pot slow-braised mushroom rogan josh
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1639999093275-x200.jpg)
 
 ### Step 7
 

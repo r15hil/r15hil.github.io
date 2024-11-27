@@ -29,7 +29,6 @@ This super grain bowl (fibre-packed lentils and brown rice) is packed with flavo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721398651632-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721398654830-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Give it a good mix up until it forms a paste
 
 Add the free range chicken breast portion[s] to the plate and turn until fully coated in the spice paste – this is your coated chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721398658556-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the coated chicken to a tin foil-lined baking tray (or two!) with the onion 
 
 Add a small drizzle of olive oil to the onion wedges and put the tray[s] in the oven for 18-20 min or until cooked through and golden (no pink meat!) – this is your curried free range chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721398663152-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Whilst the chicken is cooking, add the sliced red onion to a bowl with your cide
 
 Set aside to pickle – this is your quick-pickled onion
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721398666446-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your cherry tomatoes in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721398670510-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Drain the quick-pickled onion and discard the liquid
 
 Add the drained lentils and spinach to the pot with the cooked rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721398673905-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Our breaded king prawns pack a punch! You'll coat them in panko breadcrumbs, fry
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-13-1726498963232-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-14-1726498967412-x200.jpg)
 
 ### Step 2
 
@@ -48,19 +46,16 @@ Add 80ml <span class="text-purple">[120ml]</span> <span class="text-danger">[160
 
 Add your panko breadcrumbs to a plate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-15-1726498976585-x200.jpg)
 
 ### Step 3
 
 Drain, then pat your jumbo prawns dry with kitchen paper (get them as dry as you can!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-16-1726498988030-x200.jpg)
 
 ### Step 4
 
 Dip the drained jumbo prawns in the spicy batter, tap off any excess, then add them to the panko breadcrumbs (turn several times to coat completely) – these are your breaded jumbo prawns
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-15-1726498991500-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once hot, add the breaded jumbo prawns to the pan and cook for 7-8 min, turning 
 
 Tip: Do the prawns in batches if you need to so you don't overcrowd the pan!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-16-1726498999693-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Whilst the prawns are cooking, add your mayo to a bowl with the juice of half yo
 
 Give it a good mix up – this is your zingy mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-13-1726499003467-x200.jpg)
 
 ### Step 7
 

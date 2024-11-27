@@ -25,7 +25,6 @@ Tuck into this hearty hotpot when you need a little comfort food. You’ll simme
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691151121955-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the potato discs to a large baking tray (or two!) with a drizzle of olive oi
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691151123009-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Top, tail, peel and dice your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691151125723-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince with a generous pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691151129099-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your beef stock mix, tomato paste and Marmite in 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[550ml]</span> boiled water – this is your Marmite stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691151136045-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Once the beef is beginning to brown, add the chopped onion and diced carrot to t
 
 Cook for a further 3-4 min or until beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691151139349-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once fragrant, add the Marmite stock and your bay leaf[ves] with a pinch of salt
 
 Bring to the boil over a high heat, then reduce the heat to medium-high and cook for 4-5 min or until thickened and the beef is cooked through (no pink meat!) – this is your beef & carrot hotpot mix
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691151142359-x200.jpg)
 
 ### Step 7
 

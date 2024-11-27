@@ -22,7 +22,6 @@ This noodle soup is an umami-packed timesaver. You’ll build your bowl with a s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681200726833-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Chop half your spring onion[s] finely
 
 Slice the remaining spring onion into batons and cut in half lengthways
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681200730062-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced mushroom with a generous pinch of salt and cook for 3 min on each side or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681200733894-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tip: Use the Gousto ice packs to chill the water!
 
 Set the pot of boiled water aside (you'll use this later!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681200737684-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once the mushrooms are golden, reduce the heat to medium and add half your ginge
 
 Once fragrant, transfer the mushrooms to a plate and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681200741471-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Return the reserved pan to a medium heat with a small drizzle of vegetable oil
 
 Once hot, add the chopped spring onion with a pinch of salt and cook for 1-2 min or until slightly softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681200745613-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681200749596-x200.jpg)
 
 ### Step 7
 

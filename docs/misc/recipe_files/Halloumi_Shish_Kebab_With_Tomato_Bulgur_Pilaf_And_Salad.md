@@ -26,7 +26,6 @@ These Turkish-inspired kebabs are hold-me-back good. You'll marinate halloumi in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636109946261-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut the halloumi into bite-size cubes, then add them to a bowl with the ground p
 
 Season with pepper and give everything a good mix up, then set aside to marinate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636109952908-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced red onion and cook for 6 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636109961283-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking!
 
 Dissolve the tomato paste in 400ml <span class="text-danger">[750ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636109967904-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add the tomato stock to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook, covered, for 15 min or until the water has absorbed and the bulgur is cooked – this is your tomato bulgur pilaf
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636109977045-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ While the bulgur wheat is cooking, preheat the grill to high
 
 Thread the marinated halloumi cubes evenly onto 4<span class="text-danger"> [8] </span>soaked skewers, leaving a small gap between each piece – these are your halloumi shish kebabs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636109999292-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Put the tray under the grill for 10-12 min, turning once halfway, or until the h
 
 While the halloumi is cooking, add the natural yoghurt to a bowl with a small squeeze of juice from the remaining lemon (save the rest for later!) – this is your lemon yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636110023916-x200.jpg)
 
 ### Step 7
 

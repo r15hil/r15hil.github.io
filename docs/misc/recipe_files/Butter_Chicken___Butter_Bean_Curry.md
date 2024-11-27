@@ -32,7 +32,6 @@ Get ready for a cosy night in with just 5 minutes prep. You’ll simmer butter b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1695729339637-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695729342031-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, hob-safe oven-proof casserole dish with a drizzle of vegetable oil
 
 Once hot, add your diced chicken thigh to the dish and cook for 2 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695729346696-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, peel and slice your shallot[s] finely
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695729349289-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Season with a pinch of salt and sugar
 
 Cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695729351943-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Give everything a good mix up and bring to the boil
 
 Once boiling, cover with a lid and put the dish in the oven for an initial 25 min or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695729354554-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add your white long grain rice to an oven-proof dish with 300ml <span class="tex
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695729357012-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Diavola means devil in Italian, and this pizza brings some wicked heat. After ma
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597748235213-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your dried yeast<span class="text-danger"> </span>to a large bowl with 100ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597748250720-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Slice your black olives in half
 
 Pick your basil leaves from their stems, discard the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597748265273-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1597748294725-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Tip the dough ball out onto a floured work surface and cut into 1 ball per pers
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-2-1597748342632-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Keep going until your base is slightly smaller than a side plate (you will make 
 
 Heat a large, dry, wide-based pan[s] (preferably non-stick) over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597748353719-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Add the tomato sauce to each pizza and spread it evenly with the back of a sp
 
 Cook the pizza base[s] for 3-4 min or until the crust has started to puff up, then remove the heated tray[s]<span class="text-danger"> </span>from the oven and slide the pizza base[s]<span class="text-danger"> </span>onto the tray
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597748376332-x200.jpg)
 
 ### Step 7
 

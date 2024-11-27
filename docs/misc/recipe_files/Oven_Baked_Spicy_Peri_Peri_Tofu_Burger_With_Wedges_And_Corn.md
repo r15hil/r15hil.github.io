@@ -27,7 +27,6 @@ This banging burger is an oven-baked treat. You’ll load your brioche buns with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1730446496309-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your baking trays and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694599318377-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Drain your tofu, then pat dry with kitchen paper and tear into large chunks
 
 Cut your potatoes (skins on) into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694599325549-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your sweetcorn cobettes and a pinch of salt to a large piece of tin foil (or
 
 Scrunch the tin foil around the corn until tightly sealed – this is your corn parcel[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694599332768-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the wedges to a separate baking paper-lined baking tray (or two!) with a dri
 
 Put the trays in the oven for 25-30 min or until the tofu and wedges are golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694599337906-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ Slice your tomato[es] finely into rounds
 
 Slice your brioche bun[s] in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694599354726-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694599364031-x200.jpg)
 
 ### Step 7
 

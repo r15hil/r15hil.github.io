@@ -23,7 +23,6 @@ Settle in with this hearty winter chowder. You’ll fry crispy bacon and leek wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1671546790212-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Top, tail, peel and slice your carrot[s] in half lengthways, then chop into bite
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1671546796864-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large pot with a matching lid with a drizzle of vegetable oil over a medi
 
 Once hot, add your bacon lardons and cook for 3-4 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1671546802657-x200.jpg)
 
 ### Step 3
 
@@ -53,19 +50,16 @@ Once the lardons are crisp, add 1 tsp <span class="text-purple">[1 1/2 tsp]</spa
 
 Once melted, add the sliced leek with a pinch of salt and cook for 4-5 min further or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1671546806679-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your chicken stock mix in 450ml <span class="text-purple">[675ml]</span> <span class="text-danger">[900ml]</span> boiled water – this is your chicken stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1671546810901-x200.jpg)
 
 ### Step 5
 
 Once the leek has softened, reduce the heat to medium, add the chopped garlic and dried thyme and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1671546816157-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Add the chopped potato, chopped carrot and chicken stock to the pot and bring to
 
 Once boiling, reduce the heat to medium and cook, covered, for 18-20 min or until the carrot and potato are fork-tender, stirring occasionally
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1671546820664-x200.jpg)
 
 ### Step 7
 

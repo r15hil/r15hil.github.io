@@ -26,7 +26,6 @@ Spice up fish chowder with jerk seasoning, sweet potatoes and only one pot to wa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708071857410-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Heat a large, wide-based pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the diced onion and cook for 4-5 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708071861143-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel your potato[es] and sweet potato[es] and chop into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708071864435-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once the onion is softened, add a knob of butter with the chopped garlic and coo
 
 Once melted, add 1 tbsp <span class="text-purple">[11/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 1 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708071867667-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once boiling, reduce the heat to medium and cook for 15-18 min or until the pota
 
 Tip: Stir occasionally to stop it sticking!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708071871783-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Slice your green chilli[es] finely
 
 Drain your sweetcorn
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708071875569-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once cooked, break up the basa with a spoon into bite-sized pieces
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708071878787-x200.jpg)
 
 ### Step 7
 

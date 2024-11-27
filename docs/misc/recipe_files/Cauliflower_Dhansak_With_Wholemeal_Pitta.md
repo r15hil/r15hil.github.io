@@ -26,7 +26,6 @@ This aromatic dhansak can be cooked up in moments, with no chopping needed. You'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1614341838349-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped cauliflower and chopped pepper & red onion with a pinch of salt and cook for 2-3 min until starting to soften and brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1614341870001-x200.jpg)
 
 ### Step 2
 
 Once the cauliflower has started to brown, add the ginger & garlic paste, ground turmeric and curry powder and cook for 1-2 min further until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1614341881253-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Meanwhile, drain and rinse the green lentils
 
 Put the wholemeal pittas in the toaster for 1-2 min or until warmed through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1614341925071-x200.jpg)
 
 ### Step 4
 

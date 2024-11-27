@@ -25,7 +25,6 @@ Tuck into this mid-week family favourite. You’ll simmer British beef mince and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1672756129522-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1672756134020-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Boil half a kettle
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1727427719727-x200.jpg)
 
 ### Step 3
 
 Drain and rinse your black beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1672756143327-x200.jpg)
 
 ### Step 4
 
@@ -57,19 +53,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince with a generous pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1672756147933-x200.jpg)
 
 ### Step 5
 
 Whilst the beef mince is cooking, dissolve your beef stock mix and tomato paste in 225ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1672756152888-x200.jpg)
 
 ### Step 6
 
 Once the beef has browned, add the chopped garlic to the pan with your ground cumin and ground smoked paprika and cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1672756158776-x200.jpg)
 
 ### Step 7
 

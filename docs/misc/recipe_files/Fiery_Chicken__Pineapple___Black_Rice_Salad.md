@@ -23,7 +23,6 @@ For this punchy, wholesome salad, we've coated chicken breast with a Caribbean-i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1455.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add your black rice to a pot of plenty of boiled water and cook over a high heat
 
 Once cooked, drain and rinse under cold water to cool slightly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1455.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Once hot, add your pineapple rings (reserve the juice!) and cook for 2-4 min o
 
 Transfer to a plate, set aside and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1455.-step-3-x200.jpg)
 
 ### Step 3
 
 Cover the chicken breast portions in cling film and bash them with a rolling pin until evenly flattened and approx. 2cm in thickness
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1455.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Season with pepper and a very generous pinch of salt and give it a good mix up 
 
 Add the flattened chicken to the fiery seasoning and mix until it's fully coated in all the spices – this your coated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1455.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the coated chicken and cook for 4-5 min on each side pressing down firmly with a spatula until golden and cooked through (no pink meat!) – this is your fiery chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1455.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, wash your lettuce, then shred it finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1455.-step-7-x200.jpg)
 
 ### Step 7
 

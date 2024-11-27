@@ -27,7 +27,6 @@ Thanks to our spicy cumin and oregano dry rub, this succulent flat white mushroo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626718142011-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil, a p
 
 Put the tray[s] in the oven for 25-30 min or until golden and crispy – these are your paprika fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626718148033-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Gently stir it all together – this is your spice mix
 
 Lightly splash your flat white mushrooms with water, then add to the board and turn several times until coated in the spice mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626718159299-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the coated mushrooms and cook for 3-4 min on each side or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626718165248-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Grate your cheddar cheese
 
 Combine your mayo and white wine vinegar in a small bowl and set aside for later – this is your zingy mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626718169384-x200.jpg)
 
 ### Step 5
 
 Once the mushrooms have browned, add the tomato stock and cook, covered, for 12-13 min or until the liquid has reduced and the mushrooms have softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626718185711-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Wash your lettuce, then remove 2 outer leaves per person (save these for your bu
 
 Dice your tomato[es]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626718221249-x200.jpg)
 
 ### Step 7
 

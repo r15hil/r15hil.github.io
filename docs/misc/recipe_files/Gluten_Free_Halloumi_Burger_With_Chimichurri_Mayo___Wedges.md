@@ -24,7 +24,6 @@ We've paired our tangy, herb-packed chimichurri with mayo to create the perfect 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681209083446-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the wedges to a large baking tray with a drizzle of vegetable oil and give e
 
 Put the tray in the oven for 25-30 min or until the wedges are tender and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681209087222-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped herbs, garlic, shallot, dried oregano, chilli flakes (can't ha
 
 Tip: No pestle & mortar? Pulse in a food processor!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681209090894-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Slice your tomato[es] as thinly as you can
 
 Slice your halloumi in half lengthways (where the natural crease forms)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681209094436-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Heat a large, dry, wide-based pan (preferably non-stick with a matching lid) ove
 
 Once hot, add the halloumi half[ves] to the pan and cook, covered, for 2-3 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681209097495-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ While the halloumi is cooking, slice your gluten-free brioche bun[s] horizonta
 
 Put the tray in the oven for 2-3 min or until toasted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681209100970-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once softened, remove the halloumi half[ves] from the pan and place onto a clean
 
 While still hot, use a rolling pin to flatten and roll out each halloumi half until it is slightly larger in size than the brioche bun – this is your halloumi steak
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681209103957-x200.jpg)
 
 ### Step 7
 

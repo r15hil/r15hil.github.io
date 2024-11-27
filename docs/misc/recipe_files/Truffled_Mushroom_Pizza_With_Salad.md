@@ -21,7 +21,6 @@ Top flame-baked bases with flavours inspired by Northern Italy, like truffle-inf
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2052.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Put a large baking tray (or two!) in the oven to heat up (this will stop the p
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2052.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 5 tbsp<span class="text-danger"> <span class="text-purple">[7 1/2 tbsp]</span> [10 tbsp] </span>cold water and give everything a good mix up – this is your tomato sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2052.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2052.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Drizzle over half of your truffle oil (save the rest for later!)
 
 Add a generous drizzle of olive oil and a pinch of salt and stir it all together until evenly coated in the oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2052.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,13 +62,11 @@ Divide the tomato sauce between the pizza base[s] and spread it evenly all ov
 
 Top with the torn mozzarella
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2052.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the sliced truffle coated mushrooms and put the tray[s] in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your truffled mushroom pizza
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2052.-step-7-x200.jpg)
 
 ### Step 7
 

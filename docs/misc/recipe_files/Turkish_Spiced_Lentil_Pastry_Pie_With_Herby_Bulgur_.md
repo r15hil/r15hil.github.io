@@ -27,7 +27,6 @@ In our twist on talaş böreği, a Turkish pie, you'll fill pastry with spiced b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1630428437742-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the diced shallots, ground allspice, ground cinnamon, and chilli flakes (ca
 
 Season with a very generous pinch of salt and pepper and mix thoroughly to combine (clean hands is the best way!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630428443020-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Divide the lentil mixture into 2<span class="text-danger"> [4]</span> balls and 
 
 Pull the pastry corners over the lentil balls to form a sealed parcel
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1630428448164-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Sprinkle over the nigella seeds (gently press them in with your hands!)
 
 Put the tray in the oven for 25 min or until the pastry is golden and the lentils are warmed through – these are your Turkish spiced lentil pastry pies
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630428452149-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1630428456358-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Tip: Cooking for 2? Save the remaining garlic for another recipe!
 
 Combine the chopped garlic with the mayo, 1 tsp <span class="text-danger">[2 tsp] </span>cold water and 1 tbsp <span class="text-danger">[2 tbsp] </span>olive oil in a small bowl – this is your garlic mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1630428466678-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Combine the grated carrot, chopped tomato and sliced spring onion with a drizzle of olive oil and a pinch of salt in a small bowl – this is your carrot & tomato salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1630428471661-x200.jpg)
 
 ### Step 7
 

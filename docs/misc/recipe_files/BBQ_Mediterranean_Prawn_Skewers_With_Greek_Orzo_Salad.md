@@ -26,7 +26,6 @@ Whisk your taste buds away to the Med with BBQ king prawn skewers marinated in l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626262346542-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Peel and finely chop (or grate) your garlic
 
 Add the chopped garlic to a large bowl with your dried oregano, the juice of half your lemon[s], a drizzle of olive oil and a pinch of salt and pepper – this is your garlic, lemon & herb marinade
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626262735586-x200.jpg)
 
 ### Step 2
 
 Add your king prawns to the garlic, lemon & herb marinade and give everything a good mix up and set aside – these are your marinated prawns
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626262745775-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once boiling, cook for 6-8 min or until cooked with a slight bite, then drain an
 
 Drain the orzo thoroughly, then return it to the pot with a small drizzle of olive oil and a squeeze of<span class="text-danger"> </span>lemon juice and mix it all up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626262763784-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Peel and finely slice your shallot[s]
 
 Chop your black olives roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626262792336-x200.jpg)
 
 ### Step 5
 
 Thread the marinated prawns onto the soaked skewers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626262803741-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once hot, add the prawn skewers to the pan with any remaining garlic, lemon & he
 
 Cook for 2-3 min on each side or until the prawns are cooked through – these are your Mediterranean prawn skewers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626262940777-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ This is a take on an old British classic - Ham and Eggs. Here, the 'ham' is pork
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/575.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Grind the fennel seeds&nbsp;in a pestle and mortar roughly
 
 Score the fatty side of the pork belly in a criss-cross pattern by drawing a sharp knife through the skin, deep enough to reach the meat below
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/575.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once very hot, add the pork, skin-side down and cook for 5-8 min or until nicely coloured on the fat side only
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/575.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Put it in the oven for 40-50 min, or until it's crispy, coloured, and cooked thr
 
 Tip: use tin foil to avoid mess!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/575.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Bring to the boil over a high heat and cook for 20-25 min or until the lentils a
 
 Once softened, drain the lentils and run them under cold water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/575.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Mix the&nbsp;mustard, red wine vinegar, garlic and honey together with 1 tbsp <s
 
 Grate the carrot<span class="text-danger">[s]</span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/575.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Mix&nbsp;the cooked, drained, cooled lentils (keep the pan for the next step!) w
 
 Toss the pea shoots and dressed lentils together&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/575.-step-7-x200.jpg)
 
 ### Step 7
 

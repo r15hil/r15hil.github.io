@@ -19,7 +19,6 @@ Rich, creamy and bursting with the flavours of the Italian harvest. Whiz up butt
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1663689465225-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663689469766-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 5-6 min or until the squash cubes are fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663689473720-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and slice (don't chop!) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663689478197-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Cook the ravioli and kale for 3-4 min or until cooked with a slight bite and the
 
 Once done, drain, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663689482897-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add the cooked butternut squash to a food processor with half the ricotta (you'l
 
 Blitz until you are left with a smooth sauce – this is your ricotta & butternut squash sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663689486814-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once hot, add the sliced garlic to the pan with a pinch of salt and cook for 1-2
 
 Once fragrant, remove the pan from the heat, pour in the ricotta & butternut squash sauce and give everything a good stir
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663689491480-x200.jpg)
 
 ### Step 7
 

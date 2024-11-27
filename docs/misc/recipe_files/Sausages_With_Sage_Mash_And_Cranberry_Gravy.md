@@ -22,7 +22,6 @@ This year-round favourite is getting a seasonal twist. Pair your bangers with sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-9-copy-1699976945735-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Top, tail, peel and chop your parsnip[s]<span class="text-danger"> </span>in hal
 
 Top, tail, peel and chop your carrot[s] into batons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-10-copy-1699976954715-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the carrot and parsnip batons to the other side of the tray (cooking for 3 o
 
 Give the vegetables a good mix up and put the tray[s] in the oven for 20-25 min or until the sausages are cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1701172850076-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the chopped potato to a pot with plenty of boiled water and bring to the boi
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender then drain and leave to steam dry (reserve the pot!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-9-1699976969464-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once hot, add the sliced onion with a pinch of sugar and 50ml<span class="text-d
 
 Cook for 7-8 min or until soft and caramelised
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-9-1699976988319-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once the onion is soft, add a small knob of butter to the pan
 
 Once the butter has melted, add 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span><span class="text-danger"> [1 tbsp]</span> flour and cook for 1-2 min or until the onion is coated in the flour
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-9-1699976998435-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the onion is coated in the flour, add your beef stock mix to the pan with y
 
 Cook for 3-4 min further or until slightly thickened – this is your cranberry gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-9-1699977009492-x200.jpg)
 
 ### Step 7
 

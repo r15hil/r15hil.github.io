@@ -26,7 +26,6 @@ This quick-prep pasta is cooked in the oven, so you won't need to keep an eye on
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-17-1731061657623-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-18-1731061661268-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Peel and chop your red onion[s] into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-19-1731061664849-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Top, tail and cut your courgette[s] in half lengthways, then chop into large chunks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-20-1731061668996-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tip: Cooking for 4 or more? Use 2 trays!
 
 Put the tray[s] on the bottom shelf of the oven and cook for 30 min or until golden and cooked through – this is your roasted veg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-19-1731061673040-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, crush your garlic open by squashing with the side of a knife and remo
 
 Add the crushed garlic to the dish with your chilli flakes (can't handle the heat? Go easy!) and cook for 30 secs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-20-1731061698401-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Sprinkle in your vegetable stock mix, then add your chopped tomatoes, Henderson'
 
 Bring to the boil over a high heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-17-1731061701775-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Want a fast dinner that packs a punch? Easy. Just pan-fry tender chicken breast 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1695033958374-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686646518252-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add half of your red Thai curry paste (save the rest for later!) and the juice of half your lime[s] and cook for 30 secs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686646521163-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Meanwhile, add your wholewheat noodles to a pot and cover them with boiled water
 
 Bring to the boil over a high heat and cook for 5-7 min or until tender with a slight bite, then drain and return them to the pot until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686646523792-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Trim, then roughly chop your spring onion[s]
 
 Trim, then chop your green beans in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686646526404-x200.jpg)
 
 ### Step 5
 
@@ -82,13 +77,11 @@ Once the chicken has been cooking for 7-8 min, add your ginger & garlic paste to
 
 Once fragrant, add the chopped spring onion, halved green beans and half of your chilli flakes (not a fan of spice? Just add a little!) and cook for 30 secs further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686646529209-x200.jpg)
 
 ### Step 6
 
 Add the lime & chilli sauce and cook for 1 min or until the green beans have softened slightly and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686646531840-x200.jpg)
 
 ### Step 7
 

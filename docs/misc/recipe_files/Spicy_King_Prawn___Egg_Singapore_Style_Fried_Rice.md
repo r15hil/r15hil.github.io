@@ -27,7 +27,6 @@ This fragrant fried rice is a Cantonese classic. You’ll sizzle juicy prawns in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680018730628-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680018739095-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop your creamed coconut roughly (if required!)
 
 Trim, then slice your spring onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680018749711-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the sliced garlic with a pinch of salt and cook for 1-2 min or unt
 
 Tip: Watch the garlic like a hawk to make sure it doesn’t burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680018776754-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once fragrant, add the chopped creamed coconut with your soy sauce and half your
 
 Add 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> cold water with a pinch of salt and bring to the boil, then cook for 1-2 min or until thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680018810308-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cook for 6-7 min or until cooked through – these are your Singapore-style king
 
 Once cooked through, set aside until the rice is ready
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680018816719-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add the cooked rice with your blanched peas and a pinch of salt to the pan and c
 
 Mix until fully combined
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680018824094-x200.jpg)
 
 ### Step 7
 

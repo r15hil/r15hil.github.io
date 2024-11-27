@@ -30,7 +30,6 @@ Give your weeknight a bit of West African flavour. You’ll season tender beef, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670331090703-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have o
 
 Once hot, add the diced beef to the dish with a pinch of salt and cook for 5-6 min or until browned all over
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670331251687-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Chop half your pepper[s] into bite-sized chunks
 
 Chop half your tomato[es]<span class="text-danger"> </span>into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670331257411-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Add the ginger & garlic paste, tomato paste and a generous pinch of salt and pep
 
 Stir it all together – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670331260895-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add the tomato stock and bring to the boil over a high heat
 
 Once boiling, cover the dish with a lid and put in the oven for 1 hour or until the sauce has thickened and the beef is cooked through – this is your Nigerian-style beef & pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670331265010-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ While the beef is in the oven, cut the remaining pepper into thin strips
 
 Chop your remaining tomato finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670331268468-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670331272857-x200.jpg)
 
 ### Step 7
 

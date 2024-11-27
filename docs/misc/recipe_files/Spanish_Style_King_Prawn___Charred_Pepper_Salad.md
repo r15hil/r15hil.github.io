@@ -27,7 +27,6 @@ For this smoky Spanish-inspired salad, you'll roast tomatoes with onions until s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649773655302-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Sprinkle your dried oregano all over, give everything a good mix up and put the tray[s] in the oven for an initial 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649773657148-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Combine your mayo with your red wine vinegar and your cayenne pepper (can't hand
 
 Add the chopped garlic (not a fan of raw garlic? Just add a little!) with a pinch of salt to the bowl and stir it all together – this is your spicy aioli
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649773662986-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Chop your tomato[es] into wedges
 
 Once the potatoes have had an initial 10 min, add the onion wedges and tomato wedges to the baking tray[s] with the potatoes and return to the oven for a final 15-20 min or until the potatoes are golden and crisp – these are your crispy potatoes and roasted onion & tomato
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649773667348-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped pepper and cook for 4-5 min, turning occasionally, until starting to char and soften – this is your charred pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649773671192-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Add your ground smoked paprika to a plate with a generous pinch of salt and pepp
 
 Mix everything together, then add the drained king prawns to the plate and turn them several times until they're fully coated – these are your paprika king prawns
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649773676413-x200.jpg)
 
 ### Step 6
 
 Once the pepper has started to char, add the paprika king prawns and cook for a further 4-5 min or until cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1664298205702-x200.jpg)
 
 ### Step 7
 

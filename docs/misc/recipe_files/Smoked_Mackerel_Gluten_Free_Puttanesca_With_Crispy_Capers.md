@@ -23,7 +23,6 @@ This classic Italian dish brings a choir of punchy Mediterranean flavours togeth
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1702971799028-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once hot, add your capers and cook for 5-6 min, stirring frequently, or until cr
 
 Once crisp, transfer them to a plate, reserving the pan and any remaining oil – these are your crispy capers
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702971801473-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1702971805447-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Return the reserved pan to a medium heat
 
 Once hot, add the diced onion with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1702971808804-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Cook the gluten free linguine for 8-10 min or until it's cooked with a slight bi
 
 Once done, drain the gluten free linguine, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1702971812018-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Once the onion has softened, add the chopped garlic, chilli flakes (can't handle
 
 Add your chopped tomatoes and a grind of pepper and cook for 6-7 min or until a thick pasta sauce remains
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1702971815571-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Remove the skin from your smoked mackerel fillet[s] and discard
 
 Tear the mackerel into rough, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702971817866-x200.jpg)
 
 ### Step 7
 

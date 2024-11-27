@@ -29,7 +29,6 @@ Black beans, smoky chipotle paste and cumin are the star ingredients in this del
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1716565606172-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Rinse your brown rice, then add it to a pot with plenty of cold water and bring 
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until it's tender with a slight bite, then drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1716565614987-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ While the rice is cooking, add your free range chicken breast portion[s] to a ba
 
 Put the tray in the oven for 18-20 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1716565659852-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a pot with a drizzle of vegetable oil and a knob of butter over a medium h
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1716565675166-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix and chipotle paste (can't handle the heat? Go easy!) in 200ml <span class="text-purple">[250ml]<span class="text-danger"> </span>[300ml]</span> boiled water – this is your chipotle stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1716565689038-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Drain and rinse your black beans
 
 Once fragrant, add the drained black beans and chipotle stock and cook, covered, for 5-7 min or until the beans are soft enough to mash
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1716565708405-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Trim, then slice your spring onion[s] finely
 
 Once the beans have softened, add a generous knob of<span class="text-danger"> </span>butter and mash them until smooth – these are your Brazilian-style black beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1716565725672-x200.jpg)
 
 ### Step 7
 

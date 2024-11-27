@@ -26,7 +26,6 @@ This one-pan wonder is inspired by the tropical flavours of Keralan ‘moilee’
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1730973914381-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677842518044-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your tomato[es] into wedges
 
 Trim, then chop your green beans in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Coconut-stock-1679503232871-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Chop your creamed coconut roughly (if required!)
 
 Combine the chopped creamed coconut with 250ml <span class="text-purple">[325ml]</span><span class="text-danger"> [425ml] </span>boiled water – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1677842537860-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once the tomatoes are beginning to soften, add your ginger & garlic paste, curry
 
 Once fragrant, add the coconut stock and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677842543325-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once boiling, reduce the heat to medium and cook, covered, for 4-5 min further o
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677842547626-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677842552642-x200.jpg)
 
 ### Step 7
 

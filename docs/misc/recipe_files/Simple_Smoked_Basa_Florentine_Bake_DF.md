@@ -19,7 +19,6 @@ Our twist on fish pie is so simple to prepare. You'll cook smoked basa in a dair
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1642516692753-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Cut the potatoes (skins on) into small bite-sized pieces
 
 Add the chopped potatoes to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 12-15 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1642516696296-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Dissolve the vegetable stock mix in 50ml <span class="text-danger">[100ml] </spa
 
 Add the single soya, wholegrain mustard and a generous grind of pepper and stir it all together – this is your creamy stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1642516701049-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Add the spinach to a colander and pour boiled water over it until it starts to 
 
 Rinse the wilted spinach under the cold tap until it's cool
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1642516705548-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once cool, squeeze the water out of the wilted spinach as much as you can and t
 
 Chop the smoked basa fillets into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1642516709631-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Add the chopped basa, chopped spinach and creamy stock to an oven-proof dish �
 
 Give everything a good mix up
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1642516712940-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Once cooked, drain the potatoes and return them to the pot with a very generous 
 
 Tip: Don't press too hard, you only want to crush them!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1642516717113-x200.jpg)
 
 ### Step 7
 

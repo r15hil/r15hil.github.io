@@ -29,7 +29,6 @@ This has all the classic elements of a caesar salad but in the form of a luxurio
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1653317805970-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Strip your rosemary leaves off their stems (discard the stems) and chop finely
 
 Cut your potatoes (skins on) into fries, then add them to a baking tray (or two!) with a drizzle of olive oil, half the chopped rosemary (save the rest for later!) and a pinch of salt, then put the tray[s] in the oven for 25-30 min or until golden and cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1653317809971-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Pat your chicken thighs dry with kitchen paper and season with the remaining cho
 
 Once hot, add the rosemary chicken, skin-side down and cook for 10 min or until the skins have browned and crisped
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1653317816713-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the browned rosemary chicken to a tin foil-lined tray (reserve the pan!) wit
 
 Put the tray in the oven for 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1653317857127-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Return the reserved pan to a medium-high heat
 
 Once hot, add your smoked streaky bacon and cook for 2-3 min on each side or until golden and crisp then transfer to kitchen paper – this is your crispy bacon
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1653317868295-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Cut your lemon[s] in half
 
 Add half your grated Italian hard cheese (save the rest for later!) to a bowl along with your mayo, the juice of half your lemon[s], the grated garlic and a grind of black pepper – this is your Caesar dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1653317879412-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Cut the remaining lettuce into quarters, lengthways
 
 Put your ciabatta[s] in the oven for 5 min or until it's warm and crusty, then carefully slice in half before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653317887828-x200.jpg)
 
 ### Step 7
 

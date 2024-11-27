@@ -25,7 +25,6 @@ The base for this risotto is a pesto made from 3 seed mix, parsley and basil. It
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/724.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Add the 3 seed mix and toast for 1 min or until very slightly browned and starting to pop, then set them&nbsp;aside to cool, keeping the pan for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/724.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Return the pan to a medium-high heat with a drizzle of vegetable oil and a knob 
 
 Once the pan is hot and the butter is bubbling, add the onion&nbsp;and cook for 3-5 min or until softened but not coloured
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/724.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,7 +67,6 @@ Add 1/3 of the stock&nbsp;with a pinch of pepper
 
 Once absorbed, continue to add the stock, a little at a time, stirring almost constantly until the stock has absorbed and the rice is cooked&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/724.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -85,7 +81,6 @@ Add the toasted seeds, basil, parsley, oregano, chopped garlic, 3 tbsp <span cla
 
 Blitz to a coarse paste &ndash; this is your pesto
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/724.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -97,7 +92,6 @@ Lay the slices flat on a baking tray then drizzle with&nbsp;olive oil
 
 Put the tray in the oven for&nbsp;4-5 min or until crunchy, you want your bread toasted but not burnt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/724.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -109,7 +103,6 @@ Peel the remaining 2 <span class="text-danger">[4]</span> garlic cloves and cut 
 
 Grate the Italian hard cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/724.step-7-x200.jpg)
 
 ### Step 7
 

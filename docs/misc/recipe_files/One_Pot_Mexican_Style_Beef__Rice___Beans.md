@@ -27,7 +27,6 @@ This mouthwatering one-pot is perfect after a long, busy day. You'll chop a few 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641911061617-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Deseed the peppers (scrape the seeds and pith out with a teaspoon) and chop into
 
 Peel and slice the brown onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641911068910-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Once hot, add the sliced onion<span class="text-danger"> </span>and chopped pep
 
 Cook for 2 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641911076919-x200.jpg)
 
 ### Step 3
 
 Add the ground cumin, ground coriander, ground smoked paprika and half the chilli flakes (can't handle the heat? Go easy!) and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641911086116-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Once fragrant, add the beef mince to the pan and cook for 2 min, breaking it up
 
 Mix in the beef stock mix and tomato paste with a pinch of salt and cook for a further 2 min or until the mince has browned all over
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641911094867-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Once boiling, reduce the heat to low and cook, covered, for 12-15 min or until a
 
 Tip: Add a splash more water if it's looking a little dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641911104691-x200.jpg)
 
 ### Step 6
 
 Meanwhile, drain and rinse the black beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641911112460-x200.jpg)
 
 ### Step 7
 

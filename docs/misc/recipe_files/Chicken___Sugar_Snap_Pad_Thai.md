@@ -25,7 +25,6 @@ Inspired by the classic pad Thai, our twist is made with rice noodles, succulent
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599061502289-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599061516094-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chicken strips, cornflour and soy sauce to a bowl
 
 Mix well and set aside to marinate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599061550645-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely, se
 
 Chop the roasted peanuts (or crush them in the bag with a rolling pin)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599061568899-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Mix well until the sugar has dissolved
 
 Add a large pinch of salt – this is your tamarind sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599061617640-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ Once fragrant, add the coated chicken and cook for 2-3 min or until browned
 
 Add the stock and cook for a further 4-6 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Roughly-chopped-parsley-1599061814657-x200.jpg)
 
 ### Step 6
 
 While the chicken is cooking, chop the coriander, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/96_step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Taco chance on some veg-packed Mexican. You’ll load warm seeded tortillas with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682100161587-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the sweet potato wedges to a baking paper-lined baking tray (or two!) with y
 
 Season with a generous pinch of salt and pepper and put the tray[s] in the oven for an initial 10 min or until lightly golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682100164868-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut your lime[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682100168325-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the sliced onion to a small bowl and squeeze the juice of half the<span clas
 
 Add a pinch of salt and sugar, then place the squeezed lime half[ves] on top for added pickling – this is your lime quick-pickled onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682100172950-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Return the tray[s] to the oven for 12-15 min or until everything is tender – t
 
 While the vegetables are cooking, cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682100175925-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add your coriander (reserve a few leaves for garnish!), remaining chopped garlic
 
 Add your cumin seeds and the juice of the remaining lime half[ves] with a generous drizzle of olive oil, 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>cold water and a pinch of salt and blitz until a sauce remains – this is your green chilli sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682100179696-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Dice the mango flesh roughly, discarding the stone[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682100187472-x200.jpg)
 
 ### Step 7
 

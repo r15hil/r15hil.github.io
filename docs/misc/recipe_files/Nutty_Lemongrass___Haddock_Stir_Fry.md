@@ -25,7 +25,6 @@ Inspired by a Cambodian amok, this sweet, sour, nutty dish is packed with lemong
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1610385191693-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and roughly chop (or grate) the garlic and ginger
 
 Slice half of the red chilli into rounds and roughly chop the remaining chilli
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610385243698-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610385353858-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Meanwhile, add the chopped ginger, garlic, lemongrass and chopped red chilli (sa
 
 Blitz to a rough paste – this is your nutty lemongrass paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/extra-1611575056781-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once hot, add the nutty lemongrass paste  to the pan and cook for 3-4 mins until
 
 Meanwhile, remove the coconut cream from the sachet<span class="text-danger">[s]</span> and chop it roughly, then dissolve it in 150ml <span class="text-danger">[250ml]</span> boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612349232042-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Once fragrant, add the haddock bites and coconut stock to the pan and cook for 4
 
 While the fish is cooking, rip the remaining leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610385533159-x200.jpg)
 
 ### Step 6
 
 Once the fish is cooked, add the sliced spring greens and drained rice noodles and cook for 1-2 min further until the sauce starts to stick to the noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610385582460-x200.jpg)
 
 ### Step 7
 

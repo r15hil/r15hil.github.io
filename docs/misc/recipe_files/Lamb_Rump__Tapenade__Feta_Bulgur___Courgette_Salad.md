@@ -23,7 +23,6 @@ This delicious dish epitomises modern European cuisine and showcases the beautif
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1689.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and roughly chop the garlic.
 
 Add the black olives, capers, chopped garlic (don't like raw garlic? Go easy!), 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt to a food processor and blitz until smooth – this is your tapenade.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1689.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the lamb and cook for 4-5 minutes or until golden all over.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1689.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Once boiling, reduce the heat to low and cook, covered, for 15-18 minutes or unt
 
 Once cooked, remove from the heat and keep covered until serving.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1689.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Transfer the sealed lamb to a baking tray and put it in the oven for 20-25 minut
 
 Once the lamb is cooked, transfer it to a plate and set aside to rest in a warm place for 5 minutes.
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1689.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,7 +90,6 @@ Crumble the feta.
 
 Cut the lemon<span class="text-danger">[s]</span> in half.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1689.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -110,7 +104,6 @@ Add the juice of 1/2 <span class="text-danger">[1]</span> lemon to a bowl with 1
 
 Add the courgette ribbons and stir it all together – this is your courgette salad.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1689.-step-7-x200.jpg)
 
 ### Step 7
 

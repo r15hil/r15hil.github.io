@@ -29,7 +29,6 @@ Here's a one-pot sensation that'll satisfy your baked pasta craving. You'll make
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1661875222334-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661880029497-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Boil a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661880038927-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Break your lasagne sheets in the bag into bite-sized pieces
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661880087082-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add your roasted garlic paste, chopped spring onion and your butternut squash cu
 
 Give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661880094030-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the lasagne pieces to the dish and give everything a good mix up
 
 Bring to the boil over a high heat, cover with a lid, then put the dish in the oven for an initial 15 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661880110244-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Top with the grated cheeze
 
 Return the dish to the oven and cook, uncovered, for a final 25 min or until the pasta is tender – this is your one-pot plant-based butternut squash & spinach lasagne
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661880116572-x200.jpg)
 
 ### Step 7
 

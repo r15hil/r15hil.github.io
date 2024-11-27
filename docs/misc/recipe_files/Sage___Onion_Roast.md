@@ -22,7 +22,6 @@ Sage and onion stuffing balls sit atop homemade apple sauce with crispy roast ve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/463.-step1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and cut the parsnip<span class="text-danger">(s)</span>, carrot<span class=
 
 Place the vegetables on a baking tray, coat with 2 tbsp<span class="text-danger"> (4 tbsp)</span> vegetable oil, season generously with salt and place in the oven for an initial 20 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/463.-step2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ When hot, add the onion, a pinch of salt
 
 Cook for 4 min until softened, stirring frequently
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/463.-step3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add 50ml<span class="text-danger"> (100ml)</span>&nbsp;milk to the onion pan and
 
 Season the mixture generously with salt and pepper, mix well, then cover with cling film until step 7&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/463.-step4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Add the apple to a pot with 200ml<span class="text-danger"> (300ml)</span> cold 
 
 Bring to the boil on a medium-high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/463.-step5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Once softened, remove from the heat and mash thoroughly with a potato masher
 
 You should end up with a coarse, homemade apple sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/463.-step6-x200.jpg)
 
 ### Step 6
 
@@ -103,7 +97,6 @@ Add 60g <span class="text-danger">(120g)</span> of flour&nbsp;
 
 Carefully stir the mixture - it should be slighly sticky, but if it's too wet add more flour
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/463.-step7-x200.jpg)
 
 ### Step 7
 

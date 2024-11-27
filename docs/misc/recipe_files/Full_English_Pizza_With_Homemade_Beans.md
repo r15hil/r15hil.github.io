@@ -30,7 +30,6 @@ Grab a pizza this classic full English with bacon, sausage, mushrooms and a cris
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687527693622-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Slice your baby button mushrooms finely
 
 Peel and finely dice your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687527698075-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add your tomato paste to a bowl with your dried oregano, ground smoked paprika a
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp] </span><span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687527703136-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Remove the heated tray[s] from the oven and add your pizza bases
 
 Divide the tomato base between the pizza bases and spread it evenly all over them with the back of a spoon
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687527707310-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Tear over your sausage meat (remove the paper if required!), leaving a gap in th
 
 Put the tray[s] in the oven for an initial 10 min or until the bacon has started to crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687527711323-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or un
 
 Meanwhile, drain and rinse your cannellini beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687527715338-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the onion has softened, add the drained cannellini beans to the pot with yo
 
 Bring to the boil over a high heat and cook for 6-7 min or until thickened – these are your homemade beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687527719538-x200.jpg)
 
 ### Step 7
 

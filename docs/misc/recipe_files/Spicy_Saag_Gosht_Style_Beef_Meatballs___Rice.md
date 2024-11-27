@@ -32,7 +32,6 @@ This home-style saag gosht is extra spicy. You’ll blitz green chilli, spinach 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688112711912-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Combine the chopped garlic and 1 tsp <span class="text-purple">[1 1/2 tsp]</span
 
 Give everything a good mix up until thoroughly combined (clean hands is the best way!), then divide equally and shape into 6 meatballs per person
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688112715918-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Chop your green chilli in half
 
 Crush the remaining garlic open by squashing with the side of a knife and discard the skins
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688112719750-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688112723242-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a h
 
 Once hot, add the meatballs to the pan and cook for 2 min on each side or until browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688112726239-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add a drizzle of vegetable oil and a generous pinch of salt and pepper
 
 Blitz until smooth – this is your saag paste
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688112730358-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once the meatballs are browned, add the saag paste and tomato paste to the pan
 
 Cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688112733782-x200.jpg)
 
 ### Step 7
 

@@ -31,7 +31,6 @@ Indulge in a classic chicken korma for under 600 calories. You’ll simmer chick
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1615291140656-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1615291147328-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Once toasted, transfer to a small plate and reserve the pan
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1618923989045-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Chop your creamed coconut roughly (if required!)
 
 Crush your cardamom pod[s] open by squashing them with the side of a knife and discard the outer green pod[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1615291173684-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once hot, add the chopped onion with a pinch of salt and sugar and cook for 5-7 
 
 Whilst your onion is caramelising, dissolve your chicken stock mix, chopped creamed coconut, and tomato paste in 200ml <span class="text-purple">[250ml] </span><span class="text-danger">[350ml] </span>boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1615291194244-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once lightly browned, add your mango chutney with your ground turmeric, ginger p
 
 Once fragrant, add the tomato stock and cook, covered, for 8-10 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your chicken korma
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1615291200283-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1615291208057-x200.jpg)
 
 ### Step 7
 

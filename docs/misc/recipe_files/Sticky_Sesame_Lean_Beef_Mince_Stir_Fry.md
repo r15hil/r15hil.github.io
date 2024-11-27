@@ -27,7 +27,6 @@ This sticky sesame lean beef stir-fry is simple to prepare and packed full of fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636991867003-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636991881993-x200.jpg)
 
 ### Step 2
 
@@ -47,19 +45,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped pepper with a pinch of salt and cook for 4-5 min or until softened slightly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731932117455-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636991891939-x200.jpg)
 
 ### Step 4
 
 Once the pepper has softened, transfer to a plate and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636991896634-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Return the pan to a high heat with a generous drizzle of vegetable oil
 
 Once very hot, add your lean beef mince and cook for 4-5 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636991900650-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Once the lean beef has browned, add your cornflour, chilli flakes (can't handle 
 
 Once fragrant, add your soy sauce and maple syrup, then return the softened pepper to the pan and cook for 2-3 min or until sticky and the beef is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636991906400-x200.jpg)
 
 ### Step 7
 

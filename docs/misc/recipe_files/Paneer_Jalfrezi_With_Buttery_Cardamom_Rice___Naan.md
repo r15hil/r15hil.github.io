@@ -26,7 +26,6 @@ Combining caramelised onion and green pepper in a rich tomato base, our version 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1598385847217-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the paneer and cook for 3-5 min until golden, turning occasionally for even colouring
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598385855136-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the sliced onion with a big pinch of salt, 2 tsp <span class="tex
 
 Meanwhile, boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1598385875897-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Heat a pot with a lid, with a drizzle of vegetable oil and a large knob of butt
 
 Once the butter has melted, add the crushed cardamom and basmati rice and stir to fully coat the grains
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598385885653-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598385892088-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the pepper strips to the softened onion and cook for a further 5-8 min or un
 
 While the vegetables are browning, dissolve the Knorr vegetable stock cube<span class="text-danger">[s]</span> in 300ml<span class="text-danger"> [600ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598385901575-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cut the tomatoes into wedges
 
 Add the chopped ginger, chopped garlic, chilli flakes (can't handle the heat? Go easy!) and curry powder to the pan and stir until the vegetables are coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1598385909821-x200.jpg)
 
 ### Step 7
 

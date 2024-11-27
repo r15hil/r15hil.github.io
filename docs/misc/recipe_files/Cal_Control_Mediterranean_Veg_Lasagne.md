@@ -26,7 +26,6 @@ Looking for a leaner lasagne? For this veg-packed twist, layer pasta sheets and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1639416604450-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Top, tail and peel lengths of your courgette[s] into ribbons
 
 Chop the remaining courgette core into rough bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-13-1729784073241-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-13-1729784086711-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once hot, add the chopped pepper with a generous pinch of salt and cook for 10-1
 
 Once caramelised, add the chopped garlic and cook for a further 1-2 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1639416613034-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Stir it all together – this is your Mediterranean stock
 
 Drain and rinse your green lentils
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1728569067944-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the vegetables have caramelised, add the Mediterranean stock, drained lenti
 
 Cook for 3-4 min or until thickened to a pasta sauce-like consistency – this is your Mediterranean veg sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1728569148003-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add 100ml<span class="text-purple"> [130ml]</span> <span class="text-danger">[17
 
 Cook over a medium heat for 3-4 min, stirring frequently, or until the cheese has melted and thickened – this is your béchamel
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1639416622326-x200.jpg)
 
 ### Step 7
 

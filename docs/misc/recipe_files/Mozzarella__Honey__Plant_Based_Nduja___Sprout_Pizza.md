@@ -26,7 +26,6 @@ Grab a pizza this meat-free masterpiece. You’ll top your bases with melty mozz
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694442509898-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your dried yeast to a bowl with 100ml <span class="text-purple">[150ml]</spa
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694442513356-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Tip: Cooking for 3 or more? Make 2 dough balls!
 
 Toss the dough ball[s] in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694442517012-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: Dust with extra sprinkles of flour as you go to stop it sticking!
 
 Keep going until your base is the size of a baking tray – this is your pizza base[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694442525443-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add your tomato paste, soft cheese and balsamic sun-dried tomato paste to a bowl
 
 Add your plant-based 'Nduja (can't handle the heat? Go easy!) and honey to a bowl and mix until fully combined – this is your honey plant-based 'Nduja
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694442528745-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694442531912-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Top with the pizza base sauce, the torn mozzarella, honey plant-based 'Nduja, sl
 
 Put the tray[s] in the oven for 12-15 min or until the cheese has melted and the crust has puffed up and browned – this is your mozzarella, honey plant-based 'Nduja & sprout pizza
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694442534932-x200.jpg)
 
 ### Step 7
 

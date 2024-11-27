@@ -27,7 +27,6 @@ These chicken fajitas are jam-packed with colourful veg. You'll marinate your fi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1911.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,19 +38,16 @@ Peel and finely chop (or grate) your garlic
 
 Peel and finely dice your red onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1718377129403-x200.jpg)
 
 ### Step 2
 
 Combine your chicken breast strips, chopped pepper, chopped garlic and most of the diced onion (you'll use the rest later!) in a large bowl
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1718377133887-x200.jpg)
 
 ### Step 3
 
 Add half your ground smoked paprika (you'll use the rest later!) to the bowl with your chipotle paste (can't handle the heat? Go easy!), ground coriander, a drizzle of<span class="text-danger"> </span>vegetable oil and a generous pinch of salt and give it a good mix up – this is your chicken fajita mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1911.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the chicken fajita mix and cook for 12-15 min or until the veg has softened and the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1911.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ While the chicken is cooking, wash your lettuce, then pat it dry with kitchen pa
 
 Chop your tomato[es] and remaining diced onion together as finely as you can
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1718377145850-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Add the chopped tomato and onion to a small bowl with a pinch of salt and pepper
 
 Give everything a good mix up – this is your tomato salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1718377150373-x200.jpg)
 
 ### Step 7
 
@@ -87,7 +80,6 @@ Once the chicken is cooked through, transfer the cooked chicken to a clean board
 
 Return the chopped chicken to the pan and give everything a good mix up – this is your chicken fajita mix
 
-![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-8-1718377152431-x200.jpeg)
 
 ### Step 8
 

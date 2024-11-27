@@ -26,7 +26,6 @@ This warming Chicken & Sweetcorn Soup tastes just like your local Chinese takeaw
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/791.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid, with a 
 
 Once hot, add the chicken breast<span class="text-danger">[s]</span> and cook on both sides for 3 min or until lightly browned (don't worry it won't be fully cooked yet!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/791.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Dissolve the&nbsp;chicken stock cube<span class="text-danger">[s]</span> in 600m
 
 Re-boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/791.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add both the&nbsp;chopped garlic&nbsp;and chopped&nbsp;ginger&nbsp;to the pan, r
 
 Add the&nbsp;Shaoxing wine,&nbsp;soy sauce&nbsp;and&nbsp;chicken stock, cover with a lid, and cook for 12-15 min until the chicken is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/791.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once done, drain and return to the pot with a drizzle of vegetable oil (this sto
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/791.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Add the&nbsp;cornflour to a bowl and gradually stir&nbsp;in 100ml <span class="t
 
 Tip: the cornflour and water paste will help thicken your soup!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/791.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,7 +101,6 @@ Drain the sweetcorn&nbsp;
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/791.-step-7-x200.jpg)
 
 ### Step 7
 

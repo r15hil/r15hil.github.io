@@ -24,7 +24,6 @@ This warming dish of chicken and couscous reminds us of a Middle Eastern-inspire
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/220.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Coat the chicken thighs in the baharat, 1 tbsp <span class="text-danger">(2 tbsp
 
 Set aside for step 3
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/220.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel the onion<span class="text-danger">(s)</span>, cut in half and slice finely
 
 Put the onion and cucumber in a bowl, sprinkle with a generous pinch of salt, mix well and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/220.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Grill the chicken thighs for 12-14 min or until cooked through
 
 Tip: You want the thighs to be slightly charred to accentuate the flavours of the baharat
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/220.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,13 +74,11 @@ Chop the mint finely
 
 Grate the zest of the lime<span class="text-danger">(s)</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/220.-step-5-x200.jpg)
 
 ### Step 5
 
 Mix together the tahini, honey, soy sauce, garlic, lime zest, juice of the whole lime<span class="text-danger">(s)</span> and 1 tbsp <span class="text-danger">(2 tbsp)</span> of olive oil to form a dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/220.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once the couscous is ready, take small handfuls of the onion and cucumber and sq
 
 Tip: A lot of water will have been drawn out by the salt so squeeze quite hard
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/220.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Our warm, comforting dal is perfect for busy people. You’ll infuse your stew w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623407089856-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1585583628244-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the butternut squash cubes are fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1585583636004-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Crush your cardamom pods open by squashing them with the side of a knife
 
 Once hot, add your black mustard seeds to the pan along with your ginger & garlic paste, curry powder and crushed cardamom pods and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1585583642933-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Dissolve your vegetable stock mix and the chopped creamed coconut in 200ml <span
 
 Drain and rinse your green lentils
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1585583648299-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add your wholemeal pitta[s] to the toaster for 1-2 min or until warmed through
 
 Tip: Alternatively, add them to a baking tray and put them under the grill
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1585583653126-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Add the spinach to the pan along with the mashed butternut squash and give every
 
 Cook for 2-3 min until all the spinach has wilted and the sauce has thickened – this is your butternut squash dal
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1585583658148-x200.jpg)
 
 ### Step 7
 

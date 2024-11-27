@@ -27,7 +27,6 @@ Put a twist on curry night with this Indian-style rice dish. You’ll pan-fry gr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1671545532481-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1671545537844-x200.jpg)
 
 ### Step 2
 
 While the rice is cooking, peel and finely slice your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1671545542798-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 4-5 min or until lightly golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1671545550156-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Chop your tomato[es]<span class="text-danger"> </span>into bite-sized pieces
 
 Peel and finely chop (or grate) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1671545559198-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Once the onion is lightly golden, add the halved green beans to the pan and cook
 
 Meanwhile, drain and rinse your chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1671545568907-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Give everything a good mix up and cook for 1-2 min or until fragrant, then add a
 
 Once tender, cook for a final 1-2 min, uncovered, or until the liquid has evaporated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1671545574139-x200.jpg)
 
 ### Step 7
 

@@ -20,7 +20,6 @@ For this tantalising twist on an Italian classic, you'll pan-fry peppery basa fi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1645529313679-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the chopped potatoes to a baking tray (or two!), drizzle with vegetable oil 
 
 Put the tray[s] in the oven for 30 min or until golden and crisp – these are your crispy roast potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1645529315382-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ While the potatoes are roasting, heat a large, dry, wide-based pan (preferably n
 
 Cut your lemon[s] in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1645529318173-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Once the pan is hot, add the lemon halves (cut-side down) and cook for 3-4 min o
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1645529322108-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Dust a clean tray or plate with a generous sprinkling of flour and season with a
 
 Dip your basa fillet[s] into the seasoned flour until both sides are well coated and shake off any excess flour
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1645529324495-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Once hot, add the coated basa fillet[s] and cook for 4-5 min on each side or unt
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1645529326982-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once boiling, trim, then add your green beans and cook for 2-3 min or until the 
 
 Once done, drain and set aside until later
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1645529330363-x200.jpg)
 
 ### Step 7
 

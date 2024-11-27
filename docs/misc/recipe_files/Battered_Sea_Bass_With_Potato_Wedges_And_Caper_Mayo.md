@@ -23,7 +23,6 @@ Upscale your fish and chip dinner with crispy Marmite batter and homemade potato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1724064917441-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1724064926252-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Boil half a kettle
 
 Chop your capers finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1724064935408-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add 60g <span class="text-purple">[90g] </span><span class="text-danger">[120g]<
 
 Stir everything together thoroughly until there are no lumps, then set aside for later – this is your batter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1725544764965-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Pat your sea bass fillet[s] dry with kitchen paper and cut each fillet in half o
 
 Season the sea bass with a pinch of salt and sprinkle both sides with flour until fully coated, then tap off any excess
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1724064963509-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Dip the floured sea bass into the batter and turn it several times until fully c
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1724064974107-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender
 
 Once cooked, drain, then return to the pan with a knob of butter and a pinch of salt and keep covered until serving – these are your buttery beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1724064983040-x200.jpg)
 
 ### Step 7
 

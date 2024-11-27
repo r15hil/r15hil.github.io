@@ -30,7 +30,6 @@ You’ll be bowled over by this effortless chicken dal. Gently spiced, you’ll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666711627519-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Boil half a kettle
 
 Peel and finely slice your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666711632039-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add half the sliced onion (you'll use the rest later!) with a pinch 
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666711636149-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ While the onion is softening, dissolve your chicken stock mix and chopped creame
 
 Drain your green lentils, then rinse them together with your red lentils
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666711641298-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add your curry powder to the pot and cook for 1 min or until fragrant
 
 Once fragrant, add the rinsed lentils and coconut stock and cook for 15-20 min or until all the stock is absorbed and the lentils are tender – this is your mixed lentil dal
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666711646628-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Cut your chicken breast strips into smaller strips
 
 Add the chicken strips and remaining sliced onion with a pinch of salt and pepper and cook for 10-12 min or until cooked through (no pink meat!) – this is your pan-fried chicken & onion
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666711650799-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Peel (scrape the skin off with a teaspoon) and roughly chop (or grate) your ging
 
 Chop your coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666711655466-x200.jpg)
 
 ### Step 7
 

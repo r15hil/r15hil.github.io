@@ -23,7 +23,6 @@ Quick, fun and totally smokin'! You'll layer crispy tortilla wraps with a dollop
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650973556693-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650973559855-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Drain the sweetcorn
 
 Once hot, add the drained sweetcorn to the pan and cook for 2-3 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650973563093-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add a drizzle of vegetable oil and spread over both sides of the tortillas
 
 Put the tray under the grill for 3-4 min, turning the tortillas once halfway so they brown evenly on both sides
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650973567178-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the chopped pepper to the pan with the sweetcorn and cook for 1 min
 
 Drain and rinse the cannellini beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650973571446-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the chopped tomatoes, drained cannellini beans and half of the smoked paprik
 
 Cook for 3-4 min or until the pepper has softened – this is your sweetcorn mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650973575079-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Combine the remaining smoked paprika with the mayo and half of the white wine vi
 
 Wash the rocket, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650973579262-x200.jpg)
 
 ### Step 7
 

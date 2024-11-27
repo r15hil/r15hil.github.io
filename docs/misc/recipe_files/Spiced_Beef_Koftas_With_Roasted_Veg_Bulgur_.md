@@ -26,7 +26,6 @@ Inspired by the punchy flavours of the Middle East, you’ll serve up succulent 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654618154398-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a pot with a lid over a medium heat with a drizzle of olive oil
 
 Once hot, add half the chopped garlic (you'll use the rest later!) and cook for 1 min or until golden, then transfer to a small bowl and set aside, reserve the pot with the oil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654618160761-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Top, tail and chop the courgette<span class="text-danger">[s]</span> into quarte
 
 Grate 1/2 <span class="text-danger">[1] </span>brown onion and slice the remaining onion finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654618157521-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Knead the beef mix thoroughly with clean hands for 2-3 min (this helps the mixtu
 
 Add the koftas to one side of a lightly oiled baking tray
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654618170762-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Give everything a good mix up and put the tray in the oven for 12-15 min or unti
 
 Meanwhile dissolve the chicken stock mix in 200ml<span class="text-danger"> [400ml] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654618178608-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Tip: Add a splash of oil if your pan is looking a little dry!
 
 Add the ground allspice, ground cinnamon and remaining cumin and cook for 1-2 min or until fragrant, then add the bulgur wheat and chicken stock and cook, covered, for 5-7 min or until the water has absorbed and the bulgur is cooked with a bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654618187697-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Strip the mint leaves from their stems and chop them roughly, discard the stems
 
 Once the bulgur is done, remove the pot from the heat and fluff with a fork
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654618197427-x200.jpg)
 
 ### Step 7
 

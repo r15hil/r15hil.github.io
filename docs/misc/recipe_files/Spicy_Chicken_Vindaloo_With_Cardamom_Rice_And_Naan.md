@@ -34,7 +34,6 @@ This dish is a fusion of East and West, with the influence of Portugal shining t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-13-1731494912912-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 7-8 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-14-1731495008195-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the chopped chicken to a bowl with your cider vinegar, ground cumin, ground
 
 Give everything a good mix up – this is your coated chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-14-1731495013466-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Chop your cherry tomatoes in half
 
 Dissolve your chicken stock mix and tamarind paste in 150ml<span class="text-danger"> <span class="text-purple">[200ml] </span>[250ml]</span> boiled water – this is your tamarind stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1583.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once the onion has softened, add a knob of butter with the halved tomatoes and
 
 Crush your cardamom pods open by squashing them with the side of a knife
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-13-1731495060531-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-13-1731495069789-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once the tomatoes have started to break down, increase the heat to medium-high, 
 
 Reduce the heat to medium, then add the tamarind stock and cook, covered, for 8-10 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your spicy chicken vindaloo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-13-1731495074402-x200.jpg)
 
 ### Step 7
 

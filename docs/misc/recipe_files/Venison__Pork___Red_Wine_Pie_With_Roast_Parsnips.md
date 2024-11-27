@@ -24,7 +24,6 @@ Winter is coming and this is the perfect autumn warmer. Tender venison and pork 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1691060269924-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Before you begin...
 
 This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691060272681-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Add your venison & pork burger[s] and break it up with a wooden spoon, then cook for 3-4 min or until beginning to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691060280598-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Dust your work surface with a generous sprinkling of flour
 
 Unwrap your puff pastry and roll it out with a rolling pin until it is large enough to cover the oven proof dish[es]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691060284517-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Give everything a good mix up and add 200ml<span class="text-purple"> [260ml]</s
 
 Bring to the boil over a high heat – this is your pie mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691060287857-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Top the pie mix with the rolled pastry and crimp round the edge with a fork
 
 Score a cross in the middle of the pastry and put it in the oven for 20-22 min or until puffed up and golden and the meat is cooked through (no pink meat!) – this is your venison, pork & red wine pie
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691060291694-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the parsnip batons to a baking tray with a pinch of sugar, a knob of butter 
 
 Put the tray in the oven for 20-22 min or until tender – these are your caramelised parsnips
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691060294765-x200.jpg)
 
 ### Step 7
 

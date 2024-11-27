@@ -29,7 +29,6 @@ Prepare for our most decadent fish pie yet. You'll cook salmon and leek with dou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1643798224305-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop your dill finely, including the stalks
 
 Chop your leek[s] in half lengthways, wash to remove any grit from between the leaves, then top, tail, and slice thickly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1643798254915-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once hot, add the sliced leek with a pinch of salt and cook for 4-5 min or until
 
 Once softened, add the chopped garlic and 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> flour and cook for 1 min further or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1643798264973-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Tip: Keep your knife flat against the board to stop you from cutting through the
 
 Reboil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1643798285679-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Chop the skinned salmon fillet[s] into large bite-sized pieces and add to the pa
 
 Tip: Use individual dishes for fancy presentation!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1643798306891-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Lay the puff pastry sheet[s] over the pie dish[es] and trim off any excess, pres
 
 Put the dish[es] in the oven for 15-20 min or until the pastry is puffed up, golden and fish is cooked through – this is your creamy salmon & leek pot pie
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1643798328320-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once boiling, reduce the heat to medium-high and cook for 10-12 min or until for
 
 Reboil a kettle
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1643798347715-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ This traybake twist on a kyiv isn't just easy, it's lower in calories and fat. Y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624272039014-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Slice your potatoes (skins on) into thin discs
 
 Top, tail and slice your courgette[s] into discs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624272042627-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the potato and courgette discs to a baking tray (or two!) with a drizzle of<
 
 Put the tray[s] in the oven and cook for an initial 15-20 min or until everything is starting to soften and brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624272046576-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box gr
 
 Combine your panko breadcrumbs with the lemon zest, half the chopped chives (you'll use the rest later!), 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp]</span> [2 tbsp] </span>olive oil and a pinch of salt and pepper – this is your herby crumb
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624272050583-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Return the tray[s] to the oven for a further 15 min
 
 Cut the remaining lemon into 1<span class="text-danger"> </span>wedge per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624272055459-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 75ml<span class="text-danger"> <span class="text-purple">[100ml]</span> [130ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624272061263-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Cook for 2-3 min or until thickened slightly
 
 Once thickened, add the chopped parsley and remaining chopped chives – this is your garlic 'butter'
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624272065586-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Fire up your taste buds with a chipotle and green chilli sauce. Serve with hallo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688737463746-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1731667981762-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a small drizzle of vege
 
 Once hot, add the chopped halloumi
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731667998426-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel and slice your shallot[s] finely
 
 Add the sliced shallot[s] to the pan and cook the halloumi for a further 2-3 min on each side or until browned and the shallot is slightly softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731668016145-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Cut your avocado[s] in half lengthways, around the stone
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688737719829-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Slice your green chilli[es] finely
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688737723424-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Stir it all together and add your chopped tomatoes with 100ml <span class="text-
 
 Bring to the boil over a high heat and cook for 1-2 min or until thickened – this is your spicy halloumi rancheros
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688737729892-x200.jpg)
 
 ### Step 7
 

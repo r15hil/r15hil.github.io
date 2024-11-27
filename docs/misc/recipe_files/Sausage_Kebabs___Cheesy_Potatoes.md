@@ -23,7 +23,6 @@ Unleash your inner child with these fun-tastic sausage kebabs. The vegetables an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/667.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the potatoes (skins on) into bite-size pieces&nbsp;
 
 Add the potatoes to a baking tray, drizzle with 2 tbsp <span class="text-danger">[4 tbsp]</span> vegetable oil and season with salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/667.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Meanwhile, top and tail the&nbsp;courgette<span class="text-danger">[s]</span> a
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/667.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Thread a sausage onto each skewer, add a tomato to each end of each skewer
 
 Top and tail with a slice of courgette (see picture)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/667.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add any leftover cherry tomatoes to the tray then season the vegetables (not the
 
 Put the tray in the oven&nbsp;for 20min or until the sausages are nicely browned and cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/667.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Meanwhile, slice the spring onion<span class="text-danger">[s]</span> finely, di
 
 Grate the cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/667.-step-6-x200.jpg)
 
 ### Step 6
 
 Mix together the mustard, honey and mayonnaise with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and pepper - this is your dipping sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/667.-step-7-x200.jpg)
 
 ### Step 7
 

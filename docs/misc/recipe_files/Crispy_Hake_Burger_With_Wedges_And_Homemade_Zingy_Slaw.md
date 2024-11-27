@@ -26,7 +26,6 @@ Here’s a crispy hake burger with a lot of bite. You’ll layer charred brioche
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-23-1709284078425-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and 
 
 Put the tray[s] in the oven for 25-30 min or until the wedges are golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-23-1709284082025-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, cut your hake fillet[s] in half, widthways
 
 Add the hake pieces to a large bowl with your soy sauce and set aside to marinate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-27-1709284085793-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the brioche halves, cut-side down, and cook for 3 min or until c
 
 Once charred, remove and set aside until serving and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-22-1709284090445-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Cut your cucumber in half lengthways, scoop out the core using a teaspoon, then 
 
 Wash your lettuce, then pat it dry with kitchen paper and finely shred
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-23-1709284094465-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Add the diced shallot, diced cucumber and shredded lettuce to a bowl
 
 Add your mayo with the juice of half your lemon[s], 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and give everything a good mix up – this is your homemade zingy slaw
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-23-1709284098508-x200.jpg)
 
 ### Step 6
 
 Add your cornflour to the bowl with the marinated hake and mix everything together until the fish is evenly coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-22-1709284104979-x200.jpg)
 
 ### Step 7
 

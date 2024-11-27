@@ -32,7 +32,6 @@ Tuck into the hearty flavours of the Deep South with this slow oven braise. Pair
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1664293836356-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1664293842989-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Heat a large, hob-safe oven-proof casserole dish with a generous drizzle of vege
 
 Once hot, add your Fable pulled mushrooms and cook for 2-3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1664293846969-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Wash your lettuce, then pat dry with kitchen paper and cut into wedges
 
 Drain and rinse your cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1664293850225-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Add 450ml <span class="text-purple">[600ml]</span> <span class="text-danger">[75
 
 Bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1664293853943-x200.jpg)
 
 ### Step 5
 
@@ -86,13 +81,11 @@ Once boiling, put the dish in the oven, uncovered, for 25-30 min or until the sa
 
 Combine the remaining grated garlic with a<span class="text-danger"> </span>knob of butter per person in a bowl with a pinch of pepper – this is your garlic butter
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1664293857131-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1664293862585-x200.jpg)
 
 ### Step 7
 

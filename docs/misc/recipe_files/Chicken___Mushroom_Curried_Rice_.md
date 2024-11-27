@@ -25,7 +25,6 @@ Tuck into a taste of India in minutes. You’ll simmer chicken thigh and mushroo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680277986308-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Take your chicken out of the fridge, open the packet and let it air, then add yo
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680277990121-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ While the rice is cooking, heat a large, wide-based pan (preferably non-stick wi
 
 Once hot, add your diced chicken breast and cook for 4 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696855824799-x200.jpg)
 
 ### Step 3
 
@@ -51,19 +48,16 @@ Slice your chestnut mushrooms finely
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680278000704-x200.jpg)
 
 ### Step 4
 
 Once the chicken has browned, add the sliced onion and sliced mushrooms to the pan with a very generous pinch of salt and pepper and cook for 3-4 min or until the onion is starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680278005744-x200.jpg)
 
 ### Step 5
 
 Once softened, add your ginger & garlic paste and curry powder to the pan and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680278009693-x200.jpg)
 
 ### Step 6
 
@@ -71,7 +65,6 @@ Once fragrant, add your sultanas and chicken stock mix to the pan with 100ml <sp
 
 Cook, covered, for 3-4 min or until the chicken is cooked through (no pink meat!) – this is your chicken & mushroom curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680278014378-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Forget the takeaway tonight, because jumbo prawn 'scampi' are so simple to whip 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655198413881-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655198423733-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Squeeze in the juice of half your<span class="text-danger"> </span>lemon[s] and�
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655198430892-x200.jpg)
 
 ### Step 3
 
 Drain your jumbo prawns, then pat them dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655198436188-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Add your cornflour to a bowl with your cayenne pepper (can't handle the heat? 
 
 Add your jumbo prawns and toss in the cornflour mix until they are fully coated – these are your coated jumbo prawns
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655198444030-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzl
 
 Once the pan is hot, add the coated jumbo prawns and cook for 6-7 min, turning occasionally, until the jumbo prawns are browned all over, crispy and cooked through – these are your jumbo prawn scampi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655198463907-x200.jpg)
 
 ### Step 6
 
 While the prawns are cooking, strip your mint leaves from their stalks and chop finely, discard the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655198468416-x200.jpg)
 
 ### Step 7
 

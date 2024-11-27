@@ -26,7 +26,6 @@ Our Nashville-style hot chicken is a little healthier, and gets a hefty hit of h
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1640103952659-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the ground almonds, half the ground paprika and half the cayenne pepper (can
 
 Add 100ml <span class="text-danger">[200ml]</span> milk alternative to a bowl
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1640103969954-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Slice through the thickest part of the chicken breast, being careful not to cut 
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1640103976886-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the coated chicken to a baking tray lined with non-stick baking paper with 
 
 Put the tray in the oven for 25 min or until the chicken is cooked through (no pink meat!) – this is your Nashville-style hot chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1640103981335-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Combine the shredded red cabbage, sliced spring onion (save a little for garnish
 
 Tip: Cooking for 2? Save the remaining wholegrain mustard for another recipe!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1640103988848-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the cucumber batons, chopped dill and remaining cider vinegar to a bowl, the
 
 Stir everything together and set aside – this is your pickled cucumber
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1640103994488-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Slice the ciabatta<span class="text-danger">[s]</span> in half
 
 Once hot, add the sliced ciabatta, cut-side down, and cook for 3-4 min or until toasted and charred, then set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1640103999997-x200.jpg)
 
 ### Step 7
 

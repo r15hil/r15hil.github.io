@@ -28,7 +28,6 @@ Spice up dinner with these speedy, smoky wraps. While your fish sizzles away, yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612375146713-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1596551875994-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Meanwhile, drain your sweetcorn
 
 Once hot, add your smoked basa to one side of the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1596551880803-x200.jpg)
 
 ### Step 3
 
@@ -62,13 +59,11 @@ Sprinkle your ground cumin, ground smoked paprika and dried oregano over the 
 
 Cook the basa for 3-4 min on each side or until cooked through (your fish is cooked when it turns opaque and flakes easily)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1596551888865-x200.jpg)
 
 ### Step 4
 
 While the basa is cooking, wash your lettuce, then pat it dry with kitchen paper and shred
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1596551895583-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Chop your tomatoes<span class="text-danger"> </span>roughly and add to a bowl wi
 
 Season with salt and pepper, add a drizzle of olive oil and give everything a good mix up – this is your zingy salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1596551902570-x200.jpg)
 
 ### Step 6
 
 Combine your chipotle paste (can't handle the heat? Go easy!) with your mayo, a drizzle of olive oil and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>cold water in a bowl – this is your chipotle mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1596551912341-x200.jpg)
 
 ### Step 7
 

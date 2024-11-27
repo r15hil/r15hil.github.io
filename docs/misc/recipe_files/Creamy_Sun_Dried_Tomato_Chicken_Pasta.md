@@ -28,7 +28,6 @@ If a big comforting bowl of delicious pasta is what you're after, look no furthe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627995164335-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil a full kettle
 
 Add your chicken breast portion[s] to a baking tray (or two!) and sprinkle over your dried basil and dried oregano and drizzle over a little olive oil and season with a pinch of salt and pepper and give the chicken a good mix up until coated in the herbs
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627995172301-x200.jpg)
 
 ### Step 2
 
 Put the tray[s] in the oven for 18-20 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627995182315-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once hot, add the diced onion and cook for 4-5 min or until softened
 
 Once softened, add the chopped garlic and cook for 1-2 min further or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1627995184472-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cook the conchiglie for 8-10 min or until cooked with a slight bite
 
 Once done, drain the conchiglie, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627995198992-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the garlic is fragrant, wash your spinach, then pat it dry with kitchen pap
 
 Add the spinach to the pan with your ground paprika and cook for 2-3 min or until wilted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627995198996-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once done, slice the cooked chicken on a clean chopping board
 
 Cut your sun-dried tomatoes in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627995206815-x200.jpg)
 
 ### Step 7
 

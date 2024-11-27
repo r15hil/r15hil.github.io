@@ -27,13 +27,11 @@ Biryani is the paella of Indian food. Traditionally, it's baked in a clay pot fo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1601312566311-x200.jpg)
 
 ### Step 1
 
 Peel and dice your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1601312573893-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Once hot, add the diced onion, your curry powder and a pinch of salt and pepper
 
 Cook for 2 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601312578261-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim and cut your green beans in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-11-1732553642809-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Tip: Add a drizzle of oil if the pan looks a little dry
 
 Stir in your basmati rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1601312680065-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add the halved green beans and your sultanas
 
 Once boiling, reduce the heat to very low and cook, covered, for an initial 10-12 min or until most of the water has absorbed
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1601312685984-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Once the rice has absorbed most of the water, drain your king prawns and add the
 
 Tip: Add a splash more water if the rice is not fully cooked or the mixture is looking a little dry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1601312690655-x200.jpg)
 
 ### Step 7
 

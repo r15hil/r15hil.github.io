@@ -22,7 +22,6 @@ We've added succulent shredded chicken and a dash of Dijon mustard to smarten up
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1383.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the&nbsp;chips to a large baking tray with a drizzle of vegetable oil and a 
 
 Put the tray in the oven for 25-30 min or until the&nbsp;chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1383.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a matching l
 
 Once hot, add the chicken thigh<span class="text-danger">[s]</span> and bacon&nbsp;and cook for 3 min on each side or until the bacon is golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1383.-step-3--x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Drain any excess oil from the pan and return it to a medium-low heat
 
 Add a splash of water to the chicken and cook, covered, for 10-12 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1383.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine the mayonnaise, white wine vinegar and Dijon mustard&nbsp;with a generous pinch of salt and black pepper &ndash;&nbsp;this is your Dijon dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1383.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Slice the tomato<span class="text-danger">[es]&nbsp;</span>
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1383.-step-6--x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Return the shredded chicken to the pan with half of the Dijon dressing and give 
 
 Tip: transfer the chicken to a board if you have a sensitive pan!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1383.-step-7--x200.jpg)
 
 ### Step 7
 

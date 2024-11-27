@@ -30,7 +30,6 @@ Top this punchy laksa with roasted sweet potato and crispy broccoli. Dollop over
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-10-1701872728499-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your Tenderstem broccoli in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-11-1701872735320-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Give it a good mix up and put the tray[s] in the oven for 15-20 min or until the
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632225839975-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Trim, then chop your red chilli[es] roughly
 
 Roughly chop your cashew nuts
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632225861911-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Tear in half of your coriander (save the rest for garnish!) and blitz – this i
 
 Remove half of your laksa paste (save the rest for later!) and add it to a bowl with the chopped cashew nuts, rice vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and give it a good mix up – this is your spicy cashew sambal
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632225868621-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Heat a large, wide-based deep pan or pot (preferably non-stick) with a generous 
 
 Once hot, add the sliced shallot with a pinch of salt and cook for 4-5 min or until starting to caramelise
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632225898710-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Dissolve the chopped creamed coconut in 800ml <span class="text-purple">[1.2L]
 
 Add the remaining tamari soy sauce – this is your coconut stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632225937898-x200.jpg)
 
 ### Step 7
 

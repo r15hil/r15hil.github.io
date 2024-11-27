@@ -24,7 +24,6 @@ This quick and easy tray bake is the perfect midweek meal. You’ll bake zesty l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1727172207338-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Combine the chopped potato and chopped carrot on a baking tray (or two!) with a 
 
 Put the tray[s] in the oven for an initial 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727172223030-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ While the potatoes and carrots are cooking, zest half your lemon[s] (try to grat
 
 Combine the lemon zest, panko breadcrumbs and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>olive oil in a bowl with a generous pinch of salt and pepper – this is your lemon breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727172235850-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
 Cut the remaining lemon into 1 wedge per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727172251766-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Chop your Tenderstem broccoli in half
 
 Once the potatoes and carrots have had an initial 15 min, remove the tray[s] from the oven and add the halved Tenderstem
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727175184063-x200.jpg)
 
 ### Step 5
 
@@ -72,13 +67,11 @@ Return the tray[s] to the oven for a further 14-15 min or until the salmon is co
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727175195378-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add your crème fraîche, chive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water to a small pot and cook over a low heat for 2-3 min or until warmed through – this is your chive & crème fraîche sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727175206102-x200.jpg)
 
 ### Step 7
 

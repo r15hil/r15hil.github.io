@@ -23,7 +23,6 @@ Bake a pie in half the time with our favourite time-saving twist. You'll cook up
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627381230507-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627381241266-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Slice your chestnut mushrooms finely
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627381251788-x200.jpg)
 
 ### Step 3
 
@@ -53,13 +50,11 @@ Once the onion has softened, add your beluga lentils to the onion with 1 tsp <sp
 
 Increase the heat to medium-high and cook for 1-2 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627381258992-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your vegetable stock mix, tomato paste and soy sauce in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[450ml]</span> boiled water – this is your vegetable stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627381265195-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Reduce the heat to medium and cook for 10-12 min or until thickened to a bologne
 
 Wash your shredded kale, then pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627381274448-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Transfer the pastry to a non-stick baking paper-lined baking tray (or two!), the
 
 Crimp the borders with a fork and put the tray[s] in the oven for 15 min or until puffed up and golden – this is your pie lid
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627381278217-x200.jpg)
 
 ### Step 7
 

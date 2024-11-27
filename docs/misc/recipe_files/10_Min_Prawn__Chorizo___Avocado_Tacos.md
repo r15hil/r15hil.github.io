@@ -23,7 +23,6 @@ For this rapid recipe, you'll sizzle king prawns with crispy British chorizo, an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1931.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1931.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the diced chorizo and coriander seeds to the pan and cook for 4-5 min or until starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1931.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, combine the mayonnaise with half of the roasted garlic paste, the dr
 
 Slice the remaining lime into wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1931.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Shred the little gem lettuce finely
 
 Add the shredded lettuce to a bowl and squeeze the remaining lime juice over it
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1931.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,13 +68,11 @@ Remove the stone<span class="text-danger">[s]</span> using a teaspoon
 
 Scoop the avocado out of the skin<span class="text-danger">[s] </span>using a spoon, and chop into chunks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1931.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the chorizo is crispy, add the prawns to the pan with the remaining roasted garlic paste and cook for a further 4-5 min or until cooked through – these are your chorizo prawns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1931.-step-7-x200.jpg)
 
 ### Step 7
 

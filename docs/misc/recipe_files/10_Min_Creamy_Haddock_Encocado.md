@@ -24,7 +24,6 @@ To rustle up this Ecuadorian classic, you'll cook haddock bites and cherry tomat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1693-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1693-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Remove the coconut cream from the sachet<span class="text-danger">[s] </span>
 
 Dissolve the chopped coconut cream in 200ml <span class="text-danger">[300ml]</span> boiled water – this is your coconut stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1693-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the chopped cherry tomatoes with the ground cumin, smoked paprika, dried chilli flakes (can't handle the heat? Go easy!) and roasted garlic paste and cook for 30 secs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1693-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the tomato paste, coconut stock, the juice of 1/2 <span class="text-dang
 
 Give everything a good mix up and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1693-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Tear the top corner of the pouch<span class="text-danger">[es] </span>(just a l
 
 Tip: If you're cooking two packets, pop them in together but increase the microwave cook time accordingly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1693-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the haddock bites to the pan and cook, covered, for 3-4 min or until they'
 
 Note: Please make sure you cook your fish thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1693-Step-7-x200.jpg)
 
 ### Step 7
 

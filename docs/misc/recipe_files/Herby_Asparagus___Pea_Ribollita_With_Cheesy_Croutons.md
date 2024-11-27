@@ -23,7 +23,6 @@ Ribollita is a Tuscan bread soup with three key ingredients: bread, cannellini b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622555693034-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a full kettle
 
 Crush the garlic cloves open by squashing them with the side of a knife and remove the skins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1622555701666-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surf
 
 Chop half the Italian hard cheese roughly (you'll use the rest later!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1622555761674-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Tear in all of the basil and add the juice of 1/2 <span class="text-danger">[1]<
 
 Add the vegetable stock mix with 100ml <span class="text-danger">[180ml]</span> water and blitz – this is your ribollita base
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1622555766538-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the sliced leek and cook for 3-4 min or until softened
 
 Reboil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1622555804300-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add a drizzle of olive oil with a pinch of salt and pepper and put the tray in t
 
 Tip: Crowd the croutons together for the best melty cheese!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1622555857002-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the leek has softened, add the remaining cannellini beans and the remaining
 
 Once boiling, reduce the heat to medium-low
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1622555870293-x200.jpg)
 
 ### Step 7
 

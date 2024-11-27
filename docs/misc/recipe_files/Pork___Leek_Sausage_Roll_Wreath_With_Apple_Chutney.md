@@ -28,7 +28,6 @@ This festive centrepiece is a juicy show-stopper. First, wrap your herby pork an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667303663110-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a medium-sized pot (with a matching lid) over a medium-high heat with a sma
 
 Once hot, add the sliced leek with a pinch of salt and cook for 2-3 min or until softened, then transfer the cooked leek to a bowl and reserve the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1667303668266-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your pork mince (remove the paper if required!) and dried sage with half you
 
 Dust your work surface with a generous sprinkling of flour, unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin, then add the sausage roll mix to one half of the pastry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667303676323-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Make cuts into the log[s] widthways so there are 4 sections per person (making s
 
 Transfer the cut sausage roll[s] to the baking tray[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1667303680055-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Gently twist each section, without tearing it from the main body, so it is filli
 
 Put the tray[s] in the oven for 30-35 min or until the pork is cooked through (no pink meat!) and the pastry is until golden, cooked through and the edges have puffed up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667303684411-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the chips to a non-stick baking paper-lined baking tray with a drizzle of ve
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your chicken salt chips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1667303688463-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Return the reserved pot to a medium heat with the chopped apple, diced onion, 10
 
 Once softened, add half your red wine vinegar and half your cranberry sauce (save the rest for later!) and cook for 5-7 min or until slightly caramelised – this is your apple chutney
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1667303692869-x200.jpg)
 
 ### Step 7
 

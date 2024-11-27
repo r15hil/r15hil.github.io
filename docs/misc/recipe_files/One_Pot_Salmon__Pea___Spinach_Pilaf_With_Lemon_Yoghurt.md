@@ -27,7 +27,6 @@ For an easy lemon squeezy one-pot pilaf, look no further. To make yours, toss fl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1700568762604-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add the diced onion with a knob of butter and a pinch of salt, then cook for 5-6 min or until the onion is starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1700568768869-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop your chives finely
 
 Dissolve your vegetable stock mix in 350ml <span class="text-purple">[525ml]</span> <span class="text-danger">[700ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700568773534-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once fragrant, add the vegetable stock and give everything a good mix up
 
 Bring to the boil over a high heat and once boiling, reduce the heat to low and cook, covered, for 18-20 min or until the rice is tender and the stock has absorbed
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700568779234-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ While the rice is cooking, zest half your lemon[s] (try to grate lightly with a 
 
 Wash your spinach and pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1700568783462-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Combine your natural yoghurt, the juice of half the<span class="text-danger"> </
 
 Stir it all together – this is your lemon yoghurt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1700568788608-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the rice is tender and the stock has absorbed, add your salmon flakes and s
 
 Season with a pinch of salt and pepper and give everything a gentle mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1700568793495-x200.jpg)
 
 ### Step 7
 

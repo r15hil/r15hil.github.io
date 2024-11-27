@@ -23,7 +23,6 @@ This tasty stir-fry will be ready in a flash! Cook diced chicken with baby corn 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1565.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1565.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,13 +54,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Meanwhile, slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1565.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the diced chicken to the pan and cook for 4 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1565.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Meanwhile, add the fine egg noodles to a large bowl, cover them with boiled w
 
 Set aside to soak for 4 min, or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1565.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Meanwhile, cut the baby corn in half lengthways
 
 Combine<span class="text-highlight"> half of the soy sauce with</span> the honey, ginger paste and 1 tbsp<span class="text-danger"> [2 tbsp]</span> water in a small bowl <span class="text-highlight">–</span> this is your ginger sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1565.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the ginger sauce and cook for 1 min further or until the chicken is cooked t
 
 Note: please ensure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1565.-step-7-x200.jpg)
 
 ### Step 7
 

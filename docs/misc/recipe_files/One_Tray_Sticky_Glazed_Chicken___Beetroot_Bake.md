@@ -28,7 +28,6 @@ Go all in on easy with a sticky chicken tray bake, packed with roasted beetroot,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583490885165-x200.jpg)
 
 ### Step 1
 
@@ -42,13 +41,11 @@ Chop the beetroot into quarters
 
 Cut your potato[es] (skin on) into small bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583490889302-x200.jpg)
 
 ### Step 2
 
 Season your chicken thighs on both sides with a pinch of salt and pepper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1583490893225-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Drizzle everything with olive oil, season with a generous pinch of salt and put the tray[s] in the oven for 15 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1583490896755-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel and finely grate your garlic
 
 Slice your orange[s] in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1583490899508-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the grated ginger, garlic, tamarind paste, honey and a squeeze of orange jui
 
 Give everything a good stir – this is your sticky orange & tamarind sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1583490903943-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Trim, then slice your spring onion[s] into thirds
 
 Drain and rinse your butter beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1583490907711-x200.jpg)
 
 ### Step 7
 

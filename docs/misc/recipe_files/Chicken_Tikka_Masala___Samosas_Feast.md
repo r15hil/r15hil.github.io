@@ -33,7 +33,6 @@ Show Autumn who’s boss by serving up a rich and creamy chicken tikka masala an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728299919905-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Add the chopped potatoes to a baking tray (or two!) with your cumin seeds, a dri
 
 Put the tray[s] in the oven for an initial 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728299926188-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Once hot, tear your white cup mushrooms into the pot and cook for 2-3 min or unt
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728299931330-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your mushroom biryani
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728299936147-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Once hot, add your diced chicken breast and cook for 2-3 min or until lightly br
 
 Once the potatoes have had an initial 15 min, remove the tray[s] from the oven and add your samosas, then return the tray[s] to the oven for 10-13 min or until the potatoes are crisp and the samosas are hot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728299940954-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Once fragrant, add your chopped tomatoes with your chicken stock mix and 100ml <
 
 Cook for 10-12 min or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728299945646-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Return the tray[s] to the oven for 1-2 min or until the spinach has wilted
 
 Once the spinach has wilted, give everything a good mix up – this is your roast saag aloo and samosas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728299949907-x200.jpg)
 
 ### Step 7
 

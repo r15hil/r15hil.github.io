@@ -29,7 +29,6 @@ Mexican spice meets Japanese umami. You’ll simmer smoky chipotle and paprika i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1669727798506-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669727804290-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your pork mince (remove the paper if required) and cook for 3-4 min or until beginning to brown, breaking it up into very small pieces with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669727808319-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Grate your cheddar cheese finely
 
 Drain your sweetcorn
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669727812176-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once the pork is beginning to brown, add half your ground smoked paprika (you'll
 
 Cook for 4-5 min further or until cooked through (no pink meat!) and crispy – this is your crispy pork
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669727815435-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Meanwhile, heat a large, wide-based pot with a drizzle of vegetable oil over a m
 
 Add your tomato paste with your ground coriander and remaining ground smoked paprika and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669727819166-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add your chipotle paste (can't handle the heat? Go easy!), roasted garlic paste and beef stock mix and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669727822885-x200.jpg)
 
 ### Step 7
 

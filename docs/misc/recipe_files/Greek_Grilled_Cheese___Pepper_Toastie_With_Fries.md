@@ -24,7 +24,6 @@ Give grilled cheese a Greek glow-up with sweet grilled red pepper and tangy Gree
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721908362537-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut your potatoes (skins on) into fries
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721908365526-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray[s] in the oven for an initial 10-15 min or until the pepper is slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721908369154-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Cut your lemon[s] into wedges
 
 Wash your salad and pat dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721908372823-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the crumbled Greek cheese to a large bowl with the torn mozzarella and slice
 
 Add your Mediterranean seasoning with a pinch of salt and pepper – this is your Greek cheese toastie mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721908376560-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Divide the Greek cheese toastie mix evenly between the ciabatta base[s]
 
 Tip: Use your hands to press the cheese mixture onto the ciabatta base[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721908381762-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Top each cheesy ciabatta base[s] with a cooked pepper half, hollow side down
 
 Place a ciabatta lid on top – this is your Greek cheese ciabatta[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721908386042-x200.jpg)
 
 ### Step 7
 

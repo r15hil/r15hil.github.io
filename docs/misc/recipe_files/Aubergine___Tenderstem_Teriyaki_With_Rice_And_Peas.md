@@ -26,7 +26,6 @@ Homemade teriyaki sauce adds a sticky-sweet glaze to aubergine and Tenderstem br
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650362971759-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650362983360-x200.jpg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Add the chopped aubergine and your Tenderstem broccoli to a baking tray (or two!
 
 Give everything a good mix up and put the tray[s] in the oven for 15 min or until the vegetables are softened and lightly golden – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650362994312-x200.jpg)
 
 ### Step 3
 
 While the veg is roasting, peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650363004388-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Combine the chopped ginger, your rice vinegar, chilli flakes (can't handle the h
 
 Give it a good mix up – this is your teriyaki sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650363013620-x200.jpg)
 
 ### Step 5
 
 Once the rice is cooked, add your blanched peas on top of the rice and put the lid back on for 3 min until the peas are warmed through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650363024034-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once hot, add the roasted veg with the teriyaki sauce to the pan and give everyt
 
 Cook for 2-3 min or until the sauce has reduced to a sticky consistency – this is your aubergine & Tenderstem teriyaki
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650363033670-x200.jpg)
 
 ### Step 7
 

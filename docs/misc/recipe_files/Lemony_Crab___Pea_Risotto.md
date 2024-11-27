@@ -25,7 +25,6 @@ This rich, creamy risotto makes a great showcase for sweet Scottish crab. It's e
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Finely-chopped-brown-onion-in-a-pan-1619437971393-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1880.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ While the onion softens, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 750ml [<span class="text-purple">975ml]</span><span class="text-danger"> [1.4L]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1880.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,19 +52,16 @@ Add your Chinese rice wine and cook for 30 secs
 
 Add the vegetable stock a ladle at a time, stirring occasionally, for 25-30 min or until all of the stock is absorbed
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1880.-step-4-x200.jpg)
 
 ### Step 4
 
 Season your crab meat with a pinch of salt and set aside for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1880Step5v2-x200.jpg)
 
 ### Step 5
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1880.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Once the rice is almost cooked, add the seasoned crab meat to the pan with your
 
 Add any remaining vegetable stock and cook for a further 5 min or until the peas are tender and the rice is cooked
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1880.-step-7-x200.jpg)
 
 ### Step 7
 

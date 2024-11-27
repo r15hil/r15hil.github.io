@@ -30,7 +30,6 @@ For this light and fragrant dish, you'll pan-fry coated haddock bites until cris
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632475475663-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632475489047-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Wash, then rip the leaves off your spring greens, discard the tough stalks, then
 
 Peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632475529561-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut 1 piece of tin foil per person approx. the size of an A3 sheet of paper and layer them over each other
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632475564045-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Scrunch the edges of the foil around the veg to form 1 sealed parcel per person 
 
 Put the tray in the oven for 12 min or until the spring greens have wilted – this is your sesame veg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632475621047-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine your soy sauce, honey, rice vinegar, remaining toasted sesame oil and half your chilli flakes (can't handle the heat? Go easy!) in a bowl – this is your chilli soy dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632475647790-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Give everything a good mix up until the haddock is fully coated – this is your coated haddock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632475656978-x200.jpg)
 
 ### Step 7
 

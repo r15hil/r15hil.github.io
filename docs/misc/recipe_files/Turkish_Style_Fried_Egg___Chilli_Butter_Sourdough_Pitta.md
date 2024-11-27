@@ -19,7 +19,6 @@ Try breakfast the Turkish way with this cilbir-inspired dish. You’ll fry eggs 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073403001-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in or wrap up ready for your day!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727103031872-x200.jpg)
 
 ### Step 2
 
@@ -41,13 +39,11 @@ Once melted, add your chilli flakes (can't handle the heat? Go easy!) and your g
 
 Cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727103073423-x200.jpg)
 
 ### Step 3
 
 Once fragrant, transfer to a bowl and reserve the pan – this is your chilli butter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727103077745-x200.jpg)
 
 ### Step 4
 
@@ -57,19 +53,16 @@ Once hot, crack your eggs into the pan
 
 Cover with a lid and cook for 2-3 min or until done to your liking
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727103084535-x200.jpg)
 
 ### Step 5
 
 Slice your tomato[es] into rounds
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727103087703-x200.jpg)
 
 ### Step 6
 
 Add your sourdough pitta[s] to a toaster for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727103091175-x200.jpg)
 
 ### Step 7
 

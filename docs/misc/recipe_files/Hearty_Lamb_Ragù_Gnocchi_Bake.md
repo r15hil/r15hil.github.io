@@ -23,7 +23,6 @@ This lamb bake is the perfect end to a busy day. You’ll make a simple lamb rag
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R22225tep-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a full kettle
 
 Peel and finely chop your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R22225tep-2-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Once hot, add the chopped onion and bay leaf[ves] and cook for 4-5 min or until 
 
 Once softened, add your lamb mince and cook for 5 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R22225tep-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve your beef stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R22225tep-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once the lamb mince has browned, add your dried oregano, chopped tomatoes and be
 
 Bring to the boil over a high heat and cook for 4-5 min or until the stock has thickened to a ragù-like consistency and lamb is cooked through (no pink meat!) – this is your lamb ragù
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R22225tep-5-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the cooked gnocchi
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R22225tep-6-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add the cooked gnocchi, season with a generous grind of black pepper and give ev
 
 Remove the bay leaf[ves] and discard – this is your hearty lamb gnocchi ragù
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R22225tep-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Cooking spice-crusted chicken 'til blackened might seem wrong, but trust us – 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1717423092126-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1717423097051-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Cut your chicken breast portion[s] lengthways, so that you end up with 3 strips per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1717423102620-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Once the pan is hot, add the chicken breast strips and pour over your soy sauce
 
 Sprinkle your ground smoked paprika and ground allspice into the pan and cook for 10-12 min or until cooked through (no pink meat!) – this is your blackened chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1717423107841-x200.jpg)
 
 ### Step 4
 
@@ -70,19 +66,16 @@ Chop your coriander roughly, including the stalks
 
 Wash your gem lettuce, then pat it dry with kitchen paper and shred roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1717423113134-x200.jpg)
 
 ### Step 5
 
 Add the chopped pineapple, sliced shallot and chopped coriander to a bowl and gently mix it all together – this is your speedy pineapple salsa
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1717423116963-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop them in the microwave for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1717423121049-x200.jpg)
 
 ### Step 7
 

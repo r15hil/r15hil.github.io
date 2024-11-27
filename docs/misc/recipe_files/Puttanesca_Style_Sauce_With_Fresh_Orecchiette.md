@@ -21,7 +21,6 @@ When life gives you capers, make a puttanesca. For this Neapolitan classic, you'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-10-min-meals-1729777790204-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1700569310923-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop your black olives in half
 
 Chop your parsley finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700569316377-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the sliced garlic and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700569321329-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1700569325875-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add your capers and halved olives to the pan and cook for a further 1-2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1700569331476-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add your chopped tomatoes and vegetable stock mix with 50ml <span class="text-pu
 
 Bring to the boil over a high heat, then reduce the heat to medium-high and cook for 2-3 min further or until the sauce starts to thicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1700569335814-x200.jpg)
 
 ### Step 7
 

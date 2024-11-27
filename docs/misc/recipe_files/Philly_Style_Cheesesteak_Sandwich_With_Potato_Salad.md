@@ -24,7 +24,6 @@ This classic sandwich from Philadelphia is as messy as it is delicious. It's pac
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2223-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Boil a kettle and chop your waxy potatoes in half, then add to a pot of plenty o
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and rinse them under cold water until cooled slightly (save the pot for later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2223-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once very hot, add the seasoned steak to the pan and cook for 2 min on each side
 
 Tip: You'll be returning these to the pan later!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2223-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once cooked, transfer the steak to a plate to rest
 
 Return the pan to a medium heat, add the sliced onion and pepper strips with a pinch of salt and cook, covered, for 6-8 min or until starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2223-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ On a clean chopping board, trim the fat from the steak and discard
 
 Slice the rested steak as finely as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2223-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Slice your ciabatta[s] in half and place in the toaster for 1-2 min or until war
 
 Once the ciabatta is warmed through, remove from the toaster and spread with a thin layer of butter
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2223-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the onion and pepper has caramelised, add the sliced steak and soy sauce to
 
 Top with the grated cheese and cook, covered, for 2-3 min further or until the cheese has melted – this is your Philly-style cheesesteak filling
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-2223-step-7.jpg-v2-x200.jpg)
 
 ### Step 7
 

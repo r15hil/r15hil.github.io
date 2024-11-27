@@ -24,7 +24,6 @@ This Indian-inspired bake is the perfect low-effort supper. You'll top lightly c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636108881523-x200.jpeg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 18-20 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636109012744-x200.jpeg)
 
 ### Step 2
 
@@ -46,13 +44,11 @@ Sprinkle 2/3 of your curry powder (save the rest for later!) over the fish and r
 
 Season with a pinch of salt and pepper and set aside – these are your curried cod fillet[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636109386178-x200.jpeg)
 
 ### Step 3
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636109392552-x200.jpeg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once the potatoes have had an initial 18-20 min, add the pepper strips and cherr
 
 Sprinkle over the remaining curry powder and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636109397092-x200.jpeg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Return the tray[s] to the oven and increase the heat to 240ºC/ 220ºC (fan)/ ga
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641395629564-x200.jpg)
 
 ### Step 6
 
 Whilst everything is cooking, combine your natural yoghurt with your ground turmeric, a small splash of cold water and a pinch of salt in a small bowl – this is your turmeric yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636109580410-x200.jpeg)
 
 ### Step 7
 

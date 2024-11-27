@@ -23,7 +23,6 @@ Succulent pork tenderloin is coated in a fragrant paste made of fennel seeds, ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/55_step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the potatoes (skins on) into wedges&nbsp;
 
 Strip the rosemary leaves and chop roughly, discarding the stems&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/55_step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Sprinkle with half of the chopped rosemary (save the rest for later!)&nbsp;and d
 
 Season with a generous pinch of salt and pepper and put the tray in the oven for 10 min (until approx. step 4)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/55_step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add half of the chopped garlic, the remaining rosemary and 2 tbsp<span class="te
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/55_step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Spread the&nbsp;fennel paste all over the pork tenderloins&nbsp;and sit them on&
 
 Put the tray in the oven for 15-18 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/55_step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,7 +90,6 @@ Drain and rinse the butter beans
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/55_step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,7 +101,6 @@ Once hot, add the remaining chopped garlic and cook for 1 min
 
 Add the chopped tomato and cook for 3-4 min or until they're beginning to break down&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/55_step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ What makes these king prawns crispy is the panko breadcrumb coating, which is a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/773.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Chop the coriander finely, including the stalks
 
 Shred the little gem lettuce
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/773.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Combine the diced shallot, tomato, chilli flakes (can't handle the heat? Go 
 
 Halve the lime<span class="text-danger">[s]</span>,<span class="text-danger"> </span>squeeze in half the lime juice and give everything a good mix up – this is your tomato salsa
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/773.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the remaining chopped coriander to a pestle &amp; mortar (alternatively, us
 
 Bash the coriander and oil together, then add 1 tbsp <span class="text-danger">[2 tbsp]</span> lime juice and season with salt and pepper until it forms a smooth paste – this is your lime paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/773.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ In a separate bowl, mix the lime paste with the mayonnaise
 
 Add a drizzle of olive oil to loosen the mix – this is your coriander mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/773.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Add the panko breadcrumbs to another plate
 
 Place the prawns in the flour (tap off any excess), add them to the egg, then coat in the breadcrumbs, pressing down firmly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/773.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once hot, add the breaded prawns and cook for 1-2 min on each side until the ou
 
 Tip: you may have to do this in batches
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/773.-step-7-x200.jpg)
 
 ### Step 7
 

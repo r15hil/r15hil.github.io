@@ -23,7 +23,6 @@ This speedy chicken dish isn't burnt – it's blackened, Creole-style! You'll ru
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/524.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once melted, add half <span class="text-danger">[all]</span> the drained sweetco
 
 Cook for 2 min or until the sweetcorn has browned slightly&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/524.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add&nbsp;300ml <span class="text-danger">[600ml]</span>&nbsp;water and bring to 
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until the water has absorbed and the rice is tender &ndash; this is your corn rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/524.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the sliced&nbsp;chicken to the spice mix and mix everything up until the chi
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/524.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Once hot, add the spiced chicken and cook for 3-4 min on both&nbsp;sides or unti
 
 Note: the chicken will appear very dark and burnt &ndash; don't panic, this is how it's meant to be!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/524.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Combine the mayonnaise with the juice of 1/2&nbsp;<span class="text-danger">[1]<
 
 Add the baby plum&nbsp;tomatoes to the cooked corn rice and warm it through for&nbsp;1 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/524.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Chop the coriander finely, including the stalks
 
 Slice the blackened&nbsp;chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/524.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Chicken piccata is a staple Italian dish which consists of fried chicken escalop
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1141.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Add the panko breadcrumbs to another plate and combine with the grated cheese&nb
 
 &nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1141.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -60,7 +58,6 @@ Coat the chicken in the flour, tap off the excess, then add it into the beaten e
 
 Refrigerate until step 5&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1141.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -75,7 +72,6 @@ Once done, drain the linguine
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1141.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -90,7 +86,6 @@ Cut half the lemon into wedges and reserve for garnish
 
 Dissolve the chicken stock cube<span class="text-danger">[s]</span> in 100ml <span class="text-danger">[200ml]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1141.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -105,7 +100,6 @@ Tip: add more oil if your pan is looking a little dry&nbsp;
 
 Once cooked, transfer the breaded chicken to kitchen paper (keep the pan!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1141.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -117,7 +111,6 @@ Once hot, add the sliced garlic and cook for 1-2 min or until starting to lightl
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1141.-step-7-x200.jpg)
 
 ### Step 7
 

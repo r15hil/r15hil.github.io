@@ -24,7 +24,6 @@ For this twist on a classic you'll coat smoked mackerel pieces in cornflour and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2314-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely chop (or grate) half <span class="text-danger">[all]</span> the
 
 Chop the capers roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2314-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Combine the mayonnaise with the chopped garlic (don't like raw garlic? Go easy!)
 
 Add half the grated Italian hard cheese and a pinch of salt and stir it all together – this is your caesar dressing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2314-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tear the outer leaves from the little gem lettuces
 
 Shred the inner cores finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2314-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add the ripped ciabatta to a baking tray with a generous drizzle of olive oil an
 
 Give everything a good mix up and put the tray in the oven for 5 min or until golden and crisp – these are your golden croutons
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2314-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Tear the mackerel into rough, bite-sized pieces
 
 Add the torn mackerel to a bowl with the cornflour and give it a gentle mix up until the mackerel is fully coated
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2314-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Tip: Don't turn the mackerel too often, as this will stop it from crisping!
 
 Once done, transfer the crispy mackerel to kitchen paper and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2314-Step-7-x200.jpg)
 
 ### Step 7
 

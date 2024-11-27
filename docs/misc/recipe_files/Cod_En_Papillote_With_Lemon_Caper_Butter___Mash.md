@@ -19,7 +19,6 @@ For this easy recipe, you'll top cod fillets with a lemon-caper butter, before w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2062.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to a pot of boiling water with a pinch of salt, bring t
 
 Once cooked, drain and return them to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2062.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Chop the parsley finely, including the stalks (keep this aside for garnish later
 
 Cut up 4 <span class="text-danger">[8]</span> A3 size sheets of baking paper
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2062.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Divide 50g <span class="text-danger">[100g]</span> butter between the cod fille
 
 Squeeze a lemon quarter over each piece of cod and season generously with salt and black pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2062.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Add the parcels to a baking tray and put the tray in the oven for 10-12 min or u
 
 Tip: <span class="text-highlight">You</span>r cod is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2062.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up &amp; slice into thin strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2062.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once the pan is hot, add the sliced spring greens and cook for 1 min, then add 2 tbsp <span class="text-danger">[4 tbsp]</span> boiled water, cover and cook for 2-3 min or until wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2062.-step-7-x200.jpg)
 
 ### Step 7
 

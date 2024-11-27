@@ -27,7 +27,6 @@ Gravy lovers, this one’s for you. Fill toasted brioche buns with crispy onion 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701095137713-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chips to a baking tray (or two!) with your dried sage, a drizzle of vege
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your sage chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701095143346-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Bash half your crispy onions (save the rest for garnish!) with a rolling pin unt
 
 Add the crushed crispy onions and ground paprika to a separate plate with your panko breadcrumbs and a small pinch of salt and pepper and give everything a good mix up – this is your crispy onion mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701095148707-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Bash the chicken with a rolling pin until evenly flattened
 
 Coat the flattened chicken in the flour, tap off any excess, then add it to the vegetable oil and firmly press into the crispy onion mix to evenly coat all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701095154568-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Put the tray[s] in the oven for 20 min or until the chicken is cooked through (n
 
 While the chicken is cooking, dissolve your soy sauce and chicken stock mix in 200ml<span class="text-purple"> [260ml]</span><span class="text-danger"> [350ml]</span> boiled water with your onion marmalade and a pinch of salt – this is your gravy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701095160924-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 
 
 Stir the gravy stock into the sandy paste and cook for 5 min or until the sauce has thickened – this is your sweet onion gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701095166406-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Remove 1 lettuce leaf per person from the lettuce and set aside, shred the inner
 
 Combine your white wine vinegar and a drizzle of olive oil in a bowl with a small pinch of salt and pepper and give it a good mix up – this is your salad dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701095171294-x200.jpg)
 
 ### Step 7
 

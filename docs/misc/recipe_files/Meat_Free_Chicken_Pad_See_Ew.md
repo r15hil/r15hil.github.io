@@ -21,7 +21,6 @@ Pad See Ew is a popular street food across Thailand, with rice noodles, soy and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1593430059385-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Heat a large, wide-based pan with a generous drizzle of vegetable oil over a med
 
 Once hot, add the red onion wedges with a generous pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1593430067221-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Slice the red chilli<span class="text-danger">[es] </span>finely
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1593430080915-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1593430090923-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once the red onion wedges have softened, add the sliced garlic and sliced red ch
 
 Once fragrant, add the sliced spring greens and continue to cook for a further 2-3 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1593430102242-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Meanwhile, tear the meat-free chicken into smaller strips
 
 Once the spring greens have softened, add the meat-free chicken to the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1593430117567-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add the drained rice noodles with 1 tbsp <span class="text-danger">[2 tbsp]</spa
 
 Cook for 1 min further or until everything's warmed through and coated in the sauce – this is your meat-free chicken pad see ew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1593430133320-x200.jpg)
 
 ### Step 7
 

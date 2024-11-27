@@ -25,7 +25,6 @@ Give your oven some lovin’, and fill your kitchen with the sweet smell of cara
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676375755046-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely slice your red onion[s]
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium-high heat, then once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676375766911-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once starting to soften, add your diced chicken breast and cook for 10-12 min or
 
 Once cooked, remove from the heat set aside – this is your cooked chicken breast and caramelised onion
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676375778134-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
 Once cooked, drain the farfalle, reserving a cup of the starchy pasta water and reserve the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676375797637-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Grate your cheddar cheese
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676375810622-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Once melted, add 20g <span class="text-purple">[30g]</span><span class="text-dan
 
 Gradually whisk 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml] </span>milk into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676375817683-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Remove the pot from the heat and add your soft cheese, chicken stock mix, grated
 
 Add a large splash of starchy pasta water with a generous pinch of salt and pepper and stir it all together – this is your creamy pasta sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676375825082-x200.jpg)
 
 ### Step 7
 

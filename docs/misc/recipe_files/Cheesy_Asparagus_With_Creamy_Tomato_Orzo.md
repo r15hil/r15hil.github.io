@@ -26,7 +26,6 @@ Cheesy does it. This speedy orzo is packed with juicy cherry tomatoes, garlic an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708527719667-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop your cherry tomatoes in half, then trim the woody ends off your asparagus
 
 Tip: Alternatively, bend the woody ends of the asparagus until they snap!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708527724281-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Dissolve your vegetable stock mix in 500ml <span class="text-purple">[650ml] <sp
 
 Grate your cheddar cheese finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708527727862-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once golden, transfer the pine nuts to a bowl and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708527731763-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Return the reserved pan to a medium heat with a drizzle of olive oil
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708527735926-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once slightly softened, add the halved tomatoes and chopped garlic and cook for 
 
 Once softened, add your orzo and cook for 1 min, stirring to coat the grains
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708527740553-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708527745293-x200.jpg)
 
 ### Step 7
 

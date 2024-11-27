@@ -29,7 +29,6 @@ Layer up your tacos with a lasagne-filled twist. You’ll load tortillas with a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694531481038-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Top, tail, peel and finely dice your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694531486989-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add your pork & beef mince with a pinch of salt and cook for 3-4 min o
 
 Once browned, add the chopped onion and diced carrot and cook for a further 4 min or until the veg has softened and the mince is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694531491224-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Whilst the veg is softening, grate your cheddar cheese
 
 Dissolve your beef stock mix and tomato paste in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694531495516-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once fragrant, add the tomato stock and Henderson's Relish with a grind of black
 
 Once boiling, reduce the heat to medium-high and cook for 5-6 min or until thickened – this is your bolognese filling
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694531499982-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Gradually whisk 125ml<span class="text-purple"> [190ml]<span class="text-danger"
 
 Once thickened, add half the grated cheese (you'll use the rest later!) and cook for a further 30 secs or until melted – this is your cheese sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694531504022-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Place the folded tortillas into the oven-proof dish, top with the cheese sauce a
 
 Put the dish in the oven for 18-20 min or until golden – these are your pork & beef lasagne tacos
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694531507986-x200.jpg)
 
 ### Step 7
 

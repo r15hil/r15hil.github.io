@@ -25,7 +25,6 @@ This creamy green risotto is brimming springtime flavours. You'll pair it with m
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1582891381216-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Peel and finely chop (or grate) the garlic
 
 Wash the leek<span class="text-danger">[s]</span> carefully to remove any grit from between the leaves, then top, tail and slice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582891386457-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced leek and chopped garlic and cook for 3-4 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1582891390008-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once the leek is beginning to soften, add the arborio rice and cook for 1 min, s
 
 Add the Chinese rice wine, then slowly add the vegetable stock a ladle at a time, stirring continuously for an initial 15 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582891393746-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the blanched peas to a colander and pour boiled water all over them
 
 Add most of the peas (save some for garnish!) to a food processor with the torn dill, soft cheese and a pinch of salt and pepper and blitz into a purée – this is your pea purée
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582891397152-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Top the halved feta with the pumpkin seeds (don't worry if some of them spill ov
 
 Put the tray in the oven for 10-15 min or until golden – this is your seedy baked feta
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1582891401279-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the rice has been cooking for approx. 15 min, add the grated Italian hard c
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582891404700-x200.jpg)
 
 ### Step 7
 

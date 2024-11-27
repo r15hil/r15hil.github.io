@@ -25,7 +25,6 @@ For this smoky lean pork burger, you'll sizzle juicy lean pork with smoked papri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676987864856-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the potato wedges to a baking tray, drizzle them with vegetable oil, then s
 
 Give everything a good mix up and put the tray in the oven for 25 min until crisp – these are your paprika wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676987878683-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Combine your lean pork mince with the remaining smoked paprika and chopped sprin
 
 Divide and shape into 1 patty per person and refrigerate until step 6 (this helps them hold their shape whilst cooking) – these are your paprika lean pork patties
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676987896838-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once the pan is hot, add the brioche halves, cut-side down, and cook for 3 min 
 
 Once toasted, set aside until serving and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676987907162-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add the red onion rings and cook for 4-5 min or until the onions have
 
 Once caramelised, set aside until serving and reserve the pan – these are your caramelised onion rings
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676987918379-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, combine your red wine vinegar, mayo, remaining sliced spring onion, 
 
 Thinly slice your apple[s] (skin on), then add to the salad dressing and give everything a good mix up – this is your dressed apple
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676987936830-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Return the reserved pan to a high heat
 
 Once hot, add the paprika lean pork patties and cook, covered, for 6-7 min on each side or until cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676987944860-x200.jpg)
 
 ### Step 7
 

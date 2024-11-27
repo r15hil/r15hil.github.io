@@ -25,7 +25,6 @@ For this decadent delight, you'll punch up the flavours of your creamy filling w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585558568193-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585558575376-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the pastry to a non-stick baking paper-lined tray (or two!) and carefully sc
 
 Season with a grind of pepper and put the tray[s] in the oven for 15 min or until the pastry is golden, cooked through and puffed up – this is your pie lid[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585558579510-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ After the chorizo has been cooking for 4-5 min, add the chopped chicken to the p
 
 Boil a full kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585558582243-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585558587142-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Season with salt and pepper and cook for 6-7 min further or until the chicken is
 
 Stir through your Chinese rice wine and cook for 1 min further – this is your chicken & chorizo pie filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1585558588513-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Once tender, add your blanched peas and cook for 1 min further or until warmed t
 
 Drain the veg and set aside for serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1585558593935-x200.jpg)
 
 ### Step 7
 

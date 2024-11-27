@@ -24,7 +24,6 @@ Inspired by the bold, punchy flavours of the classic dish 'Chicken Marbella', th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1606132517790-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Chop the dates roughly
 
 Cover the chopped dates with boiled water and set aside to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606132528455-x200.jpg)
 
 ### Step 2
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606132536622-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Add the chicken thighs to an oven-proof dish
 
 Add the red wine vinegar, dried oregano, capers, black olives, chopped garlic, bay leaves and 3 tbsp <span class="text-danger">[6 tbsp] </span>olive oil to the dish with the chicken thighs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1606132558674-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Give everything a good mix up
 
 Put the dish in the oven for 20-25 min or until the chicken is cooked through (no pink meat!) – this is your olive, caper & date chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1606132586805-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Meanwhile, reboil a full kettle
 
 Chop the parsley finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606132599888-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine and return to the pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606132607679-x200.jpg)
 
 ### Step 7
 

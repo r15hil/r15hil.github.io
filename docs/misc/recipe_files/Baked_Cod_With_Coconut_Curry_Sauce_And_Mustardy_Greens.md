@@ -31,7 +31,6 @@ This glorious fish curry is bound to float your boat. You'll top tender, flaky c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1623081338384-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1623081342540-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Peel and finely chop your shallot[s]
 
 Wash your spring greens then pat it dry with kitchen paper, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1623081346982-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Scrunch the edges of the foil around the greens to form 1 sealed parcel per pers
 
 Put the tray[s] in the oven for 12-14 min or until the greens are tender – these are your mustardy greens
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1623081352006-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Put the tray[s] in the oven for 6-7 min or until cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1623081356082-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ While the fish is cooking, heat a large, wide-based pan (preferably non-stick) w
 
 Once hot add the chopped shallot and cook for 1-2 min or until slightly softened, then add the chopped garlic and chopped ginger and cook for a further 1-2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1623081360269-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Dissolve your vegetable stock mix, chopped creamed coconut and 1 tsp <span class
 
 Add your ground turmeric, curry powder, half of your chilli flakes (can't handle the heat? Go easy!) and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour to the pan and cook for 30 secs or until everything is covered in the spices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1623081364918-x200.jpg)
 
 ### Step 7
 

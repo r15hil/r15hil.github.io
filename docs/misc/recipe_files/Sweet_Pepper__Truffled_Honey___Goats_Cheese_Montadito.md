@@ -27,7 +27,6 @@ Tuck into tapas with a taste of Spain’s classic open-faced sarnie - the montad
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702394334422-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Zest half your<span class="text-danger"> </span>lemon[s] (try to grate lightly w
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into chunks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702394338785-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Combine half your dried thyme (you'll use the rest later!) and your ground smoke
 
 Transfer the marinated potatoes to a baking paper-lined baking tray (or two!) and put the tray[s] in the oven for 25 min or until golden and crisp – these are your smoky, lemon & thyme potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702394342278-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the chopped pepper to the other side of the tray[s] with a drizzle of olive 
 
 Put the tray[s] in the oven for 10 min or until the ciabatta is golden and crisp and the peppers are tender – these are your crisp breads and roasted sweet pointed peppers
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702394345639-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Wash your baby leaf salad and pat it dry with kitchen paper
 
 Add the baby leaf salad and chopped tomato to the bowl and toss – this is your dressed salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702394349223-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Crumble your goats' cheese into small pieces
 
 Peel and chop your garlic in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702394353034-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Top with the roasted sweet pointed peppers, then the crumbled goats' cheese
 
 Drizzle over the remaining honey, your truffle oil (not a fan of truffle oil? Just add a little!) and the remaining dried thyme – these are your toasts
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702394356132-x200.jpg)
 
 ### Step 7
 

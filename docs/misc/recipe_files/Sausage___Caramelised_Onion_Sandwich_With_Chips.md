@@ -22,7 +22,6 @@ Give family favourite sausage and chips the sandwich treatment. You’ll build y
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680262501606-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680262504327-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ While the chips are cooking, peel and finely slice 3/4 of your red onion[s]
 
 Dice the remaining onion finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680262507295-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion, 100ml<span class="text-purple"> [130ml]</span> <span class="text-danger">[175ml] </span>cold water and a pinch of salt and cook, covered, for 8-10 min or until the onion has completely softened, stirring frequently
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680262514203-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Shape into 1 equal-sized patty per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680262517662-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once hot, add the sausage patty[ies] and cook for 5 min on each side, turning on
 
 Tip: Press the patty down with a spatula to keep it nice and flat throughout cooking
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680262520825-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Cook for 4-5 min further or until caramelised
 
 Tip: Watch the onion like a hawk and stir frequently to make sure it doesn't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680262523822-x200.jpg)
 
 ### Step 7
 

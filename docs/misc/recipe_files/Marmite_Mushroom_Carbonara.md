@@ -24,7 +24,6 @@ To make super-savoury mushroom ‘bacon,’ you'll roast mushrooms in a Marmite 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1601540066210-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Slice the chestnut mushrooms and chop any larger oyster mushrooms in half
 
 Add the mushrooms to a large bowl with half of the Marmite, a drizzle of olive oil and a grind of black pepper and gently toss it all together until the mushrooms are coated – these are your Marmite mushrooms
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601540085250-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ While the mushrooms are cooking, peel and finely slice the shallots
 
 Peel and slice (don't chop!) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601540113273-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced shallot with a pinch of salt and cook for 4-5 min until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601540130566-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once done, drain the linguine, reserving a cup of the starchy pasta water and dr
 
 Tip: The olive oil stops the pasta from sticking together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601540160186-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once the shallots have started to brown, add the sliced garlic and cook for 2 mi
 
 Once fragrant, add the Marmite stock and half the crème fraîche to the pan and cook for 2-3 min further until a smooth sauce remains – this is your creamy Marmite sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601540186774-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Grate the cheddar cheese
 
 Chop the parsley and chives finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601540225714-x200.jpg)
 
 ### Step 7
 

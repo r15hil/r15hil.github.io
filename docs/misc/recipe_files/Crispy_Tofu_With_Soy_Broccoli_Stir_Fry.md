@@ -22,7 +22,6 @@ For this speedy stir-fry, you'll whip up a quick, umami-packed broccoli and nood
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644331457208-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Drain the tofu and pat it dry with kitchen paper, then cut into strips
 
 Add the tofu strips to a bowl with half the soy sauce (you'll use the rest later!) and give it a good mix up – this is your marinated tofu
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644331453738-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a gen
 
 Once hot, add the coated tofu and cook for 5-6 min, turning occasionally until golden and crisp, then transfer to a plate lined with kitchen paper and reserve the pan – this is your crispy tofu
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644331461626-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Cut the broccoli into small florets and cut the stem<span class="text-danger">[s
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644331472295-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once hot, add the broccoli florets and stems with a pinch of salt and cook for 3
 
 Once slightly charred, add the chopped garlic and cook for 1-2 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644331490326-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Drain the soaked noodles (reserve a little noodle water)
 
 Reboil half a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644331503290-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the remaining cornflour with 200ml <span class="text-danger">[300ml] </span>
 
 Cook, covered, for 5-6 min or until the broccoli is tender with a slight bite and the sauce has slightly thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644331520543-x200.jpg)
 
 ### Step 7
 

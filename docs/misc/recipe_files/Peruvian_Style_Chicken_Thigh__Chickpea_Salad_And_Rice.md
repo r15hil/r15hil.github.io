@@ -29,7 +29,6 @@ Head to Peru for perfectly spiced chicken served on a vibrant aji sauce. The sig
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654016387029-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop (or grate) your garlic
 
 Add the chicken thighs to a bowl with your ground smoked paprika, ground cumin and half the chopped garlic (you'll use the rest later!), then add a drizzle of olive oil and a pinch of salt and pepper and mix to combine – this is your Peruvian-style chicken
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654016396206-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the Peruvian-style chicken to one side of a tin foil-lined baking tray (or t
 
 Add a drizzle of olive oil, season with a pinch of salt and pepper and put the tray[s] in the oven for an initial 12 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654016400094-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, transfer the cooked rice to a plate and reserve the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654016403745-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Strip your mint leaves from their stems (discard the stems!) and chop the leaves
 
 Chop your coriander finely, including the stalks (reserve a few leaves for garnish)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654016407507-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the chopped tomato to the quick-pickled shallot with the drained chickpeas, 
 
 Season with a generous pinch of salt and pepper – this is your chickpea salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654016413121-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the roasted pepper and remaining chopped chilli (not a fan of spice? Just ad
 
 Add your mayo and a pinch of salt and pepper and continue to blitz until fully combined – this is your aji amarillo-style sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654016417097-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Allium is an umbrella term for the onion family, including garlic, chives and le
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/552.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut the cauliflower into small, bite-size florets and add to 1 <span class="text
 
 Season generously with salt and pepper and roast for 30-40 min or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/552.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a pan (preferably non-stick) with a matching lid with 2 tbsp <span class="t
 
 Once hot, add the onion and shallot with a large pinch of salt and cook for 4 min or until slightly softened&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/552.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the balsamic vinegar, 1 tbsp <span class="text-danger">[2 tbsp]</span> sugar
 
 Reduce the heat to its lowest setting and cook the onions, covered, for a further 20-25min or until they&rsquo;re sweet and sticky
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/552.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Put it in the oven for 7-9 min or until they've darkened slightly in colour and 
 
 Set the toasted hazelnuts aside to cool
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/552.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Chop the cooled hazelnuts finely
 
 Combine everything in a bowl for serving - this is your gremolata
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/552.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Dress them with a dash of olive oil, a squeeze of lemon juice and season generou
 
 <span class="text-highlight">Tip:</span> Cut the remaining lemon into wedges for serving!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/552.-step-7-x200.jpg)
 
 ### Step 7
 

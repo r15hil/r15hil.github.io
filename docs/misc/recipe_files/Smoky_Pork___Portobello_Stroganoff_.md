@@ -24,7 +24,6 @@ This classic dish is said to have been invented in 1891 when a French chef enter
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1338.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1338.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the diced pork and cook for 1-2 min or until golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1338.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel and finely slice the brown&nbsp;onion<span class="text-danger">[s]</span>
 
 Slice the portobello mushrooms
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1338.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the sliced onion and mushroom and cook for 6-7 min or until starting to cara
 
 Add the balsamic vinegar&nbsp;and cook for 1 min further
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1338.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Meanwhile,&nbsp;dissolve the beef stock cube<span class="text-danger">[s]</span>
 
 Add the smoked paprika&nbsp;and beef stock to the pan and cook for 3-4 min or until thickened&nbsp;&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1338.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop the parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1338.-step-7-x200.jpg)
 
 ### Step 7
 

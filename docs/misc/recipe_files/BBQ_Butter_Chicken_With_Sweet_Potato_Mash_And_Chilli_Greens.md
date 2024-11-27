@@ -24,7 +24,6 @@ Gather your kitchen helpers, this buttery BBQ chicken is perfect for Dad. You’
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1715603363321-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Take 30g<span class="text-purple"> [45g]</span><span class="text-danger"> [60g]<
 
 Cover your chicken breast portion[s] with cling film and bash with a rolling pin until evenly flattened – this is your chicken escalope
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1715603366728-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Slice half your green chilli[es] into rounds and set aside for garnish, then cho
 
 Trim your green beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715603370574-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Combine your panko breadcrumbs with your ground smoked paprika and a pinch of sa
 
 Combine 20g <span class="text-purple">[30g]</span><span class="text-danger"> [40g] </span>of<span class="text-danger"> </span>the softened butter with your BBQ sauce and season with a pinch of salt – this is your BBQ butter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1715603375438-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Divide the BBQ butter evenly between each piece of chicken, then top with the sm
 
 Put the tray[s] in the oven for 17-18 min or until cooked through and golden (no pink meat!) – this is your BBQ butter chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1715603380227-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Reboil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1715603385441-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add the chopped green chilli, sliced spring onion and white wine vinegar to the 
 
 Season with a pinch of salt and sugar and give everything a good mix up – this is your green chilli dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715603389061-x200.jpg)
 
 ### Step 7
 

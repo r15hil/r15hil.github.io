@@ -26,7 +26,6 @@ Savour the flavours of Sicily with our take on an Italian classic. You’ll simm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1682417163046-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once hot, add your capers and cook for 5-6 min, stirring frequently, or until cr
 
 Once crispy, transfer them to a plate, reserving the pan – these are your crispy capers
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-5-1682417167744-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped aubergine to a baking tray (or two!) with a drizzle of olive oil
 
 Put the tray[s] in the oven for 20 min or until the aubergine is golden and soft
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-5-1682417171498-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ While the aubergines are cooking, peel and finely chop (or grate) your garlic
 
 Chop your black olives roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-4-1682417174812-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once hot, add the chopped garlic and tomato paste to the pan with your balsamic 
 
 Give everything a good mix up and cook for 3-4 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1682417179607-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1682417183636-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Rinse the wilted spinach under the cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can then chop it roughly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-6-1682417188672-x200.jpg)
 
 ### Step 7
 

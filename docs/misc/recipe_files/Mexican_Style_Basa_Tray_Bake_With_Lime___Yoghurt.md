@@ -26,7 +26,6 @@ For this easy tray bake, you'll marinate basa fillets in smoky spices and roast 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1645535183438-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Chop your sweet potato[es] (skins on) into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1645535187648-x200.jpg)
 
 ### Step 2
 
@@ -50,19 +48,16 @@ Drizzle with vegetable oil and a generous pinch of salt and give everything a go
 
 Put the tray[s] in the oven for an initial 15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1645535190967-x200.jpg)
 
 ### Step 3
 
 Combine your chipotle paste (can't handle the heat? Go easy!), ground smoked paprika and soy sauce in a bowl with a drizzle of vegetable oil – this is your Mexican-style marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1645535193743-x200.jpg)
 
 ### Step 4
 
 Add your basa fillet[s] to the Mexican-style marinade and give everything a good mix up, then set aside for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1645535198682-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once the vegetables have had 15 min, remove the tray[s] from the oven
 
 Add the marinated basa to the tray[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1645535202255-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Return the tray[s] to the oven for a further 12-15 min or until the basa is cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-01-24_09h10m00s-APIC-1704366906033-x200.jpg)
 
 ### Step 7
 

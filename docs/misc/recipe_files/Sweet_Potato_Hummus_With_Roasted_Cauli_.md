@@ -25,7 +25,6 @@ Discover delicious sweet potato hummus with this tasty plant-based plateful. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1680.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Wrap the chopped sweet potato and garlic in tin foil 
 
 Add everything to a baking tray and put the tray in the oven for 30-35 min or until the sweet potato is cooked through and soft
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1680.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,19 +47,16 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Add the sliced shallots to a small bowl with the red wine vinegar and set aside for later – these are your pickled shallots
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1680.-step-3-x200.jpg)
 
 ### Step 3
 
 Cut the lime<span class="text-danger">[s]</span> in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1680.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine the pomegranate molasses and agave nectar with the juice of 1/2<span class="text-danger"> [1]</span> lime and a pinch of salt – this is your pomegranate dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1680.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the cauliflower florets to a baking tray, drizzle with 1 tbsp <span class="t
 
 Put the tray in the oven and cook for 15-20 min or until tender and golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1680.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once the sweet potatoes are almost done, add the pumpkin seeds to the other si
 
 Return the tray to the oven for 5-6 min or until the seeds are toasted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1680.-step-7-x200.jpg)
 
 ### Step 7
 

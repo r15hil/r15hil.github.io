@@ -27,7 +27,6 @@ In this quick, simple dish, you'll crumble chestnut mushrooms into a sweet, fier
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626176856820-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut a few rounds off your red chilli[s] (set them aside for garnish), then cut t
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626176865841-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a 
 
 Once hot, crumble in your chestnut mushrooms and cook for 5-6 min or until they're starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626176873521-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ While the mushrooms are cooking, add your wholewheat noodles to a pot and cover 
 
 Bring to the boil over a high heat and cook for 5-7 min or until tender with a slight bite, then drain and set aside in a bowl and reserve the pot for later
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626176882996-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Rip the leaves off the spring greens, discard the tough stalks, then layer the l
 
 Trim, then slice your spring onion[s] finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626176890554-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once the mushrooms have softened, add the chopped ginger, chopped chilli (can't 
 
 Season with a pinch of salt and pepper and cook for 4-5 min further or until the mushrooms are coated in a sticky sauce – these are your hoisin mushrooms
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626176902606-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Meanwhile, return the reserved pot to a medium heat with a drizzle of vegetable
 
 Once hot, add the sliced spring greens, chopped garlic and a generous pinch of salt and cook for 1 min or until starting to wilt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626176910597-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Dig into dinner, Cajun style. You’ll spice basa in a DIY seasoning mix of cumi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1673626766695-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain and return to the pot and cover until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1673626774266-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the chopped pepper and peeled garlic to a baking tray (or two!) with a pinch
 
 Once softened, remove from the oven and set aside to cool
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1673626779456-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cut your basa fillet[s] in half lengthways and pat them dry with kitchen paper
 
 Press the chopped basa into the Cajun-style seasoning firmly to evenly coat all over – this is your Cajun-style basa
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1673626785630-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Combine the diced tomato and diced shallot in a bowl with your rice vinegar, cho
 
 Season with a pinch of salt and pepper and set aside – this is your salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1673626790974-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add your mayo and tomato paste with the remaining ground smoked paprika
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and season with a pinch of salt and pepper and blitz until smooth – this is your Cajun-style sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1673626799582-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Chop the remaining roasted pepper finely
 
 Add the chopped roasted pepper to the salsa and mix until fully combined – this is your roasted pepper salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1673626808007-x200.jpg)
 
 ### Step 7
 

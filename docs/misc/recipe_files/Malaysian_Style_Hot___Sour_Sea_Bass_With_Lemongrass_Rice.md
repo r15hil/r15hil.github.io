@@ -26,7 +26,6 @@ Assam Pedas, or literally “sour spicy”, is a classic Malaysian dish that’l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723197553160-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Remove the tough outer layers of your lemongrass and set aside for later
 
 Chop the softer inner core[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723197556057-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add your basmati rice, outer lemongrass layers and 300ml <span class="text-purpl
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your lemongrass rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723197559466-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Score the skin of the sea bass fillet[s] 3 or 4 times on the diagonal (be carefu
 
 Season both sides with a pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723197563067-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Set aside and reserve the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723197566128-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your tomato[es] into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723197569155-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once fragrant, add your sambal oelek (can't handle the heat? Go easy!), tamarind
 
 Cook for 1-2 min or until the sauce has thickened - this is your hot & sour sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723197574899-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This dishy dinner is inspired by the Mediterranean sun. While the salmon and pot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618224860821-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add to a tray with a drizzle of olive oil and season with salt and pepper and g
 
 Put the tray in the oven for 20-25 min or until the potatoes are crisp – these are your roast potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618225095810-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Chop your cherry tomatoes in half
 
 Dissolve your vegetable stock mix in 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> boiled water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618225101448-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Grate your cheddar cheese into a bowl, add your panko breadcrumbs and season w
 
 Add a drizzle of vegetable oil and give everything a good mix up – this is your cheesy breadcrumb mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618225113315-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Put the tray in the oven for 14-15 min, or until the breadcrumb mixture is star
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618225132113-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once hot, add the chopped onion, chopped courgette and tomato paste and cook fo
 
 Add the halved cherry tomatoes and cook for 4-5 min further or until all the veg has fully softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618225142507-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the vegetable stock and cook for 1-2 min further
 
 Season generously with salt and pepper – this is your Mediterranean veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618225147558-x200.jpg)
 
 ### Step 7
 

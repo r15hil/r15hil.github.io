@@ -29,7 +29,6 @@ These perfectly crisp patatas topped with spicy tomato sauce and garlic aioli ar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650992596445-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the potato cubes to a baking tray with a drizzle of vegetable oil and a pinc
 
 Put the tray in the oven for 25-30 min or until the potatoes are golden and crispy – these are your crispy potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650992600911-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the pepper strips and sliced onion to a separate baking tray with a drizzle 
 
 Put the tray in the oven for 20 min or until the veg is soft and tender – this is your roasted veg
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650992606212-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your tomato paste in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water and add your chilli flakes (can't handle the heat? Go easy!) – this is your spicy tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650992614388-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once hot, add the diced tomato with a pinch of salt and sugar and cook for 3-4 m
 
 Add the spicy tomato stock to the pan and cook for 3-4 min further or until thickened – this is your bravas sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650992621305-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Combine your ground coriander, ground smoked paprika, 1 tsp <span class="text-p
 
 Add the halved chicken to the smoky spice mix and mix until they are fully coated – this is your coated chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650992637080-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of v
 
 Once hot, add the coated chicken and cook for 6 min on each side or until the chicken is slightly blackened on the outside and cooked through (no pink meat!) – this is your smoky Spanish-style chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650992643381-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Whisk your taste buds away to Lisbon with our Portuguese-inspired bifana. You'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597162211753-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597162222275-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 8-10 min or unt
 
 Once done, transfer the caramelised onions to a plate and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597162231377-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Combine the chopped garlic, ground paprika, white wine vinegar, bay leaf[ves] an
 
 Season with a generous pinch of salt and pepper and stir it all together – this is your spicy marinade
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597162256225-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Slice the pork loin steaks finely
 
 Add the sliced pork to the spicy marinade and give everything a good mix up until fully combined
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597162262732-x200.jpg)
 
 ### Step 5
 
 Combine your mustard ketchup and mayo in a small bowl  – this is your sweet mustard mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597162296851-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once done, carefully cut them in half
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597162301288-x200.jpg)
 
 ### Step 7
 

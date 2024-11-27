@@ -30,7 +30,6 @@ Fusing American & Asian techniques, our Korean-style fried chicken is bang on tr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688463304613-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon) and dice finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688463307619-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a
 
 Once hot, add the chopped pepper with a pinch of salt and a splash of cold water and cook, covered, for 8-10 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688463310847-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add your cornflour to a large bowl with a generous pinch of salt and give it a
 
 Add the chicken breast strips and toss them to coat them evenly in the cornflour, then set aside – this is your floured chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688463314476-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688463317887-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Tip: Try not to turn the chicken until it’s golden!
 
 Once golden, transfer the browned chicken to a baking tray and put the tray in the oven for 8-12 min or until cooked through (no pink meat!) and reserve the pan  – this is your crispy chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688463321029-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once boiling, remove the sauce from the heat – this is your Korean-style sauce
 
 Tip: If you have a food processor, blitz the sauce until smooth for a more authentic look and feel!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688463324078-x200.jpg)
 
 ### Step 7
 

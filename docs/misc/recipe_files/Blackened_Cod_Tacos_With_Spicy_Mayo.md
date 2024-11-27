@@ -23,7 +23,6 @@ This cod ain't burnt, it's blackened, Creole-style! That simply means you'll rub
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/734.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 180&deg;C/ 160&deg;C (fan)/ 400&deg;F/ Gas 6
 
 Place the tortilla wraps onto a baking tray&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/734.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Chop the&nbsp;coriander&nbsp;finely including the stalks, reserve a few leaves f
 
 Cut the lime<span class="text-danger">[s]</span> in half&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/734.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Sprinkle with a little salt and pepper and then chop the lot together roughly un
 
 Add the salsa to a bowl and squeeze the juice of 1/2 <span class="text-danger">[1]</span>&nbsp;lime&nbsp;over, mix through and set aside&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/734.-step--4-x200.jpg)
 
 ### Step 4
 
 Combine the mayonnaise and chipotle paste&nbsp;(Can't handle the heat? Go easy!) with a drizzle of olive oil and set aside &ndash; this is your spicy mayo&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/734.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Mix the spices together
 
 Press the cod fillets into the spice mix to&nbsp;coat all over&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/734.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once hot, add the spiced&nbsp;cod fillets and cook for 4 min, flipping once&nbsp
 
 Don't be alarmed if the cod looks like it's burning, it will become 'blackened', which gives it the smoky, charred flavour you want
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/734.-step--7-x200.jpg)
 
 ### Step 7
 

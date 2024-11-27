@@ -24,7 +24,6 @@ Capture the comforting flavours of a french onion soup in a mouthwatering chicke
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646999761004-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a k
 
 Once hot, add the sliced onion, 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[125ml]</span> boiled water and a pinch of salt and pepper and cook for 10 min or until the onion is soft, stirring frequently
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646999770985-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cook for 10 min further or until caramelised
 
 Tip: Watch them like a hawk and stir frequently to make sure they don't burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646999767925-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once cooked, drain and return to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646999777633-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once fragrant, transfer to a small bowl and set aside for later
 
 Grate your cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646999781566-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Once golden, reduce the heat to medium and add the beef stock, caramelised onion
 
 Cook, covered, for 12-15 min further or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646999785463-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of o
 
 Once hot add the chopped cavolo nero, spinach and a splash of water to the pan with a pinch of salt and cook for 2-3 min or until wilted – these are your wilted greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646999789547-x200.jpg)
 
 ### Step 7
 

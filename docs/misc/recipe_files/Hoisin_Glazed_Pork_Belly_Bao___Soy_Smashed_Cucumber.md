@@ -28,7 +28,6 @@ Sticky glazed pork belly? You better bao-lieve it. You’ll load fluffy buns wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687338619255-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Pat your pork belly dry with kitchen paper, then score the fatty side in a criss
 
 Season with a generous pinch of salt and rub it deep into the criss-cross pattern
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687338623272-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cut 2 pieces of tin foil approx. the size of A4 paper per pork belly
 
 Lay the browned pork belly (skin-side up), in the middle of the 2 pieces of foil, (doubling it up prevents any leakages!) and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687338627267-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Pour 75ml <span class="text-purple">[110ml]</span> <span class="text-danger">[15
 
 Put the tray in the oven for 40-45 min or until the pork skin is crisp and the meat is cooked through and tender – this is your roasted pork belly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687338631245-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Trim and chop your spring onion[s] in thirds, then cut lengthways into thin stri
 
 Bash your cucumber with a rolling pin and chop it into large, bite-sized pieces – this is your smashed cucumber
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687338635332-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Combine half your soy sauce (you'll use the rest later!) with a pinch of sugar, 
 
 Combine your mayo and sriracha (can't handle the heat? Go easy!) with a drizzle of olive oil and a splash of cold water – this is your sriracha mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687338639609-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the chips to a baking paper-lined tray (or two!) with a drizzle of olive oil
 
 Once the pork belly has had 30 min, add the tray[s] with the chips to the oven and cook for 20-25 min or until golden and crisp
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687338643421-x200.jpg)
 
 ### Step 7
 

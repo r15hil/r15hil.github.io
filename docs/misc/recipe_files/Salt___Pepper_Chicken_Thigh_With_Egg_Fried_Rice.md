@@ -28,7 +28,6 @@ For this takeaway classic, you'll coat diced chicken thigh in cornflour and fry 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581673741404-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then once done, transfer the rice to a plate and spread it out flat to help cool down
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581673621371-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ While the rice is cooking, add your cornflour to a bowl along with 1 tsp <span 
 
 Add your diced chicken thigh to the bowl and give everything a good mix up until all the chicken is coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581673625335-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of
 
 Once the pan is very hot, add the coated chicken pieces and cook for 5-6 min on each side until golden and crispy and the chicken is cooked through (no pink meat!) – this is your crispy chicken thigh
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581673629405-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Peel and finely chop (or grate) your garlic
 
 Finely slice your red chilli[es] into rounds
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581673633430-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Once the chicken is crispy, add the spring onion batons, chilli rounds (can't ha
 
 Once done, transfer everything to a plate (save the pan!) and set aside until serving – this is your salt & pepper chicken thigh
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581673637829-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the cooled rice, your blanched peas, toasted sesame oil and soy sauce and cook for 2-3 min until everything is combined
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581673642349-x200.jpg)
 
 ### Step 7
 

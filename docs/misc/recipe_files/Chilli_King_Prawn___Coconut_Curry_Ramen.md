@@ -24,7 +24,6 @@ Move over miso, this ramen is coconuts. For this summery twist on the classic Ja
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1660648362807-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
 Chop the creamed coconut roughly (if required!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1660648368096-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large pot with a drizzle of vegetable oil over a medium-high heat
 
 Once hot, add the sliced mushroom and diced carrot and cook for 7 min or until the mushrooms are tender and lightly golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1660648374892-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once the mushrooms are tender, reduce the heat to medium and add the chopped cre
 
 Cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1660648379067-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once fragrant, add the soy sauce and 650ml <span class="text-danger">[1.2L]</spa
 
 Once boiling, reduce the heat to low and cook for a further 8 min or until the carrot is tender – this is your curry ramen broth
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1660648383491-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once hot, add the coconut flakes and cook for 2-3 min or until toasted and light
 Tip: Watch them like a hawk so they don’t burn!
 Once toasted, transfer them to a plate and reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1660648387825-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, drain then add the king prawns and the remaining chilli flakes (not a fan of spice? Just add a little!) and cook for 4-5 min or until cooked through – these are your chilli king prawns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1660648391872-x200.jpg)
 
 ### Step 7
 

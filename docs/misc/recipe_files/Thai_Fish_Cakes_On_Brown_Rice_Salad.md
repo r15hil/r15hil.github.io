@@ -26,7 +26,6 @@ These tasty, smoky fish cakes are packed with South-East Asian flavours. You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1609.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and run under cold water until cool
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1609.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Peel (scrape the skin off with a teaspoon) and&nbsp;roughly&nbsp;chop (or grate)
 
 Chop the smoked basa fillets into rough pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1609.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add the chopped basa, ginger, garlic, spring onion and panko breadcrumbs to a fo
 
 Blitz until smooth <span class="text-highlight">(Don</span>'t worry&nbsp;if it's a bit chunky)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1609.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Shape&nbsp;each portion into&nbsp;a fish cake by squeezing together, rolling int
 
 Turn the fish cakes in the black sesame seeds and press gently until the seeds stick
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1609.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Another tip: Keep the heat low or they'll burn, but not cook through!
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1609.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -110,7 +104,6 @@ Slice the lime<span class="text-danger">[s]</span> into wedges&nbsp;
 
 Combine the soy sauce, honey and the juice of half the lime<span class="text-danger">[s] </span><span class="text-highlight">&ndash;</span>&nbsp;this is your Thai dressing&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1609.-step-7-x200.jpg)
 
 ### Step 7
 

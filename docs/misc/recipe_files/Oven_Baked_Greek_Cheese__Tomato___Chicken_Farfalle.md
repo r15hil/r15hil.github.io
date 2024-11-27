@@ -27,7 +27,6 @@ Creamy, one pot and effortlessly delicious – what more could you want? You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1716391329781-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716391333753-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your chicken breast strips to the dish and cook for 2-3 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716391339059-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add your cherry tomatoes to the dish with your balsamic sundried tomato paste, t
 
 Stir it all together and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716391343083-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once fragrant, add your farfalle to the pot with your chicken stock mix and 500m
 
 Tip: Nestle the farfalle into the stock as much as you can for even cooking!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716391355137-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Top the farfalle with your Greek cheese and bring to the boil over a high heat
 
 Cover with the lid and put the dish in the oven for an initial 15 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716391359546-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716391363563-x200.jpg)
 
 ### Step 7
 

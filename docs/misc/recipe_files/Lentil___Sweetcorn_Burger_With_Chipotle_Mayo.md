@@ -25,7 +25,6 @@ Fancy a burger? Spice up these plant-based patties with warming ras el hanout, p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585745314667-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a generous
 
 Give them a good mix up and put them in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585745320313-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Drain and rinse the canned lentils
 
 Drain the canned sweetcorn
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585745324998-x200.jpg)
 
 ### Step 3
 
@@ -61,13 +58,11 @@ Add the ras el hanout, vegetable stock, panko breadcrumbs and a generous pinch 
 
 Mix well until the breadcrumbs are fully combined
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585745329351-x200.jpg)
 
 ### Step 4
 
 Divide the lentil & sweetcorn mixture into 2 <span class="text-danger">[4]</span> and shape into patties
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585745334330-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Once hot, add the patties and remaining sweetcorn and cook the patties 4-5 
 
 Tip: You may need a second pan for the sweetcorn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1585745342549-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the chipotle paste (can't handle the heat? Go easy!) and free from mayonnaise – this is your chipotle mayonnaise
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1585745349420-x200.jpg)
 
 ### Step 7
 

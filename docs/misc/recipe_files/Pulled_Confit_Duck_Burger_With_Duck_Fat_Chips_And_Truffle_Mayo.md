@@ -25,7 +25,6 @@ Indulge in classic Parisian flavours with this decadent duck burger. You’ll fi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657623942761-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Separate the white fat and the duck jelly from your duck leg[s] and set both asi
 
 Add the duck leg[s] to one side of a tin foil-lined tray (or two!) with a drizzle of vegetable oil and season with a pinch of salt and pepper
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657624245293-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the chips to the other side of the baking tray[s] with the reserved white fa
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for 28 min or until the duck is golden and crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657624248922-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the sliced onion with a pinch of salt and 1/2 tsp <span class="tex
 
 Reduce the heat to medium-low and cook for 6-7 min or until golden and softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657624252538-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Chop your tomato[es] into wedges
 
 Reserve a handful of salad for your burgers, then combine the remaining salad and the tomato wedges in a bowl – this is your salad
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657624260035-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Transfer the caramelised onion to a plate then set aside until serving, reserve 
 
 Combine your mayo and truffle olive oil in a bowl – this is your truffle mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657624265248-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Slice your brioche bun[s] in half and add to the baking tray[s] where the duck w
 
 Toss the salad with a drizzle of olive oil and the remaining white wine vinegar – this is your tomato salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657624269664-x200.jpg)
 
 ### Step 7
 

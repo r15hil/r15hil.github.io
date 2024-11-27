@@ -26,7 +26,6 @@ Say buh-bye to the bun with this lower fat cheezeburger. You'll melt vegan chees
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1640099741175-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut the potatoes (skins on) into wedges, then add them to a large baking tray w
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until the wedges are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640099743544-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the sliced cucumber to the bowl and give everything a good mix up, then s
 
 Tip: Give the cucumber an occasional shake while pickling
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1640099753164-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Knead thoroughly until fully combined (kneading the patties for longer will make
 
 Shape into 2 <span class="text-danger">[4]</span> burger patties
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1640099756042-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once hot, add the burger patties to the pan and cook for 3-4 min on each side o
 
 Tip: Push the patties down with a spatula for even cooking
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1640099764823-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, grate the cheddar flavour block
 
 Combine the mayo, ketchup and mustard ketchup in a small bowl – this is your burger sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1640099796528-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the shredded lettuce and sliced shallot to the bowl of quick-pickled cucumbe
 
 Drain the excess liquid then add a drizzle of olive oil and give it another mix – this is your salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1640099798608-x200.jpg)
 
 ### Step 7
 

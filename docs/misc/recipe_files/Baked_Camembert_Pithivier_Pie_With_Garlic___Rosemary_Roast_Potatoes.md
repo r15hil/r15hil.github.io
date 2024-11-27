@@ -22,7 +22,6 @@ Christmassy baked camembert, but not as you know it. You’ll pair yours with sw
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666963695904-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Peel the potatoes and chop them into quarters, then add them to a pot with plent
 
 Once boiling, reduce the heat to medium and cook for 8-10 min or until almost tender and once done, drain them in a colander and shake them until they're fluffy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666963707733-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Chop the walnuts roughly
 
 Trim the green beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666963717905-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Once hot, add the rosemary and thyme and 3/4 of the chopped garlic (save the res
 
 Add the cooked potatoes to a baking tray, pour over the garlic & rosemary oil (reserve the pan) and put the tray in the oven for 25-30 min or until golden and crisp – these are your rosemary & garlic roast potatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666963725852-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Spread the remaining garlic over the scored camembert
 
 Top with the cranberry sauce and half the chopped walnuts (you'll use the rest later!) – this is your loaded camembert
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666963731809-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Line a baking tray with non-stick baking paper
 
 Add 1<span class="text-danger"> [2]</span> pastry square<span class="text-danger">[s]</span> to the baking tray, prick all over with a fork (this will stop it getting a soggy bottom!) and top with the loaded camembert
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666963745919-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Score the pastry with a knife in a spiral shape, working from the centre outward
 
 Add the green beans with a sprinkle of water to the other side of the tray (or a separate one!) and cover with tin foil, then put the tray<span class="text-danger">[s]</span> in the oven for 15-17 min or until the pastry is puffed up, golden and cooked through – this is your baked camembert pithivier & roasted green beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666963755524-x200.jpg)
 
 ### Step 7
 

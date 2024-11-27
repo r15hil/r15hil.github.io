@@ -27,7 +27,6 @@ Looking for big flavour? Marinate, roast and stuff these sizzling beef and parsl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2533Step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop half your parsley finely, including the stalks (you'll use the rest later
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2533Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add your beef mince, panko breadcrumbs, diced onion, chopped garlic, chopped p
 
 Give everything a good mix up until fully combined (clean hands is the best way!) – this is your beef mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2533Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Lightly oil a baking tray (or two!) with vegetable oil and add the Cypriot-styl
 
 Put the tray[s] in the oven for 12-15 min or until the kebabs are cooked through and browned (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2533Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Dice your tomato[es]
 
 Roughly tear the remaining parsley
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2533Step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Sprinkle over the remaining chilli flakes (not a fan of spice? Just add a littl
 
 Put the tray[s] in the oven for 2-3 min or until warmed through – this are your chilli pitta[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2533Step-6-x200.jpg)
 
 ### Step 6
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2533Step-7-x200.jpg)
 
 ### Step 7
 

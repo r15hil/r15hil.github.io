@@ -30,7 +30,6 @@ Fill your kitchen with the aromas of Thailand. For this fiery stir-fry, you'll c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614619905626-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Bash your lemongrass stalk[s] with a rolling pin, remove the tough outer layers 
 
 Chop your coriander roughly, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1614619921454-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the chopped shallot, garlic, ginger, chopped lemongrass and coriander to a f
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>vegetable oil, 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> cold water and 1 1/2 tsp <span class="text-purple">[2 1/4 tsp]</span> <span class="text-danger">[3 tsp]</span> sugar and blitz to a paste – this is your fiery curry paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614619937983-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once boiling, reduce the heat to low and stir vigorously for 1 min, then cover a
 
 Once done, remove the pot from the heat and discard the outer lemongrass layers – this is your lemongrass rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1614619949826-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once very hot, add the tofu pieces with a generous pinch of salt and cook for 6-7 min, turning once halfway until golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614619964029-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Peel and chop your red onion[s] into wedges
 
 Separate the onion wedges into petals
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1614619976100-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the halved green beans and onion petals and cook for 3-4 min or until starti
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1614620016102-x200.jpg)
 
 ### Step 7
 

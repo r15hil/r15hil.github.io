@@ -27,7 +27,6 @@ Nothing warms the soul like this bistro classic that traces its roots back to an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1670928147927-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670928186167-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Boil a full kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670928193787-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Once the dish is hot, add your chicken thighs with a generous pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670928198489-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add 350ml<span class="text-purple"> [455ml]</span> <span class="text-danger">[65
 
 Crumble in your chestnut mushrooms and bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670928205250-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once boiling, add your bay leaf[ves]<span class="text-danger"> </span>and dried<
 
 Cover with a lid and put the dish in the oven for 40 min or until the chicken is cooked through (no pink meat!) – this is your coq au vin
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670928212816-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add a drizzle of olive oil and put the tray in the oven for 40 min or until cook
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670928224605-x200.jpg)
 
 ### Step 7
 

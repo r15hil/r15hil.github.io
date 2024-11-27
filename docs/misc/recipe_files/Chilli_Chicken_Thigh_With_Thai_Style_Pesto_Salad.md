@@ -31,7 +31,6 @@ This Thai-style pesto is full of vibrant flavours, and boosted with heart-health
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1676386127636-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Drain and rinse your chickpeas, then add them to a baking tray with 1 tbsp <span
 
 Put the tray in the oven for 15-20 min or until golden and crispy – these are your roasted chickpeas
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1676386148498-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1676386153912-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Strip your mint leaves from their stems, then chop them finely and discard the s
 
 Chop your coriander finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1676386158399-x200.jpg)
 
 ### Step 4
 
@@ -75,13 +71,11 @@ Add your toasted sesame oil, rice vinegar and 1 tbsp <span class="text-purple">[
 
 Tip: Alternatively, use a food processor!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1676386168171-x200.jpg)
 
 ### Step 5
 
 Combine your chilli flakes (can't handle the heat? Go easy!) with the juice of half your lime[s] and your soy sauce in a bowl – this is your chilli & lime marinade
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1676386196889-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once hot, add your diced chicken thigh and cook for an initial 4-5 min on each s
 
 Add the chilli & lime marinade and cook for a further 2-3 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your chilli chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1676386204051-x200.jpg)
 
 ### Step 7
 

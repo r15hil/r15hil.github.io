@@ -23,7 +23,6 @@ Paneer is a mild Indian cheese, similar in texture to halloumi, but without the 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/590.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -32,13 +31,11 @@ Soak the skewers in water&nbsp;
 
 Cut the paneer up into cubes (you will need 12 pieces per person)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/590.-step--2-x200.jpg)
 
 ### Step 2
 
 Deseed the peppers (scrape the seeds and pith out with a teaspoon) and cut into small bite-size pieces (approx. 12 per person)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/590.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Once toasted, add 150ml <span class="text-danger">[300ml]</span> water &amp; bri
 
 Once boiling, reduce the heat to very low, cook covered for 10-15 min or until the water has absorbed &amp; the rice is cooked
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/590.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Season the kebabs with generously all over with salt&nbsp;
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/590.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Tip:&nbsp;cover the skewers with a heavy pan whilst they cook, this applies pres
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/590.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Meanwhile, peel the ginger (scrape the skin off with a teaspoon) and finely chop
 
 Wash and dry the salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/590.-step--7-x200.jpg)
 
 ### Step 7
 

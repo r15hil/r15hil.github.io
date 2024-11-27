@@ -27,7 +27,6 @@ Swap out rice for pasta in this twisted take on the nation’s favourite butter 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1689937083757-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689937086816-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your diced chicken breast with a pinch of salt and pepper and cook for 3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689937090923-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and slice your shallot[s] finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1689937098856-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the chicken is starting to brown, add the sliced shallot, tomato paste, gin
 
 Cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689937103673-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add your chicken stock mix and tortiglioni to the dish with a small pinch of sal
 
 Nestle the tortiglioni into the water as much as you can, then stir everything together and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1689937108081-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Cover with a lid and put the dish in the oven for 25-30 min or until the pasta i
 
 Tip: Give everything a stir halfway through for evenly cooked pasta!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1689937113549-x200.jpg)
 
 ### Step 7
 

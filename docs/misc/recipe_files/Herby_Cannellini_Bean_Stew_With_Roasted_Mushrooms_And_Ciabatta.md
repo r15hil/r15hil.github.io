@@ -24,7 +24,6 @@ Get comfy and cosy with a warming, herby stew. You'll pack your stew with creamy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648553931587-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the sliced mushrooms to a tin foil-lined baking tray with the thyme leaves, 
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until the mushrooms are crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648553933765-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Top, tail, peel and finely dice the carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648553935849-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the sliced leek and diced carrot and cook for 5-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648553939682-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Strip the rosemary leaves from their stems and chop them roughly, discard the st
 
 Tip: Hold the top of the rosemary sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648553941874-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the creamy stock to the pan with a generous grind of black pepper and bring 
 
 Once boiling, reduce the heat to medium and cook for 5-6 min or until the vegetables are tender and the stock has thickened to a stew-like consistency – this is your herby cannellini bean stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648553945357-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and mix well – 
 
 Tip: No pestle and mortar? Chop everything up as finely as you can and mix it together!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648553948428-x200.jpg)
 
 ### Step 7
 

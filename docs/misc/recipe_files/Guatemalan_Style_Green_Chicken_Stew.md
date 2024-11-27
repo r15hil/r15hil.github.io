@@ -26,7 +26,6 @@ For this Guatemalan-inspired stew (Jocón de Pollo), we've added shredded chicke
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1613561625472-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, then return it to the pot and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1613561633824-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the pumpkin seeds and sesame seeds and cook for 2-3 min or until t
 
 Tip: Watch them like a hawk so they don't burn!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1613561662637-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cut the green chilli<span class="text-danger">[es]</span> in half lengthways, de
 
 Trim 1 <span class="text-danger">[2]</span> spring onion<span class="text-danger">[s]</span> and cut the pepper<span class="text-danger">[s]</span> in half (scrape the seeds and pith out with a teaspoon)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1613561688869-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add 50ml <span class="text-danger">[100ml] </span>water and season with a genero
 
 Tip: The seeds and tortilla act as a natural sauce thickener!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1613561828282-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once golden add the paste with the chilli flakes (not a fan of spice? Go easy!) 
 
 Tip: If your paste is looking a little thick add a splash of water to loosen!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1613562850801-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once done, transfer the chicken to a clean board and shred it apart, using two f
 
 Return the pulled chicken to the pan and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1613562871552-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ You won't believe the zingy twist in this minestrone... it's tomato chutney! You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1915.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Top, tail, peel and dice your carrot[s]
 
 Heat a very large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat, once hot, add the chopped onion and diced carrot with a pinch of salt and cook for 7-8 min or until softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1915.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) your garlic
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1915.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Dissolve your vegetable stock mix and green tomato chutney in 800ml<span class="
 
 Drain and rinse your cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1915.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Once the onion and carrot have softened, add 3/4 of the chopped garlic (you'll 
 
 Bring to the boil over a high heat and cook for 8-10 min or until the giant couscous is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1915.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the ciabatta slices to a baking tray (or two!) with a drizzle of olive oil a
 
 Put the tray[s] in the oven for 5 min or until golden and crisp – this is your crispy bread
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1915.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the chopped basil and remaining chopped garlic (not a fan of garlic? Go easy
 
 Grind to a rough paste and add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil – this is your basil oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1915.-step-7-x200.jpg)
 
 ### Step 7
 

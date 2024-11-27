@@ -28,7 +28,6 @@ Comforting chicken noodle soup, all fired up! You'll pop pre-diced chicken thigh
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1623675431122-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1623675454099-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Slice your chestnut mushrooms
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623675470842-x200.jpg)
 
 ### Step 3
 
 Add your diced chicken thigh to the dish and cook for 1 min or until lightly browned all over
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623675479293-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, crush your garlic open by squashing it with the side of a knife and d
 
 Drain your sweetcorn
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623675488263-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add your chicken stock mix with 600ml <span class="text-purple">[900ml]</span><s
 
 Stir everything together and bring to the boil over a high heat
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623675513438-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Trim, then slice your spring onion[s] and set aside for serving
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623675521873-x200.jpg)
 
 ### Step 7
 

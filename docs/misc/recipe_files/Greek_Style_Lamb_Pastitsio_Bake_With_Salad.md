@@ -28,7 +28,6 @@ This traditional-style Greek pasta bake lies somewhere between a moussaka and a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1674.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Add your lamb mince and cook for 4-5 min, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1674.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your beef stock mix and tomato paste in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[550ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1674.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once softened, add your ground cinnamon (not a fan of cinnamon? Only add a littl
 
 When fragrant, add the tomato stock and cook for 4-5 min further or until thickened to a ragù-like consistency – this is your lamb ragù
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1674.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once done, drain and rinse under cold water and set aside for later
 
 Tip: This will get rid of the starch and will stop the pasta sticking together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1674.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once hot, add 20g <span class="text-purple">[30g]</span> <span class="text-dang
 
 Gradually whisk 250ml <span class="text-purple">[375ml] </span><span class="text-danger">[500ml]</span> milk into the roux, a little at a time and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1674.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Grate your cheddar cheese over the top and season with a generous grind of blac
 
 Put the dish in the oven for 20-25 min or until golden brown and the lamb is cooked through (no pink meat!) – this is your Greek-style lamb pastitsio bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1674.-step-7-x200.jpg)
 
 ### Step 7
 

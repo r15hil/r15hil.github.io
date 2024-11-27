@@ -25,7 +25,6 @@ This sweet and spicy soup is a real winner. You’ll simmer curried potato and s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678300666590-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and chop the potato<span class="text-danger">[es]</span> into large bite-si
 
 Drain the sweetcorn
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678300676742-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once hot, add the sliced onion and chopped potato to the pot with most of the dr
 
 Add a generous pinch of salt and pepper and cook for 6-8 min or until the vegetables are beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678300681893-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Trim, then finely slice the spring onion<span class="text-danger">[s]</span>
 
 Chop the creamed coconut roughly (if required!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678300692399-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once the vegetables are softened, add the ginger & garlic paste and curry powder
 
 Combine the chopped creamed coconut and vegetable stock mix with 500ml <span class="text-danger">[950ml] </span>boiled water – this is your coconut stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678300699050-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once boiling, reduce the heat to medium and cook, covered, for 10-12 min or unti
 
 Once the potato is fork-tender, blitz until smooth with a (stick) blender and season with a pinch of salt and pepper – this is your curried sweetcorn soup
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678300702388-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Put the tray in the oven for an initial 6 min
 
 Combine the mayo and the remaining crab meat in a bowl with half the chopped chilli (can't handle the heat? Go easy!), a pinch of salt and a generous grind of pepper – this is your creamy crab mix
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678300711641-x200.jpg)
 
 ### Step 7
 

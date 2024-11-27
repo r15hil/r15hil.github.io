@@ -24,7 +24,6 @@ Next up on your burger bucket list? This rich, succulent twist, featuring veniso
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1611162249688-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Strip your rosemary and thyme leaves from their stems and chop them roughly, dis
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1611162262750-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up and put the tray[s] in the oven for 20-25 min or u
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1611162272911-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1613058334292-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Line a separate baking tray with tin foil
 
 Add your venison & pork burger[s] to one side of the tray and put the tray in the oven for an initial 15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1611162303489-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Reduce the heat to very low and cook until ready to serve, or until they have so
 
 Meanwhile, slice your Italian hard cheese finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1611162311706-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Return the tray to the oven for 3-4 min or until the cheese has melted, the bur
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611162321293-x200.jpg)
 
 ### Step 7
 

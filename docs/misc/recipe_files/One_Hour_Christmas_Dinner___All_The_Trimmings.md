@@ -27,7 +27,6 @@ Beat the clock with this all-in-one Christmas dinner, ready in under an hour. Ge
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696950213231-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and chop your potatoes in half
 
 Add the chopped potatoes to a pot with plenty of boiled water, bring to the boil over a high heat and cook for 10-12 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696950216478-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Top, tail and chop your carrot[s] in quarters lengthways
 
 Trim the ends off your Brussels sprouts
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1696950224762-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Put the tray[s] in the oven for 36-38 min or until it's cooked through and the j
 
 Tip: Set a timer because your turkey will rest until everything else is ready!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696950271985-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the remaining rosemary with a pinch of salt and pepper and cook for 30 secs or until fragrant – this is your rosemary oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696950292950-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the chopped parsnip and chopped carrot to the other side of the baking tray 
 
 Divide your pork, sage & onion stuffing (remove any paper!) and shape into 2 stuffing meatballs per person, then boil half a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696950409224-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Dissolve your chicken stock mix in 250ml <span class="text-purple">[325ml]</span
 
 Gradually add the stock to the pan and cook for 10-12 min or until thickened – this is your gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1665139261924-x200.jpg)
 
 ### Step 7
 

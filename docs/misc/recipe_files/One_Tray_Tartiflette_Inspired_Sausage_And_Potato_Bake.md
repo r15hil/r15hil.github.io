@@ -23,7 +23,6 @@ Warm your winter nights with an oh-so-easy tartiflette-inspired traybake, packed
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1731059980965-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Peel and finely slice your brown onion[s]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1731059988442-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the chopped potatoes to a large, oven-proof dish (or two!) with the sliced o
 
 Add a drizzle of vegetable oil and a pinch of salt and pepper and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731059994726-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Put the dish[es] in the oven and cook for an initial 15-20 min, then give eveyth
 
 Return the dish[es] to the oven and cook for a final 15-20 min or until the potatoes are golden and tender and the sausages are cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731060006498-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Grate your cheddar cheese finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1731060130825-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Add 100ml<span class="text-purple"> [130ml]</span><span class="text-danger"> [17
 
 When the dish[es] are almost cooked, add the tartiflette-inspired sauce to the microwave for 2-3 min or until thickened and steaming hot, then stir it all together
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1731060138943-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Once cooked, remove the dish[es] from the oven and pour the tartiflette-inspired
 
 Return the dish[es] to the oven for a final 5-8 min or until everything is bubbling and golden – this is your one tray tartiflette-inspired sausage and potato bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1731060146704-x200.jpg)
 
 ### Step 7
 

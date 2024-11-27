@@ -27,7 +27,6 @@ Level up your flatbread with this loaded manakeesh. You’ll pair a crunchy pome
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715674453972-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your wholemeal pitta[s] to a baking paper-lined baking tray (or two!) and br
 
 Sprinkle the za'atar evenly all over and reserve the bowl
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715674456629-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Drizzle half your honey over the top (you'll use the rest later!)
 
 Put the tray[s] in the oven for an initial 10 min or until starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715674460849-x200.jpg)
 
 ### Step 3
 
@@ -59,13 +56,11 @@ Tip: This helps prevent mess and makes separating the pith easier!
 
 Separate the pomegranate seeds from the white pith and discard the pith, then drain the pomegranate seeds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715674463936-x200.jpg)
 
 ### Step 4
 
 Combine your white wine vinegar, harissa paste (can't handle the heat? go easy!) and the remaining honey in the reserved bowl with a generous drizzle of olive oil and a pinch of salt – this is your harissa dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715674467231-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Add a drizzle of olive oil and a pinch of sugar to the walnuts
 
 Return the tray[s] to the oven for a final 3-4 min or until the walnuts are toasted and the pitta is crispy – this is your za'atar & Greek cheese manakeesh and toasted walnuts
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715674470208-x200.jpg)
 
 ### Step 6
 
 Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715674474237-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ King prawns, crunchy sweet red pepper and edamame beans add texture and goodness
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/red-pepper-and-chopped-garlic-1686312841882-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1623073491774-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain, reserving a cup of the starchy noodle water and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623073501514-x200.jpg)
 
 ### Step 3
 
@@ -52,25 +49,21 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped pepper, ginger paste and chopped garlic and cook for 2-3 min or until fragrant and starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623073506019-x200.jpg)
 
 ### Step 4
 
 Once the veg has started to soften, drain your king prawns, then add them to the pan and cook for 4-5 min or until cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623073513777-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine your soy sauce with your toasted sesame oil and honey in a bowl – this is your stir-fry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623073521610-x200.jpg)
 
 ### Step 6
 
 Once the prawns are cooked through, rinse your blanched edamame beans under cold running water, then add to the pan and cook for 30 secs or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623073532102-x200.jpg)
 
 ### Step 7
 

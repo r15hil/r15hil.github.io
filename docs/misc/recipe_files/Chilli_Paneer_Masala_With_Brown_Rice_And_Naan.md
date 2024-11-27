@@ -24,7 +24,6 @@ Enjoy this fiery curry, fast. You'll kick off by pan-frying paneer in warm spice
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611071734162-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Paneer-cubes-in-pan-1671697370471-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your paneer into bite-sized pieces
 
 Once hot, add the chopped paneer to the pan and cook for 3 min, turning once halfway until beginning to turn golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Microwave-rice-1671697607986-x200.jpg)
 
 ### Step 3
 
@@ -58,19 +55,16 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1671697665130-x200.jpg)
 
 ### Step 4
 
 Add your garlic & coriander naan[s] to a toaster for 1-2 min or until warmed through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1654610473466-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your tomato[es] into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1750.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Add your curry powder and cayenne pepper (can't handle the heat? Go easy!) to th
 
 Add your tomato paste and tomato wedges and cook for 1 min further, stirring until fully combined
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1750.-step-7-x200.jpg)
 
 ### Step 7
 

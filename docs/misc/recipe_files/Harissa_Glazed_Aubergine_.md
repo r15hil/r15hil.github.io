@@ -22,7 +22,6 @@ Harissa paste, with it's complex sweet and spicy flavour goes amazingly with sco
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/772.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut the aubergine<span class="text-danger">[s]</span> in half lengthways
 
 Score the flesh quite deeply (in a criss-cross pattern) taking care not the cut the skin&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/772.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Combine the harissa paste, honey, 1 tsp <span class="text-danger">[2 tsp]</span>
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/772.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Cook for 10-18 min or until the bulgur is tender with a slight bite&nbsp;
 
 Once cooked, drain and set aside to cool slightly&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/772.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Spoon 3/4 of the harissa glaze over the cut side of the aubergines
 
 Put the baking tray in the oven for 15 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/772.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Trim, then slice the spring onions finely
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/772.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,7 +97,6 @@ Squeeze in 1 tbsp <span class="text-danger">[2 tbsp]</span> lemon juice and stir
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/772.-step-7-x200.jpg)
 
 ### Step 7
 

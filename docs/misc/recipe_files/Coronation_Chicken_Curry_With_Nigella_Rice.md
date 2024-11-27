@@ -32,7 +32,6 @@ To recreate this classic, you'll simmer chicken, mango chutney and sultanas in a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/663.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a pot with a lid with a drizzle of vegetable oil and a knob of butter over 
 
 Once the butter has melted, add your nigella seeds and basmati rice and stir to fully coat the grains
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/663.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your nigella rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/663.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced onion with a pinch of salt and cook for 10 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624351301264-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then chop your green beans in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/663.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Dissolve your chicken stock mix in 250ml <span class="text-purple">[375ml]</spa
 
 Add your sultanas and mango chutney to the stock and stir to combine – this is your mango stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624351334536-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Add the chopped garlic to the softened onion cook for a further 2 min
 
 Increase the heat to high and add the chopped chicken, ground turmeric, curry powder and a good grind of black pepper to the pan and cook for a 4-5 min or until lightly browned and everything is coated in spice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624351338297-x200.jpg)
 
 ### Step 7
 

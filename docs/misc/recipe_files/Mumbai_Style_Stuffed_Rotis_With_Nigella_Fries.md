@@ -26,7 +26,6 @@ Dine in, Mumbai street-style. You’ll load roti with zingy coriander and chilli
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676915407901-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil, the nigella seed
 
 Put the tray in the oven and cook for 20-25 min or until golden and crisp – these are your nigella fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676915411607-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and halve the shallot<span class="text-danger">[s]</span>
 
 Chop 1/2 <span class="text-danger">[1]</span> shallot roughly, slice the remaining shallot finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676915415814-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the sliced shallot to a medium bowl with half the white wine vinegar (you'll
 
 Give everything a good mix up and set aside to pickle – this is your quick-pickled shallot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676915419226-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the remaining white wine vinegar, a drizzle of olive oil and a generous pinc
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676915423914-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Tear the drained mozzarella into rough, bite-sized pieces and pat dry again
 
 Grate the cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676915427433-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Top each roti sandwich with a small knob of butter
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 8-10 min or until the cheese is melted – these are your Mumbai-style toasties
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676915432616-x200.jpg)
 
 ### Step 7
 

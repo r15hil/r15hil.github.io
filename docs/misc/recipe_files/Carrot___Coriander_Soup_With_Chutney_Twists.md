@@ -27,7 +27,6 @@ Cosy up to a comforting classic: our smooth, aromatic carrot and coriander soup,
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1610978951211-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop the potato[es] (skin on) into small, bite-sized pieces
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610978957342-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or unt
 
 Once the onion has softened, add your ground cumin and ground coriander and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610978964492-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add the vegetable stock, bring to the boil over a high heat, then reduce the hea
 
 While the soup is cooking, dust your work surface with a generous sprinkling of flour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1610978976677-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Spread your mango chutney over one side of each strip and sprinkle your nigella 
 
 Twist each pastry strip from the ends in opposite directions until they look like a spiral
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1610978990035-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610979000014-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Chop your coriander finely, including the stalks
 
 Roughly chop the toasted almonds
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610979018116-x200.jpg)
 
 ### Step 7
 

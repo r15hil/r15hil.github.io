@@ -31,7 +31,6 @@ In this Middle Eastern-inspired dish, you'll make your own lamb meatballs with c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1179.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Chop your chopped dates roughly, then add them to a small bowl and cover them wi
 
 Set aside to soak
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1179.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Drain the soaked chopped dates, add them to the bowl and give everything a good 
 
 Divide the mixture into 10 <span class="text-purple">[15]</span> <span class="text-danger">[20]</span> and shape them into meatballs and refrigerate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1179.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped pepper with a pinch of salt and cook for 8-10 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1179.-step-4-x200.jpg)
 
 ### Step 4
 
 Lightly cover a baking tray with olive oil (use kitchen paper to help you spread it evenly!), then add the lamb meatballs and put the tray in the oven for 15 min or until they're cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1179.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ While the lamb meatballs are cooking, add your bulgur wheat to a pot with plenty
 
 Once tender, drain and return to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1179.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cook for 2 min or until fragrant, then add 150ml<span class="text-purple"> [225m
 
 Give everything a good mix up and cook, covered, for 6 min or until most of the liquid has been absorbed and a sauce has formed – this is your pepper sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1179.-step-7-x200.jpg)
 
 ### Step 7
 

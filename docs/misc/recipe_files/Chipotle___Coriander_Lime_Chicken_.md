@@ -21,7 +21,6 @@ This nifty method for cooking chicken breasts infuses them with citrussy, herby 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/499.step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Drizzle with vegetable oil, the cayenne pepper (can&rsquo;t handle the heat? Go 
 
 Oven roast for 25-30 min or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/499.step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span>&nbsp;olive oil and plenty o
 
 Mix well and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/499.step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once hot, add the chicken and cook for 3 min on each side or until golden
 
 Season both sides with a pinch of salt whilst cooking
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/499.step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Season lightly with salt and pepper - this is your chipotle mayonnaise
 
 Mix well and set aside for serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/499.step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,13 +82,11 @@ Once golden, transfer the pan-fried chicken to the baking&nbsp;dish and coat the
 
 Tip: use tongs for better control
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/499.step-6-x200.jpg)
 
 ### Step 6
 
 Cover the chicken with foil and put it in the oven for 10-15 min or until cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/499.step-7-x200.jpg)
 
 ### Step 7
 

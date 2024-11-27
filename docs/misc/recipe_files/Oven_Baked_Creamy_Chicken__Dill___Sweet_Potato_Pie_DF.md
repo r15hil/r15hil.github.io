@@ -24,7 +24,6 @@ This is your how-to guide on turning juicy chicken thighs into a dairy-free crea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1643107516501-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1643107543021-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a drizzle of ve
 
 Once hot, add the diced chicken thigh to the dish with the cornflour and dried oregano and cook for 2 min or until very lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1643107572197-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Chop the sweet potato<span class="text-danger">[es]</span> (skins on) into large
 
 Chop the parsley finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1643107598297-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Bring to the boil over a high heat
 
 Cover with a lid and put the dish in the oven for 25-30 min or until the chicken is cooked through (no pink meat!) and the potatoes are tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1643107634813-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Tip: Cooking for 4? You may need 2 trays!
 
 Score a cross in the middle of the pastry and put it in the oven for 15 min or until puffed up and golden — this is your pie lid
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1643107658993-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1643107676821-x200.jpg)
 
 ### Step 7
 

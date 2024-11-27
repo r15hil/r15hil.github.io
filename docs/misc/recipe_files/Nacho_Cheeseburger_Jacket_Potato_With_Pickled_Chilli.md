@@ -29,7 +29,6 @@ Take your humble jacket potato to the next level with this cheeseburger-style tw
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694441271274-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the softened potato[es] to a baking paper-lined baking tray with a drizzle o
 
 Put the tray in the oven for 20-25 min or until crispy on the outside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694441273944-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Add the sliced chilli to a small bowl with your cider vinegar and a pinch of sal
 
 Give everything a good mix up and set aside – this is your quick-pickled chilli
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694441277539-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once hot, add your beef mince with a pinch of salt and cook for 3-4 min or until
 
 Once browned, add the diced onion and chopped garlic and cook for a further 3-4 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694441280336-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Dissolve your beef stock mix and Henderson's Relish in 50ml <span class="text-pu
 
 Once softened, add the Henderson's stock to the pan and cook for a further 1-2 min or until the beef is cooked through (no pink meat!) and the sauce has thickened – this is your burger mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694441282944-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[20
 
 Cook over a medium heat for 2-3 min, stirring frequently, or until the cheese has melted and the sauce has thickened – this is your cheese sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694441285707-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Fill each potato with the burger mix and top with the cheese sauce
 
 Return the tray to oven for 3-4 min or until piping hot – this is your nacho cheeseburger jacket potato
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694441289166-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Inspired by gyros, the classic Greek kebab, these tasty plant-based wraps featur
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1790.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Preheat the oven to 240ºC/ 220ºC (fan)/ 475ºF/ Gas 9
 
 Drain and rinse the chickpeas
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1790.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Add the chickpeas and ground cumin to a tray, drizzle with olive oil and season
 
 Put the tray in the oven and cook for 20-25 min or until starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1790.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Put the tray in the oven and cook for 20-25 min or until starting to crisp
 
 <span style="font-family:Lato;font-size:15px;white-space:pre-wrap;font-weight:bold;"> </span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1790.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Add a 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil, 1 tbsp <span
 
 <span class="text-highlight">Stir it all together –</span> this is your garlic<span class="text-highlight"> &amp;</span> herb mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1790.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Slice the black olives finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1790.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Combine the shredded little gem, cucumber matchsticks, diced tomato, sliced blac
 
 Add a drizzle of olive oil and a pinch of salt – this is your cucumber salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1790.-step-7-x200.jpg)
 
 ### Step 7
 

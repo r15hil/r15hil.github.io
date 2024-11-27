@@ -21,7 +21,6 @@ Time for a twist on the classic bacon butty. You’ll load toasted brioche with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073574208-x200.jpg)
 
 ### Step 1
 
@@ -31,13 +30,11 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in or wrap up ready for your day!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728311893574-x200.jpg)
 
 ### Step 2
 
 Boil a full kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728311918763-x200.jpg)
 
 ### Step 3
 
@@ -49,13 +46,11 @@ Tip: Cooking for 3 or more? Use 2 pans!
 
 Once crisp, transfer the crispy bacon to kitchen paper and reserve the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728311928703-x200.jpg)
 
 ### Step 4
 
 Slice your tomato[es]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728311939645-x200.jpg)
 
 ### Step 5
 
@@ -63,7 +58,6 @@ While everything is in the oven, wash your spinach then add to a colander and po
 
 Drain the spinach and squeeze any excess water out with the back of a spoon (this will stop your brioche bun[s] from going soggy!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728311951079-x200.jpg)
 
 ### Step 6
 
@@ -71,7 +65,6 @@ Return the reserved pan[s] to a medium heat
 
 Add your brioche halves, cut-side down, to the pan[s] and cook for 2-3 min or until golden brown
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728311963436-x200.jpg)
 
 ### Step 7
 

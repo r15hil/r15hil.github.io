@@ -27,7 +27,6 @@ This recipe is perfectly balanced with citrusy garlic chicken to go with your sp
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1653317580155-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut the lemon<span class="text-danger">[s]</span> in half
 
 Cut 1 <span class="text-danger">[2] </span>lemon half<span class="text-danger">[ves]</span> into slices
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1653317592218-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Add the cardamon seeds to a pestle & mortar and grind to a fine powder
 
 Add the smoked paprika, half the ground paprika (save the rest for later!) and a generous pinch of salt and mix until fully combined – this is your spice mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1653317603674-x200.jpg)
 
 ### Step 3
 
 Add the fries to a baking tray with the spice mix and a drizzle of vegetable oil and mix everything together until the chips are evenly coated in spices – these are your spiced fries
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1653317609935-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Give everything a good mix up and top the chicken with the lemon slices – this
 
 Put both the chips and lemon chicken in the oven for 20-25 min or until golden and crispy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1653317622850-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Finely dice the tomatoes
 
 Strip the mint leaves from their stems and chop them roughly, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1653317627369-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Add the juice of the remaining lemon (not a fan of lemon? Only add a little!) to
 
 Add the chopped pepper to the dressing with the cucumber, tomato, mint and parsley and give everything a good mix up – this is your herby salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1653317642218-x200.jpg)
 
 ### Step 7
 

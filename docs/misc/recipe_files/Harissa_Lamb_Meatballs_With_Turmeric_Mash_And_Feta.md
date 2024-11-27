@@ -25,7 +25,6 @@ A touch of fragrant harissa makes these hearty meatballs a sure-fire hit with th
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676910834657-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676910838535-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely dice your shallot[s]
 
 Roughly chop your tomato[es]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676910842893-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Mix thoroughly until fully combined (clean hands is the best way!)
 
 Divide and roll into 3 meatballs per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676910850042-x200.jpg)
 
 ### Step 4
 
@@ -65,13 +61,11 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a dri
 
 Once hot, add the lamb meatballs to the pan and cook for 2 min on each side or until browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676910887104-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your chicken stock mix and tomato paste in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[150ml]</span> boiled water – this is your tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676910864614-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once browned, add the chopped shallot, chopped tomato and remaining chopped garl
 
 Once soft, add the tomato stock and a pinch of salt and cook, covered, for 12-15 min further or until the lamb is cooked through (no pink meat!) – these are your harissa lamb meatballs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676910876894-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Tastes amazing, smells incredible and is oh-so easy. This mouthwatering twist on
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1594053297673-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the Cumberland sausages to a baking tray (use tin foil to avoid mess!) with 
 
 Put the tray in the oven for an initial 20-25 min or until the sausages are cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1594053303413-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Add the chopped potatoes to a pot of plenty of cold water and bring to the boil 
 
 Once boiling, cook for 10-12 min or until fork tender, then drain
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1594053311634-x200.jpg)
 
 ### Step 3
 
 Whilst the potatoes are boiling, combine the mayo, cider vinegar, 2 tsp <span class="text-danger">[4 tsp]</span> sugar and a good grind of pepper in a large bowl – this is your creamy dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1594053319328-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the grated carrot and shredded cabbage to the bowl of creamy dressing
 
 Give everything a good mix up — this is your slaw
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1594053328150-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Give everything a good mix up
 
 Put the tray in the oven for 25-30 min or until golden and crisp – these are your crispy smashed potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1594053337062-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the sausages are cooked through, remove the tray from the oven and pour the
 
 Return the tray to the oven for a further 5-6 min – these are your BBQ bangers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1594053348410-x200.jpg)
 
 ### Step 7
 

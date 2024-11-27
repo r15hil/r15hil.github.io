@@ -24,7 +24,6 @@ Comfort food with a Mediterranean twist. You’ll cook up a herby tomato stew pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670341083944-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Top, tail and cut your courgette[s] in half lengthways, then chop into bite-size
 
 Trim the green stalk[s] off your aubergine[s]<span class="text-danger"> </span>and discard, then chop into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670341087225-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up and put the tray in the oven for 20-25 min or unti
 
 Tip: Cooking for 3 or more? Use two trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670341092847-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670341096457-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced shallot and a pinch of salt and cook for 2-3 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670341100529-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Dissolve your tomato paste, vegetable stock mix and a pinch of sugar in 150ml <s
 
 Once the shallot has softened, add your chopped tomatoes, tomato stock and dried oregano to the pan and cook for 4-5 min or until the sauce has thickened – this is your herby tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670341104526-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the roasted veg is done, add it to an oven-proof dish and pour the herby to
 
 Stir it all together – this is your Mediterranean-style veg stew
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670341108455-x200.jpg)
 
 ### Step 7
 

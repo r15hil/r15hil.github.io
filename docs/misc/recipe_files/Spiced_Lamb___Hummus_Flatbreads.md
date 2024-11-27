@@ -28,7 +28,6 @@ For these tasty flatbreads, you'll spread creamy hummus over soft, warm tortilla
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1724.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely slice your shallot[s]
 
 Dissolve 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar in 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> boiled water in a bowl, then add your red wine vinegar with the sliced shallot and set aside to pickle – this is your quick-pickled shallot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1724.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, drain your chickpeas
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1724.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Blitz until smooth – this is your hummus
 
 Tip: Add a small splash more water if your hummus is looking a little thick!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1724.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add your lamb mince and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-alt-1-1718354359296-x200.jpg)
 
 ### Step 5
 
 Meanwhile, cut your cherry tomatoes in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1724.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add your harissa paste (can't handle the heat? Go easy!) and remaining chopped g
 
 Season with a generous pinch of salt and pepper – this is your spiced lamb
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1724.-step-7-x200.jpg)
 
 ### Step 7
 

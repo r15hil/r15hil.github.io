@@ -25,7 +25,6 @@ This tomato risotto is a dreamy dinner delight. You'll stir arborio rice in stoc
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-risotto-1637684881779-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a kettle
 
 Dissolve your vegetable stock mix in 400ml <span class="text-purple">[600ml] </span><span class="text-danger">[800ml]</span> boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-risotto-1637684888139-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-risotto-1637684897118-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and cook for 3 min until starting to soften, but not colour
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-risotto-1637684902234-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once the onion has started to soften, add your arborio rice and chopped garlic t
 
 Add your chopped tomatoes and stir continuously until the rice has absorbed most of the tomato juice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-risotto-1637684907936-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Meanwhile, chop your basil finely, including the stalks
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-risotto-1637684921607-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Add 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[
 
 Tip: If you don't have a pestle & mortar, chop the basil leaves very finely and mix with olive oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1643194739775-x200.jpg)
 
 ### Step 7
 

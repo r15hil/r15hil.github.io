@@ -25,7 +25,6 @@ Rustle up zingy prawn noodles in a flash. You'll pan-fry king prawns in green cu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1614341509562-x200.jpg)
 
 ### Step 1
 
@@ -35,19 +34,16 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the ginger & garlic paste and half the chilli flakes (can't handle the heat? Go easy!) and cook for 2 min until fragrant
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614341533719-x200.jpg)
 
 ### Step 2
 
 Once fragrant, add the king prawns and Thai green curry paste and cook for 2 min further, until the prawns are starting to turn pink
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1614341560748-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve the coconut cream in 300ml <span class="text-danger">[600ml] </span>boiled water with the juice of 1/2 <span class="text-danger">[1]</span> lime, lime leaf<span class="text-danger">[ves],</span> the soy sauce and a pinch of sugar – this is your coconut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1614341600639-x200.jpg)
 
 ### Step 4
 

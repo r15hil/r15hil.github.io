@@ -26,7 +26,6 @@ Salmon and avocado are rich, delicious and a tasty source of heart-healthy omega
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1580125301371-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered, until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580125304979-x200.jpg)
 
 ### Step 2
 
@@ -50,19 +48,16 @@ Cook for 8-9 min, turning once halfway, or until cooked through
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580125308382-x200.jpg)
 
 ### Step 3
 
 Whilst the salmon is cooking, cut half your orange[s] in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580125311479-x200.jpg)
 
 ### Step 4
 
 Combine the juice of the orange halves with your miso paste, rice vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil and a generous pinch of salt in a small bowl – this is your orange-miso dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580125314972-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Trim, then slice your spring onion[s]
 
 Chop your coriander roughly, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580125318529-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Cut your avocado[s]<span class="text-danger"> </span>in half lengthways, around 
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580125323591-x200.jpg)
 
 ### Step 7
 

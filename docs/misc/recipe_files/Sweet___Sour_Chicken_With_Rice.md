@@ -30,7 +30,6 @@ The ultimate takeaway classic – made at home. You'll sear chicken breast to te
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1979.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1979.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated chicken and cook for 10-12 min or until cooked through (no pink meat!) and crispy all over – this is your crispy chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1979.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1979.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add the chopped pepper and onion and cook for 5-6 min or until starting to softe
 
 Once softened, add the chopped garlic and ginger and cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1979.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ While the vegetables are cooking, combine the remaining cornflour in a bowl wi
 
 Add your tomato ketchup, Chinese rice wine, red chilli relish, honey, soy sauce and rice vinegar and mix until smooth – this is your sweet & sour sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1979.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Increase the heat to high
 
 Return the crispy chicken to the pan with the sweet & sour sauce and cook for 2-3 min further or until a thick sauce remains – this is your sweet & sour chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1979.-step-7-x200.jpg)
 
 ### Step 7
 

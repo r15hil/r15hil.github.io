@@ -26,7 +26,6 @@ Time to give dinner a pop of colour. You’ll whip up giant couscous packed with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679396337260-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once golden, set aside and reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679396341680-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or unti
 
 Once softened, set aside and reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679396345316-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Cook the giant couscous for 8-10 min or until tender with a slight bite and once
 
 Meanwhile, combine your ras el hanout with a generous pinch of salt on a plate – this is your spice mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679396348638-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679396352291-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Chop your coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679396355713-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Add 1 tsp<span class="text-purple"> [1 1/2 tsp] </span><span class="text-danger"
 
 Cut the remaining lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679396359989-x200.jpg)
 
 ### Step 7
 

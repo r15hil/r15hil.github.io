@@ -26,7 +26,6 @@ This wholesome dish is bursting with flavour. It’s influenced by fattoush, a L
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1363.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the&nbsp;grated cabbage&nbsp;to a very large bowl with the red wine vinegar 
 
 Give everything a good mix up and set aside until later to pickle slightly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1363.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the chickpeas to a baking tray with the ras el hanout, chilli flakes&nbsp;(C
 
 Give everything a good mix up and put the tray in the oven for 12-15 min or until golden and crispy &ndash; these are your shawarma chickpeas
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1363.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the chopped pitta&nbsp;to a baking tray with a drizzle of olive oil, pinch o
 
 Give everything a good mix up and cook for 8-10 min or until golden and crispy &ndash; these are your sumac pitta chips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1363.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Peel and finely chop (or grate) the garlic
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1363.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Combine the Greek-style fat-free yoghurt, chopped garlic and most of the chopped
 
 Season with a generous pinch of salt and pepper and give everything a good mix up &ndash; this is your garlic &amp; dill yoghurt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1363.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Dice the tomato<span class="text-danger">[es]</span> roughly
 
 Grate the carrot<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1363.-step-7-x200.jpg)
 
 ### Step 7
 

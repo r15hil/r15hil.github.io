@@ -24,7 +24,6 @@ Think more is more when it comes to veg toppings? This pizza's for you. You'll b
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624355490831-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624355494624-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the sliced pepper to a baking tray with a generous drizzle of olive oil and 
 
 Put the tray in the oven for 12-15 min or until the pepper has softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624355646774-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Slice your chestnut mushrooms finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624355501851-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and give everything a good mix up – this is your pizza sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624355506868-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Drain your sweetcorn
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624355511738-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Divide the pizza sauce between the pizza bases and spread it evenly all over 
 
 Top with the torn mozzarella
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624355531069-x200.jpg)
 
 ### Step 7
 

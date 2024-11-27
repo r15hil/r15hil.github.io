@@ -23,7 +23,6 @@ Put a spin on pizza night with these golden pastry pockets. You’ll load puff p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671545931837-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped garlic and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> 
 
 Season with a generous pinch of salt and mix to combine – this is your tomato sauce
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671545946567-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of s
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your crispy wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671545952163-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Chop the drained mozzarella into small, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671545961598-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671545969009-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Add the pastry rectangle[s] to a baking tray (or two!) and score a 1cm border ar
 
 Prick the inside of the border all over with a fork (this will stop you getting a soggy bottom!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671545975859-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the chopped mozzarella and spinach to one half of the rectangle[s]
 
 Brush a little cold water around the edges of the pastry (this helps to seal the pastry!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671545980323-x200.jpg)
 
 ### Step 7
 

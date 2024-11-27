@@ -25,7 +25,6 @@ Try these awesome salmon fillets with black bean sauce! You'll bake them in tin 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1645553276437-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop the green beans in half
 
 Chop the Tenderstem broccoli in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1645553283080-x200.jpg)
 
 ### Step 2
 
@@ -45,13 +43,11 @@ Peel and chop (or grate) garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1645553287361-x200.jpg)
 
 ### Step 3
 
 Combine the black bean paste, Chinese rice wine, chopped ginger and garlic with 100ml <span class="text-danger">[200ml] </span>water – this is your black bean sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1645553296972-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Lay the sliced red peppers, chopped green beans and Tenderstem brocoli in the mi
 
 Pour over the black bean sauce and a drizzle of olive oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1645553307019-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Put the tray in the oven for 12-15 min or until the veg has softened and the fis
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1645553317047-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Bring to the boil over a high heat and cook for 1-2 min or until tender, then dr
 
 Once drained, return the noodles to the pot and set aside
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1645553324907-x200.jpg)
 
 ### Step 7
 

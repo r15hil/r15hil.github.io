@@ -24,7 +24,6 @@ Give the humble meatloaf a mouthwatering Middle Eastern makeover. You’ll crown
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657730609581-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely dice half the brown onion<span class="text-danger">[s] </span>an
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657730611828-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Season with a pinch of salt and pepper then mix thoroughly until well combined �
 
 Shape the spiced lamb mixture into 1 <span class="text-danger">[2] </span>loaf<span class="text-danger">[ves]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657730614708-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tip: Don't have a pestle & mortar? Chop roughly instead!
 
 Add the ground hazelnuts & cumin seeds to a plate and fully coat the loaf<span class="text-danger">[ves]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657730617620-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Put the tray in the oven for 30-35 min or until the meatloaf<span class="text-da
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657730620905-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once the butter has melted, add the rice with 225ml<span class="text-danger"> [4
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657730623853-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add the sliced onion and tomato paste with the remaining ras el hanout
 
 Once softened, add the cornflour with 150ml <span class="text-danger">[300ml]</span> boiled water and cook for a further 2-3 min or until thickened – this is your spiced tomato sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657730626258-x200.jpg)
 
 ### Step 7
 

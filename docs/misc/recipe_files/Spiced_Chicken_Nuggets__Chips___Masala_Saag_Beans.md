@@ -28,7 +28,6 @@ Give your childhood chicken nugget dinner a grown-up flavour boost. You’ll coa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665138680513-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chips to a baking tray with your nigella seeds, a drizzle of vegetable o
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665138684994-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add your panko breadcrumbs to another plate with half your garam masala and half
 
 Add a generous drizzle of olive oil and mix together (this will make your breadcrumbs golden!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665138688771-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Season the chicken pieces generously with salt, then coat them in the flour, tap
 
 Add the breaded chicken nuggets to a separate baking tray and put the tray in the oven for 15-18 min or until cooked through (no pink meat!) and golden – these are your spiced chicken nuggets
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665138692193-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665138698782-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665138713426-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once fragrant, add 150ml <span class="text-purple">[195ml]</span><span class="te
 
 Once boiling, reduce the heat to medium and cook for 4-5 min or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665138723477-x200.jpg)
 
 ### Step 7
 

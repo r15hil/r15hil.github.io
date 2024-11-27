@@ -23,7 +23,6 @@ Inspired by carbonara, this dish combines mushrooms and leek with crème fraîch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2288-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once hot, add the chopped bacon and cook for 5-6 min, stirring occasionally, unt
 
 Once crisp, transfer to kitchen paper and set aside, reserve the pan
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2288-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Return the pan to a medium heat and once hot, add the sliced mushrooms and cook for 2-3 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2288-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2288-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Meanwhile, dissolve your chicken stock mix in 150ml <span class="text-purple">[2
 
 Once the vegetables have softened, add the sliced garlic to the pan and cook for 1 min further or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2288-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Once fragrant, add the chicken stock with your crème fraîche and a generous gr
 
 Cook for 2-3 min further or until thickened – this is your creamy leek & mushroom sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728054138333-x200.jpg)
 
 ### Step 6
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2288-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ For this BBQ-inspired dish, we've let the oven do most of the work. You'll roast
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1634.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a sha
 
 Season with a very generous pinch of salt and rub it deep into the criss-cross pattern
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1634.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once very hot, add the pork belly, fat-side down and cook for 4 min or until col
 
 Once crisp, transfer the pork to a tin foil-lined baking tray and put the tray in the oven for 40-45 min or until cooked through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1634.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Put the tray[s] in the oven for 30-35 min or until the chips are cooked through and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1634.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your tomato ketchup, Henderson's Relish and cider vinegar with 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp]</span> [2 tbsp]</span> sugar in a bowl – this is your BBQ sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1634.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Top, tail (no need to peel) and grate your carrot[s]
 
 Cut your apple[s] (skin on) into matchsticks and discard the core[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1634.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Add your mayo, white wine vinegar and a generous pinch of salt
 
 Give everything a good mix up – this is your apple slaw
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1634.-step-7-x200.jpg)
 
 ### Step 7
 

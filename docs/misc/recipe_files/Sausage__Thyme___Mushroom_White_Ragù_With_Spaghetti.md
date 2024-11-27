@@ -26,7 +26,6 @@ Fast-forward to dinner with this speedy sausage ragu. You’ll pan-fry sausage a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1680165250189-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680165253549-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, crumble your chestnut mushrooms finely into the pan with your hands
 
 Add your sausage meat (remove the paper if required!) and cook for 5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680165257591-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680165261572-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Add the salad to a bowl with your balsamic vinegar and a generous drizzle of oli
 
 Dissolve your chicken stock mix in 175ml <span class="text-purple">[230ml] </span><span class="text-danger">[300ml]</span> boiled water with your Chinese rice wine and soft cheese – this is your creamy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680165265064-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once the sausage meat has begun to brown, add your roasted garlic paste with you
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680165268272-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once fragrant, add the creamy stock and a generous pinch of salt
 
 Increase the heat to high and cook for 2-3 min or until the sauce has thickened and the sausage meat is cooked through (no pink meat!) – this is your sausage, thyme & mushroom white ragù
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680165272127-x200.jpg)
 
 ### Step 7
 

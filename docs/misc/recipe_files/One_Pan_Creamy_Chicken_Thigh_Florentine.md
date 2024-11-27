@@ -28,7 +28,6 @@ Go heavy on flavour and light on washing up with this one pan take on a Mediterr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682085463866-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add your chicken thighs with a pinch of salt and pepper and cook for 3 min on each side or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682085468197-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ While the chicken is cooking, peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682085472682-x200.jpg)
 
 ### Step 3
 
@@ -56,13 +53,11 @@ Once the chicken has browned, add the chopped onion and cook for 5 min or until 
 
 Once softened, add the chopped garlic and cook for 1 min further
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682085477810-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your chicken stock mix in 500ml <span class="text-purple">[650ml] </span><span class="text-danger">[1L]</span> boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682085480789-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the stock and your soft cheese and cook, covered, stirring frequently, for 
 
 Tip: Stirring the orzo will release the starch from the pasta, making it creamier!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682085484685-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tear your basil leaves
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682085487673-x200.jpg)
 
 ### Step 7
 

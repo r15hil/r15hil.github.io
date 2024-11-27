@@ -22,7 +22,6 @@ What do you get when you combine spicy chipotle pork, black beans and rice with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/525.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Once hot, add the pork mince with a pinch of salt and cook for 3 min or until st
 
 Meanwhile, drain and rinse the black beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/525.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add&nbsp;350ml <span class="text-danger">[700ml]</span>&nbsp;water and the drain
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/525.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once boiling, reduce the heat to low, cover with a lid and cook for 10-15 min or
 
 Tip: add a splash or two of water if the rice looks too dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/525.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,19 +72,16 @@ Chop into small, bite-size pieces
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/525.-step-5-x200.jpg)
 
 ### Step 5
 
 Slice the spring onions finely, discarding the root ends
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/525.-step-6-x200.jpg)
 
 ### Step 6
 
 Chop the coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/525.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ This decadent sandwich is the breakfast, lunch and dinner of champions. You'll s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670932680517-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Cut your potatoes (skins on) into bite-sized cubes, then add the cubed potato
 
 Put the tray[s] in the oven and cook for 25-30 min or until the potatoes are brown and crispy – these are your crispy paprika potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670932683072-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Add the lettuce quarters to a bowl with your cider vinegar, a drizzle of olive
 
 Give everything a good mix up – these are your dressed lettuce quarters
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670932686978-x200.jpg)
 
 ### Step 3
 
@@ -52,13 +49,11 @@ Line a baking tray with tin foil
 
 Add your meat-free burger patty[ies] and put the tray in the oven for 10-12 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670932689802-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your mustard ketchup and mayo in a small bowl – this is your burger sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670932694681-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Once the potatoes are nearly cooked, remove the tray[s] from the oven and push t
 
 Slice your brioche bun[s] in half and add them, cut side up, to the other side of the tray[s] and put back in the oven for 4-5 min to warm through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670932701285-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Cover the pan with a lid and cook for 2 min or until done to your liking
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670932709697-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ In this speedy dish, you'll spread miso paste over your fish before sprinkling o
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1623150038166-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Pat the basa fillets dry with kitchen paper and add them to a baking tray (use t
 
 Spread the miso paste evenly over the basa fillets with the back of a teaspoon
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1623150044987-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Drizzle the fish with vegetable oil and put the tray in the oven for 12-15 min o
 
 Tip: your fish is cooked when it turns opaque and flakes easily!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1623150051942-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Meanwhile, add the wholewheat noodles to a pot and cover with boiled water until
 
 Bring to the boil over a high heat and cook for 5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1623150061189-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add the chopped ginger to a bowl with the soy sauce, chilli relish, chilli flake
 
 Give everything a good old mix up – this is your sweet chilli dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1623150068073-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Once the noodles have been cooking for 5 min, add the Tenderstem broccoli and co
 
 Once cooked, drain everything and return it to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1623150074082-x200.jpg)
 
 ### Step 6
 
 Trim, then slice the spring onions
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1623150082715-x200.jpg)
 
 ### Step 7
 

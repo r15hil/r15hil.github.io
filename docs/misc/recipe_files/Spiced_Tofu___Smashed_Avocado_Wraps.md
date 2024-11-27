@@ -27,7 +27,6 @@ Load your wraps with creamy homemade smashed avocado, spiced crispy tofu and cru
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663090365357-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely dice your shallot[s]
 
 Drain and rinse your black beans
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663090368787-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add half of the diced shallot with half your smoked paprika (you'll us
 
 Season with a pinch of salt and cook for 1 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663090386714-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once fragrant, add your drained black beans to the pot with 50ml <span class="te
 
 Once the beans have softened, gently crush them with a masher a few times and set aside – these are your refried beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663090388655-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Add the avocado flesh to a small bowl with half of your white wine vinegar (save
 
 Season with a pinch of salt and pepper and mash with a fork until smooth – this is your smashed avocado
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663090391315-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the remaining smoked paprika and 1 tbsp <span class="text-purple">[1 1/2 tbs
 
 Coat the tofu strips in the flour mix – this is your coated tofu
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663090398558-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the coated tofu and cook for 6 min, turning often or until crispy 
 
 Meanwhile, combine the remaining white wine vinegar with your mayo – this is your tangy mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663090410840-x200.jpg)
 
 ### Step 7
 

@@ -20,7 +20,6 @@ Practise your Southern drawl because it’s time for a Cajun classic. You’ll t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1688139494220-x200.jpg)
 
 ### Step 1
 
@@ -32,13 +31,11 @@ Add the chopped potatoes to a baking paper-lined baking tray with a drizzle of v
 
 Give everything a good mix up and put the tray in the oven for an initial 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-4-1688139497830-x200.jpg)
 
 ### Step 2
 
 Peel and chop the brown onion<span class="text-danger">[s]</span> into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-4-1688139500930-x200.jpg)
 
 ### Step 3
 
@@ -48,7 +45,6 @@ Zest the lemon (try to grate lightly with a micro-plane or sharp box grater and 
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-5-1688139504230-x200.jpg)
 
 ### Step 4
 
@@ -58,13 +54,11 @@ Once hot, add 4 tbsp<span class="text-danger"> [8 tbsp]</span> butter with the l
 
 Cook until the butter has melted – this is your lemon & garlic butter sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-5-1688139509052-x200.jpg)
 
 ### Step 5
 
 Cut the remaining lemon into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1688139512559-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Give everything a good mix up and return the tray to the oven for a further 10 m
 
 Meanwhile, drain the king prawns
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-5-1688139516054-x200.jpg)
 
 ### Step 7
 

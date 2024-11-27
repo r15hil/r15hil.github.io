@@ -27,7 +27,6 @@ Give smoky chicken breasts some adventurous flair with bright, zingy chimichurri
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690204057163-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a baking tray with a drizzle of olive oil and a pinc
 
 Give everything a good mix up then put the tray in the oven for an initial 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690204059387-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the ground smoked paprika to a large bowl with the ground coriander, chicken
 
 Add the chicken breast portions and tomato halves to the bowl and give everything a good mix up – these are you marinated chicken breasts
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690204062609-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the marinated chicken breasts to the tray
 
 Return the tray to the oven for a final 15-20 min or until the chicken is cooked through (no pink meat!) and the potatoes are crispy – these are your smoky chicken breasts, roasted tomato & crispy roasties
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690204066376-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Peel and grate (don't chop!) the garlic
 
 Chop the parsley finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690204071150-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add 3 tbsp<span class="text-danger"> [6 tbsp]</span> olive oil, red wine vinegar
 
 Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690204074938-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Top, tail and chop the leek<span class="text-danger">[s]</span> in half lengthwa
 
 Thread the chopped courgette and leek widthways onto the soaked skewers, alternating as you go – these are your veg skewers
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690204082395-x200.jpg)
 
 ### Step 7
 

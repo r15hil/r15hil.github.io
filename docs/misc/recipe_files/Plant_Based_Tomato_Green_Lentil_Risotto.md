@@ -27,7 +27,6 @@ This legume-led twist on an Italian classic is so rich and creamy, you won't bel
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1659891031235-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1659891034956-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced shallot and pepper strips with a pinch of salt and pepper and cook for 4-5 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Drained-green-lentils-1727858929606-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Drain and rinse your green lentils
 
 Once the vegetables have softened, add your drained green lentils, dried oregano and half the chopped garlic (you'll use the rest later!) and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1659891042602-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once fragrant, add your vegetable stock mix, chopped tomatoes and creamy single 
 
 Once boiling, reduce the heat to medium and cook for 10-12 min, stirring regularly, until the sauce has thickened to a risotto-like consistency – this is your plant-based tomato green lentil risotto
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1659891046495-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Cook for 6-8 min or until golden, stirring frequently
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1659891050300-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Chop your parsley finely, including the stalks
 
 Once golden, add the chopped parsley to the breadcrumbs – these are your herby garlic breadcrumbs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1659891053788-x200.jpg)
 
 ### Step 7
 

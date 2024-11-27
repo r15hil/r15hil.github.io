@@ -27,7 +27,6 @@ Go heavy on flavour and light on washing up with this one pan take on a Mediterr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1804.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1804.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the chopped onion and cook for 5 min or until softened
 
 Once softened, add the chopped garlic and cook for 1 min further
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vegetable-stock-1629808089723-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Meanwhile, dissolve your vegetable stock mix in 500ml <span class="text-purple">
 
 Add the vegetable stock to the pan with the softened onion
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1804.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add your soft cheese and orzo to the pan and give everything a good mix up un
 
 Tip: Stir occasionally to stop the orzo sticking to the pan!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1804.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Tear your basil leaves, discard the stems
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1804.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add the chopped spinach and halved tomatoes to the orzo with half the torn bas
 
 Give everything a good mix up – this is your spinach & tomato orzo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1804.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Give healthy eating some Middle Eastern flavour with these cumin-infused salmon 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664293597875-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664293602764-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664293606446-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and chop (or grate) the garlic
 
 Chop the parsley & dill finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664293610323-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Combine the diced shallot and chopped herbs in a large bowl with the chopped gar
 
 Season with a generous pinch of salt and pepper and give everything a good mix up – this is your salmon mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664293614844-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Return them to the pot, add a generous knob of butter and crush gently
 
 Add the crushed potatoes to the salmon mixture and give everything a good mix up – this is your kofta mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664293619460-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the salmon koftas to a tin foil-lined baking tray
 
 Drizzle with olive oil and put the tray in the oven for 15 min or until the koftas are golden
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664293622545-x200.jpg)
 
 ### Step 7
 

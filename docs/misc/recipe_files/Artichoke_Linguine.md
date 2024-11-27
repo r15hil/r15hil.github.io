@@ -23,7 +23,6 @@ These artichoke hearts are grilled with lemon zest and Italian hard cheese. They
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/86.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Drain and quarter the artichoke hearts
 
 Line 1 <span class="text-danger">(2)</span> oven-proof tray<span class="text-danger">(s)</span> with parchment and place the artichoke quarters on top
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/86.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Season generously with salt and pepper
 
 Oven-roast for 20-25 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/86.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, cook the pasta in a pot of salted boiling water for 8-10 min or until
 
 Drain and retain a cup of pasta water for step 7
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/86.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Chop the capers coarsely
 
 Quarter the lemon
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/86.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Dissolve 1/2 the <span class="text-danger">(whole)</span> vegetable stock cube i
 
 Chop the parsley finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/86.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,7 +95,6 @@ Add the garlic, chopped capers and oregano and cook for a further 1-2 min
 
 Add the juice of 1/2 the <span class="text-danger">(whole)</span> lemon
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/86.-step-7-x200.jpg)
 
 ### Step 7
 

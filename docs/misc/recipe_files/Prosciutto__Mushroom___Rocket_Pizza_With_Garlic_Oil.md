@@ -22,7 +22,6 @@ This easy pizza is a class act. First, top pizza bases with a herby tomato sauce
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721813790789-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Peel and finely slice (don't chop!) your garlic
 
 Slice your button mushrooms finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721813793795-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid out
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721813797254-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Add your tomato paste to a bowl with your dried oregano and a generous pinch of 
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721813801209-x200.jpg)
 
 ### Step 4
 
@@ -62,13 +58,11 @@ Top with the sliced mushrooms and torn mozzarella
 
 Tip: Cooking for 2 or more? Make sure the pizzas don't overlap on the tray to avoid raw dough!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721813804630-x200.jpg)
 
 ### Step 5
 
 Put the tray in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your mushroom pizza[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721813808150-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Once fragrant, remove from the heat and set aside to infuse until serving – th
 
 Wash your rocket, then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721813812088-x200.jpg)
 
 ### Step 7
 

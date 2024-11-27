@@ -25,7 +25,6 @@ This spicy tray bake is the dinner of dreams. You’ll coat chicken, red pepper 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681827362907-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Cut your potatoes (skins on) into fries and add them to a baking tray (or two!) 
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 10-15 min or until beginning to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681827366960-x200.jpg)
 
 ### Step 2
 
@@ -43,13 +41,11 @@ Whilst the fries are cooking, peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681827371807-x200.jpg)
 
 ### Step 3
 
 Combine your ground smoked paprika in a bowl with your ground cumin, dried oregano, chilli flakes (can't handle the heat? Go easy!) and a pinch of salt and sugar – this is your spice mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681827378748-x200.jpg)
 
 ### Step 4
 
@@ -59,13 +55,11 @@ Add your chicken breast strips, sliced onion and pepper strips to the other side
 
 Sprinkle your spice mix over the chicken and vegetables and give everything a good mix up until evenly coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681827386195-x200.jpg)
 
 ### Step 5
 
 Return the tray[s] to the oven and cook for a further 15-18 min or until the fries are golden and the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681827391506-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Grate your cheddar cheese
 
 Combine your mayo and grated garlic (not a big garlic fan? Try using less!) in a bowl with a pinch of salt and a splash of cold water – this is your garlic mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681827395716-x200.jpg)
 
 ### Step 7
 

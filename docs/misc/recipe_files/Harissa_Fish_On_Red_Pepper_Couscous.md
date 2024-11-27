@@ -20,7 +20,6 @@ Fish dishes are a great way to get dinner on the table in way under half an hour
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/532.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,13 +31,11 @@ Add the couscous and sultanas to a large mixing bowl
 
 Add 200ml <span class="text-danger">[400ml]</span>&nbsp;boiled water, cover and set aside&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/532.-step-2-x200.jpg)
 
 ### Step 2
 
 Deseed the peppers (scrape the seeds and pith out with a teaspoon) and dice into small bite-size pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/532.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,13 +47,11 @@ Pat the fish dry&nbsp;and once the pan is hot, add the fish and cook for 2 min o
 
 Season each side with a pinch of salt (whilst in the pan)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/532.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, finely chop the coriander, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/532.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Once the fish has coloured, reduce the heat to medium-low and spoon the harissa 
 
 Add the vinegar to the pan with a big pinch of sugar
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/532.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Tilt the pan towards you and baste (spoon) the vinegar over the fish for 30 sec 
 
 Remove from the heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/532.-step-7-x200.jpg)
 
 ### Step 7
 

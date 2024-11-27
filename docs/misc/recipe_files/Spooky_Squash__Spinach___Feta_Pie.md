@@ -25,7 +25,6 @@ For a spooky supper that'll go down a treat, you'll stuff your pie with roasted 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602518735653-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel the butternut squash and cut in half, scoop out the seeds and discard, then
 
 Peel and chop the red onion<span class="text-danger">[s]</span> into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1602518750991-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Put the bowl in the microwave and cook for 5-6 min or until the squash pieces 
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602518764114-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Mix it all together and put the tray in the oven for 25-30 min or until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1602518783608-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Carefully carve a pumpkin shape into each square, with triangles for the eyes, n
 
 Put the tray in the oven for 15 min or until puffed up and golden – these are your pumpkin pie lids
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1602518800369-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once hot, add the onion wedges with a pinch of salt and cook for 3-4 min or unti
 
 Add the chopped garlic and the softened butternut squash cubes and cook for 2 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602518819214-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add the creamy stock and tied thyme to the pan and bring to the boil
 
 Reduce the heat to medium-low and cook for 5-6 or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602518838120-x200.jpg)
 
 ### Step 7
 

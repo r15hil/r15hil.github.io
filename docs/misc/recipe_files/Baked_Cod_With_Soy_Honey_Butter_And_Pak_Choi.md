@@ -24,7 +24,6 @@ Cooking ‘en papillote’ (meaning in a sealed envelope) is a brilliantly simpl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636384091181-x200.jpeg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Rinse your white long grain rice until the water runs clear, then add it to a po
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked and once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636384093960-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Cut long rectangles of tin foil (approx. the size of A3 sheets of paper), overla
 
 Tip: Overlapping the foil ensures that the fish is completely encased for cooking
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636384096874-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Scatter with the chopped ginger and dot the butter evenly over
 
 Drizzle your soy sauce, honey and rice vinegar evenly over the cod fillet – this is your soy honey butter
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636384099771-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Put the tray in the oven for 12 min or until the fish is cooked through
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636384103226-x200.jpg)
 
 ### Step 5
 
 Meanwhile, wash and slice your pak choi in half lengthways, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1636543258747-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Season with a pinch of salt
 
 Once brown, add a splash of water and cook, covered, for 4-5 min further or until soft
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636384109483-x200.jpg)
 
 ### Step 7
 

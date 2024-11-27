@@ -26,7 +26,6 @@ Tuck into breakfast for dinner, the Turkish way. To make your version of classic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1672753858594-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672753864381-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add a knob of butter and your ground smoked paprika to the pan with your chilli flakes (can't handle the heat? Go easy!) and cook for 1-2 min or until the butter is melted and fragrant – this is your smoky butter
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672753868359-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Return the reserved pan to a medium-high heat
 
 Add your cherry tomatoes and a pinch of salt to the pan and cook for 3-4 min or until the tomatoes start to blister – these are your blistered tomatoes
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672753875043-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Crack your egg[s] gently into the water and leave them for 3 min
 
 Once done, gently transfer the egg[s] with a slotted spoon to kitchen paper or a clean tea-towel and season with a pinch of salt and pepper – this is your poached egg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672753887162-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the sliced ciabatta to a toaster for 1-2 min or until warmed through – the
 
 Combine your natural yoghurt and your roasted garlic paste in a bowl with a pinch of salt and pepper and give everything a good mix up – this is your roasted garlic yoghurt
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672753900981-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Cut your avocado[s] in half lengthways, around the stone
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice into quarter
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672753906019-x200.jpg)
 
 ### Step 7
 

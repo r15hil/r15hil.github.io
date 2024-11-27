@@ -22,7 +22,6 @@ Want a one-pot warmer? You've come to the right hotpot. You'll brown succulent s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1642065391903-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Slice your potatoes (skins on) into discs and add them to a baking tray lined wi
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642065405070-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Cut your sausages into rough bite-sized pieces
 
 Once hot, add the sausage pieces to the pan and cook for 3-5 min or until browned all over
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642065415856-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Peel and finely slice your brown onion[s]
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642065428062-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once the sausages have browned, add the sliced onion to the pan and cook for 3-4
 
 Meanwhile, dissolve your beef stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water and add your Henderson's Relish – this is your Henderson's stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1642065439447-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add your Chinese rice wine and cook for 30 secs or until evaporated
 
 Stir in 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour and add the Henderson's stock and cook for a further 4-5 min or until the sauce has slightly thickened, then transfer it to an oven-proof dish – this is your sausage & apple hotpot filling
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642065451071-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Reserve the baking tray and keep the tin foil!
 
 Put the dish in the oven for 20-25 min or until everything is bubbling, the potatoes are golden and the sausages are cooked through (no pink meat!) – this is your sausage & apple hotpot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642065468599-x200.jpg)
 
 ### Step 7
 

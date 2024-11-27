@@ -29,7 +29,6 @@ This tray bake is inspired by Germany's favourite fast food: the Currywurst. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599138692475-x200.jpg)
 
 ### Step 1
 
@@ -39,13 +38,11 @@ Peel and chop your sweet potato[es] into bite-sized pieces
 
 Chop your potato[es] (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599138698402-x200.jpg)
 
 ### Step 2
 
 Peel and chop half your red onion[s] into wedges (you'll use the rest later!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599138711919-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add your sausages, chopped potato, chopped sweet potato and onion wedges to a ba
 
 Put the tray[s] in the oven for an initial 25-30 min or until the sausages are cooked through (no pink meat!) and the potatoes are golden
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599138718566-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Peel and finely chop (or grate) your garlic
 
 Wash your shredded kale, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599138724270-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add the chopped garlic and cook for a further 1-2 min
 
 Once everything has softened, add most of your curry powder (save a little for garnish!) and ground smoked paprika and cook for 30 secs
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599138737782-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once thickened, remove the pan from the heat and set aside
 
 Warm through again just before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599138747158-x200.jpg)
 
 ### Step 7
 

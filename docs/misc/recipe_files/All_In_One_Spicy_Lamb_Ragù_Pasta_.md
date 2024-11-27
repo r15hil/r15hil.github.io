@@ -30,7 +30,6 @@ This easy one-pot wonder combines lamb mince, carrot and onion in a spicy tomato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1620663919761-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620663939370-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid,
 
 Peel and roughly chop your red onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620663983954-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Top, tail and chop your carrot[s] in half lengthways, then slice at an angle
 
 Crush your garlic clove[s] open by squashing them with the side of a knife and remove the skins
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620663992479-x200.jpg)
 
 ### Step 4
 
 Add your lamb mince to the dish, breaking it up into rough, large chunks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1620663997178-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add the chopped tomatoes, tomato paste, beef stock mix and 450ml <span class="te
 
 Add your balsamic vinegar with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and bring to the boil over a high heat – this is your spicy lamb ragù
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620664009572-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once boiling, cover with a lid and put the dish in the oven for 20 min or until 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620664016377-x200.jpg)
 
 ### Step 7
 

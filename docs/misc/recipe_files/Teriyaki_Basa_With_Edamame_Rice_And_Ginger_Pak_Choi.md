@@ -21,7 +21,6 @@ Made with soy sauce & honey, the lightly sweet, umami-rich flavour of teriyaki s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1650443780575-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Cut the pak choi in half
 
 Peel (scrape the skin off with a teaspoon) and finely slice the ginger
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1649848081765-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the pak choi halves to the middle with the sliced ginger, a drizzle of veget
 
 Scrunch the edges of the foil around the pak choi to form 1 <span class="text-danger">[2]</span> sealed parcel<span class="text-danger">[s] </span>and add to a baking tray, then put the tray in the oven for 15 min or until the pak choi is tender – this is your ginger pak choi
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1649848085766-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once the rice is done, stir through the blanched edamame beans – this is your edamame rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649848088629-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Once hot, add the basa fillets and cook for 3-4 min on each side or until cooked
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1649848092475-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Once done, remove the pan from the heat, transfer the basa fillets to a plate an
 
 Reserve the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1649848095655-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ While the fish is cooking, add the soy sauce, honey and cornflour to a small bow
 
 Once combined, add 150ml<span class="text-danger"> [250ml]</span> cold water – this is your teriyaki sauce mix
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1649848099207-x200.jpg)
 
 ### Step 7
 

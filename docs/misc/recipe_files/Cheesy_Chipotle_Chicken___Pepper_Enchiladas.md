@@ -28,7 +28,6 @@ A Tex-Mex classic, chicken enchiladas are a guaranteed crowd-pleaser! You'll mak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688465379113-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688465384259-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Once hot, add the diced chicken breast, diced pepper, ground cumin and dried 
 
 Once cooked, transfer the chicken and pepper to a plate and set aside, reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688465390419-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Peel and finely chop (or grate) your garlic
 
 Drain and rinse your black beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688465394384-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once fragrant, add 15g <span class="text-purple">[22g]</span> <span class="text-
 
 Turn the heat down to low and stir your chipotle paste and tomato paste into the roux
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688465398789-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Season with a grind of black pepper – this is your chipotle sauce
 
 Remove 1/3 of the chipotle sauce to a small saucepan – this is your enchilada topping
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688465402798-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Re-heat the enchilada topping on a high heat for 2-3 min or until the sauce has
 
 Grease an oven-proof dish with a little vegetable oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688465410096-x200.jpg)
 
 ### Step 7
 

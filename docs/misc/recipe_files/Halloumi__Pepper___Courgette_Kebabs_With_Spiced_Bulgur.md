@@ -30,7 +30,6 @@ These veg-packed kebabs will have you singing hallelu-mi. Skewer marinated chunk
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666609622118-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Chop your halloumi into large bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666609628415-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) your garlic
 
 Cut your red chilli[es]<span class="text-danger"> </span>in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666609634083-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Add your baharat with a drizzle of olive oil and a good grind of pepper
 
 Boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666609639408-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Give everything a good mix up, then thread the halloumi and veg evenly onto 2 so
 
 Add a drizzle of vegetable oil to a baking tray (or two), then  evenly onto  i & veg skewers and put the tray[s] in the oven for 10 min or until starting to soften – these are your halloumi, pepper & courgette kebabs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666609647390-x200.jpg)
 
 ### Step 5
 
@@ -80,13 +75,11 @@ Once fragrant, add plenty of boiled water and bring to the boil over a high heat
 
 Once cooked, drain and return to the pot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666609654311-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your white wine vinegar, honey, natural yoghurt and a pinch of pepper in a bowl – this is your sweet & tangy yoghurt
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666609665030-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Our punchy cashew sauce is the star of this super green grain bowl. You’ll sti
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655976694968-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Strip your mint leaves from their stems, discard the stems
 
 Add your cashew nuts to a small bowl, cover them with boiled water and set aside to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655976699844-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Peel and finely chop half of your garlic<span class="text-danger"> </span>(save 
 
 Cut your lime[s]<span class="text-danger"> </span>in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655976704286-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Season your free range chicken breast portion[s] on both sides with salt and pep
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) over a medium-high heat
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655976708779-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once golden, reduce the heat to medium and add the chopped garlic and a couple o
 
 Cover with a lid and cook for a further 12-15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655976713174-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Bring to the boil over a high heat and once boiling, reduce the heat to medium t
 
 Once done, remove the pot from the heat, fluff with a fork and set aside until later
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655976717746-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Drain the soaked cashews and add them to a food processor with the mint leaves (
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>olive oil, 1 tbsp <span class="text-purple">[1 tbsp]</span> <span class="text-danger">[1 1/2 tbsp]</span> cold water, 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar and a generous pinch of salt and pepper and blitz until smooth – this is your zingy cashew sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655976721518-x200.jpg)
 
 ### Step 7
 

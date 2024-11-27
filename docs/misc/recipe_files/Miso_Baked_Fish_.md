@@ -20,7 +20,6 @@ Miso paste has a natural saltiness, and when mixed with honey it forms a salty, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/479.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the rice, 375ml <span class="text-danger">(750ml)</span> water, lemongrass a
 
 Meanwhile, preheat the grill to high
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/479.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Combine the miso paste and honey in a bowl with 1 tbsp <span class="text-danger"
 
 Mix well into a smooth sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/479.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip: Use tin foil to avoid mess
 
 Divide the paste between the fillets, spreading over evenly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/479.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Place the tray under the grill for approx. 10 min or until the miso paste has st
 
 Tip: The charring will give the fish a smoky sweetness
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/479.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Heat a dry, wide-based pan with matching lid on a high heat&nbsp;
 
 When hot, add the pak choi (cut side down) and cook for 3 min or until charring (families might need to do this in batches)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/479.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Add approx. 2-4 tbsp hot water, cover and cook for a further 2-3 min or until te
 
 Season lightly with pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/479.-step-7-x200.jpg)
 
 ### Step 7
 

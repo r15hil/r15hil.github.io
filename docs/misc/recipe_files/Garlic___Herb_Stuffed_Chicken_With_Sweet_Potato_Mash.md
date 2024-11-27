@@ -23,7 +23,6 @@ Make our simple, saucy twist on chicken kiev. You'll stuff chicken breasts with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1615303235940-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and grate your garlic
 
 Add the grated garlic to a bowl with your soft cheese, half of your dried oregano (save the rest for later!) and a pinch of black pepper – this is your garlic & herb mix
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1615303256489-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Use a sharp knife to cut a deep pocket along the top of your chicken breast port
 
 Stuff the chicken pocket[s] with the garlic & herb mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1615303278833-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Add the stuffed chicken to a small oven-proof dish and scatter over your cherry 
 
 Tip: Cooking for 3 or more? Use two dishes!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1615303298438-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Drizzle with olive oil and sprinkle with the remaining dried oregano and a pinch
 
 Add the dish to the oven for 20-25 min or until the chicken is cooked through (no pink meat!) and the tomatoes and garlic & herb mixture have created a sauce in the bottom of the dish – this is your garlic & herb stuffed chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1615303309023-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt ove
 
 Once cooked, drain and return to the pot to steam dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1615303396204-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Trim, then add your green beans to a baking tray (or two!) with a drizzle of oli
 
 Once the chicken has 10 min left, add the tray[s] to the oven and cook for 8-10 min until the beans have softened and started to brown – these are your roasted green beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1615303419679-x200.jpg)
 
 ### Step 7
 

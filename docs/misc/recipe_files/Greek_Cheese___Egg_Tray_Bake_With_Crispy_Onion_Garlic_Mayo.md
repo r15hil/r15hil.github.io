@@ -28,7 +28,6 @@ Dinner time just got a little crispier with this smoky traybake, packed with pot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707144490618-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chopped potatoes to a large heat-proof bowl covered with cling film
 
 Put the bowl in the microwave for 6-9 min or until the potatoes are fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707144494456-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and cut your red onion[s] into quarters, then separate the wedges so you en
 
 Chop your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707144498662-x200.jpg)
 
 ### Step 3
 
@@ -60,13 +57,11 @@ Add the onion petals, chopped tomatoes and chopped pepper with your dried thyme,
 
 Add a generous pinch of salt and pepper with a drizzle of olive oil and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707144502157-x200.jpg)
 
 ### Step 4
 
 Put the tray[s] in the oven and cook for 12-15 min or until the pepper is tender – this is your roast veg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707144505724-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Add a splash of cold water and give everything a good mix up – this is your ga
 
 Wash your spinach and pat dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707144509478-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once the roast veg is ready, remove the tray[s] from the oven and make 1 well pe
 
 Add the spinach and return the tray[s] to the oven for 2 min or until slightly wilted
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707144513368-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ This simple stir-fry is perfect for the whole family to enjoy! Tofu, crunchy swe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649839535118-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649839539166-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the meat-free chicken and cook for 3 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649839542723-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain, reserving a cup of the starchy noodle water and set aside
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649839547435-x200.jpg)
 
 ### Step 4
 
@@ -58,19 +54,16 @@ Once golden, add the chopped pepper to the pan with the meat-free chicken
 
 Add the ginger paste and garlic and cook for 4-5 min further or until the pepper is beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649839552157-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine the soy sauce with the toasted sesame oil and honey in a small bowl – this is your stir-fry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649839556513-x200.jpg)
 
 ### Step 6
 
 Once the meat-free chicken is warmed through, rinse the blanched edamame beans under cold running water, then add to the pan and cook for 30 secs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649839562490-x200.jpg)
 
 ### Step 7
 

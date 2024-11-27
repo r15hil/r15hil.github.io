@@ -28,7 +28,6 @@ Thailand's iconic fried rice is yours for the taking. Our twist is a veg-packed 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662461890133-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, transfer it to a plate and spread it out flat to help it cool down – this is your coconut rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662461895203-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Slice half your red chilli[es] finely into rounds
 
 Cut the remaining red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662461901049-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Add the juice of half your lime[s], 1 tsp <span class="text-purple">[1 1/2 tsp] 
 
 Add<span class="text-danger"> </span>pineapple rings for per person (save the rest for later!) to the pineapple glaze
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662461906184-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once lightly charred, add your cashew nuts to the pan and cook for a further 1-2
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662461913991-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Trim, then chop your greens beans in half
 
 Chop the remaining pineapple into bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662461919384-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Once hot, add the sliced shallot, grated carrot, halved green beans and chopped 
 
 Once softened, add your ground turmeric and curry powder to the pan and cook for a further 1-2 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662461928224-x200.jpg)
 
 ### Step 7
 

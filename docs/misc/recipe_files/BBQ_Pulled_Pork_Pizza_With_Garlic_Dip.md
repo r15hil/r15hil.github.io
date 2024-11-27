@@ -26,7 +26,6 @@ For this smoky takeaway fave, you’ll top flame-baked pizza bases with sticky B
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720004634687-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720004638349-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your tomato paste to a bowl with your BBQ sauce and 5 tbsp<span class="text-
 
 Season with a pinch of salt and pepper and stir it all together – this is your BBQ base
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720004644100-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720004649694-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add your BBQ pulled pork to a clean chopping board and chop into small bite-size
 
 Transfer the chopped BBQ pork to a bowl with the juices and mix it all together – this is your BBQ pork
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720004657106-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Divide the BBQ base between the pizza base[s] and spread it evenly all over with
 
 Top with the torn mozzarella and put the tray[s] in the oven for 12-15 min or until the cheese has melted and the base is crispy – this is your BBQ pork pizza[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720004662540-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Combine the chopped garlic (not a big garlic fan? Try using less!) with your mayo, dried oregano and 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water – this is your garlic dip
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720004666604-x200.jpg)
 
 ### Step 7
 

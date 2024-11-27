@@ -25,7 +25,6 @@ Get your sandwich fix with this spicy take on a classic cheese toastie. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1700568887024-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your herby fries
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1700568892270-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Grate your cheddar cheese finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700568898524-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Slice your ciabatta[s] in half
 
 Slice your tomato[es] into rounds
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700568904119-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Tear over your 'Nduja (can't handle the heat? Go easy!) and drizzle over most of
 
 Place a ciabatta lid on top – this is your 'Nduja ciabatta
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1700568909239-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once hot, add the 'Nduja ciabatta and cover with a smaller pan
 
 Add a heavy weight (eg. several tins) to the top pan and cook for 4-5 min per side, checking occasionally or until the ciabatta is golden and the cheese has melted – this is your 'Nduja hot honey cheese toastie
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1700568915561-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Combine your mayo and grated garlic (not a big garlic fan? Try using less!) in a
 
 Add 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar and a small pinch of salt  – this is your garlic dip
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1700568921212-x200.jpg)
 
 ### Step 7
 

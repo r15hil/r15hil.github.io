@@ -27,7 +27,6 @@ These plant-packed tortillas are deliciously smoky. You’ll simmer sweet potato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678875840984-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the potato is fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678875872144-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Combine 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-d
 
 Combine your vegetable stock mix and tomato paste with 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678875900894-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add the drained black beans, ground cumin and half your ground smoked 
 
 Once fragrant, add the cooked sweet potato and tomato stock to the pot with a generous pinch of salt and cook for a further 3-4 min or until the sauce has thickened – this is your black bean & sweet potato mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678875913403-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Tip: This will make filling your tortillas easier!
 
 Repeat this with the remaining tortillas – these are your tortilla shells
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678875924092-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Use the remaining flour paste to seal the top half of the tortilla shells – th
 
 Tip: Press firmly on the edges to make sure there are no gaps!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678875962238-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add the plant-based black bean & sweet potato tortilla pockets to a baking tray 
 
 While the tortilla pockets are cooking, combine the remaining ground smoked paprika, mayo and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water in a small bowl – this is your paprika mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678875970757-x200.jpg)
 
 ### Step 7
 

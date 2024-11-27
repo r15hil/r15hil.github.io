@@ -29,7 +29,6 @@ Whip up a plant-based twist on one of our popular dishes, the katsu curry. This 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1907.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add your mayo and panko breadcrumbs to separate plates and season the breadcrumb
 
 Toss the tofu strips in the mayo until lightly coated, then press them into the breadcrumbs firmly to evenly coat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1907.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the breaded tofu to a baking tray lined with non-stick baking paper
 
 Drizzle generously with vegetable oil and put the tray in the oven for 20-25 min or until golden and crispy – this is your tofu katsu
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1907.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, stir vigorously to release the starch, then remove from the heat and set aside (lid on) to steam until serving – this is your sticky rice
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1907.-step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Peel your shallot[s] and finely slice into rings
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1907.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Combine your red wine vinegar with 1 tbsp <span class="text-purple">[1 1/2 tbsp]
 
 Add the shallot rings, a pinch of salt and sugar to the bowl then set aside until later – this is your quick-pickled shallot
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1907.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add your curry powder and 2 tbsp <span class="text-purple">[3 tbsp]</span> <spa
 
 Gradually whisk in 300ml <span class="text-purple">[400ml]</span> <span class="text-danger">[500ml]</span> boiled water and cook for 5-6 min or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1907.-step-7-x200.jpg)
 
 ### Step 7
 

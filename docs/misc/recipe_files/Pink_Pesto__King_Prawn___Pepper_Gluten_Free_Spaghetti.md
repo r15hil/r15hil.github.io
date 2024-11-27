@@ -25,7 +25,6 @@ For this dreamy spaghetti, you'll serve juicy king prawns and gluten free pasta 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1707132523120-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1707132525294-x200.jpg)
 
 ### Step 2
 
 While the spaghetti is cooking, chop your pepper[s]<span class="text-danger"> </span>in half (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1707132528470-x200.jpg)
 
 ### Step 3
 
@@ -51,13 +48,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the pepper strips and cook for 5-7 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1707132530890-x200.jpg)
 
 ### Step 4
 
 While the pepper is cooking, peel and finely slice (don't chop!) your garlic
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1707132538850-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Drain your king prawns
 
 Once the pepper has softened, increase the heat to medium-high, then add the sliced garlic and drained king prawns to the pan and cook for 2-3 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1707132541596-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Add your soft cheese, sun-dried tomato pesto, chilli flakes (can't handle the h
 
 Season with a generous pinch of salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1720526332549-x200.jpg)
 
 ### Step 7
 

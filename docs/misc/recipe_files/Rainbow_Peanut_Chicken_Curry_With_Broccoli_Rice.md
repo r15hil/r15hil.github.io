@@ -21,7 +21,6 @@ This chicken curry is so quick, it's nuts! You'll sauté pre-diced chicken and c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626193715361-x200.jpg)
 
 ### Step 1
 
@@ -31,19 +30,16 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chicken breast and the rainbow veg mix with a pinch of salt and cook for 4-5 min or until the chicken has started to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626193736123-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add the broccoli brown rice to a large, heatproof bowl and put the bowl in the microwave for 3-4 min or until piping hot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626193750031-x200.jpg)
 
 ### Step 3
 
 Dissolve the tomato paste, chicken stock mix and peanut butter in 150ml<span class="text-danger"> [300ml] </span>boiling water – this is your peanut stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626193758807-x200.jpg)
 
 ### Step 4
 

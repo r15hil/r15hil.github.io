@@ -19,7 +19,6 @@ For a dish packed full of great-for-you nutrients and omega-3s, you'll top cream
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1588590735776-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Once hot, add the salmon fillets (skin-side down), season with a pinch of salt a
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1618999139667-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Whilst the salmon is cooking, chop the broccoli into florets
 
 Cut the broccoli stalk<span class="text-danger">[s]</span> into bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1588590746598-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ Add the broccoli florets and chopped broccoli stalk to a pot of plenty of boiled
 
 Once boiling, cook for an initial 4-5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1588590750238-x200.jpg)
 
 ### Step 4
 
@@ -55,7 +51,6 @@ After an initial 4-5 min, add the blanched peas to the pot and cook for a furthe
 
 Once the veg is tender, drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1588590754122-x200.jpg)
 
 ### Step 5
 
@@ -63,7 +58,6 @@ Meanwhile, add the soft cheese and pesto to a measuring jug with 50ml <span clas
 
 Give it a good mix up until smooth – this is your creamy pesto sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1588590758175-x200.jpg)
 
 ### Step 6
 
@@ -71,7 +65,6 @@ Return the drained broccoli & peas to a medium-low heat and add the creamy pesto
 
 Cook for 1-2 min or until the sauce has warmed through – this is your creamy pesto veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1588590762200-x200.jpg)
 
 ### Step 7
 

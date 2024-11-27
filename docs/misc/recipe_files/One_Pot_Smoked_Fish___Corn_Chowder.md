@@ -21,7 +21,6 @@ Chowder is a hearty bowl of creamy fish stew - here smoked basa is paired with c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/876.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Peel and finely chop the onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/876.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Add the chopped&nbsp;garlic and cook for a further 1 min&nbsp;
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/876.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel the potatoes and cut them into bite-size pieces&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/876.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the potatoes,&nbsp;the bay leaf<span class="text-danger">[</span><span class
 
 Cook for 10 min over a medium heat&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/876.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Cook for 10-15 min or until the potatoes are tender and the basa can be flaked&n
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/876.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Trim and slice the spring onion<span class="text-danger">[s]</span> finely
 
 Drain and rinse the sweetcorn
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/876.-step-7-x200.jpg)
 
 ### Step 7
 

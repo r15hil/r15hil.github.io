@@ -23,7 +23,6 @@ Poutine, pronounced 'poot-een', is the ultimate Canadian comfort food. For our t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1731594862654-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a kettle
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium-high heat, once hot, add your chicken breast portions with a pinch of salt and cook for 3 min on each side or until golden
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1731594867209-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Once cooked through, transfer the chicken to a plate and reserve the pan
 
 Dissolve your chicken stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml] </span>boiled water – this is your chicken stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1731594870721-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Give everything a good mix up
 
 Put the tray[s] in the oven for 20-25 min or until the fries are golden and crispy
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1731594873380-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Gradually whisk the chicken stock in a little at a time, and cook for 5 min or u
 
 Stir your Henderson's Relish through the sauce — this is your gravy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1731594876622-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once hot, add the sliced spring greens and cook for 3-4 min or until tender with
 
 Season with a pinch of salt – these are your buttered greens
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1731594880163-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once the sweet potato fries are cooked, push them apart to form 1 pile per perso
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1731594883631-x200.jpg)
 
 ### Step 7
 

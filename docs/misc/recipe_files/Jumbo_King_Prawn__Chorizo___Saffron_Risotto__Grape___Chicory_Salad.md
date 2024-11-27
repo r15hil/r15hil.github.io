@@ -26,7 +26,6 @@ Our juicy, jumbo king prawns bring succulent sweetness to this fragrant dish. Yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1512.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Meanwhile, peel and finely dice the brown <span class="text-highlight">onions</
 
 Peel and finely chop (or grate) the garlic. Boil a kettle.
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1512.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Once the chorizo is starting to crisp, add the diced onion and chopped garlic an
 
 Meanwhile, dissolve the chicken stock cube<span class="text-danger">[s]</span> in 800ml <span class="text-danger">[1.6L]</span> boiled water, add the saffron and set aside to infuse – this is your saffron stock.
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1512.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Begin the risotto 
 
 Once the onion has softened, add the <span class="text-highlight">Chinese rice </span><span class="text-highlight">wine</span> <span class="text-highlight">and</span> arborio rice and cook for 1 minute, stirring to coat the grains in the oil.
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1512.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Continue to add the stock a little at a time, stirring continuously for 30-35 mi
 
 Tip: add a splash more boiled water if it's looking a little dry or the rice isn't quite cooked!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1512.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,7 +90,6 @@ Separate the chicory leaves until you're just left with the core. Cut the core 
 
 Combine the balsamic vinegar and 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil in a bowl. Add a pinch of salt and sugar and mix well until combined – this is your balsamic dressing.
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1512.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -110,7 +104,6 @@ Chop the lemon<span class="text-danger">[s]</span> in half.
 
 Once the rice is cooked, add a large knob of butter, most of the chopped parsley and the juice of 1/2 <span class="text-danger">[1]</span> lemon – this is your chorizo &amp; saffron risotto.
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1512.-step-7-x200.jpg)
 
 ### Step 7
 

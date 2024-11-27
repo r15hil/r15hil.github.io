@@ -27,7 +27,6 @@ Pan-fried salmon is packed with nutritious omega 3s. Throw a fragrant, spicy kal
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1588587260208-x200.jpg)
 
 ### Step 1
 
@@ -37,19 +36,16 @@ Once hot, add your salmon fillet[s], season with a pinch of salt and pepper and 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1588587268160-x200.jpg)
 
 ### Step 2
 
 Whilst the salmon is cooking, trim, then chop your green beans in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Garlic-1729511000281-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1588587276050-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Once hot, add the halved green beans and cook for 2-3 min or until starting to s
 
 Wash your shredded kale, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1588587280027-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add a small splash of water and a pinch of salt
 
 Cook for 3-4 min further or until the greens are tender with a slight bite
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1588587283892-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Add your toasted sesame oil, soy sauce, sriracha and chilli flakes (can't handle
 
 Squeeze in the juice of half your lime[s] and add a generous pinch of salt, then give everything a good mix up – these are your spicy stir-fried greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1588587288123-x200.jpg)
 
 ### Step 7
 

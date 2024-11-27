@@ -24,7 +24,6 @@ Puy style lentils, roasted wedges of butternut squash and crispy sage form this 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/159.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Boil a kettle&nbsp;
 
 Slice the squash in half lengthways, remove the seeds (with a spoon) and slice into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/159.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel&nbsp;and finely dice the onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/159.-step3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large pan with&nbsp;1-2 tbsp olive oil over a medium-high heat
 
 Once&nbsp;hot, add the onion and carrot and cook for 4 min or until the onion is soft
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/159.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Sprinkle&nbsp;with the baharat and drizzle with 2-3 tbsp olive oil
 
 Put the tray in the oven for 25-30 min, or until tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/159.-step5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add 500ml <span class="text-danger">[1L]</span>&nbsp;boiled water and the lentil
 
 Cook&nbsp;for 25-30 min&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/159.-step6-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Remove the toasted seeds from the pan and set aside&nbsp;
 
 Return the pan to a medium-low heat with 3-5 tbsp olive oil
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/159.-step7-x200.jpg)
 
 ### Step 7
 

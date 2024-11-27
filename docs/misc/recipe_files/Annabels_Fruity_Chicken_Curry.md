@@ -25,7 +25,6 @@ Renowned for getting kids exploring and enjoying new flavours, Annabel's signatu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1044.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1044.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 Peel and finely slice the apple<span class="text-danger">[s]</span>
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1044.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once hot, add the carrot and onion&nbsp;with a pinch of salt and cook for 4 min 
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1044.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Boil a kettle
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1044.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,7 +86,6 @@ Meanwhile, remove the coconut cream from the sachet<span class="text-danger">[s]
 
 Dissolve the chopped coconut cream and chicken stock cube<span class="text-danger">[s]</span>&nbsp;400ml <span class="text-danger">[700ml]</span> boiled water&nbsp;&ndash; this is your coconut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1044.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,7 +97,6 @@ Add the&nbsp;coconut stock,&nbsp;mango chutney,&nbsp;and tomato paste&nbsp;to th
 
 Once boiling, reduce the heat to medium-low and cook for 5 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1044.-step-7-x200.jpg)
 
 ### Step 7
 

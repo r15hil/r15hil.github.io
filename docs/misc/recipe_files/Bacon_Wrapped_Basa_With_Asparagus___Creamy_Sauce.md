@@ -25,7 +25,6 @@ Surf and turf your way to flavour heaven with this smoky bacon wrapped basa. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1709311416731-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your waxy potatoes to a pot of plenty of boiled water and bring to the boil 
 
 Once boiling, cook for 8-10 min or until just tender, then drain, reserving the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1709311426376-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the cooked potatoes to one side of a tin foil-lined baking tray (or two!) wi
 
 Meanwhile, wrap your basa fillet[s] in your smoked streaky bacon – this is your bacon wrapped basa
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1709311431774-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Return the tray[s] to the oven for 15-20 min further or until the bacon is crisp
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1709311441228-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Chop your dill & chive mix finely, including the stalks
 
 Dissolve your chicken stock mix in 100ml <span class="text-purple">[125ml]</span><span class="text-danger"> [150ml] </span>boiled water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1709311447179-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced garlic to the pan and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1709311452740-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once reduced, add the juice of half your lemon[s] and the chopped dill & chives 
 
 Cut the remaining lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709311458346-x200.jpg)
 
 ### Step 7
 

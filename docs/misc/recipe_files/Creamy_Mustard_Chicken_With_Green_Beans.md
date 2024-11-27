@@ -22,7 +22,6 @@ This creamy mustard chicken is a French casserole the whole family will love. Fo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1601372878291-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Season the chicken thigh skins generously with salt
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium heat, once hot, add the chicken (skin-side down) and cook for 10-12 min or until the skins have browned and crisped
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601372904956-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601372911020-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Chop the chestnut mushrooms roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601372920190-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Trim, then lay the green beans in the middle with 1 tbsp <span class="text-dan
 
 Scrunch the edges of the foil around the beans to form 1 <span class="text-danger">[2]</span> sealed parcel<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601372934997-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the green bean parcel<span class="text-danger">[s]</span> to the baking tray
 
 Boil half a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601372951638-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add the chopped mushrooms and sliced shallot with a pinch of salt and cook for
 
 Dissolve the chicken stock mix in 150ml <span class="text-danger">[300ml]</span> boiled water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601372968364-x200.jpg)
 
 ### Step 7
 

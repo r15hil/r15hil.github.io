@@ -28,7 +28,6 @@ In this classic Italian dish, slow-cooked peppers become a deliciously sweet and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1188.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Strip your rosemary leaves and chop finely, discarding the stems
 
 Cut your waxy potatoes into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1188.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the chopped rosemary and a pinch of salt and pepper and give everything a go
 
 Put the tray in the oven for 25-30 min or until the potatoes are starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1188.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon)
 
 Peel and finely slice your red onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1188.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once softened, add the sliced red onion and cook for 5-6 min further
 
 Boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1188_step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add your dried oregano and a pinch of salt and pepper and give it a good mix up
 
 Put the tray in the oven and cook for 15-20 min or until the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1188.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add your balsamic vinegar and tomato paste to the peppers and cook for 1 min fur
 
 Add the chicken stock with a pinch of sugar and cook for 10-12 min or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1188.-step-7-x200.jpg)
 
 ### Step 7
 

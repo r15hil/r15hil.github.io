@@ -25,7 +25,6 @@ Jet set to Java to meet Indonesia’s secret ingredient – ketjap manis. This s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723198642221-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20-25 min or until starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723198646019-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add your lime leaf[ves] to a small bowl and cover them with boiled water
 
 Set aside to soften for 2-3 min, then slice finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723198649005-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Tip: Watch the garlic like a hawk to make sure it doesn’t burn!
 
 Once golden, transfer to kitchen paper, set aside and reserve the pan for later – this is your crispy garlic & lime leaf
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723198654157-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once hot, add your chicken thighs, skin-side down and cook for 10 min or until t
 
 Once browned, reduce the heat to medium high, then flip and cook them for a further 8 min or until cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723198657534-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Tip: Soak the spring onion strips in ice cold water and they will curl up!
 
 Combine your cornflour, ketjap manis and ginger paste with 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> boiled water – this is your ketjap manis sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723198660806-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Once your potatoes have had an initial 20 min, remove the tray[s] from the oven,
 
 Add the sliced pepper and chopped green beans to the other side of the tray[s] and return to the oven for 7-8 min or until the veg has cooked through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723198664430-x200.jpg)
 
 ### Step 7
 

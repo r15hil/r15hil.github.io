@@ -26,7 +26,6 @@ Tuck into this Chinese-style takeaway traybake. You’ll roast succulent sausage
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1669137493214-x200.jpg)
 
 ### Step 1
 
@@ -34,19 +33,16 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skins on) into bite-size pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669137497264-x200.jpg)
 
 ### Step 2
 
 Peel and chop your red onion[s]<span class="text-danger"> </span>into wedges
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669137503090-x200.jpg)
 
 ### Step 3
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669137509909-x200.jpg)
 
 ### Step 4
 
@@ -56,7 +52,6 @@ Add a drizzle of vegetable oil and a grind of black pepper and give everything a
 
 Put the tray[s] in the oven for an initial 25-30 min or until the sausages are cooked through (no pink meat!) and the potatoes are golden
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669137514912-x200.jpg)
 
 ### Step 5
 
@@ -64,13 +59,11 @@ Meanwhile, trim, then finely slice your spring onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1704298030674-x200.jpg)
 
 ### Step 6
 
 Combine your hoisin sauce, toasted sesame oil, chopped garlic and half your sriracha (can't handle the heat? Go easy!) in a bowl with 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>sugar and a small drizzle of vegetable oil – this is your hoisin glaze
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669137530759-x200.jpg)
 
 ### Step 7
 

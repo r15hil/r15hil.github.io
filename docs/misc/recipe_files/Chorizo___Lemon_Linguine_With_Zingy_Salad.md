@@ -26,7 +26,6 @@ To add a smoky twist to creamy pasta, you'll sizzle chorizo until crispy, then t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/995.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,13 +37,11 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/995.-step-2.new2-x200.jpg)
 
 ### Step 2
 
 While your linguine is cooking, peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/995.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,13 +49,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add your diced chorizo and cook for 4-5 min or until beginning to brown and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Halved-cherry-tomatoes-1705660393523-x200.jpg)
 
 ### Step 4
 
 Meanwhile, roughly chop your cherry tomatoes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/995.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Wash your salad, then pat it dry with kitchen paper and add to a bowl with the c
 
 Add the zingy dressing and give it a gentle mix up – this is your zingy salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/995.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once the chorizo has crisped, reduce the heat to medium and add your ground smok
 
 Add the drained linguine with a few splashes of starchy pasta water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/995.-step-7-x200.jpg)
 
 ### Step 7
 

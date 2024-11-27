@@ -22,7 +22,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1654601658704-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1654601610771-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your 'Nduja (can’t handle the heat? Go easy!), breaking it up with a wooden spoon, and cook for 6-8 min or until crisp and golden – this is your crispy 'Nduja
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1654601613458-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked portobello mushroom tortelloni in a colander, reserving a cup of the starchy pasta water (save the pot!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1654601621820-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Chop your parsley finely, including the stalks
 
 Zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1654601622476-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Combine the chopped parsley and lemon zest in a bowl with 2 tbsp <span class="te
 
 Dissolve your chicken stock mix, soft cheese and tomato paste in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your creamy tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1654601623481-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add the sliced garlic and cook for 1-2 min or until fragrant
 
 Once fragrant, add the creamy tomato stock to the pot and cook for 1-2 min or until starting to thicken – this is your creamy tomato sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1654601631376-x200.jpg)
 
 ### Step 7
 

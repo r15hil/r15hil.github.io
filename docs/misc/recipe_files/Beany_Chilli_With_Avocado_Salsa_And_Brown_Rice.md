@@ -33,7 +33,6 @@ All beans and no beef, this chilli ‘non’ carne is plant-based and full of sm
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1636.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,7 +44,6 @@ Peel and finely chop (or grate) the garlic
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into large bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1636.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-5 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1636.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1636.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once the onion has started to soften, add the ground cumin, smoked paprika, toma
 
 Once fragrant, add the vegetable stock and half <span class="text-danger">[all]</span> the chipotle paste (cooking for 2? Save the remaining for another recipe) with 1 tsp <span class="text-danger">[2 tsp]</span> sugar and cook for 10-15 min or until starting to thicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1636.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ While the sauce thickens, drain and rinse the kidney beans
 
 Once the sauce is starting to thicken, add the drained kidney beans and cook for a further 10 min or until a stew-like consistency remains – this is your beany chilli
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1636.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ While the beany chilli is cooking, chop the coriander finely, including the stal
 
 Chop the lime<span class="text-danger">[s]</span> in half, and cut 1/2 <span class="text-danger">[1]</span> into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1636.-step-7-x200.jpg)
 
 ### Step 7
 

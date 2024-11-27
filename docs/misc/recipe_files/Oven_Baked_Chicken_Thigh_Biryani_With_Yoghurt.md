@@ -30,7 +30,6 @@ Gently warm your tastebuds with our take on Indian biryani, infused with hints o
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1666707019972-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666707031447-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add your diced chicken thigh to the dish with a pinch of salt and cook for 3-4 min or until very lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666707036746-x200.jpg)
 
 ### Step 3
 
@@ -60,19 +57,16 @@ Crush your garlic clove[s] open by squashing it with the side of a knife and rem
 
 Add the tomato wedges, crushed garlic and butternut squash cubes to the dish
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1666707155618-x200.jpg)
 
 ### Step 4
 
 Crush your cardamom pods open by squashing them with the side of a knife
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666707061280-x200.jpg)
 
 ### Step 5
 
 Add the crushed cardamom pods and ginger paste to the dish with your ground turmeric, curry powder and bay leaf[ves]<span class="text-danger"> </span>and give everything a good stir
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666707067456-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Add your basmati rice with 350ml <span class="text-purple">[525ml]</span> <span 
 
 Cover with a lid and put the dish in the oven for 15-20 min or until all the water has absorbed, the rice is cooked and the chicken is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666707074482-x200.jpg)
 
 ### Step 7
 

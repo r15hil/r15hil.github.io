@@ -24,7 +24,6 @@ Who says you can’t have a weeknight roast? Tender chicken breast, crispy potat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2005.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the potatoes and Chantenay carrots to a baking tray with a generous drizzle 
 
 Give everything a good mix up and put the tray in the oven for 25 min or until starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2005.-step-2--spring-o-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Dissolve half the chicken stock mix (save the rest for later!) in 150ml <span c
 
 Add a knob of butter to a large bowl with the chopped garlic, chopped spring onion, dried sage, panko breadcrumbs and chicken stock and stir it all together, then set aside to absorb – this is your stuffing mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2005.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Divide the stuffing mixture into 6 <span class="text-danger">[12]</span> stuffin
 
 Drizzle the chicken with olive oil, season with a pinch of salt and pepper and put the tray in the oven for 15 min or until the chicken is cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2005.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Dissolve the remaining chicken stock mix in 250ml<span class="text-danger"> 
 
 Bring to the boil over a high heat and cook for 5-6 min or until thickened – this is your gravy
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2005.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Remove the tray of potatoes and Chantenay carrots from the oven and drizzle the 
 
 Return the tray to the oven and cook for 3-4 min further until the potatoes are crisp and the carrots are tender – these are your roast potatoes and honey-roasted carrots
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2005.-step-6-x200.jpg)
 
 ### Step 6
 
 Wash the shredded spring greens then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2005.-step-7-x200.jpg)
 
 ### Step 7
 

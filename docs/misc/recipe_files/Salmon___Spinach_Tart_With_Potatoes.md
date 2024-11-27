@@ -30,7 +30,6 @@ Let the oven do the work with this simple tart. You’ll top flaky pastry with s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652259099210-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and sugar, reduce the heat to low and cook for a further 6-7 min or until softened and caramelised
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652259109293-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Rinse the wilted spinach under the cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can then chop it roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652259118325-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Combine your soft cheese in a bowl with your Dijon mustard, 1 tbsp<span class="
 
 Cut your potatoes (skins on) into bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652259127577-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Line half a baking tray (or two!) with non-stick baking paper
 
 Add the pastry rectangle[s] to the tray[s]<span class="text-danger"> </span>and score a 1cm border around the edge of the pastry with a knife (the border will puff up and form a nice crust)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652259133628-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the chopped potatoes to the other side of the tray[s]<span class="text-dange
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for 25-30 min or until the pastry is cooked through and puffed up, and the potatoes are golden – this is your spinach tart and crispy potatoes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652259148654-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once hot, add your cherry tomatoes with your balsamic vinegar and cook for 4-5 m
 
 Combine your red wine vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt in a large bowl – this is your dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1652259218301-x200.jpg)
 
 ### Step 7
 

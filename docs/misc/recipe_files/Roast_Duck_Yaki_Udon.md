@@ -24,7 +24,6 @@ Jet off to Japan for street food flavours with an indulgent twist. You’ll whip
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1701688280629-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Separate your duck leg[s] from the white duck fat and duck jelly (you'll use these later!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1701688285020-x200.jpg)
 
 ### Step 2
 
@@ -40,13 +38,11 @@ Add the duck leg[s] to a baking paper-lined baking tray (or two!)
 
 Put the tray[s] in the oven for 28-30 min or until the duck is golden and crispy – this is your roast duck
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1701688290083-x200.jpg)
 
 ### Step 3
 
 While the duck is cooking, combine your cornflour with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> warm water in a small bowl - this is your cornflour mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1701688295251-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Once boiling, reduce the heat to medium and cook for 4-5 min or until thickened 
 
 Set aside the yaki sauce for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1701688300287-x200.jpg)
 
 ### Step 5
 
@@ -66,7 +61,6 @@ Boil a kettle
 
 Trim, then slice your spring onion[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1701688305000-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Tip: Gently separate the noodles with a fork!
 
 Drain the soaked noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1701688309486-x200.jpg)
 
 ### Step 7
 

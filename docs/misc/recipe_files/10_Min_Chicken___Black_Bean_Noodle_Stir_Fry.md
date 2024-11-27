@@ -19,7 +19,6 @@ This super quick and easy stir-fry packs a real flavour punch from our fragrant 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2242-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2242-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the diced chicken breast and cook for 3-4 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2242-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain the noodles, reserving a cup of the starchy noodle water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2242-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,13 +69,11 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
 Cut the sugar snap peas in half
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2242-Step-5-x200.jpg)
 
 ### Step 5
 
 Add the sliced sugar snap peas to the pan and cook for 1-2 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2242-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Add the black bean sauce to the pan and cook for 1 min further or until the sauc
 
 Note: Please make sure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2242-Step-7-x200.jpg)
 
 ### Step 7
 

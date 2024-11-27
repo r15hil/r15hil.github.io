@@ -25,7 +25,6 @@ Get a taste of Xinjiang with these extra spicy noodles. You’ll simmer lamb min
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723820320154-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lamb mince and cook for 5-6 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723820333531-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Meanwhile, top, tail, peel and chop your carrot[s] into batons
 
 Peel and finely slice your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723820342934-x200.jpg)
 
 ### Step 3
 
@@ -53,19 +50,16 @@ Set aside to soak for 5-6 min
 
 Drain the soaked noodles
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723820362226-x200.jpg)
 
 ### Step 4
 
 Once the lamb has browned, add the chopped carrot and sliced onion and cook for 3-4 min or until the veg has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723820370378-x200.jpg)
 
 ### Step 5
 
 Trim, then slice your spring onion[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723820376388-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Once softened, add your ground cumin, ginger & garlic paste and chilli flakes (c
 
 Cook for 1 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723820385408-x200.jpg)
 
 ### Step 7
 

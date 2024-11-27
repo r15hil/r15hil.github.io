@@ -24,7 +24,6 @@ For this Mediterranean-inspired recipe, you'll bake lemony hake on top of potato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690285207507-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690285212430-x200.jpg)
 
 ### Step 2
 
@@ -44,13 +42,11 @@ Boil half a kettle
 
 Chop your potatoes (skins on) into small bite-sized pieces and add them to a large oven-proof dish (or two!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690285219381-x200.jpg)
 
 ### Step 3
 
 Crush your garlic cloves by squashing them with the side of a knife (but keep the skins on!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690285225814-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Add the crushed garlic to the dish[es] with your cherry tomatoes, a generous dri
 
 Give everything a good mix up and put the dish[es] in the oven for an initial 35 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690285231031-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Slice half your lemon[s] into slices and set them aside for later
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690285237675-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Top with your hake fillet[s]
 
 Squeeze over the remaining lemon juice and top the hake with the reserved lemon slices
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690285246620-x200.jpg)
 
 ### Step 7
 

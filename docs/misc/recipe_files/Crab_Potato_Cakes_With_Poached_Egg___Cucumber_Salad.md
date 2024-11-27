@@ -22,7 +22,6 @@ This hot potato is one to keep. You’ll coat paprika-spiced potato and crab cak
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679660028325-x200.jpg)
 
 ### Step 1
 
@@ -34,13 +33,11 @@ Add the chopped potato to a heatproof bowl, then cover the bowl with cling film 
 
 Put the bowl in the microwave for 4-5 min <span class="text-danger">[6-8 min]</span> or until the potatoes are fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679660035302-x200.jpg)
 
 ### Step 2
 
 While the potatoes are cooking, add the panko breadcrumbs to a plate with a generous drizzle of vegetable oil and season with a pinch of salt and pepper and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679660039315-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Break up the crab meat gently with a fork, then add it to the crushed potatoes w
 
 Mix it all together – this is your crab cake mixture
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679660044691-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Divide the crab cake mixture into 6 <span class="text-danger">[12]</span> and sh
 
 Add the coated potato cakes to the baking tray<span class="text-danger">[s]</span>
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679660047590-x200.jpg)
 
 ### Step 5
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 25-30 min or until golden – these are your crab potato cakes
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679660050158-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add the chopped cucumber and baby leaf salad to a large bowl with the cider vine
 
 Give everything a good mix up – this is your dressed salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679660054414-x200.jpg)
 
 ### Step 7
 

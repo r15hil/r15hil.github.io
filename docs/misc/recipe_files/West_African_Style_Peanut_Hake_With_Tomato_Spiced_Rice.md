@@ -32,7 +32,6 @@ Tune in for a West African adventure. You’ll transport your taste buds across 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692080582265-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Heat a pot with a matching lid with a drizzle of vegetable oil over a medium hea
 
 Once hot, add the sliced brown onion with a pinch of salt and cook for 4-5 min or until slightly softened
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692080586345-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add your peanut butter to a bowl with your ginger & garlic paste, soy sauce, gro
 
 Gradually whisk in 4 tbsp<span class="text-purple"> [5 tbsp] </span><span class="text-danger">[6 tbsp]</span> boiled water, a little at a time, until a smooth, thick sauce remains – this is your peanut sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692080590120-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once the onion is slightly softened, reduce the heat to low
 
 Add your tomato paste, ground paprika and chilli flakes (can't handle the heat? Go easy!), stir it all together and cook for 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692080593874-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your tomato spiced rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692080598375-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add your hake fillets to the middle of the foil
 
 Pour the peanut sauce evenly over the hake fillets
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692080602836-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Put the tray in the oven for 15 min or until the hake is cooked through – this
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692080605735-x200.jpg)
 
 ### Step 7
 

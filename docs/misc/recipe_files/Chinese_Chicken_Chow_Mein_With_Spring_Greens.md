@@ -24,7 +24,6 @@ Chow mein means stir-fried noodles, and for this Chinese takeaway classic you'll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2276-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Trim, then slice the spring onions lengthways until you have thin strips and to
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2276-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Boil a kettle
 
 Chop the chicken breasts into small bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2276-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the chopped chicken with a pinch of salt and cook for 3-4 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2276-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Bring to the boil over a high heat and cook for 4-5 min until they're tender wit
 
 Once done, drain the noodles and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2276-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,13 +63,11 @@ Once the chicken has browned, add the chopped garlic, ginger, sliced spring gre
 
 Reduce the heat to low and add the soy sauce and Chinese rice wine and cook for 1 min further
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2276-Step-6-x200.jpg)
 
 ### Step 6
 
 Add the toasted sesame oil to the drained noodles and give everything a good mix up – these are your sesame noodles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2276-Step-7-x200.jpg)
 
 ### Step 7
 

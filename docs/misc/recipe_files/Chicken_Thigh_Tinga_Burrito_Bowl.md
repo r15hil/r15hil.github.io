@@ -29,7 +29,6 @@ That’s a wrap on tortillas, it’s all about the burrito bowl. You’ll load s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1679389551748-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add your white long grain rice to a pot with a lid with 225ml<span class="text-p
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1679389568826-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Meanwhile, combine the diced chicken thigh in a bowl with your ground smoked pap
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1679389574459-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated chicken to the pan and cook for 10-12 min or until cooked through (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1679389580830-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Dissolve your tomato paste and soy sauce in 75ml<span class="text-purple"> [110m
 
 Drain and rinse your black beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1679389589605-x200.jpg)
 
 ### Step 5
 
 Once the chicken is cooked, add the tomato stock to the pan and cook for a further 1-2 min or until the sauce has thickened – this is your chicken tinga
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1679389595794-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Cut the remaining lime into 1 wedge per person
 
 Grate your cheddar cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1679389601907-x200.jpg)
 
 ### Step 7
 

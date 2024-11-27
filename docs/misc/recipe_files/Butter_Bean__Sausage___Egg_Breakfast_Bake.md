@@ -24,7 +24,6 @@ This is breakfast for dinner with an oven-baked twist. You’ll simmer butter be
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696243123974-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a small drizzl
 
 Once hot, add your sausages to the pan and cook for 2-3 min on each side or until beginning to brown
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696243127255-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and finely dice your brown onion[s]
 
 Drain and rinse your butter beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696243130578-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once the sausages have browned, transfer them to a plate and set aside
 
 Return the dish to a medium heat and add the diced onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696243133470-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once fragrant, add your chicken stock mix, drained butter beans and chopped toma
 
 Once boiling, add the browned sausages to the pot, cover with a lid and put this dish in the oven for an initial 20 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696243136569-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Wash your spinach
 
 Slice your ciabatta[s] in half, then slice into 5 strips per person – these are you ciabatta soldiers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696243140643-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Make a well per person in the pan and crack your eggs into them
 
 Return the dish to the oven, uncovered, for 6-8 min or until the eggs are done to your liking and the sausages are cooked through (no pink meat!) – this is your butter bean, sausage & egg breakfast bake
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696243143892-x200.jpg)
 
 ### Step 7
 

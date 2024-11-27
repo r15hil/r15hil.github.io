@@ -24,7 +24,6 @@ This Indonesian-style chicken rice is a delicious three in one – it's spicy, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/978.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Slice the chestnut mushrooms finely
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely, separating the white parts from the green
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/978.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), over a 
 
 Once hot, add the sliced chestnut mushrooms and cook for 2-3 min or until they're starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/978.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/978.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Once the mushrooms have browned, add the spring onion whites and the chopped ch
 
 Cook for 2-3 min or until the chicken has started to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/978.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the chicken has browned, stir the chopped garlic, chopped ginger, half of the soy sauce, and half of the chopped chilli (can't handle the heat? Go easy!) into the pan and cook for 30 secs or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/978.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Once fragrant, add the basmati rice and 300ml <span class="text-danger">[600ml]<
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed, the rice is cooked and the chicken is cooked through (no pink meat!) – this is your Indonesian-style chicken rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/978.-step-7-x200.jpg)
 
 ### Step 7
 

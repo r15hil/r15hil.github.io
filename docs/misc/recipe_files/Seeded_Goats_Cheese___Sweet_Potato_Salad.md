@@ -20,7 +20,6 @@ To whip up this warm salad, you’ll toss roasted sweet potato and onion with sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/742.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut your red onion[s] into quarters, leaving the skins and root on
 
 Tip: This stops them drying out and falling apart when roasting
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/742.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Drizzle with olive oil and season with a generous pinch of salt and pepper
 
 Put the tray[s] in the oven for 20-30 min or until the onion is tender and the sweet potato is cooked and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/742.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ While the sweet potato and onion is cooking, wash your salad and pat dry with k
 
 Once dry, add it to a large mixing bowl
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/742.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Once toasted, remove the tray from the oven and leave to cool
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/742.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Meanwhile, combine your white wine vinegar with a generous drizzle of olive oil
 
 Chop your chopped dates up a little more, so they are very finely chopped
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619687642175-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Press your goats' cheese rounds into the fruity seed mix (save any remaining fru
 
 Tip: Apply a good amount of pressure so that the mix sticks to the cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/742.-step-7-x200.jpg)
 
 ### Step 7
 

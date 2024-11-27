@@ -22,7 +22,6 @@ This summer pasta celebrates one of our favourite flavour combinations – ham a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1070.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Continue to boil the baby gammon&nbsp;for 30 min or until it's cooked through
 
 Use the next 15 min to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1070.-step-3-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cook the&nbsp;conchiglie for 6 min
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1070.-step-2-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Roughly chop most of the pea shoots,&nbsp;saving the rest for garnish
 
 Grate the cheddar cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1070.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Once the conchiglie has&nbsp;been cooking for&nbsp;6 min, add the garden peas an
 
 Once done, drain the conchigle and peas, reserving a cup&nbsp;of the starchy pasta water and keep the pot for the next step
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1070-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Once the baby gammon&nbsp;is done, transfer it to a board and shred it, using tw
 
 Tip: if you don't want to pull the gammon, simply cut it up into bite-size pieces!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1070.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once hot, add the chopped garlic and cook for 1 min
 
 Add&nbsp;the conchiglie, peas,&nbsp;shredded&nbsp;ham&nbsp;with a generous splash of starchy pasta water&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1070.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ Pack in the bean protein with this plant-based chilli. You’ll simmer kidney be
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670343943458-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670343947398-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the diced onion with a very generous pinch of salt and pepper and cook for 3-4 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670343952787-x200.jpg)
 
 ### Step 3
 
@@ -55,13 +52,11 @@ Peel and chop your sweet potato[es]<span class="text-danger"> </span>into bite-s
 
 Add your soy sauce and a pinch of sugar to 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml] </span>boiled water – this is your soy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670343958896-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add the chopped garlic, ground smoked paprika and ground cumin and cook for 30 secs or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670343963318-x200.jpg)
 
 ### Step 5
 
@@ -69,13 +64,11 @@ Once fragrant, add the drained red kidney beans, chopped tomatoes, chopped sweet
 
 Cook, covered, for 12-15 min or until the sweet potato is cooked through – this is your plant-based chilli
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670343968350-x200.jpg)
 
 ### Step 6
 
 Meanwhile, stack your tortillas and slice them into triangles
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670343972384-x200.jpg)
 
 ### Step 7
 

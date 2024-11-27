@@ -26,7 +26,6 @@ Keema is central to Mumbai’s street food scene. To make our veggie version, yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1631622224400-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Drizzle with vegetable oil, add the ground turmeric with a pinch of salt and gi
 
 Put the tray in the oven for 20-25 min or until crisp and cooked through – these are your turmeric roast potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2--1631621842019-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cut the green chilli<span class="text-danger">[es]</span> in half lengthways, de
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631621862331-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Once the onion has softened, add the chopped garlic with the ground cumin, grou
 
 Cook for 1-2 min further or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631621869777-x200.jpg)
 
 ### Step 4
 
@@ -74,13 +70,11 @@ Add the plant-based mince (remove the paper if required!), increase the heat to 
 
 Meanwhile, boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631621886205-x200.jpg)
 
 ### Step 5
 
 Once the meat-free mince has browned, add the garam masala to the pan with 300ml <span class="text-danger">[500ml] </span>boiled water and cook for 3-4 min further or until the sauce has thickened – this is your meat-free mince keema pav
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631621894695-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the brioche halves to a baking tray and put in the oven for 3-4 min or until
 
 Once done, spread the warmed brioche halves with butter
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1631621913674-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This pork pho is all about the broth. You’ll simmer juicy pork and chilli meat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697643269291-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice your chestnut mushrooms
 
 Slice half your red chilli[es] into rounds and finely dice the remaining red chilli
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697643277201-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine the grated onion, diced chilli (can't handle the heat? Go easy!) and por
 
 Divide the meatball mixture and shape them into 4 meatballs per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697643281557-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the meatballs to the pan and cook for 2 min on each side or until 
 
 Once the meatballs have browned, transfer them to a plate and set aside, these will finish cooking in the sauce later (reserve the pan!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697643285351-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender, then dr
 
 Once drained, return the noodles to the pot and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697643290843-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once hot, add the sliced onion and sliced mushrooms and cook for 3-4 min or unti
 
 Once softened, add your pho broth paste, toasted sesame oil, ginger & garlic paste and soy sauce with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml] </span>boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697643296067-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Transfer the browned meatballs to the pan and cook, covered for 12-15 min or unt
 
 Once cooked through, add the drained noodles to the pan and cook for 1 min or until warmed through – this is your pork meatball & mushroom pho
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697643299498-x200.jpg)
 
 ### Step 7
 

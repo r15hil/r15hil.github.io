@@ -29,7 +29,6 @@ Taco chance on meat-free Mexican with an Asian twist. You’ll coat shredded fab
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671544121580-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel (scrape the skin off with a teaspoon) and finely grate your ginger
 
 Add your soy sauce to a bowl with your toasted sesame oil, agave and a grind of pepper and mix to combine – this is your sweet sesame sauce
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671544126080-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat wit
 
 Once hot, add your panko breadcrumbs to the pan with a pinch of salt and cook for 2 min, stirring often or until golden and crispy then transfer to a small bowl and set aside until serving – these are your crispy breadcrumbs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671544131678-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add your Fable pulled mushrooms with a pinch of salt and pepper and co
 
 Once starting to brown, add the grated ginger and chopped garlic and cook for 2-3 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671544158964-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Return the Fable pulled mushrooms to the pan over a high heat and add the sweet 
 
 Once boiling, reduce the heat to medium-high and cook for 2-3 min or until the sauce has thickened – these are your sweet sesame Fable mushrooms
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671544192328-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Wash, then shred your lettuce and pat dry with kitchen paper
 
 Top, tail, peel and grate your carrot[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671544215812-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the shredded lettuce and grated carrot to the bowl of quick-pickled onions a
 
 Add your tortillas to a plate and microwave for 20 secs on high or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671544221110-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Roll up your sleeves, it’s time to whip up this takeaway classic from scratch.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678292962146-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678292975177-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and cut your brown onion[s] into quarters, then separate the wedges so you 
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678292982619-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Tip: Unevenly sized diced beef? Chop any larger pieces into smaller ones!
 
 Add your cornflour and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour to the marinated beef and give everything a good mix up until the beef is fully coated – this is your coated beef
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678292991169-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once hot, add the coated beef to the pan and cook for 3-4 min on each side or un
 
 Once crisp, transfer to a plate and set aside – this is your crispy beef
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678293006651-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ While the beef is cooking, heat a separate large, wide-based pan (preferably non
 
 Once hot, add the onion petals and pepper strips with a pinch of salt and pepper and cook for 3-4 min or until beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678293016472-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your red chilli relish, tomato ketchup, rice vinegar, remaining soy sauce and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> cold water in a bowl – this is your chilli sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678293024274-x200.jpg)
 
 ### Step 7
 

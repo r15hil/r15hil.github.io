@@ -23,7 +23,6 @@ Show your love for The Red Dragons and tackle this Welsh take on a classic burge
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674558647269-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674558667242-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the sliced cucumber to a bowl with your cider vinegar, a pinch of salt and 1
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674558689984-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Divide and shape into equal-sized patties (1 per person!)
 
 Meanwhile, melt a knob of butter in a pot over a medium heat
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674558704261-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Gradually whisk in 100ml <span class="text-purple">[150ml]</span> <span class="t
 
 Once thickened, add the grated cheese with half your wholegrain mustard (you'll use the rest later!), Henderson's Relish and a pinch of pepper and cook for a further 2 min or until the cheese has melted, then remove the pan from the heat – this is your rarebit sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674558714778-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip the patty[ies] and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674558726718-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once browned, transfer the beef burger to a separate tin foil-lined baking tray 
 
 Put the tray in the oven for 5-6 min or until the rarebit sauce is lightly browned and the burgers are cooked through – this is your Welsh rarebit burger
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674558738078-x200.jpg)
 
 ### Step 7
 

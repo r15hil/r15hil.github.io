@@ -24,7 +24,6 @@ When in doubt, tray bake. This healthy, hands-off dinner combines crispy halloum
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1582891958576-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Trim the green stalk<span class="text-danger">[s]</span> off the aubergine<span 
 
 Peel and chop the red onion<span class="text-danger">[s]</span> into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582891963333-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up and put the tray in the oven for an initial 12-15 
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1582891967231-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Meanwhile, chop the cherry tomatoes in half
 
 Once the aubergine and onion have had 12-15 min, add the halved cherry tomatoes to the tray<span class="text-danger">[s]</span> and return to the oven for a further 5 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582891974092-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Add the balsamic vinegar and stir it all together – this is your tomato stock
 
 Slice the halloumi into 3 slices per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582891978064-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Top the veg with the halloumi slices and return to the oven for a final 10-15 mi
 
 Tip: To help the sauce thicken, give it a stir half way through
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Ciabatta-on-a-baking-tray-1678867062200-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ When the halloumi is almost golden, add the ciabatta[s] to a separate baking tra
 
 Carefully slice the warmed ciabattas in half before serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582891989207-x200.jpg)
 
 ### Step 7
 

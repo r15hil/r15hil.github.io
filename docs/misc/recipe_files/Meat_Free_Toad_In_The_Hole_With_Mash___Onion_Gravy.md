@@ -21,7 +21,6 @@ This British classic is a hole-in-one. You’ll cook juicy meat-free sausages in
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-3-1714736050853-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Combine your egg[s], most of your cornflour (save a little for later!) and 35g <
 
 Put the batter in the fridge to rest
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1714736061882-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Add your meat-free sausages to an oven-proof dish with a generous drizzle of veg
 
 Put the dish in the oven for 10-12 min or until the sausages are beginning to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-3-1714736066033-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Scrunch the foil around the veg to form a tightly sealed parcel and add to a bak
 
 Tip: Cooking for 3 or more? Make 2 separate parcels!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1714736070268-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Return the dish to the oven along with the veg parcel[s] and cook for 22-25 min,
 
 Tip: Don't peek! Opening the oven might make your giant Yorkie collapse!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1714736073658-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1714736077425-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Return the potatoes to a low heat with a knob of butter and a splash of milk
 
 Season with a pinch of salt and pepper and mash until smooth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-3-1714736081567-x200.jpg)
 
 ### Step 7
 

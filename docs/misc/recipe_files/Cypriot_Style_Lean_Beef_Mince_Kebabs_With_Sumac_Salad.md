@@ -27,7 +27,6 @@ Looking for big flavour? Marinate, roast and stuff these sizzling lean beef and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1621257968276-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop half the parsley finely, including the stalks (you'll use the rest later!
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1621257977622-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add your lean beef mince, panko breadcrumbs, diced onion, chopped garlic, chop
 
 Give everything a good mix up until fully combined (clean hands is the best way!) – this is your lean beef mince kebab mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1621257987712-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Lightly oil a baking tray (or two!) with vegetable oil and add the Cypriot-styl
 
 Put the tray[s] in the oven for 12-15 min or until the kebabs are cooked through and browned (no pink meat!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1621257997116-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Dice your tomato[es]
 
 Roughly tear your remaining parsley
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1621258004855-x200.jpg)
 
 ### Step 5
 
@@ -79,13 +74,11 @@ Sprinkle over the remaining chilli flakes (not a fan of spice? Just add a littl
 
 Put the tray[s] in the oven for 2-3 min or until warmed through – this are your chilli pitta[s]
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1621258010040-x200.jpg)
 
 ### Step 6
 
 Roll your lemon[s]<span class="text-danger"> </span>with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1621258018838-x200.jpg)
 
 ### Step 7
 

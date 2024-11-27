@@ -23,7 +23,6 @@ The goodness of our cottage pie lies beneath its smooth, cheesy mash topping. Pa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2377-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potatoes to a pot of boiled water, bring to the boil over a h
 
 Once done, drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2377-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Top, tail, and dice the carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2377-v2-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the chopped onion, carrot and garlic and cook for 3-4 min or
 
 Meanwhile, dissolve the beef stock mix and tomato paste in 250ml <span class="text-danger">[400ml] </span>boiled water and stir in the Marmite – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2377-v2-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the beef is browned, add the tomato stock to the pan and bring to the bo
 
 Season with a grind of black pepper and cook for 4-5 min or until slightly thickened – this is your beef mixture
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2377-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ While the beef mixture thickens, return the drained potatoes to a low heat wit
 
 Mash until smooth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2377-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Top with the mashed potato and sprinkle over the grated cheese
 
 Put the dish in the oven for 15-20 min or until golden brown and bubbling – this is your cottage pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/v2-2377-step-7-x200.jpg)
 
 ### Step 7
 

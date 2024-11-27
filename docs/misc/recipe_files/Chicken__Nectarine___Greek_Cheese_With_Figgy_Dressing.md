@@ -22,7 +22,6 @@ Transport yourself to a Greek taverna with our Mediterranean-inspired Greek chee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1027.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1027.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ While the bulgur is cooking, sprinkle the dried oregano over a chopping board wi
 
 Press the chicken breast portions onto the seasoning so that they're evenly coated – this is your seasoned chicken
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1027.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the seasoned chicken and cook for 3 min on each side or until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1027.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Wash the rocket, then pat it dry with kitchen paper
 
 Add the crumbled Greek cheese, sliced spring onion and rocket to a large bowl and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1027.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add a couple of splashes of water and cook, covered, for 12-15 min or until the 
 
 Cut the nectarines in half lengthways, around the stone<span class="text-danger">[s]</span> and remove using a spoon, then roughly chop into bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1027.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the chicken is cooked, transfer it to a clean board and return the pan to a
 
 Once hot, add the chopped nectarine and cook for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1027.-step-7-x200.jpg)
 
 ### Step 7
 

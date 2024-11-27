@@ -28,7 +28,6 @@ For a quick and flavourful supper, look no further than our Japanese-inspired sa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1617035921209-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1617035776745-x200.jpg)
 
 ### Step 2
 
@@ -52,13 +50,11 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Trim, then slice your green beans in half (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617035782280-x200.jpg)
 
 ### Step 3
 
 Once the pan is hot, add your salmon fillet[s] (skin side down!) and the halved green beans with a pinch of salt and cook for 2-3 min or until the beans are starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617035789951-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Meanwhile, add your toasted sesame oil, mirin, rice vinegar, white miso past
 
 Add 100ml <span class="text-purple">[125ml]</span> <span class="text-danger">[150ml] </span>boiled water and mix well – this is your miso sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617035824946-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Cover the pan with a lid and cook for 6-7 min further or until the salmon is co
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617035905496-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1617035912406-x200.jpg)
 
 ### Step 7
 

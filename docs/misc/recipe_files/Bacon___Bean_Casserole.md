@@ -27,7 +27,6 @@ Take a trip down memory lane with this hearty casserole. You’ll simmer aromati
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1672756500983-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Slice your potatoes (skins on) into discs and add them to a baking tray (or two!
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672756505856-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your bacon lardons and cook for 3-4 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672756512515-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Top, tail and dice your carrot[s] finely (no need to peel!)
 
 Boil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672756516211-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Once the lardons are golden, add a knob of butter to the pan with the sliced oni
 
 Season with a crack of black pepper and cook for 5-6 min or until the onion has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672756521622-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Meanwhile, drain and rinse your cannellini beans
 
 Dissolve your beef stock mix, tomato paste and Henderson's Relish in 250ml<span class="text-purple"> [325ml]</span> <span class="text-danger">[400ml] </span>boiled water – this is your stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672756526282-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Add the stock with a pinch of sugar and stir it all together
 
 Bring to the boil over a high heat, then reduce to medium-high and cook for 4-5 min or until the sauce has slightly thickened – this is your bacon & hearty bean filling
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672756532064-x200.jpg)
 
 ### Step 7
 

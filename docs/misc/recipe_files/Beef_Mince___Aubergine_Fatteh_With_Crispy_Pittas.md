@@ -28,7 +28,6 @@ Fatteh is a Levantine classic. Like nachos, but you’ll layer spiced beef and a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1649843929993-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely slice your red onion[s]
 
 Trim the green stalk[s] off your aubergine[s] and chop into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1649843934702-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add the chopped aubergine to a baking tray with a drizzle of olive oil
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649843947261-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your beef stock mix and tomato paste in 300ml <span class="text-purple">[390ml]</span><span class="text-danger"> [550ml]</span> boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649843966411-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your ground cumin, ras el hanout and the chopped garlic to the pan and cook 
 
 Add the tomato stock and cook for 7-8 min or until the sauce has thickened and the mince is cooked through (no pink meat!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1649843970754-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the pitta triangles to a tray
 
 Put the tray in the oven for 8-10 min or until crisp and starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1649843974250-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Chop your tomato[es] roughly
 
 Add the chopped tomato to the bowl with most of the chopped mint (save the rest for garnish!) and a generous drizzle of olive oil – this is your tomato & mint salsa
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1649843979222-x200.jpg)
 
 ### Step 7
 

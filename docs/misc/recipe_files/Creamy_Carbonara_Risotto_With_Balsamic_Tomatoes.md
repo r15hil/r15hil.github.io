@@ -27,7 +27,6 @@ If you're a fan of the Italian classic, this risotto will be right up your stree
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1620662598935-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1620662609925-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once the bacon is crispy, reduce the heat to medium-high, then add the diced oni
 
 Tip: Add a small drizzle of vegetable oil if your pan is looking a little dry!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1620662624099-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or 
 
 Tip: Add a small drizzle of vegetable oil if your pan is looking a little dry!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1620662654944-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Put the tray in the oven for 15 min or until the tomatoes become blistered – t
 
 Tip: Crowd the tomatoes together for the best blistering!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1620662689023-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Transfer the yolk from one shell half to the other several times, until all the 
 
 Tip: Hold on to those egg whites! They’re perfect for meringues or a protein-rich omelette (they freeze well too!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1620662700144-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add most of your grated Italian hard cheese (save some for garnish!) and the egg
 
 Season with a few generous grinds of black pepper (can't handle the heat? Go easy!) and a little splash of cold water and give everything a good mix up – this is your carbonara sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1620662713520-x200.jpg)
 
 ### Step 7
 

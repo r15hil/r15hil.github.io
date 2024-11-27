@@ -23,7 +23,6 @@ Honey, mustard and sausages are a match made in heaven! For a fresh way to enjoy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1582890318165-x200.jpg)
 
 ### Step 1
 
@@ -31,13 +30,11 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop the potatoes (skins on) into rough bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582890324820-x200.jpg)
 
 ### Step 2
 
 Add the chopped potatoes to one side of a baking tray with a drizzle of olive oil and a pinch of salt
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1582890329329-x200.jpg)
 
 ### Step 3
 
@@ -45,13 +42,11 @@ Add the meat-free sausages to the other side of the tray and put the tray in th
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582890331651-x200.jpg)
 
 ### Step 4
 
 Whilst everything is cooking, combine the wholegrain mustard with the honey, mayo, red wine vinegar, 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of pepper in a small bowl – this is your honey mustard dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582890337012-x200.jpg)
 
 ### Step 5
 
@@ -59,7 +54,6 @@ Snap the walnuts in half roughly
 
 Peel and cut the red onion<span class="text-danger">[s]</span> into thin wedges, then separate into petals
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1582890339077-x200.jpg)
 
 ### Step 6
 
@@ -73,7 +67,6 @@ Tip: Watch the walnuts like a hawk to make sure they don't burn!
 
 Meanwhile, wash the shredded kale then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582890441714-x200.jpg)
 
 ### Step 7
 

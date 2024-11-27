@@ -26,7 +26,6 @@ Our succulent British turkey joint is perfect with this apricot, sage & onion st
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2303Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and halve the potatoes, then add them to a pot of boiled water with a l
 
 Once done, drain, return them to the pot with the polenta and shake them until they're fluffy and fully coated
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2303Step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Trim the ends from the Brussels sprouts
 
 Add the chopped carrots and parsnips (save the sprouts for later!) to a baking tray with a drizzle of vegetable oil and a pinch of salt and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2303Step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the turkey joint to one side of a baking tray and top with a knob of butt
 
 Add the polenta coated potatoes to the other side of the tray with a generous drizzle of vegetable oil and a pinch of salt and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2303Step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Whilst the turkey is in the oven, combine the honey and wholegrain mustard in a
 
 Re-boil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2303Step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Once melted, add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and c
 
 Dissolve 1/2 <span class="text-danger">[1]</span> Kallo chicken stock cube in 250ml <span class="text-danger">[450ml]</span> boiled water and add to the pan with the Marmite and cook for 5-6 min or until thickened – this is your Marmite gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2303Step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Push the carrots and parsnips to the side of the other tray and add the Brussels
 
 Drizzle the carrots and parsnips with the honey mustard glaze and return both trays to the oven for an initial 15 mins or until the turkey is cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2303Step-7-x200.jpg)
 
 ### Step 7
 

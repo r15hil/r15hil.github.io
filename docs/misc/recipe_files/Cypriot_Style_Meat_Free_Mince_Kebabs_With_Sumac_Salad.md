@@ -26,7 +26,6 @@ Looking for big flavour? Marinate, roast and stuff these meat-free mince and par
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1621258103552-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Chop half your parsley finely, including the stalks (you'll use the rest later
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621258145968-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your meat-free mince (remove the paper if required!), diced onion, chopped 
 
 Give everything a good mix up until fully combined (clean hands is the best way!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621258160784-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Lightly oil a baking tray (or two!) with vegetable oil and add the Cypriot-styl
 
 Put the tray[s] in the oven for 12-15 min or until the kebabs are cooked through and browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1621258171274-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Dice your tomato[es]
 
 Roughly tear the remaining parsley
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1621258178921-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Sprinkle over the remaining chilli flakes (not a fan of spice? Just add a littl
 
 Put the tray[s] in the oven for 2-3 min or until warmed through – this is your chilli pitta
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1621258183663-x200.jpg)
 
 ### Step 6
 
 Roll your lemon[s]<span class="text-danger"> </span>with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1621258191622-x200.jpg)
 
 ### Step 7
 

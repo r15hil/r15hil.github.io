@@ -25,7 +25,6 @@ Ease is top of the bill with this tray bake. You'll cook meat-free sausages, roo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617699538834-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Chop your potatoes (skins on) into small, bite-sized pieces
 
 Top, tail and chop your parsnip[s]<span class="text-danger"> </span>(skins on) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617699543390-x200.jpg)
 
 ### Step 2
 
 Cut your apple[s] into wedges and discard the core[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617699550979-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Crush your garlic with the side of a knife, keeping the skin on
 
 Dissolve your vegetable stock mix and onion marmalade in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water – this is your sweet onion stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617699557469-x200.jpg)
 
 ### Step 4
 
@@ -61,13 +57,11 @@ Tip: Don't overcrowd the tray, use two if you need to!
 
 Add a drizzle of olive oil and season with a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617699562368-x200.jpg)
 
 ### Step 5
 
 Add the sweet onion stock to the tray[s]<span class="text-danger"> </span>and put the tray[s] in the oven for an initial 15 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617699568025-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Return the tray[s]<span class="text-danger"> </span>to the oven for a further 25
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617699571594-x200.jpg)
 
 ### Step 7
 

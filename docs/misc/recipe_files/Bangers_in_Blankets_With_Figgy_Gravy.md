@@ -20,7 +20,6 @@ Introducing our festive Bangers & Mash! Pigs in blankets sit over creamy mash wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2419Step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Add the carrots to a baking tray, drizzle them with olive oil and season th
 
 Add the pigs in blankets to the tray and put everything in the oven for 20 min or until the sausages are cooked through
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2419Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 8 min or until softened and caramelised
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2419Step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add the potatoes to a pot of boiling water with a pinch of salt over a hig
 
 Once cooked, drain and return to the pot to steam dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2419Step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Re-boil a kettle
 
 Dissolve the Kallo beef stock cube<span class="text-danger">[s]</span> in 250ml <span class="text-danger">[400ml] </span>boiled water, add the fig relish and mix until fully combined – this is your figgy stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2419Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once caramelised, add 1 tsp<span class="text-danger"> [2 tsp] </span>flour to
 
 Add the figgy stock, increase the heat to medium and cook for 7-8 min or until thickened to a gravy-like consistency – this is your figgy gravy
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2419Step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once boiling, cook for 3-4 min or until tender with a bite
 
 Once cooked, drain and return to the pot and keep covered until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2419Step-7-x200.jpg)
 
 ### Step 7
 

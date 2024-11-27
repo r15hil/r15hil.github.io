@@ -19,7 +19,6 @@ For this classic comforting dish you'll bake our tender British gammon joint and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2289Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Line a baking tray with tin foil
 
 Add the baby gammon joint<span class="text-danger">[s]</span> to the baking tray and put the tray in the oven for 30 min or until cooked through – this is your roasted ham
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2289Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2289Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Whilst the potatoes are cooking, peel and finely chop (or grate) the garlic
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2289Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Scrunch the edges of the foil around the greens to form 1 <span class="text-dan
 
 Put the tray in the oven for 15 min or until the greens are tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2289Step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Gradually add 200ml <span class="text-danger">[350ml]</span> milk with the bay 
 
 Bring to the boil over a medium-high heat and cook for 5-7 min or until a smooth, thick sauce remains
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2289Step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Return the drained potatoes to a low heat with a knob of butter and a splash of 
 
 Season with a pinch of salt and cover to keep warm
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2289Step-7-x200.jpg)
 
 ### Step 7
 

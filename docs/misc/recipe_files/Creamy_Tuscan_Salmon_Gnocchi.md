@@ -20,7 +20,6 @@ A salmon gnocchi that's easy to rustle up, and packed with flavour thanks to our
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1617705072033-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610383725842-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Once hot, add the gnocchi and cook for 6-8 min or until beginning to crisp
 
 Tip: Don't stir too often as this will prevent the gnocchi from crisping!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610383751888-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Meanwhile, heat a separate large, wide-based pan (preferably non-stick) with a d
 
 Once hot, add the salmon fillets (skin-side down), season with a pinch of salt and pepper and cook for 5-6 min, turning once halfway
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1610383763062-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Peel and roughly chop the garlic
 
 Chop the sun-dried tomatoes roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1610383810208-x200.jpg)
 
 ### Step 5
 
 Add the chopped garlic and chopped sun-dried tomatoes to the pan with a knob of butter and cook for 1 min until fragrant and all the butter has melted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610383823213-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Cook for 2-3 min further or until the salmon is cooked through
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610383833963-x200.jpg)
 
 ### Step 7
 

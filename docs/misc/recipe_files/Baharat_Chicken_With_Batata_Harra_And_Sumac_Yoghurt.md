@@ -25,7 +25,6 @@ Combining crispy baharat spiced chicken thighs with 'batata harra' – a tasty M
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1308.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the halved potatoes to a pot of boiled water with a pinch of salt, bring to 
 
 Once cooked, drain and leave them to steam dry (save the pot!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1308.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated chicken thighs skin-side down and cook for 5-7 min or until crispy
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1308.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely chop (or grate) the garlic
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and slice into strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1308.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once done, add the crispy chicken thighs to a baking tray, skin-side up (save th
 
 Put the tray in the oven for 12-15 min or until the chicken is cooked through (no pink meat!) – this is your baharat chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1308.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Return the reserved pan to a medium heat
 
 Once hot, add the drained potatoes, ground turmeric and coriander seeds and cook for 3-4 min or until beginning to crisp
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1308.-step-6.2jpg-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender with a s
 
 Once done, drain and return to the pot
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1308.-step-7-x200.jpg)
 
 ### Step 7
 

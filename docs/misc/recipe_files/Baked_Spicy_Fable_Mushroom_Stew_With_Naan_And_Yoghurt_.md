@@ -27,7 +27,6 @@ This rich mushroom stew is spiced with aromatic ras el hanout and fiery harissa.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1679419361369-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679419366591-x200.jpg)
 
 ### Step 2
 
@@ -51,13 +49,11 @@ Peel your red onion[s]<span class="text-danger"> </span>and chop half into quart
 
 Finely slice the remaining onion and set aside in a small bowl
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679419369716-x200.jpg)
 
 ### Step 3
 
 Crush your garlic open by squashing with the side of a knife and remove the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679419372515-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Cook for 2 min or until very lightly browned
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679419376202-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add your chopped tomatoes, ras el hanout, harissa paste (can't handle the heat? 
 
 Bring to the boil over a high heat, stir everything together, and put the dish in the oven for 40 min or until thickened and cooked through – this is your baked spicy Fable mushroom stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679419379786-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Tip: Check the stew halfway and give everything a good stir!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679419384203-x200.jpg)
 
 ### Step 7
 

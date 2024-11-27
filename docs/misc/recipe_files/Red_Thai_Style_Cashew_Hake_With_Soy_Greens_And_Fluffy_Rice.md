@@ -29,7 +29,6 @@ Inspired by chuu chee pla, this flavour-packed hake in red curry sauce will tran
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-8-1701945564910-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Remove the tough outer layers of the lemongrass and set aside for later and chop
 
 Peel and roughly chop your ginger, then crush half your garlic open by squashing it with the side of a knife and peel and chop the remaining garlic finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-9-1701945572366-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Add the peeled ginger, chilli halves (can't handle the heat? Go easy!), chopped lemongrass, Thai basil stalks, dried lime leaf[ves] and fish sauce with 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>vegetable oil and a splash of cold water and blitz until a paste forms – this is your red Thai curry paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-13-1701945581416-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-8-1701945587265-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Scrunch the foil around the greens to form a tightly sealed parcel and add to a 
 
 Tip: Cooking for 3 or more? Make 2 parcels!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-9-1701945593243-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, transfer the cashews to a clean board and reserve the pan – these are your caramelised cashews
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-9-1701945600156-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Once hot, add your red Thai curry paste and cook for 3-4 min or until fragrant
 
 Once fragrant, add 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml]</span> boiled water with the chopped coconut cream, 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp] </span>sugar and a pinch of salt and give everything a good mix up
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-8-1701945606508-x200.jpg)
 
 ### Step 7
 

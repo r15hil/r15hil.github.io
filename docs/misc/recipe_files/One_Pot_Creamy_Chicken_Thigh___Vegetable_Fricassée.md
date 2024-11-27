@@ -23,7 +23,6 @@ Packed full of flavour, veg and succulent chicken, our creamy one-pot fricassée
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1634034455839-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-48-1724339229789-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Cook in the microwave for 4 min or until slightly softened
 
 Add the softened potatoes to a baking tray with a drizzle of vegetable oil and a pinch of salt and put the tray in the oven for 25-30 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-54-1724339236745-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once hot, add your chicken thighs to the dish with a pinch of salt and 1 tbsp<sp
 
 Crush your garlic open by squashing it with the side of a knife and remove the skin
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-48-1724339241119-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the chicken is lightly browned, tear your white cup mushrooms roughly into 
 
 Add your chicken stock mix with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water and your Chinese rice wine
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-49-1724339245348-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once boiling, put the dish in the oven, uncovered, for an initial 25 min or unti
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-49-1724339249556-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ After 25 min, add your blanched peas and soft cheese to the dish and give everyt
 
 Return the dish to the oven, uncovered, for a final 5 min or until the peas are warmed through – this is your one-pot creamy chicken thigh & vegetable fricassée
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-48-1724339253938-x200.jpg)
 
 ### Step 7
 

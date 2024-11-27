@@ -31,7 +31,6 @@ Thai is on your side with this crowd-pleasing feast that’s ready in 30 minutes
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728898105293-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Bash your lemongrass with a rolling pin, then remove the tough outer layer[s] an
 
 Chop the softer inner core[s] roughly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728898109794-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your fragrant rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728898116589-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728898119834-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once the chicken is starting to brown, reduce the heat to medium-high and add th
 
 Cook for a further 2-3 min or until the pepper is slightly tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728898123990-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Once fragrant, add 200ml <span class="text-purple">[250ml] </span><span class="t
 
 Cook for 5-6 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your red Thai chicken curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728898127926-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Combine half your red chilli relish (you'll use the rest later!) with your rice 
 
 Add your mooli slaw mix with your chopped coriander and give everything a good mix up, then top with your chopped peanuts – this is your peanutty Thai salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728898132100-x200.jpg)
 
 ### Step 7
 

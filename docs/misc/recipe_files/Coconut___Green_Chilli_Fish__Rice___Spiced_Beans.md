@@ -25,7 +25,6 @@ This mild yet richly spiced fish curry takes its inspiration from Western India.
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597164408021-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Strip the mint leaves off their stalks and finely chop
 
 Chop the coriander finely, including the stalks
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597164413975-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the chopped garlic, ginger, green chilli (can't handle the heat? Go easy!), 
 
 Squeeze the softened coconut cream out of the sachet<span class="text-danger">[s]</span>, season with a generous pinch of salt and stir to combine – this is your coconut & green chilli paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1597164426230-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597164431455-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Tip: Watch them like a hawk so they don't burn!
 
 Once browned, transfer the browned coconut to a bowl, reserving the pan for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597164447682-x200.jpg)
 
 ### Step 5
 
@@ -85,13 +80,11 @@ Put the tray in the oven for 12-15 min or until cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1597164458146-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop the green beans into large, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597164462038-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Rustle up this hearty hash in a hurry. You’ll bake buttery basa before serving
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675785351416-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and reserve the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675785361319-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Chop your dill finely, including the stalks
 
 Trim, then slice your spring onion[s] finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675785377953-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Place your smoked basa fillet[s] in the centre of the foil
 
 Top each basa fillet with a small knob of butter and a pinch of salt and pepper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675785394722-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Put the tray[s] in the oven for 12-15 min or until the fish is cooked through (k
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675785403595-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Cook for 8-10 min or until the leek has softened and the potatoes are starting t
 
 Reboil the kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675785412606-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the spinach, chopped garlic, half the sliced spring onion and half the chopp
 
 Stir it all together and cook for 2-3 min or until the spinach has wilted, then remove from the heat and keep covered until serving – this is your leek & potato hash
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675785450475-x200.jpg)
 
 ### Step 7
 

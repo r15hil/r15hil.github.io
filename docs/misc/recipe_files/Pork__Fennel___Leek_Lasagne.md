@@ -29,7 +29,6 @@ A tasty twist on a family favourite: lasagne sheets layered with rich pork ragu 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1649848574789-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Chop your leek[s] in half lengthways, then wash to remove any grit from between 
 
 Strip your thyme leaves from the stems, chop finely and discard the stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1649848578670-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Crumble your chestnut mushrooms into rough chunks
 
 Once soft, add your pork mince (remove the paper if required!) and crumbled mushrooms to the pan and cook for 8-10 min or until the pork is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649848583376-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Once the pork is cooked, add the chopped garlic, chopped thyme and a generous 
 
 Once fragrant, add the tomato stock and cook for 5-7 min or until slightly thickened – this is your pork ragù
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649848588419-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once melted, add your fennel seeds and cook for 30 secs or until fragrant
 
 Once fragrant, add 15g <span class="text-purple">[22g]</span> <span class="text-danger">[30g]</span> flour and stir with a wooden spoon for 1 min or until a sandy paste forms – this is your roux
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724339315918-x200.jpg)
 
 ### Step 5
 
@@ -85,7 +80,6 @@ Grate your cheddar cheese
 
 Remove the pot from the heat, season with a very generous pinch of salt and pepper and stir through half the grated cheddar – this is your cheesy fennel béchamel
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1649848598202-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Repeat this process until you end up with a final layer of lasagne sheets
 
 Tip: You may need to layer differently depending on the size of your dish!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1649848610833-x200.jpg)
 
 ### Step 7
 

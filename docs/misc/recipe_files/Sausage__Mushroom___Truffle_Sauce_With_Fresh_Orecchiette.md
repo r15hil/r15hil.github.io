@@ -23,7 +23,6 @@ This speedy sensation is all flavour, no fuss. You'll fry sausage meat and mushr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1730480973883-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693310045686-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your sausage meat (remove the paper if required!) to the pan with a pinch of salt and cook for 2-3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693310049681-x200.jpg)
 
 ### Step 3
 
@@ -57,13 +54,11 @@ Cook for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693310069093-x200.jpg)
 
 ### Step 4
 
 Once the sausage is browned, crumble in your chestnut mushrooms using your hands and cook for a further 2-3 min or until beginning to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693310063366-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Peel and chop (or grate) your garlic
 
 Reduce the heat to medium-high and add the chopped garlic to the sausage and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693310075200-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once fragrant, add your double cream and chicken stock mix and cook for 1-2 min 
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702992242537-x200.jpg)
 
 ### Step 7
 

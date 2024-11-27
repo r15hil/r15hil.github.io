@@ -28,7 +28,6 @@ A roast with the most? You’re looking at it. Get the family around the table f
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660647687408-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Pat your pork belly dry with kitchen paper, then score the fatty side in a criss
 
 Season generously with salt and pepper and rub it deep into the criss-cross pattern (clean hands is best!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660647697069-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cut<span class="text-danger"> </span>a<span class="text-danger"> </span>piece of
 
 Lay your thyme and bay leaf[ves] in the middle of each piece of foil, then top with the browned pork (skin-side up), reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660647702885-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Loosely scrunch the edges of the foil around the pork belly joint[s] leaving the
 
 Transfer the parcel[s] to a baking tray and put it in the oven for 48 - 50 min or until the pork skin is crisp and the meat is cooked through – this is your roasted pork belly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660647708163-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Top, tail and chop your carrot[s] into batons
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660647714383-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Mix well until everything is combined, shape into 3 stuffing balls per person, t
 
 Season with a pinch of salt and a drizzle of vegetable oil, then put the tray[s] in the oven for 25-30 min or until the stuffing is cooked through and the potatoes are crisp – this is your sausage stuffing and roasties
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660647721246-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Once hot, add the remaining diced onion and cornflour along with a pinch of pepp
 
 Dissolve your chicken stock mix and fig relish in 175ml <span class="text-purple">[230ml]</span> <span class="text-danger">[300ml] </span>boiled water and mix until fully combined – this is your fig stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660647725604-x200.jpg)
 
 ### Step 7
 

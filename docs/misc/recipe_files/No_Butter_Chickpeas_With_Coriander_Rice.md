@@ -33,7 +33,6 @@ The iconic North Indian murgh makhani gets a tasty plant-based twist. You’ll c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670339826357-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Combine your butternut squash cubes and 1 tsp <span class="text-purple">[1 1/2 t
 
 Give everything a good mix up then put the tray in the oven for 15-20 min or until the squash is golden and tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670339829119-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670339832454-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) on a medium heat with 1 tbsp
 
 Once the butter has melted, add the diced onion with a pinch of salt and cook for 5 min or until softened and starting to caramelise
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670339840756-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Drain and rinse your chickpeas
 
 Once softened, add the chopped ginger and garlic to the pan with the drained chickpeas, ground turmeric, ground coriander, tomato paste and remaining garam masala and cook for 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670339845362-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Dissolve the chopped creamed coconut and vegetable stock mix in 300ml<span class
 
 Once fragrant, add the coconut stock to the pan and cook for 4-5 min or until the sauce has thickened to a curry-like consistency – this is your no butter curry sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670339851736-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Meanwhile, chop your coriander finely, including the stalks
 
 Fluff the basmati rice with a fork, stir through the chopped coriander and season with salt – this is your coriander rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670339858486-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Empanadas are small, stuffed turnovers found across Latin America. For our twist
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614619678798-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 One hot, add the chopped shallot and lean beef mince to the pan and cook for 2-3 min or until the mince is browned, breaking it up with a wooden spoon as you go
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614619688464-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Cut the potatoes (skins on) into chips
 
 Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of salt and pepper, give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614619724382-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Divide the smoky lean beef mixture into 4 <span class="text-danger">[8]</span> a
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614619752541-x200.jpg)
 
 ### Step 4
 
@@ -77,7 +73,6 @@ Press the pastry together with your fingers to seal in the beef with as little a
 
 Tip: Don't worry if they look messy, they'll be tidied up later!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1614619762213-x200.jpg)
 
 ### Step 5
 
@@ -87,7 +82,6 @@ Use a fork to crimp the edges of the pastry and prick air holes in the top – t
 
 Put the lean beef empanadas in the oven for 15-20 min or until golden brown – these are your smoky lean beef empanadas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614619772452-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Peel and finely chop (or grate) the garlic
 
 Combine the chopped chilli, parsley and garlic with the dried oregano, red wine vinegar and 2 tbsp <span class="text-danger">[3 tbsp]</span> olive oil – this is your chimichurri
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1614619820471-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This Asian salad combines mixed baby leaves with cucumber matchsticks and fine e
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2211.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Season with a generous pinch of salt, then add the scored duck, skin-side down, 
 
 Cook for 10-15 min, skin-side down only, or until the skin is golden and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2211.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop ﬁnely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2211.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Tip: Cook for 3-5 minutes further if you prefer your duck well done
 
 Once cooked, set the duck aside, cover, and leave to rest for at least 10 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2211.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,7 +76,6 @@ Combine the rice vinegar, hoisin sauce, toasted sesame oil and soy sauce with th
 
 Add 2 tbsp <span class="text-danger">[4 tbsp]</span> vegetable oil and stir it all together – this is your hoisin dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2211.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,7 +87,6 @@ Set aside to soak for 4 min
 
 Once softened, drain the noodles and set aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2211.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Slice each individual cucumber disc into matchsticks 
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2211.-step-7-x200.jpg)
 
 ### Step 7
 

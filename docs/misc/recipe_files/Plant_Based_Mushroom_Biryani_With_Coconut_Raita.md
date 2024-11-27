@@ -29,7 +29,6 @@ Fancy a plant-based biryani, fast? Try this tasty, mushroom-packed twist. Whip i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1--1641295210269-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641295146727-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min o
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641295151279-x200.jpg)
 
 ### Step 3
 
@@ -63,13 +60,11 @@ Meanwhile, boil half a kettle
 
 Once hot, tear your flat white mushrooms into large pieces, add them to the pan and cook for 2 min
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641295154994-x200.jpg)
 
 ### Step 4
 
 While the mushrooms are cooking, combine your vegetable stock mix, tomato paste, mango chutney and sultanas with 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641295161120-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Crumble your chestnut mushrooms into the pan and add your curry powder and roas
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641295168319-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the warmed rice to the pan with the tomato stock and increase the heat to hi
 
 Give everything a good mix up and cook for 2 min or until the mushrooms have softened – this is your plant-based mushroom biryani
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641295171481-x200.jpg)
 
 ### Step 7
 

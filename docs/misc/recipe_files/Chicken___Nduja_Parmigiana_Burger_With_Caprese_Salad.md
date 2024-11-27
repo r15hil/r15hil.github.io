@@ -30,7 +30,6 @@ Inspired by Italy, these fusion burgers are loaded with oozy mozzarella, crispy 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644936699628-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cover your chicken breast portion[s] in cling film and bash with a rolling pin u
 
 Add a splash of milk to a shallow bowl and add 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> flour to a plate, then combine your panko breadcrumbs with a drizzle of olive oil and a pinch of salt and pepper on a plate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644936701678-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Add the coated chicken to one side of a baking paper-lined tray (or two!)
 
 Put the tray[s] in the oven for an initial 25 min or until the chicken is cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644936704683-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Chop your potatoes (skins on) into fries
 
 Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644936706868-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Combine the chopped garlic, tomato paste, dried oregano, 'Nduja (can't handle th
 
 Season with a pinch of salt and give everything a good mix up – this is your ‘Nduja tomato sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644936709759-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Cut your avocado[s] in half lengthways, around the stone
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely lengthways
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644936711795-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Slice your tomato[es] into rounds
 
 Cut your brioche bun[s] in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644936714482-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ This Indian-inspired chicken burger is the perfect Bank Holiday treat! You'll co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2102.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, cook for 12-15 min or until fork tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2102.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Combine the chopped ginger, chopped garlic, your garam masala, ground turmeric, 
 
 Season with salt and pepper and add the juice of half your lemon[s] with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> vegetable oil – this is your tikka marinade
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2102.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Stir it all together
 
 Cut the remaining lemon in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2102.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the marinated chicken to a tin foil-lined baking tray
 
 Put the tray under the grill for 10-12 min or until the chicken is beginning to brown and is cooked through (no pink meat!) – this is your chicken tikka
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2102.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Combine the chopped cucumber core with the remaining natural yoghurt and your mi
 
 Season with a pinch of salt – this is your cucumber & mint raita
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2102.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your brioche bun[s], cut side down, and toast for 2-3 min or until beginning to brown
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2102.-step-7-x200.jpg)
 
 ### Step 7
 

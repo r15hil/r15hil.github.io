@@ -29,7 +29,6 @@ Combining caramelised onion and green pepper in a rich tomato base, our version 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716564994011-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Cut your free range chicken breast portion[s] into rough bite-sized pieces and 
 
 Once browned, transfer the browned chicken to a plate, reserve the pan and juices
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716565012872-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the sliced onion with a pinch of salt, 2 tsp <span class="text-pu
 
 Meanwhile, boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716565021020-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Heat a pot with a lid, with a drizzle of vegetable oil and a large knob of butt
 
 Once the butter has melted, add the crushed cardamom and basmati rice and stir to fully coat the grains
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716565025993-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716565033008-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Add the pepper strips to the softened onion and cook for a further 5-8 min or un
 
 While the veg is browning, dissolve the chicken stock mix in 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716565039590-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Cut your tomatoes into wedges
 
 Add the chopped ginger, chopped garlic, chilli flakes (can't handle the heat? Go easy!) and curry powder to the pan and stir until the veg is coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716565051560-x200.jpg)
 
 ### Step 7
 

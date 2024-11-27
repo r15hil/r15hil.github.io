@@ -26,7 +26,6 @@ This speedy take on the classic Italian favourite is delicious. Whip up a creamy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1688483316936-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop (or grate) your garlic
 
 Chop your cherry tomatoes in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1688483326021-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1688483331555-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the diced onion and chopped garlic with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1688483336589-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Meanwhile, add your Tenderstem broccoli to a large piece of tin foil (or two!) w
 
 Scrunch the foil around the Tenderstem broccoli to form a tightly sealed parcel[s] and add to a baking tray, then set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1688483341262-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Once the onion and garlic has softened, add your halved cherry tomatoes to the p
 
 Cook for a further 3-4 min or until the tomatoes have begun to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1688483345790-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once boiling, remove the pan from the heat and stir through your gnocchi (this w
 
 Transfer the contents of the pan to an oven-proof dish and top with the torn mozzarella
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1688483350836-x200.jpg)
 
 ### Step 7
 

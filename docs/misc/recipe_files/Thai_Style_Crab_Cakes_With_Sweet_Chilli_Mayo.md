@@ -25,7 +25,6 @@ Time to give crab cakes a Thai-style twist. You’ll shape tender crab patties p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674037608692-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674037621863-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, dese
 
 Chop the coriander finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674037713302-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Add the cabbage & carrot slaw mix to a large bowl with the rice vinegar, half th
 
 Season with a pinch of salt and sugar, mix it all together and set aside – this is your quick-pickled cabbage & carrot slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674037724363-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Combine the gram flour and ginger & garlic paste in a bowl with the remaining so
 
 Add 75ml <span class="text-danger">[150ml]</span> cold water and whisk everything together until there are no lumps – this is your batter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674042174809-x200.jpg)
 
 ### Step 5
 
 Break up the crab meat gently with a fork, then stir it through the batter with the sliced spring onion, chopped chilli (can't handle the heat? Go easy!) and remaining chopped coriander – this is your crab cake mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674037737753-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Heat a medium, wide-based pan (preferably non-stick) with 2 tbsp <span class="te
 
 Once hot, add 6 <span class="text-danger">[12]</span> spoonfuls of crab cake mix to the pan and cook for 2-3 min on each side or until golden and cooked through – these are your Thai-style crab cakes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674042180679-x200.jpg)
 
 ### Step 7
 

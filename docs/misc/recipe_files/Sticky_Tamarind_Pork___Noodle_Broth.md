@@ -29,7 +29,6 @@ This umami-rich noodle soup is table-ready in 10. You’ll whipe up a sweet-savo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1717065777914-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-40-1717065801117-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a small drizzle of vege
 
 Once hot, add your pork mince (remove the paper if required!) and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-46-1717065806744-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Chop your tomato[es] roughly
 
 Trim, then slice your spring onion[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-41-1717065811486-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Once the mince has started to brown, add your tamarind paste and honey to the pa
 
 Cook for 4-5 min or until the mince has caramelised and is cooked through (no pink meat!) – this is your sticky tamarind pork
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-42-1717065817577-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Meanwhile, heat a medium-sized pot with a small drizzle of vegetable oil over a 
 
 Once hot, add your ginger & garlic paste and chopped tomato to the pot and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-41-1717065820994-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add 700ml <span class="text-purple">[1L]</span> <span class="text-danger">[1.3L]</span> boiled water and your soy sauce to the pot with your toasted sesame oil, Chinese rice wine and chicken stock mix and give everything a good mix up – this is your fragrant broth
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-41-1717065825424-x200.jpg)
 
 ### Step 7
 

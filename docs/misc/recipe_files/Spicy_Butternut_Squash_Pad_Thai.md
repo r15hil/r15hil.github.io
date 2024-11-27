@@ -26,7 +26,6 @@ This cracking plant-based recipe will get you dreaming of Thailand! Whilst your 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2118.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the butternut squash cubes to a bowl with the red curry paste and a drizzle
 
 Put the tray in the oven for 15-20 min or until cooked with a slight bite
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2118-Step-2-v2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles reserving a cup of starchy noodle water<br /><br />Drizzle with a little vegetable oil (this prevents the noodles from sticking together!) and set aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2118-Step-3-v2-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced red peppers and sliced garlic with a pinch of salt and cook for 5-6 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2118.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cut the Tenderstem broccoli in half
 
 Once the peppers have softened, add the halved Tenderstem broccoli with a splash of boiled water and cook for a 4-5 min or until the broccoli is cooked with a slight bite
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2118.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Add the soy sauce to a bowl with the Sriracha hot chilli sauce (can't handle th
 
 Add 1 tbsp<span class="text-danger"> [2 tbsp]</span> sugar and 1 tbsp <span class="text-danger">[2 tbsp]</span> water and stir it all together – this is your pad Thai sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2118.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Slice the red chilli<span class="text-danger">[es] </span>finely
 
 Tip: De-seed the chillies if you can't handle the heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2118.-step-7-x200.jpg)
 
 ### Step 7
 

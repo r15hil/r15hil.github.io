@@ -24,7 +24,6 @@ This meat-free cassoulet is the crème de la crème. You’ll sizzle meat-free s
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-36-1705052319548-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the chopped potatoes and to a pot with plenty of boiled water and bring to t
 
 Once boiling, reduce the heat to medium and cook for 10 min or until fork-tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-40-1705052324137-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Slice your apple[s] finely, discard the core[s]
 
 Drain and rinse your butter beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-42-1705052331109-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add your meat-free sausages and break into bite-sized pieces with a wo
 
 Once crispy, add the sliced onion and sliced apple and cook for 6-7 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-41-1705052336449-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-39-1705052341918-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Return to a low heat with a splash of milk
 
 Season with a small pinch of salt and mash until smooth – this is your butter bean mash
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-37-1705052348326-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once the apple has softened, add 1 tsp <span class="text-purple">[1 1/2]</span> 
 
 Season with a generous grind of black pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-29-1705052353808-x200.jpg)
 
 ### Step 7
 

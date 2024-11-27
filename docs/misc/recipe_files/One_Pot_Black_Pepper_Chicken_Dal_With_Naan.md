@@ -29,7 +29,6 @@ This peppery chicken dal is prepped in no time. Just pop your chicken, lentils a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610818374588-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603466313088-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Drain and rinse your green lentils and red lentils together under cold running water
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603466344313-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Crush your cardamom pods open by squashing them with the side of a knife
 
 Peel (scrape the skin off with a teaspoon) your ginger, then chop it in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603466354326-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Add the rinsed lentils, crushed garlic, ginger halves, cardamom pods, curry powd
 
 Meanwhile, chop your creamed coconut roughly (if required!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603466363216-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Add in your chicken stock mix, cracked black pepper, chopped creamed coconut and
 
 Give everything a good stir, then top with your diced chicken thigh
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/5min-prep-pan-1610969168373-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Bring to the boil over a high heat, cover with a lid, then put the dish in the o
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610969546800-x200.jpg)
 
 ### Step 7
 

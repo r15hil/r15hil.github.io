@@ -28,7 +28,6 @@ For a royally good dinner, you'll top zingy potato salad with creamy, delicately
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650968371700-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain, return to the pot and set aside for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650968375185-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ While the potatoes are cooking, heat a large, wide-based pan (preferably non-sti
 
 Once hot, add the diced chicken thigh and your curry powder and cook for 6-7 min on each side or until golden and cooked through (no pink meat!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650968378823-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Wash your lettuce and pat it dry with kitchen paper
 
 Tear the outer leaves into large bite-sized pieces and finely shred the inner core
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650968381682-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Pick your coriander leaves from their stalks and set aside for garnish
 
 Chop the coriander stalks finely
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650968385484-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Season with a pinch of salt and pepper and stir it all together – this is you
 
 Once cooked through, add the chicken to the yoghurt mix and stir it all together – this is your creamy coronation chicken
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650968389102-x200.jpg)
 
 ### Step 6
 
 Combine the juice of the remaining lime[s] with 2 tbsp<span class="text-danger"> <span class="text-purple">[3 tbsp]</span> [4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your lime dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650968393219-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ There's no classic comfort food like shepherd's pie, and trust us: you won't mis
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/853.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the chopped potatoes to a pot of boiled water and bring to the boil over a h
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/853.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and diced carrot with a pinch of salt and cook for 5-8 min or until softened slightly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/853.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Strip your thyme leaves from their stalks, discard the stalks
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/853.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Meanwhile, drain and rinse your green lentils
 
 Dissolve your vegetable stock mix, tomato paste and Henderson's Relish in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/853.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Return the drained potatoes to a low heat with a splash of milk and a knob of bu
 
 Mash until smooth and season with a pinch of salt and pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/853.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Put the dish in the oven for 15-20 min or until golden and bubbling – this is 
 
 While your pie is cooking, wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/853.-step-7.bjpg-x200.jpg)
 
 ### Step 7
 

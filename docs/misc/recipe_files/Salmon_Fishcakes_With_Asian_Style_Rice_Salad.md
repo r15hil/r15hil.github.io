@@ -26,7 +26,6 @@ Our zingy salmon fishcakes feature a mouthwatering hit of Thai flavours. For a c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2370-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and rinse in a sieve under cold running water until completely cooled (leave in the sieve to drain fully!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2370-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, dese
 
 Add the chopped garlic, ginger and chilli (can’t handle the heat? Go easy!) to a bowl with the red Thai curry paste
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2370-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Add the panko breadcrumbs and a generous pinch of salt and use your hands to gen
 
 Tip: Don't squeeze the mixture too much, or this will release liquid and you want to keep the mixture dry
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2370-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Divide the mixture into 4 <span class="text-danger">[8]</span>, shape into thin 
 
 Put the patties in the fridge to firm up – these are your salmon fishcakes
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2370-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Add the grated carrot and diced cucumber to a bowl with the juice of 1/2 <span c
 
 Chop the remaining lime into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2370-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once hot, add the salmon fishcakes to the pan and cook for 2-3 min on each side
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2370-Step-7-x200.jpg)
 
 ### Step 7
 

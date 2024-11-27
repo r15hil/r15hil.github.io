@@ -18,7 +18,6 @@ This plant-based take on a classic is your favourite comfort food, reloaded. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2449Step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,7 +29,6 @@ Drizzle a baking tray with vegetable oil and add your meat-free sausages
 
 Put the tray in the oven for an initial 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2449Step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Add the chopped sweet potato to a pot of boiled water and bring to the boil ove
 
 Cook for 10-15 min or until fork-tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1614768659961-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Add the sliced spring greens to a large piece of tin foil with 1 tbsp <span clas
 
 Scrunch the foil around the spring greens to form a tightly sealed parcel
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2449Step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray in the oven for 15 min further or until the spring greens are tender and the meat-free sausages are cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2449Step-5-x200.jpg)
 
 ### Step 5
 
 Dissolve your vegetable stock mix and your Marmite in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[450ml]</span> boiled water – this is your Marmite stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2449Step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once melted, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span clas
 
 Add the Marmite stock to the pan, bring to the boil over a high heat and cook for 4-5 min or until thickened – this is your Marmite gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2449Step-7-x200.jpg)
 
 ### Step 7
 

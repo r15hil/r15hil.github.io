@@ -29,7 +29,6 @@ Inspired by the Malaysian classic, ayam percik, this fragrant curried meat-free 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1636107472813-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636107479938-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop half your red chilli[es]<span class="text-danger"> </span>roughly, and fine
 
 Put everything into a food processor (can't handle the heat? Go easy on the chilli!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1636107485348-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add your soy sauce, ginger & garlic paste and a pinch of sugar
 
 Pulse until you're left with a slightly chunky paste – this is your Malaysian-style spice paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636107528114-x200.jpg)
 
 ### Step 4
 
@@ -71,13 +67,11 @@ Once hot, add your meat-free chick'n to the pan and sprinkle over the remaining
 
 Cook for 2-3 min or until warmed through and starting to brown
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636107533618-x200.jpg)
 
 ### Step 5
 
 While the meat-free chick'n is cooking, cut your cucumber in half lengthways and then slice finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636107539493-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the sliced cucumber to a bowl with your rice vinegar, 1 tsp <span class="tex
 
 Stir it all together and set aside until serving – this is your quick-pickled cucumber
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636107547970-x200.jpg)
 
 ### Step 7
 

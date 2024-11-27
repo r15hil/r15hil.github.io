@@ -26,7 +26,6 @@ Spending hours on a chilli con carne stops today! In our speedy twist, you'll ad
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622803708143-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632912577716-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince to the pan and cook for 3-4 min, or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632912581262-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632912586310-x200.jpg)
 
 ### Step 4
 
@@ -66,13 +62,11 @@ Add your ground cumin, ground smoked paprika and chilli flakes (can't handle the
 
 Add your vegetable stock mix, chopped tomatoes, chipotle paste (not a fan of spice? Just add a little!) and 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml] </span>cold water then bring to the boil over a high heat
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650645618306-x200.jpg)
 
 ### Step 5
 
 Meanwhile, drain and rinse your red kidney beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1840.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,7 +74,6 @@ Add the drained red kidney beans to the pan and cook for 4 min further or until
 
 Note: Please ensure you cook your beef thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1840.-step-7-x200.jpg)
 
 ### Step 7
 

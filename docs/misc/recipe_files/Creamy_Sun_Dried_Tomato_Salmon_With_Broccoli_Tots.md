@@ -22,7 +22,6 @@ Take our tasty twist on nostalgia for a spin. You’ll bake broccoli tots with I
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616425280254-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Add the broccoli florets to a pot of plenty of boiled water and bring to the boi
 
 Once boiling, cook for 5-6 min or until tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1616425290128-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ While the broccoli is boiling, add your panko breadcrumbs, grated Italian hard c
 
 Chop your sun-dried tomatoes roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1616425348716-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Tip: Alternatively add it to a food processor!
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1616425391797-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Place the tray[s] under the grill for 10 min or until cooked through and crispy
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1616425470962-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Meanwhile, combine your soft cheese, chopped sun-dried tomatoes and 150ml <span 
 
 Season with a generous pinch of salt and pepper and give everything a good mix up then set aside to infuse – this is your creamy tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1616425483978-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Season your salmon fillet[s] with a pinch of salt and pepper and once hot add to the pan (skin-side down) and cook for 5 min on one side
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1616425568750-x200.jpg)
 
 ### Step 7
 

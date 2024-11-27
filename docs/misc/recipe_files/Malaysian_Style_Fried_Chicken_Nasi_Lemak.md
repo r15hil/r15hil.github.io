@@ -27,7 +27,6 @@ As Malaysia’s undisputed national dish, Nasi Lemak is enjoyed at any hour of t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723204451486-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Dissolve half the chopped creamed coconut (you'll use the rest later!) in 20ml <
 
 Add half your soy sauce (you'll use the rest later!) and set aside to cool slightly – this is your coconut marinade
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723204456110-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once boiling, give it one stir and reduce the heat to very low and cook, covered
 
 Once cooked, remove from the heat and keep covered until serving – this is your coconut rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723204461455-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once done, drain and refill the pot with ice-cold water and the cooked egg[s], t
 
 Tip: Use the Gousto ice packs to chill the water!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723204465993-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[
 
 Give everything a good mix up and, using your hands, scrunch the flour onto the chicken until fully coated – this is your coated chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723204470082-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once done, season the cooked chicken with a pinch of salt – this is your Malay
 
 Tip: Cooking for 3 or more? Use 2 pans!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723204473630-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Combine your sambal and the juice of half your lime[s] (not sure about citrus? T
 
 Cut the remaining lime[s] into 1 wedge per person
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723204477203-x200.jpg)
 
 ### Step 7
 

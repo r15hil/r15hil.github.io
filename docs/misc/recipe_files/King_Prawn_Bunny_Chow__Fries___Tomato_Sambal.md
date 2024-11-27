@@ -27,7 +27,6 @@ This recipe is our twist on the famous 'Bunny Chow', developed by Indian workers
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602082679263-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Add the fries to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602082697962-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Add the sliced red onion to a bowl with the juice of 1/2<span class="text-danger
 
 Give everything a good mix up and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602082755318-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602082768543-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Heat a pot (preferably non-stick) with a generous drizzle of vegetable oil over 
 
 Once hot, add the chopped red onion and diced carrot with a pinch of salt and cook for 8-10 min or until softened and starting to caramelise
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602082779574-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Give everything a good mix up – this is your tomato sambal
 
 Chop the remaining lemon into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602082805756-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Add the tomato paste, cayenne (can't handle the heat? go easy!), curry powder, g
 
 Bring to the boil and simmer for 3-4 min or until thickened, then add the king prawns and cook for another 4-5 min or until cooked through – this is your king prawn curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602082832266-x200.jpg)
 
 ### Step 7
 

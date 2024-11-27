@@ -22,7 +22,6 @@ For this speedy spaghetti dish you'll pan-fry spring onions, capers and tuna –
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1648.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1648.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Chop the spring onions roughly (chop them in one bunch for speed!)
 
 Chop the basil roughly, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1648.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Peel <span class="text-highlight">half of t</span>he Italian hard cheese until 
 
 Grate the remaining Italian hard cheese
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1648.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Cook the spaghetti for just 2 min or until cooked with a slight bite (it will ke
 
 Once done, drain the spaghetti reserving a large cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1648.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Meanwhile, drain the tuna
 
 Once hot, add the sliced spring onion, capers, roasted garlic paste and drained tuna to the pan and cook for 30 sec
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1648.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Add a splash of the starchy pasta water with a generous drizzle of olive oil and
 
 Cook for 30 sec further or until the sauce beings to stick to the pasta
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1648.-step-7-x200.jpg)
 
 ### Step 7
 

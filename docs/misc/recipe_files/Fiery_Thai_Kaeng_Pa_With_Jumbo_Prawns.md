@@ -26,7 +26,6 @@ Heads up! Kaeng Pa, or 'Jungle Curry' is a broth-like dish from Northern Thailan
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2306-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Chop each wedge into 3, then add to a baking tray with a generous drizzle of ve
 
 Give everything a good mix up and put the tray in the oven for 20 min or until golden and tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2306-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Chop the coriander stalks in half
 
 Add everything to a food processor (except the coriander leaves!) and pulse for 10 secs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2306-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Zest the lime<span class="text-danger">[s]</span> (grate lightly with a micro-pl
 
 Add the chopped lemongrass and lime zest to the food processor with 1 tbsp <span class="text-danger">[2tbsp]</span> vegetable oil and 1 tbsp <span class="text-danger">[2 tbsp]</span> water and blitz to a rough paste – this is your spice paste
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2306-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2306-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the spice paste with the kaffir lime leaves and a pinch of salt and cook for 5-6 min, stirring continuously, or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2306-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once the spice paste is fragrant, add the fish sauce and 200ml<span class="text-
 
 Once boiling, reduce the heat to medium and cook for a further 2-3 min or until slightly thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2306-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ This cheesy BBQ meat-free chicken is sure to please everyone! Coat meat-free chi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1623151121083-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Cut the potatoes (skins on) into chips and add them to a baking tray with a driz
 
 Give everything a good mix up and put the tray in the oven for 30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1623151122914-x200.jpg)
 
 ### Step 2
 
@@ -40,7 +38,6 @@ Meanwhile, add the smoked paprika to a plate with a grind of black pepper
 
 Add the meat-free chicken to the plate and turn them several times in the spices until they’re nicely coated
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1623151123323-x200.jpg)
 
 ### Step 3
 
@@ -48,13 +45,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the coated meat-free chicken and cook for 3 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623146955638-x200.jpg)
 
 ### Step 4
 
 While the meat-free chicken is cooking, grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1623151131650-x200.jpg)
 
 ### Step 5
 
@@ -64,7 +59,6 @@ Tip: This will help to keep the sauce around your meat-free chicken!
 
 Drizzle the BBQ sauce all over and put the tray in the oven for an initial 5 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1623151137857-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ After 5 min, remove the meat-free chicken tray from the oven and sprinkle over t
 
 Return the tray to the oven for 5 min further or until the cheese has melted – this is your cheesy BBQ meat-free chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623146970368-x200.jpg)
 
 ### Step 7
 

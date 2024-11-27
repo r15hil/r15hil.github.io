@@ -32,7 +32,6 @@ Chow down on this Mexican-style chowder. You’ll make things a little caliente 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664292197224-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), over a 
 
 Once hot, add your diced chorizo and cook for 4-5 min or until crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664292201357-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664292205214-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, chop your sweet potato[es] (skin on) into bite-sized pieces
 
 Dissolve your chicken stock mix in 250ml <span class="text-purple">[330ml] </span><span class="text-danger">[450ml]</span> boiled water and 250ml <span class="text-purple">[330ml]</span> <span class="text-danger">[450ml]</span> milk – this is your creamy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664292208746-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Give everything a good mix up and cook for 1-2 min or until fragrant
 
 Once fragrant, add the creamy stock and cook for 10-12 min over a medium heat or until slightly thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664292213596-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Whilst the sweet potato is cooking, drain your sweetcorn
 
 Chop your coriander finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664292227624-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Slice your ciabatta[s] in half and add to a toaster for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664292231095-x200.jpg)
 
 ### Step 7
 

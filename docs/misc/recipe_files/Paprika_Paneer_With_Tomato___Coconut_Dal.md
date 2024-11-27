@@ -27,7 +27,6 @@ This indulgent dal is a real showstopper, combining tomato and coconut to create
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602579566579-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely slice brown onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1602579597047-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 5-7 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602579608434-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Dissolve the vegetable stock mix, chopped creamed coconut and a large pinch of 
 
 Once the onion has softened, add the ground turmeric, curry powder and chopped garlic and cook for 1-2 min further or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1602579695205-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once fragrant, rinse the red lentils, then add them to the pan with the coconut 
 
 Reduce the heat to medium-low and cook for 25-30 min or until the lentils are almost cooked and the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602579701897-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Chop the coriander finely, including the stalks
 
 Chop the baby plum tomatoes in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602579713266-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Add the halved tomatoes to the pan and cook for 5-7 min further or until the to
 
 Stir most of the chopped coriander (save some for garnish!) through the lentils – this is your tomato & coconut dal
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602579720318-x200.jpg)
 
 ### Step 7
 

@@ -30,7 +30,6 @@ Combining caramelised onion and pepper in a rich tomato base, our version of jal
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635258042388-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Take your chicken out of the fridge, open the packet and let it air, then heat a
 
 Cut your chicken breast strips into bite-sized pieces, then once the pan is hot, add the diced chicken breast and cook for 4-5 min or until browned
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635258047506-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the sliced onion with a pinch of salt, 2 tsp <span class="text-purple">[2 1/2 tsp]</span><span class="text-danger"> [3 tsp]</span> sugar and cook for 5-8 min or until soft and starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635258056666-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a pot with a lid, with a drizzle of vegetable oil and a large knob of butt
 
 Once the butter has melted, add the crushed cardamom and basmati rice and stir to fully coat the grains
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635258060889-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635258064832-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Add the pepper strips to the softened onion and cook for a further 5-8 min or un
 
 While the veg is browning, dissolve your chicken stock mix in 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1635258533256-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Cut your tomato[es] into wedges
 
 Add the chopped ginger, chopped garlic, chilli flakes (can't handle the heat? Go easy!) and curry powder to the pan and stir until the veg is coated
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635258538050-x200.jpg)
 
 ### Step 7
 

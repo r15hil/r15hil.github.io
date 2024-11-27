@@ -25,7 +25,6 @@ This lovely (and easy!) risotto brings meat-free bacon, fresh thyme and sweet ch
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1665499769751-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml] </s
 
 Strip your thyme leaves from their stems and chop them finely, discard the stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1665499774917-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Trim, then slice your spring onions finely
 
 Peel and chop (or grate) your garlic finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1665499781559-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Add half the chopped spring onion (save the rest for garnish!) and cook for 1 min or until beginning to soften slightly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1665499786998-x200.jpg)
 
 ### Step 4
 
@@ -59,7 +55,6 @@ Chop your cherry tomatoes in half
 
 Add the chopped garlic, chopped thyme, smoked paprika and half of the chopped cherry tomatoes (you'll use the rest later!) to the pan and mix well
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1665499792240-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min 
 
 Tip: Add a splash of water if the risotto is looking a little dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1665499797368-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once cooked, remove the risotto from the heat then add your grated Italian hard
 
 Taste for seasoning adding more salt and pepper if needed
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691493637167-x200.jpg)
 
 ### Step 7
 

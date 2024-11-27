@@ -27,7 +27,6 @@ Tuck into the flavours of summer with this Sorrentine-style pasta dish. You’ll
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1722412852995-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Once toasted, transfer to a plate and reserve the pan
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1722412856733-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Peel and finely chop (or grate) your garlic
 
 Zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter) and cut in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1722412860067-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1722412863217-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Chop the cherry tomatoes in half
 
 Combine half the lemon zest (save the rest for later!) with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>olive oil in a large bowl with your honey and the juice of half your lemon[s] and a pinch of salt and pepper – this is your lemon honey dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1722412867329-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Chop your parsley finely, including the stalks
 
 Add the halved tomatoes and salad to the lemon honey dressing with the toasted hazelnuts and give everything a good mix up – this is your hazelnut salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1722412873133-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once hot, add the chopped garlic, the remaining lemon zest and a generous grind 
 
 Cook for 1-2 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1722412876238-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Love a little hot honey? Got a ranch obsession? Have it both ways with this swee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-2-1727100844578-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727100851043-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add your chicken breast portion[s] to a clean chopping board, cover with cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727100854434-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ While the chicken is cooking, chop your waxy potatoes in half and add them to a 
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727100858290-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Add half the chopped garlic (save the rest for later!) your sriracha (can't hand
 
 Add a generous grind of pepper and a pinch of salt and give everything a good mix up – this is your hot honey ranch
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1727100862347-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Slice your tomato[es] into rounds
 
 Combine the remaining white wine vinegar and remaining honey with a drizzle of olive oil and a pinch of salt and pepper – this is your salad dressing
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727100866100-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Heat a separate large, wide-based pan (preferably non-stick) over a medium heat 
 
 Set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727100869252-x200.jpg)
 
 ### Step 7
 

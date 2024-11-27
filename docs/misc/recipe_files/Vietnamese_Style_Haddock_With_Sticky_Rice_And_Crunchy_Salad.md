@@ -28,7 +28,6 @@ This Vietnamese-style fish dish has it all. You'll pair warm, sticky rice with a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632224746020-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml] </span>cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632224750582-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632224757404-x200.jpg)
 
 ### Step 3
 
@@ -54,13 +51,11 @@ Peel and grate (don't chop!) your garlic
 
 Peel (scrape the skin off with a teaspoon) and grate (don't chop!) your ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632224784244-x200.jpg)
 
 ### Step 4
 
 Combine your soy sauce with the juice of your lime[s], 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar, 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil, your chilli flakes (can't handle the heat? Go easy!), grated garlic and grated ginger in a bowl and give everything a good mix up – this is your Vietnamese-style marinade
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632224792626-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Strip your mint leaves from their stems and finely slice them, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632224808135-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Pat your haddock bites dry with kitchen paper
 
 Add your haddock bites to the remaining Vietnamese-style marinade and mix to combine (unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632224823514-x200.jpg)
 
 ### Step 7
 

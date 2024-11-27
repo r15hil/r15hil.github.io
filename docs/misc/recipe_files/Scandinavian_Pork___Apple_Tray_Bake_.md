@@ -24,7 +24,6 @@ You'll make pork, fennel seed & green apple meatballs, served over crispy potato
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1038.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the diced potatoes to one side of a baking tray, drizzle them with&nbsp;oliv
 
 Put the tray&nbsp;in the oven for 30 min or until the potatoes are cooked through and crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1038.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Drizzle the beetroot with olive&nbsp;oil and season with a pinch of salt&nbsp;
 
 Return the tray to the oven for the remaining cooking time&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1038.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Meanwhile, grate the apple<span class="text-danger">[s]</span> (skins on)
 
 Add the fennel seeds to a&nbsp;pestle and mortar and grind them to a powder
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1038.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Combine the pork mince,&nbsp;ground fennel seeds, grated apple, panko breadcrumb
 
 Divide the pork mixture into 8 <span class="text-danger">[16]</span> and shape into meatballs - these are your apple&nbsp;&amp;&nbsp;fennel meatballs
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1038.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Remove the potato and beetroot tray from the oven and add the apple &amp; fennel
 
 Return the tray to the oven and cook for the remaining cooking time (approx. a further 20 min) or until the meatballs are browned and cooked through&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1038.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Pick the fine&nbsp;dill tops from the stalks and set them aside&nbsp;for garnish
 
 Chop the dill stalks finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1038.-step-7-x200.jpg)
 
 ### Step 7
 

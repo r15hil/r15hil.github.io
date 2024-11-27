@@ -26,7 +26,6 @@ Transform a simple stew into an irresistible crowd pleaser by simmering cannelli
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1633512487392-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Peel and finely chop your shallot[s]
 
 Cut your potato[es] (skins on) into small bite-sized cubes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1633512494129-x200.jpg)
 
 ### Step 2
 
@@ -48,13 +46,11 @@ Once hot add the chopped shallot and garlic to the pan with a pinch of salt and 
 
 Once softened add the potato cubes with a knob of butter and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour and cook for a further 2-3 min or until the potato is beginning to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1633512503609-x200.jpg)
 
 ### Step 3
 
 While the potato is cooking, drain and rinse your cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1633512513580-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Dissolve your chicken stock mix in 100ml <span class="text-purple">[130ml]</span
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633512550489-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add the chicken stock and spinach with a very generous crack of black pepper
 
 Give everything a good mix up and cook, covered, stirring occasionally for 16-17 min or until the potato is tender and the sauce has thickened – this is your cannellini bean & tomato stew
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633512599442-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Once hot, add the seasoned chicken thighs, skin-side down and cook for 10 min or
 
 Once browned, turn the chicken and cook for a further 6 min or until cooked through (no pink meat!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1633512636247-x200.jpg)
 
 ### Step 7
 

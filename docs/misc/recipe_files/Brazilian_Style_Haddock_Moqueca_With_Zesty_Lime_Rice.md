@@ -26,7 +26,6 @@ Tick Brazil off the bucket list with this vibrant haddock stew, inspired by the 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/974-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Roll the lime[s] with your hand on a hard surface (to release more juice!) and c
 
 Add your white long grain rice to a pot with a lid with 225ml <span class="text-purple">[300ml] </span><span class="text-danger">[450ml]</span> cold water and the lime zest and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/974-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your zesty lime rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/974-step-3-no-s_o-1633423716984-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/974-v2-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the chopped garlic and chilli flakes (can't handle the heat? Go easy!)
 
 Reduce the heat to medium and cook for 3 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/974-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Dissolve the chopped creamed coconut, vegetable stock mix, chipotle paste (not a
 
 Strip your coriander leaves from their stalks and chop the stalks finely (save the leaves for garnish!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/974-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the chopped coriander stalks to the pan and cook for 1 min
 
 Add the coconut stock and cook for 2-3 min or until the sauce has slightly thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/974-v2-Step-7-x200.jpg)
 
 ### Step 7
 

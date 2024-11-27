@@ -23,7 +23,6 @@ Vibrantly coloured roasted carrot and beetroot, tangy feta and fibre-rich bulgur
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/98_step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Boil a kettle
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/98_step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Cut each beetroot into 8 wedges
 
 Place the carrot batons and beetroot wedges on a baking tray
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/98_step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Crumble the feta over the beetroot and carrots and sprinkle the cumin seeds over
 
 Put the tray in the oven for 15 min or until the carrots are slightly tender with some crunch
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/098.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Meanwhile, add the bulgur wheat to a pot with plenty of boiled water and a pinch
 
 Once done, drain and return to the pot
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/98_step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,7 +62,6 @@ Once hot, add the pumpkin seeds and toast for 3 min or until slightly darkened a
 
 Set the toasted pumpkin seeds aside until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/98_step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Chop the coriander finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/98_step-7-x200.jpg)
 
 ### Step 7
 

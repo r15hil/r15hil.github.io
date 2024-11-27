@@ -25,7 +25,6 @@ Delicious Hollandaise doesn't have to be a risky business. This quick, foolproof
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1113.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Chop your waxy potatoes (skins on) into bite-sized pieces, then add them to a po
 
 Cover them with boiled water and cook over a medium heat for 10-15 min or until tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1730114778722-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Trim, then slice your spring onion[s] finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730114901287-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Chop your dill finely
 
 Reboil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1113.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Gently crush the potatoes with a fork, season them with a generous pinch of salt
 
 Drizzle the potatoes with olive oil and give everything a good mix-up, then put the tray[s] in the oven for 10 min or until the potatoes are starting to crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1113.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then return to the pot and keep covered until serving
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1113.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once hot, add the haddock bites with a pinch of salt and cook for 5 min, turning
 
 Tip: Your fish is cooked once it's opaque and flakes easily
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1113.-step-7-x200.jpg)
 
 ### Step 7
 

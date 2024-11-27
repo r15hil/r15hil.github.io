@@ -29,7 +29,6 @@ Chicken adobo is Filipino comfort food at its finest. The tender free-range chic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1688998640777-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid), with a drizzle of vegetable oil over a high heat, add the free range chicken thighs and cook for 2-3 min on each side or until slightly brown, then transfer the chicken to a plate and reserve the pan and any remaining oil for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1688998637370-x200.jpg)
 
 ### Step 2
 
@@ -49,13 +47,11 @@ Return the pan to a medium heat
 
 Once hot, add the sliced onion and cook for 5-6 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1688998634152-x200.jpg)
 
 ### Step 3
 
 While the onion is softening, trim your green beans, then chop in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1688998630765-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Once the onion has softened, increase the heat to medium-high and return the fre
 
 Add your bay leaf[ves], chopped garlic, soy sauce and 4 tbsp <span class="text-purple">[6 tbsp] </span><span class="text-danger">[8 tbsp]</span> water and cook, covered, for 8-10 min or until the sauce has reduced slightly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1688998580277-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ When the rice is boiling, add your Tenderstem broccoli and halved green beans a
 
 Once cooked, remove from the heat and keep covered until serving – this is your vegetable rice
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1688998577302-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Finely slice your red chilli[es] into rounds
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688998515385-x200.jpg)
 
 ### Step 7
 

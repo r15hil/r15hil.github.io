@@ -27,7 +27,6 @@ This fragrant curry is inspired by Southern Thai cuisine. You'll make a punchy p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691481617148-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your basmati rice and 300ml <span class="text-purple">[390ml]</span> <span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has been absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691481674147-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Meanwhile, peel and finely slice your brown onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691481677560-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and pepper strips and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691481681119-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Boil half a kettle
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691481684855-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Dissolve the chopped creamed coconut and peanut butter in 250ml <span class="tex
 
 Add your ground turmeric, fish sauce, lime leaf[ves] and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your peanut stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691481521906-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Cut your free range chicken breast portion[s] into small bite-sized pieces
 
 Once the pepper and onion have softened, increase the heat to high, then add the chopped chicken and your red Thai curry paste to the pan and cook for 3-4 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691481515821-x200.jpg)
 
 ### Step 7
 

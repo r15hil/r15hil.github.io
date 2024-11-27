@@ -28,7 +28,6 @@ This one-pot warmer shows you how to make your own meatballs at home. You'll sim
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646137891252-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your beef mince to a bowl with half the chopped parsley, half your grated It
 
 Divide the mixture and shape them into 5 meatballs per person
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646137894308-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Once done, transfer the browned meatballs to a plate and set aside
 
 Reserve the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646137916009-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Return the reserved pan to a medium heat with a knob of butter and add the chopp
 
 Cook for 4-5 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646137909158-x200.jpg)
 
 ### Step 4
 
@@ -72,13 +68,11 @@ Top, tail and chop your courgette[s] into quarters lengthways, then slice into b
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646137923691-x200.jpg)
 
 ### Step 5
 
 Dissolve your beef stock mix in 400ml <span class="text-purple">[520ml]</span> <span class="text-danger">[700ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646137928185-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the shallot has softened, add the chopped garlic, courgette, pepper and orz
 
 Add the beef stock with your chopped tomatoes, balsamic vinegar and a generous grind of pepper and give everything a good mix up and bring to boil over a high-heat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646137931398-x200.jpg)
 
 ### Step 7
 

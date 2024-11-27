@@ -26,7 +26,6 @@ For a taste of the sunny Med, serve crispy chicken thighs and golden roasted pot
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637925182920-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop the potatoes (skins on) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637925199740-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up and put the tray in the oven for an initial 15 min
 
 Tip: Cooking for 4? Use 2 trays!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637925205667-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Pat the chicken thighs dry with kitchen paper and season them on both sides with
 
 Once hot, add the seasoned chicken, skin-side down, and cook for 10 min or until the skins have browned and crisped
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637925219189-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel and finely slice (don't chop!) the garlic
 
 Chop the black olives roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637925234476-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Return the tray to the oven for 10-12 min further or until cooked through (no pi
 
 Chop the parsley finely, including the stalks
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637925247264-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Tip: Add a drizzle of olive oil if it's looking a little dry!
 
 Once starting to soften, add the fennel seeds, sliced garlic, chilli flakes, (can't handle the heat? Go easy!) chopped tomato, chopped olives, capers and a pinch of salt and cook for 3-4 min or until the tomatoes are starting to break down
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637925257124-x200.jpg)
 
 ### Step 7
 

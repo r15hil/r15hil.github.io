@@ -23,7 +23,6 @@ Eat your way through Easter with this springtime favourite. You’ll serve your 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677845765456-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Take your lamb leg joint[s] out of the fridge, open the packet and let it adjust
 
 Peel your potatoes and chop them into quarters, then add to a pot (with a matching lid) with plenty of boiled water and bring to the boil over a high heat
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677845772615-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Top, tail, peel and cut your carrot[s] into batons
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677845784663-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Give everything a good mix up, then put the tray in the oven for 20-25 min or un
 
 Reboil the kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677845795969-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the seasoned lamb to the pan and cook for 3-4 min or until browned on all sides
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677845808530-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once the potatoes have been cooking for 20 min, put the tray with the lamb in th
 
 Once the lamb is cooked, transfer it to a clean chopping board to rest for 3 min before slicing – this is your roast lamb
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677845813311-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Return the reserved pan to a medium-high heat with a knob of butter and once mel
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and mix until a paste forms, then whisk in the beef stock and cook for 7-8 min or until thickened – this is your red wine gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677845818086-x200.jpg)
 
 ### Step 7
 

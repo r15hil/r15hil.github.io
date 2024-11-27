@@ -28,7 +28,6 @@ Coating chicken in cornflour creates a crispy light skin. As the chicken bakes, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720448436876-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Remove the tough outer layer[s] of the lemongrass and set aside for later
 
 Chop the softer inner core[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720448447210-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720448453334-x200.jpg)
 
 ### Step 3
 
 While the rice is cooking, pat your diced chicken breast dry with kitchen paper and add to a bowl with your cornflour and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> black pepper (freshly ground is best!), then toss to coat them evenly – this is your pepper chicken
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720448459331-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Transfer the cooked chicken to kitchen paper, season with salt and set aside unt
 
 Wipe the pan clean and reserve it for later
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720448465978-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Peel and finely chop (or grate) your garlic
 
 Peel and slice your shallot[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720448472476-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Add the chopped lemongrass inner core[s], garlic, shallot and chilli (can't hand
 
 Add your mangetout and cook for a further 2-3 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720448476679-x200.jpg)
 
 ### Step 7
 

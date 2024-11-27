@@ -25,7 +25,6 @@ Up your hot dog game with this Bonfire Night twist on fish fingers. You'll bake 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692630280900-x200.jpg)
 
 ### Step 1
 
@@ -37,13 +36,11 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692630284923-x200.jpg)
 
 ### Step 2
 
 Slice your basa fillet[s] in half lengthways
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692630288424-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add your panko breadcrumbs to another plate with a generous drizzle of vegetable
 
 Season the basa strips with salt, then coat them in the flour, tap off any excess, then add them to the milk and finally press them into the breadcrumbs firmly to coat evenly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692630292447-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Add the coated basa to a separate baking paper-lined baking tray (or two!) and p
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692630295933-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Combine the chopped dill and mayo in a small bowl with the juice of half your le
 
 Cut the remaining lemon into wedges
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692630300475-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Cook for 1 min or until they're warmed through, then drain and return to the pot
 
 Mash the peas until they come together nicely – these are your minted peas
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692630303903-x200.jpg)
 
 ### Step 7
 

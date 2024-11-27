@@ -32,7 +32,6 @@ Hasselbacking is a tasty Swedish technique. It creates nooks and crannies in you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1656060674290-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Cut narrow slices (about 1cm apart) into your sweet potato[es], making sure not 
 
 Transfer the hasselback sweet potato[es] to a tin foil-lined baking tray with a drizzle of olive oil and a pinch of salt and give everything a good mix up
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656060690060-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ After 45 min, remove the tray from the oven, remove the tin foil and drizzle ove
 
 Return the tray to the oven, uncovered, for 10 min further or until the potato is soft and caramelised – this is your harissa & honey hasselback sweet potato
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1656060705694-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656060718690-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion with a generous pinch of salt and sugar and cook for 8-10 min or until caramelised
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656060740555-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Chop your parsley finely, including the stalks
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656060758468-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Add your natural yoghurt to a bowl with the crumbled Greek cheese, chopped parsl
 
 Give everything a good mix up – this is your herby Greek cheese dip
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656060763684-x200.jpg)
 
 ### Step 7
 

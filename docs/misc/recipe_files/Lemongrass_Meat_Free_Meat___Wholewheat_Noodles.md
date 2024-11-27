@@ -27,7 +27,6 @@ Savour the flavours of Vietnam with this hearty bowlful. You’ll toss springy w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683891824702-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Chop the softer inner core[s] finely
 
 Strip your coriander leaves from their stalks, then chop the coriander stalks and leaves finely, keeping them separate
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683891829045-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once fragrant, remove the outer lemongrass layers and discard
 
 Transfer the oil to a bowl and set aside (reserve the pan!) – this is your coriander & lemongrass oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683891838330-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Meanwhile, peel and finely slice your brown onion[s]
 
 Top, tail, peel and cut your carrot[s] in half lengthways, then slice finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683891845620-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Set aside to soak for 4 min
 
 Once done, drain the soaked noodles
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683891852591-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once hot, add your ultimate vegan burger patties, chopped carrot and sliced onio
 
 Cook for 8 min or until the vegetables have softened and the meat-free patties are browned, breaking up the patties with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683891868053-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once browned, add the chopped lemongrass and 1 tsp <span class="text-purple">[1 
 
 Cook for 1-2 min or until fragrant and the meat-free patties are cooked through – this is your lemongrass meat-free meat
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683891873587-x200.jpg)
 
 ### Step 7
 

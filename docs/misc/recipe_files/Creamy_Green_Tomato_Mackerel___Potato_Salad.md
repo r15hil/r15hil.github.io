@@ -23,7 +23,6 @@ This speedy salad will be on the table in 10. You’ll toss lettuce with crunchy
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1684836512250-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684836507462-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
 Once tender, add the potatoes to a colander and rinse under cold running water to cool
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684836516388-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Wash the lettuce under cold running water, then pat dry with kitchen paper
 
 Tear the lettuce leaves from the stem until you are left with a pile of leaves
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684836524347-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Top, tail and chop your radishes in half
 
 Bash your cucumber with a rolling pin and chop it into large, bite-sized pieces – this is your smashed cucumber
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684836528390-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Remove the skin from your smoked mackerel fillet[s]
 
 Tear the mackerel into rough, bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684836532164-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Add your mayo to a bowl with your green tomato chutney, 2 tbsp <span class="text
 
 Give everything a good mix up – this is your creamy green tomato dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684836535954-x200.jpg)
 
 ### Step 7
 

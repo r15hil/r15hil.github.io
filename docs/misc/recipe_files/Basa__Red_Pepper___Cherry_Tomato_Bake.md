@@ -26,7 +26,6 @@ For a colourful tray bake that's bursting with flavour, you'll roast basa fillet
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684839747251-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped potatoes to an oven-proof dish with a drizzle of vegetable oil a
 
 Put the dish in the oven and cook for an initial 25 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684839751006-x200.jpg)
 
 ### Step 2
 
@@ -50,13 +48,11 @@ Pick your basil leaves from the stalks (you'll be using both)
 
 Cut your cherry tomatoes in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684839756276-x200.jpg)
 
 ### Step 3
 
 Cut your pepper[s]<span class="text-danger"> </span>in half (scrape the seeds and pith out with a teaspoon) and slice into long strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684839760235-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the onion wedges, sliced pepper and chopped garlic to the pan with a pinch of salt and cook for 4-5 min or until starting to soften
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684839763078-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ Add in your vegetable stock mix and season with a good grind of pepper
 
 Cook for a further 2 min, stirring regularly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684839766227-x200.jpg)
 
 ### Step 6
 
 Once the potatoes have had an initial 25 min, add the vegetables and any remaining juices from the pan into the oven-proof dish
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684839769581-x200.jpg)
 
 ### Step 7
 

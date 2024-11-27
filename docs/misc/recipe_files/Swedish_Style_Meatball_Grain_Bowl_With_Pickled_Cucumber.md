@@ -28,7 +28,6 @@ Put the flatpacks down and try our take on your favourite Swedish meatballs. You
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702388102848-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving – this is your cranberry brown rice
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702388106215-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Add the sliced cucumber to a bowl with your cider vinegar, half the chopped dill
 
 Mix it all together and set aside to pickle – this is your dill quick-pickled cucumber
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702388110137-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide and shape into 5 meatballs per person – these are your pork meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702388113586-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once hot, add the pork meatballs to the pan and cook for 2 min on each side or u
 
 Once the meatballs have browned, transfer them to a plate and set aside, reserving the pan
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702388118851-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Once hot, add the remaining diced onion with a pinch of salt and pepper and cook
 
 Dissolve your chicken stock mix, Henderson's Relish and Dijon mustard in 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[550ml]</span> boiled water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702388123169-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Once the onion has softened, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</
 
 Gradually whisk in the chicken stock and cook for 2-3 min until slightly thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702388127178-x200.jpg)
 
 ### Step 7
 

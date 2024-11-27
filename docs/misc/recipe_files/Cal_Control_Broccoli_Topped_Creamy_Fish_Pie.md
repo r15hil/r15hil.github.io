@@ -24,7 +24,6 @@ With no butter-laden béchamel, this creamy cheese fish pie is pure comfort, and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720624433354-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped broccoli and potato to a pot with plenty of boiled water and bri
 
 Once boiling, reduce the heat to medium and cook for 10-12 min or until everything's tender and cooked through, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720624447257-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Dissolve your vegetable stock mix in 100ml <span class="text-purple">[130ml]</sp
 
 Chop your basa fillet[s] into rough, bite-sized pieces
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720624525296-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once softened, add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span clas
 
 Once melted, add 2 tsp <span class="text-purple">[3 tsp]</span><span class="text-danger"> [4 tsp] </span>flour and stir with a wooden spoon for 1-2 min or until the shallot is well coated
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720624534328-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Give everything a good mix up – this is your fish pie filling
 
 Transfer the fish pie filling an oven-proof dish
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720624543984-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Put the dish in the oven for 15-20 min or until bubbling and slightly golden on 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720624555078-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Scrunch the foil around the green beans to form a tightly sealed parcel and add 
 
 Put the tray in the oven for 10-12 min or until the green beans are tender with a slight bite
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step.-7-1720624563967-x200.jpg)
 
 ### Step 7
 

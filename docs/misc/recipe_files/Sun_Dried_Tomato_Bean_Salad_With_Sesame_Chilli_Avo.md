@@ -28,7 +28,6 @@ Plant-based protein power is the dish of the day. Whizz up a dressing with sun-d
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1664894646361-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664894649535-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Trim, and chop your green beans in half
 
 Drain and rinse your butter beans
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664894654048-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Bring to the boil over a high heat and cook for 3-4 min or until the green beans
 
 Once tender, drain and set aside until serving – this is your bean mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664894656563-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel your garlic and add it to a food processor with half your cherry tomatoes (
 
 Blitz until well combined and smooth – this is your sun-dried tomato dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664894659653-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Cut your avocado[s] in half lengthways and remove the stone[s] using a teaspoon
 
 Peel away the skin, then cut in half again – these are your avocado quarters
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664894662387-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Add the avocado quarters to the sesame chilli mix and press gently until well co
 
 Reserve any remaining sesame chilli mix
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664894665190-x200.jpg)
 
 ### Step 7
 

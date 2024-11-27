@@ -24,7 +24,6 @@ These succulent sesame-rolled pork meatballs pack a real flavour punch, with fie
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/977.-s-tep-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and roughly chop the garlic
 
 Peel the ginger (scrape the skin off with a teaspoon) and roughly chop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/977.-s-tep-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, de-
 
 Combine the chopped lemongrass innards, chopped garlic, chopped ginger and chopped chilli <span class="text-highlight">(can't</span> handle the heat? Go easy!) and chop everything together until you are left with a finely chopped mixture – this is your aromatic mix
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/977.-s-tep-3-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Divide the pork mixture into 6 <span class="text-danger">[12]</span> and shape i
 
 Spread the toasted sesame seeds over a large board and roll the meatballs into the seeds to lightly coat them – these are your pork &amp; sesame meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/977.-s-tep-4-x200.jpg)
 
 ### Step 4
 
@@ -72,7 +68,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/977.-s-tep-5-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once cooked, remove from the heat and keep covered until serving
 
 Once hot, add the pork &amp; sesame meatballs and cook for 3-4 min, turning occasionally, or until they're browned all over
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/977.-s-tep-6-x200.jpg)
 
 ### Step 6
 
@@ -93,7 +87,6 @@ Add the broccoli wedges to a baking tray with a drizzle of vegetable oil and a p
 
 Transfer the browned meatballs (keep the pan!) to the tray with the broccoli and put the tray in the oven for 10-15 min or until the broccoli is crispy<span class="text-highlight"> – this is your charred broccoli </span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/977.-s-tep-7-x200.jpg)
 
 ### Step 7
 

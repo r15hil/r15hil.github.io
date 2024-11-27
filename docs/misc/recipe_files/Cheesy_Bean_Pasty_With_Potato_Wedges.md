@@ -22,7 +22,6 @@ This cheesy pasty is a comforting classic. You’ll simmer cannellini beans in a
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678376277358-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Slice your cheddar cheese, then drain and rinse your cannellini beans
 
 Dissolve your vegetable stock mix in 50ml <span class="text-purple">[65ml]</span><span class="text-danger"> [75ml] </span>boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678376282376-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Heat a pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the chopped garlic with a pinch of salt and cook for 1-2 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678376285871-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Once fragrant, add the drained cannellini beans to the pot with your chopped tom
 
 Bring to the boil over a high heat, season with a generous pinch of salt and pepper and cook for 6-8 min or until thickened – these are your beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678376289914-x200.jpg)
 
 ### Step 4
 
@@ -60,7 +56,6 @@ Add the potato wedges to a baking tray (or two!) with a drizzle of vegetable oil
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678376296576-x200.jpg)
 
 ### Step 5
 
@@ -70,13 +65,11 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Cut the puff pastry into 1 rectangle per person and add to a non-stick baking paper-lined tray (or two!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678376300439-x200.jpg)
 
 ### Step 6
 
 Divide the beans between the pastry rectangles, covering only one half and top with the sliced cheese
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1690203259401-x200.jpg)
 
 ### Step 7
 

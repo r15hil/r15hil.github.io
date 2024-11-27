@@ -28,7 +28,6 @@ Smoky chilli cheese fries are a Tex-Mex classic. You'll top homemade oven chips 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599212053289-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Cut your potatoes (skins on) into thin chips, then add them to a large baking tr
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626186418377-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced shallot and ground cumin and cook for 1-2 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599212072064-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Meanwhile, dissolve your vegetable stock mix in 250ml <span class="text-purple
 
 Add your tomato paste, chipotle paste (can't handle the heat? Go easy!) and a pinch of sugar, then mix to combine – this is your spicy stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599212096642-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Reduce the heat to medium-low and cook for 4-5 min or until the sauce has thicke
 
 Once done, remove the pan from the heat and set aside for later – this is your meat-free mince chilli
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599212111831-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ While the chilli is cooking, combine your mayo with the zest and juice of half 
 
 Grate your cheddar cheese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599212127017-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Top each pile with the meat-free mince chilli and then the grated cheese, and r
 
 Once done, set aside for a few minutes to cool slightly – these are your loaded meat-free mince chilli cheese fries
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599212137587-x200.jpg)
 
 ### Step 7
 

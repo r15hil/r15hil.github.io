@@ -32,7 +32,6 @@ in a pan. Balance the spices with tender pork loin and tangy tamarind, and serve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1583502049039-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Chop your coconut flakes roughly and chop your parsley finely, including the sta
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1583502053088-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Add the juice of half your lime[s], 1 tbsp <span class="text-purple">[1 1/2 tbsp
 
 Give everything a good mix up – this is your coconut sambal
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583502057788-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Crush your cardamom pods open by squashing them with the side of a knife and dis
 
 Once hot, add the cardamom seeds, curry powder, black mustard seeds, and a very generous grind of black pepper and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583502062907-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1583502066703-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Peel and finely chop (or grate) your garlic
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583502070865-x200.jpg)
 
 ### Step 6
 
@@ -100,7 +94,6 @@ Once the onion has softened, increase the heat to high and add the chopped pork 
 
 Cook for 5-6 min or until the pork is beginning to brown all over
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583502078482-x200.jpg)
 
 ### Step 7
 

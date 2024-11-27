@@ -19,7 +19,6 @@ For this easy and zesty dish, you'll roast sweet Jersey Royal potatoes with Brit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2109.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,7 +28,6 @@ Add the Jersey Royal potatoes to a baking tray, drizzle with olive oil and seaso
 
 Put the tray in the oven for 10-15 min or until almost cooked through and starting to crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2109.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,13 +37,11 @@ Peel and finely chop (or grate) the garlic
 
 Strip the thyme leaves and chop them finely, discarding the stems
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2109.-step-3-x200.jpg)
 
 ### Step 3
 
 Cut the lemon<span class="text-danger">[s]</span> in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2109.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,7 +53,6 @@ Once hot, add the chicken thighs to the pan, skin-side down, and cook for 10 m
 
 Once browned, turn the chicken thighs, skin-side up, and cook them for a further 1-2 min or until browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2109.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Once done, add the chicken thighs to the baking tray with the potatoes (reserv
 
 Return the tray to the oven for a further 5-6 min or until everything is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2109.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Add the trimmed asparagus and a pinch of salt to a pot and cover with boiled wat
 
 Bring to the boil over a high heat and cook for 3-4 min or until tender
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2109.-step-7-x200.jpg)
 
 ### Step 7
 

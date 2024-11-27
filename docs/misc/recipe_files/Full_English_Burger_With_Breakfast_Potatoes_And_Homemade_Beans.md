@@ -27,7 +27,6 @@ Kick-off the day with a full English. You’ll load toasted ciabattas with tomat
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674558852281-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop (or grate) the garlic
 
 Chop the potatoes (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674558861366-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add the portobello mushrooms to the other side of the tray (stem side up) with a
 
 Put the tray in the oven for 20-25 min or until golden and crisp – these are your breakfast potatoes & roasted portobello mushrooms
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674558872770-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Add the smoked streaky bacon to the other side of the tray and put it in the ove
 
 Divide the sausage meat (remove any paper!) into 2 <span class="text-danger">[4]</span> and shape into sausage patties
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674558882451-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Season with a pinch of salt, pepper and sugar and bring to a boil over a high he
 
 Once boiling, reduce the heat to medium and cook for 5-6 min or until thickened – these are your homemade beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674558892784-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Once hot, add the sausage patties and cook for 4-5 min on each side or until the
 
 Tip: Press the patties down with a spatula to keep them nice and flat throughout cooking
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674558908169-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once the sausage patties are cooked through, crack the eggs into the pan
 
 Cover with a lid and cook for 2-3 min or until done to your liking
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674558919945-x200.jpg)
 
 ### Step 7
 

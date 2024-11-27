@@ -25,7 +25,6 @@ Our twist on this famous noodle dish is made with chicken, sugar snap peas and t
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599060847428-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599060855538-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the chicken strips, cornflour and soy sauce to a bowl
 
 Mix well and set aside to marinate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599060866317-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely, se
 
 Chop the roasted peanuts (or crush them in the bag with a rolling pin)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599060906454-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Mix well until the sugar has dissolved
 
 Add a pinch of salt – this is your tamarind sauce
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599060910598-x200.jpg)
 
 ### Step 5
 
@@ -81,13 +76,11 @@ Once fragrant, add the coated chicken and cook for 2-3 min or until browned
 
 Once the chicken has browned, add the chicken stock and cook for a further 4-6 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Grated-carrot-1635514109704-x200.jpg)
 
 ### Step 6
 
 While the chicken is cooking, top, tail and grate the carrot<span class="text-danger">[s]</span>
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599060945521-x200.jpg)
 
 ### Step 7
 

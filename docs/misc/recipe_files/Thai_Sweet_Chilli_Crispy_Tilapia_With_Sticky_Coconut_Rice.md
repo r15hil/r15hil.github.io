@@ -23,7 +23,6 @@ For a taste of Thai cooking, rustle up crispy tilapia fillets with a sweet chill
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650991108702-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650991127686-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Once the rice is cooked, remove the pot from the heat, add the blanched peas and
 
 Keep covered for a further 10 min before serving – this is your sticky coconut rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650991131316-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the the cornflour to a plate with a generous pinch of salt and pepper
 
 Add the tilapia fillets to the plate and press them into the seasoned cornflour until fully coated, then tap off the excess
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650991134583-x200.jpg)
 
 ### Step 4
 
@@ -63,19 +59,16 @@ Once hot, add the coated tilapia fillets and cook for 3-4 min on each side or un
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650991138045-x200.jpg)
 
 ### Step 5
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650991141465-x200.jpg)
 
 ### Step 6
 
 Roll the lime<span class="text-danger">[s] </span>with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650991145693-x200.jpg)
 
 ### Step 7
 

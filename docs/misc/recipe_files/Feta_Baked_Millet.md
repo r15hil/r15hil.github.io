@@ -23,7 +23,6 @@ This flavour-packed veggie wonder sees super seed millet creamed and baked with 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/435.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Strip the rosemary leaves from the stems and chop finely
 
 Dissolve the stock cube<span class="text-danger">(s)</span> in 400ml <span class="text-danger">(800ml)</span> of boiled water
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/435.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Bring to a boil with a lid, then reduce to a simmer, and cook for 20 min, or unt
 
 Meanwhile, pour the beetroot juice into a small pot for step 7
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/435.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Peel and cut the onion<span class="text-danger">(s)</span> into chunky pieces
 
 Peel the garlic and slice finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/435.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Season with salt and pepper
 
 Oven-roast for 25-30 min, or until the vegetables are cooked and starting to char
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/435.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -95,7 +90,6 @@ Then add 175ml <span class="text-danger">(350ml)</span> of milk and mash through
 
 Add the remaining rosemary and crumble in half the feta, then season with pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/435.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Pour the cheesy millet into an oven proof baking dish (alternatively, use indivi
 
 Put it in the oven for 5 min, or until bubbling around the sides
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/435.-step--7-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This beloved Korean dish is sweet, spicy, aromatic and comforting. Bring the fla
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618243170721-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the drained rice with 200ml<span class="text-danger"> [400ml] </span>cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618243184120-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618243191485-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Peel and finely chop (or grate) the garlic
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other and chop roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618243291499-x200.jpg)
 
 ### Step 4
 
@@ -67,19 +63,16 @@ Top with the diced chicken thigh, soy sauce, gochujang, honey and kimchi
 
 Season with a pinch of salt, drizzle with some vegetable oil and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618243329752-x200.jpg)
 
 ### Step 5
 
 Transfer the pan to the hob over a high heat and cook for 5-6 min or until the chicken and vegetables are starting to brown
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618243345381-x200.jpg)
 
 ### Step 6
 
 Once starting to brown, reduce the heat to medium, add the lid to the pan and cook, covered, for 10-15 min or until the vegetables have softened and the chicken is cooked through (no pink meat!) – this is your chicken & kimchi dak galbi
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618243443792-x200.jpg)
 
 ### Step 7
 

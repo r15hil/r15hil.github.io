@@ -25,7 +25,6 @@ For this irresistible stew, you'll simmer spicy sausage with butter beans, courg
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586946604075-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586946612205-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Boil a kettle
 
 Add the ciabatta rolls to a baking tray and put the tray in the oven for 6-7 min or until warmed through
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586946616173-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Top, tail and chop the courgette<span class="text-danger">[s]</span> into thin b
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586946619813-x200.jpg)
 
 ### Step 4
 
@@ -65,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the courgette batons and cook for 1-2 min or until they have slightly softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586946623569-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once hot, add the panko breadcrumbs and cook for 2-3 min or until they start to 
 
 Add the chopped parsley, crumble in half the feta, stir everything together and set aside – this is your gremolata
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586946627400-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Once slightly softened, add the garlic paste, 'nduja (can't handle the heat? Go 
 
 Crumble in 1/2 <span class="text-danger">[1] </span>Knorr chicken stock cube, tomato paste and the juice of 1/2 <span class="text-danger">[1]</span> lemon with 150ml <span class="text-danger">[280ml]</span> boiled water and cook covered for 1-2 min or until the sauce has slightly thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586946631654-x200.jpg)
 
 ### Step 7
 

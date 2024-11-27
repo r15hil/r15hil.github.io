@@ -25,7 +25,6 @@ If you love a shepherd's pie, try this minty twist. You'll infuse lamb mince wit
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1519.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt over a hi
 
 Once cooked, drain and return them to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1519.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Once hot, add the diced onion and carrot and cook for 3-5 min or until star
 
 Reboil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1519.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Dissolve your beef stock mix in 200ml<span class="text-purple"> [260ml]</span> <
 
 Once the onion and carrot have started to soften, add your lamb mince and cook for 4-5 min further, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1519.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the grated cheese, Dijon mustard and a knob of butter to the drained potatoe
 
 Season with a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1519.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once the vegetables have softened, add 1 tbsp <span class="text-purple">[1 1/2 t
 
 Stir in the beef stock and your mint sauce and cook for 1-2 min further or until the sauce has thickened – this is your lamb mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1519.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Tip: Gently run a fork over the mash to create a crispy top!
 
 Put the dish in the oven for 15-20 min or until golden and crispy and the lamb is cooked through (no pink meat!) – this is your minty shepherd's pie
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1519.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Ease is top of the bill with this simple, tasty tray bake. Sweet apple is the pe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1403.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Top, tail and chop your carrot[s] (skins on) into small, bite-sized pieces
 
 Chop your potatoes (skins on) into small, bite-sized pieces, then top, tail and chop your parsnip[s] (skins on) into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1403.-step-2-x200.jpg)
 
 ### Step 2
 
 Cut your apple[s] into wedges and discard the core
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1403.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Crush your garlic with the side of a knife, keeping the skin[s] on
 
 Dissolve your chicken stock mix and onion marmalade in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water – this is your sweet onion stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1403.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,13 +56,11 @@ Tip: Don't overcrowd the tray, use two if you need to!
 
 Add a drizzle of olive oil and season with a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1403.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the sweet onion stock to the tray[s] with your sausages
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1403.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,7 +68,6 @@ Put the tray[s] in the oven and cook for 40-45 min or until the veg is tender 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1403.-step-7-x200.jpg)
 
 ### Step 7
 

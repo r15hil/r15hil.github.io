@@ -26,7 +26,6 @@ Give your takeaway fave a Korean-inspired glow-up. You’ll load homemade sesame
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695898227782-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add your dried yeast to a bowl with 100ml <span class="text-purple">[150ml] </sp
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695898230487-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add your tomato paste and gochujang paste (can't handle the heat? Go easy!) to a
 
 Grate your cheddar cheese
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695898233362-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Tip the dough out onto a floured work surface and cut into balls (1 per person)
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695898236250-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Tip: Dust with extra sprinkles of flour as you go to stop it sticking!
 
 Keep going until your base[s] is slightly larger than a side plate – this is your pizza base
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695898242889-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Sprinkle your toasted sesame seeds and black sesame seeds on to the crust – th
 
 Tip: Make sure the pizza bases don't overlap on the tray[s] to avoid raw dough!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695898246369-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Top the sesame crusted pizza base[s] with your gochujang sauce, drained sweetcor
 
 Put the tray[s] in the oven for 20 min or until the chicken is cooked through (no pink meat!) and the crust has puffed up and browned – this is your sesame crusted gochujang chicken & sweetcorn pizza
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695898248869-x200.jpg)
 
 ### Step 7
 

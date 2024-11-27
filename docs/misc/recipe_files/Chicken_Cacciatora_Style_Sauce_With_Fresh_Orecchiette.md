@@ -25,7 +25,6 @@ Often known as ‘hunter’s style stew’, this rich Italian dish is deliciousl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1684250332973-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-4-1684250325314-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chicken thigh and cook for an initial 3-4 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-4-1684250353281-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Peel and slice your shallot[s] finely
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-4-1684250356779-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-4-1684250360779-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Once the chicken has browned, add the sliced garlic, sliced shallot and pepper s
 
 Cook for a further 3-4 min or until the vegetables are beginning to soften
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-4-1684250364561-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once the vegetables have softened, add your balsamic sun-dried tomato paste to t
 
 Stir it all together and cook for 4-5 min further or until the sauce thickens slightly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-4-1684250367621-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Feel the need for spice and speed? You’ll whip up a bowl of spicy harissa, gar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684229560061-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Heat a large, dry, wide-based pan (preferably non-stick with a matching lid) ove
 
 Pat your chicken thighs dry and season them generously on both sides with salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684229564612-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the chicken thighs, skin-side down, and cook for 10 min or until t
 
 Once browned, transfer the crispy chicken to a plate, reserving the pan
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684229572110-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[1L]</span> boiled water
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684229577098-x200.jpg)
 
 ### Step 4
 
@@ -69,7 +65,6 @@ Scrunch the foil around the onion wedges to form a tightly sealed parcel and add
 
 Put the tray in the oven for an initial 10 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684229582376-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ After the initial 10 min, remove the baking tray from the oven and add the crisp
 
 Return the tray to the oven for a further 12-15 min or until the chicken is cooked through (no pink meat!) and the onion is softened and jammy – these are your balsamic onions (save the juices)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684229587138-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add the sliced onion to the pan with a pinch of salt and cook for 2-3 
 
 Once softened, add the chopped garlic and harissa paste (can't handle the heat? Go easy!) to the pan with your tomato paste and cook for a further 2-3 min or until fragrant
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684229593159-x200.jpg)
 
 ### Step 7
 

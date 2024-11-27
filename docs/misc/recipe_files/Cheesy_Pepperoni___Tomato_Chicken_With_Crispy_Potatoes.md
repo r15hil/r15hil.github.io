@@ -27,7 +27,6 @@ Swap pizza bases for juicy chicken in this cheesy, pepperoni-loaded dinner. You�
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2116.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,13 +38,11 @@ Chop your cherry tomatoes into quarters
 
 Peel and finely chop (or grate) your garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2116.-step-2-x200.jpg)
 
 ### Step 2
 
 Dissolve your tomato paste, dried basil and chopped garlic in 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[130ml] </span>boiled water – this is your tomato stock
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2116.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add the chopped tomatoes to an oven-proof dish with the tomato stock
 
 Season with a generous pinch of salt, pepper and sugar and give everything a good mix up – this is your tomato sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2116.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Top the tomato sauce with your chicken breast portion[s] and drizzle the chic
 
 Season with a pinch of salt and pepper and put the dish in the oven for an initial 12 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2116.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Meanwhile, chop your potatoes (skins on) into bite-sized pieces and add them t
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2116.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Cut your cucumber in half lengthways, then slice finely
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2116.-step-7-x200.jpg)
 
 ### Step 7
 

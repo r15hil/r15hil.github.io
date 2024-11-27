@@ -22,7 +22,6 @@ The natural sweetness of beetroot is enhanced here by honey, the fragrant floral
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/506__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add them to a baking tray lined with tin foil with a drizzle of olive oil and a 
 
 Put the tray in the oven for 10 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/506__-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Meanwhile, add the bulgur wheat to a large pot of salted boiled water over a hig
 
 Boil the bulgur for 7-8 min or until cooked but with a slight bite, then drain and set in the sieve to cool (reserve the pot for later)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/506__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Strip the thyme leaves from their stalks
 
 Discard the stalks and roughly chop the leaves
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/506__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Bunch the lot together, drizzle over the honey, a little olive oil and season ge
 
 Return the tray to the oven for 10 min, then add the walnuts and cook for a final 5 min
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/506__-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Wash the baby spinach, pat dry and chop it coarsely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/506__-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Once hot, add the garlic with a pinch of salt
 
 Stir&nbsp;for 1 min, then add the drained bulgur
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/506__-step-7-x200.jpg)
 
 ### Step 7
 

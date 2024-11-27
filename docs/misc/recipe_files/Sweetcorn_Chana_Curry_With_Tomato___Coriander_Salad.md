@@ -32,7 +32,6 @@ Packed with veg and utterly irresistible, Indian chana doesn’t get much better
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661874738409-x200.jpg)
 
 ### Step 1
 
@@ -44,7 +43,6 @@ Grate your sweetcorn cobettes coarsely
 
 Tip: Grate the cobettes right down to the core!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661874742599-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661874747373-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Dissolve your vegetable stock mix and chopped creamed coconut in 200ml <span cla
 
 Drain and rinse your chickpeas
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661874754620-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Once hot, add the diced shallot and a pinch of salt and cook for 2-3 min or unti
 
 Once slightly softened, add your ginger & garlic paste with your ground coriander, ground cumin and garam masala and cook for a further 1-2 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661874763233-x200.jpg)
 
 ### Step 5
 
@@ -84,7 +79,6 @@ Add the drained chickpeas and coconut stock with a pinch of salt and pepper and 
 
 Once boiling, reduce the heat to medium and cook for a further 6-7 min or until the sauce has thickened slightly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661874772420-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Chop most of your coriander finely, including the stalks (reserve a few leaves f
 
 Combine the diced tomatoes and chopped coriander in a bowl with a pinch of salt and pepper – this is your tomato & coriander salad
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661874776540-x200.jpg)
 
 ### Step 7
 

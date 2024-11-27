@@ -23,7 +23,6 @@ Omega-3 rich mackerel, fibre-packed wheat berries, and 4 of your 5-a-day from a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1414.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and cut, lengthways into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1414.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the vegetables and dried oregano to a tray with a generous drizzle of olive
 
 Put the tray in the oven for 25 min or until the vegetables have softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1414.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Dissolve the vegetable stock cube<span class="text-danger">[s]</span> and tomato
 
 Re-boil a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1414.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,13 +70,11 @@ Cook over a high heat for 12-15 min or until tender with a slight bite
 
 Once cooked, drain, return to the pot and leave to cool
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1414.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the vegetables have softened, add the chopped cherry tomatoes and tomato stock to the tray and cook for 10-15 min further or until the cherry tomatoes have broken down and the sauce has thickened<span class="text-highlight"> – this is your baked ratatouille </span>
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1414.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once the pan is hot, place <span class="text-highlight">the mackerel skin-side down and</span> cook for 4 min, then flip the mackerel and cook for a further 1 min<br /><br />Tip: hold the fillets down flat with a spatula to crisp up the skin
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1414.-step-7-x200.jpg)
 
 ### Step 7
 

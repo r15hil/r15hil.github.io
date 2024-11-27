@@ -23,7 +23,6 @@ Whip up a whole new twist on ragù. You'll add ruby-red harissa to your sauce fo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1628675747346-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Add the chopped potatoes to a pot with plenty of boiled water and a generous pin
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1628675758101-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Once hot, add the diced onion with a pinch of salt and cook for 3-4 min or until
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1731086122959-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once the onion has softened, add the chopped garlic and cook for 1-2 min further
 
 Top, tail and chop your courgette[s] into quarters lengthways, then slice finely
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Drained-green-lentils-1728315457512-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the sliced courgette to the garlic and onion and cook for 3-4 min or until t
 
 Drain and rinse your green lentils
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1628675801543-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Once the courgette has softened, add the harissa stock and chopped tomatoes and 
 
 Add your drained green lentils and cook for 2-3 min or until the sauce has thickened to a bolognese-like consistency – this is your harissa lentil ragù
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1628675821185-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Whilst the ragù is cooking, strip your mint leaves from their stems and chop th
 
 Chop your parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1628675845782-x200.jpg)
 
 ### Step 7
 

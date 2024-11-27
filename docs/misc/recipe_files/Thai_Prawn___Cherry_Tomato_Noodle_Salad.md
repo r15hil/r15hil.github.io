@@ -27,7 +27,6 @@ This wholesome, bright tasting Thai prawn noodle salad is packed with crunchy ca
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1361.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 Once done, drain and rinse the noodles under cold water until slightly cooled and return them to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1361.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,7 +55,6 @@ Give everything a gentle mix up and set aside to pickle&nbsp;
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1361.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,13 +69,11 @@ Cut each carrot half in half again lengthways, keeping the root attached&nbsp;
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1361.-step-4-x200.jpg)
 
 ### Step 4
 
 Use a peeler to peel lengths of carrot&nbsp;until you end up with a pile of carrot 'ribbons'&nbsp;(you should get two strips each time!)&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1361.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Peel and finely chop (or grate) the garlic
 
 Cut the cherry tomatoes in half
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1361.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Combine the chopped ginger, chopped garlic, red curry paste, fish sauce and soy 
 
 Add the pickling liquid from the cucumber to the bowl and mix to combine &ndash; this is your Thai&nbsp;dressing&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1361.-step-7-x200.jpg)
 
 ### Step 7
 

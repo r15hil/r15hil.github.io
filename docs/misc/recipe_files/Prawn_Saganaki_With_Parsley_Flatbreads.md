@@ -24,7 +24,6 @@ Transport yourself to Greece with this classic. King prawns, garlic, tomatoes an
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/793.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Slice&nbsp;the courgette in half&nbsp;lengthways and then into bite-size pieces&
 
 Add them to a baking tray, drizzle with olive oil, season&nbsp;with a pinch of both&nbsp;salt and pepper and put them in the oven for 15 min or until they've softened slightly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/793.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Chop the tomatoes into wedges
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/793.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Once hot, add the diced&nbsp;onion and cook for 4 min or until it's softened sli
 
 Add half of the&nbsp;garlic&nbsp;(keep the rest for later) and chilli flakes&nbsp;(can't handle the heat? Go easy!) and cook for a further 1 min until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/793.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Add the tomatoes&nbsp;with a pinch of sugar and a generous pinch of salt and coo
 
 Reduce the heat to medium, add the king&nbsp;prawns&nbsp;and cook for 3 min or until they've turned pink
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/793.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Place the tray back in the oven&nbsp;for&nbsp;6 min
 
 Meanwhile, boil a kettle
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/793.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,7 +99,6 @@ Drizzle them with olive oil and add the chopped&nbsp;parsley&nbsp;(save a little
 
 Put the tray in the&nbsp;oven for 5 min or until&nbsp;the tortillas are crispy - these are your garlic &amp; parsley flatbreads
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/793.-step-7-x200.jpg)
 
 ### Step 7
 

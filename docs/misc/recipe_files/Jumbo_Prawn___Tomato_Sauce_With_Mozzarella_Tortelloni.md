@@ -24,7 +24,6 @@ Buttery tomato and mozzarella tortelloni, table ready in 10. You’ll pan-fry ju
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1--1702889261880-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2--1702889266601-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop your cherry tomatoes in half
 
 Once hot, add the halved cherry tomatoes to the pan with a pinch of salt and cook for 2-3 min or until beginning to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3--1702889270010-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Meanwhile, peel and slice (don't chop!) your garlic
 
 Chop your parsley finely, including the stalks
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4--1702889272954-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Once the tomatoes have slightly softened, drain, then add your jumbo king prawns
 
 Cook for 5-6 min or until the prawns are almost cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5--1702889275951-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked tomato & mozzarella tortelloni, reserving a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702889279120-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the prawns are almost cooked through, add your tomato paste and chilli flak
 
 Add a large knob of butter, stir everything together and cook for 1-2 min further or until the sauce has thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702889282201-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ Get ready for a Mediterranean feast! You'll serve red pepper hummus alongside fe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624351014858-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Boil a kettle
 
 Add the bulgur wheat to a pot with plenty of boiled water and cook over a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624351023357-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Once hot, add the diced pepper and cook for 4-5 min or until slightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624351029151-x200.jpg)
 
 ### Step 3
 
@@ -51,7 +48,6 @@ Meanwhile, add the flaked almonds to a baking tray and put in the oven for 3-6 m
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624351040586-x200.jpg)
 
 ### Step 4
 
@@ -63,13 +59,11 @@ Trim and finely slice the spring onion<span class="text-danger">[s]</span>, then
 
 Combine the juice of 1/2 <span class="text-danger">[1]</span> lemon with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper in a small bowl – this is your lemon dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624351052681-x200.jpg)
 
 ### Step 5
 
 Drain and rinse the chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624351066387-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, the coriander an
 
 Add a pinch of salt and blitz until fully combined and smooth – this is your pepper hummus
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624351071597-x200.jpg)
 
 ### Step 7
 

@@ -27,7 +27,6 @@ Spice up your tofu rotation with our crispy plant-based take on Chinese aromatic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660662787870-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Grate the drained tofu
 
 Add the cornflour and Chinese five-spice to a large bowl with the grated tofu and the smaller soy sauce sachet and mix it all together – this is your aromatic tofu mixture
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660662795958-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once very hot, add the aromatic tofu mixture and cook for 10 min stirring occasi
 
 Once golden and crisp, transfer to a plate and set aside, reserving the pan – this is your crispy aromatic tofu
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660662813120-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the sliced cucumber to a bowl with the rice vinegar, half the sesame seeds (
 
 Mix well and set aside to marinate – this is your sesame pickled cucumber
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660662825357-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Add the wholewheat noodles to a pot and cover them with boiled water until fully
 
 Bring to the boil over a high heat and cook for 5-7 min or until tender with a slight bite, then drain and return them to the pot until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660662841429-x200.jpg)
 
 ### Step 5
 
 Combine the ginger & garlic paste and sriracha (can't handle the heat? Go easy!) in a small bowl with the hoisin sauce and the larger soy sauce sachet – this is your spicy hoisin sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660662854040-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Cut the white base into bite-sized pieces and shred the green tops
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> lengthways
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660662916782-x200.jpg)
 
 ### Step 7
 

@@ -28,7 +28,6 @@ Dig out your sturdiest burger flipper, and sizzle up juicy vegan burgers to serv
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625647034838-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add your sweetcorn cobette[s] to a piece of tin foil with a small knob of butter
 
 Put the sweetcorn cobette[s] in the oven for 20-25 min or until the corn is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625647041836-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Cook the conchiglie for 8-10 min or until cooked with a slight bite
 
 Once done, drain the conchiglie and return it to the pot
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625647047788-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Chop your basil roughly, including the stalks, then add it to a food processor w
 
 Season with a generous pinch of salt and blitz until smooth – this is your basil pesto
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625647052710-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Slice your tomato[es] into rounds
 
 Cut narrow slices (about the width of a pound coin) into your halloumi, making sure to only cut half way through – this is your hasselback halloumi
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625647058059-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Stir the basil pesto through the drained conchiglie, then taste for seasoning, a
 
 Sprinkle over the remaining grated italian hard cheese – this is your pesto pasta salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625647135685-x200.jpg)
 
 ### Step 6
 
@@ -88,7 +82,6 @@ Once done, transfer to a piece of tin foil and scrunch up the edges around it
 
 Drizzle the honey all over, making sure to get it into all of the cracks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1625647146802-x200.jpg)
 
 ### Step 7
 

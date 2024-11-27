@@ -27,7 +27,6 @@ Think spanakopita (Greek spinach and cheese pie) with a spicy twist. You'll stuf
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678967442266-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Add the halved potatoes to a baking tray (or two!) with a drizzle of olive oil a
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your roast potatoes
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678967448619-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Add your spinach to a colander and pour boiled water over it so that it starts t
 
 Combine the chopped spinach and Greek cheese in a bowl with your harissa paste, half your oregano and half your honey (save the rest for later!) – this is your cheese filling
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1658223250712-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Unwrap your puff pastry and roll it out as thinly as you can into a large rectan
 
 Cut it, lengthways, into 1 rectangle per person
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1658223254369-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Tip: Dab a little cold water on the edge to help them stick together!
 
 Spoon the cheese filling into the centre of the pastry in an even line, then brush the long edge of the pastry with a little bit of cold water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1658223267964-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Fold the pastry over the filling and seal firmly together, then use a fork to cr
 
 Roll the sealed pastry, starting at one end, into a spiral
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1658223271833-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Brush the pastry spiral with milk and sprinkle over your nigella seeds and half 
 
 Put the tray in the oven for 20-22 min or until golden and crisp – this is your harissa & cheese spanakopita-style tart
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1658223275076-x200.jpg)
 
 ### Step 7
 

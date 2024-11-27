@@ -23,7 +23,6 @@ With three of your 5-a-day, this dish brings you a classic cottage pie with a ve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1451.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the chopped sweet potatoes to a pot of boiled water with a pinch of salt, b
 
 Once done, drain and return to the pot to steam dry
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1451.-step-2.-2-x200.png)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Peel, top, tail and dice the carrot<span class="text-danger">[s]</span> 
 
 Chop the<span class="text-highlight"> chestnut </span>mushrooms finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1451.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,7 +65,6 @@ Add the chopped mushrooms and ground cumin and cook for 1 min further
 
 Add the beef mince and cook for a further 3-4 min until browned, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1451.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,7 +79,6 @@ Once boiling, reduce the heat to medium and cook for 8-10 min or until thickene
 
 Meanwhile, grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1451.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,13 +87,11 @@ Return the drained sweet potatoes to a low heat with a large knob of butter and 
 
 Mash until smooth
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1451.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the beef mixture has thickened, transfer it to an oven-proof dish
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1451.-step-7.new-x200.jpg)
 
 ### Step 7
 

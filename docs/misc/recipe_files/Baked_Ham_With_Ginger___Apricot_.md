@@ -22,7 +22,6 @@ This baby baked ham is cooked with a sweet and spicy fresh honey, ginger and apr
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/461_step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Once hot, add the gammon and cook all over until browned (seared) for approx. 5 
 
 Tip: use tongs for greater turning control&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/461_step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Season with plenty of pepper and place in the oven for 35-40 min or until cooked
 
 &nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/461_step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Add the potatoes, parsnips and carrot to a separate baking tray, drizzle them wi
 
 Place the tray in the oven for an initial 25 min or until everything's starting to crisp
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/461_step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Meanwhile, chop the diced apricots up so they are finely chopped&nbsp;
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger&nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/461_step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,7 +86,6 @@ Add 100ml <span class="text-danger">[200ml]&nbsp;</span>water and the honey&nbsp
 
 Tip: mash the chutney with a fork to bind it together more
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/461_step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,7 +97,6 @@ Trim the tails off the Brussels&nbsp;sprouts&nbsp;
 
 Tip: cut&nbsp;any larger sprouts in half so that they cook evenly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/461_step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ You're gonna love these crispy-topped smoked beans. We've conjured up a low carb
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614613085689-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Boil half a kettle
 
 Peel and cut the red onion<span class="text-danger">[s]</span> into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1614613091906-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the onion wedges with a pinch of salt and cook for 3-4 min or until softened, separating the onion into petals
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614613109531-x200.jpg)
 
 ### Step 3
 
@@ -47,7 +44,6 @@ While the onion petals are softening, peel and finely slice (don't chop!) the ga
 
 Drain and rinse the cannellini beans
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1614613133041-x200.jpg)
 
 ### Step 4
 
@@ -55,7 +51,6 @@ Once the onion has softened, add the sliced garlic to the pan with the smoked pa
 
 Preheat the grill to high
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614613149326-x200.jpg)
 
 ### Step 5
 
@@ -65,7 +60,6 @@ Add the spinach to the pan with the chopped tomatoes and 100ml <span class="text
 
 Give everything a good mix up and cook for 2-3 min or until the spinach is bright green and wilted and the sauce has slightly thickened – these are your smoky tomato beans
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1614613429992-x200.jpg)
 
 ### Step 6
 
@@ -77,7 +71,6 @@ Top with the grated halloumi then sprinkle the dried oregano over the top
 
 Put the dish under the grill for 5 min or until the halloumi has begun to melt and crisp up – these are your halloumi-topped smoky tomato beans
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1614613456193-x200.jpg)
 
 ### Step 7
 

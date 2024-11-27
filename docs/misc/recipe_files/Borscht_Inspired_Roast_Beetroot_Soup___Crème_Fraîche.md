@@ -27,7 +27,6 @@ Polish off your blender for this baltic beetroot borscht. You’ll roast winter 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1669728174172-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and chop the brown onion<span class="text-danger">[s]</span> into wedges
 
 Crush the garlic open by squashing them with the side of a knife and discard the skins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669728187146-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Add the sliced carrot and parsnip to a baking paper-lined baking tray (or two!) 
 
 Drizzle over a little vegetable oil and put the tray<span class="text-danger">[s]</span> in the oven for 15 min or until everything is tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669728190652-x200.jpg)
 
 ### Step 3
 
@@ -65,7 +62,6 @@ Add the chopped potatoes and beetroot liquid to a pot with a matching lid with 7
 
 Bring to the boil over a high heat and once boiling, reduce the heat to medium and cook, covered, for 12-15 min or until fork-tender
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669728194011-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Combine the juice of 1/2 <span class="text-danger">[1]</span> lemon with the cr�
 
 Chop the dill finely, including the stalks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669728202454-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Return the tray<span class="text-danger">[s]</span> to the oven for 3-4 min or u
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669728209547-x200.jpg)
 
 ### Step 6
 
@@ -99,7 +93,6 @@ Add the roasted garlic, parsnip, carrot and the juice of the remaining lemon
 
 Add the vegetable stock mix and tomato paste and bring to the boil over a high heat – this is your soup
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669728219829-x200.jpg)
 
 ### Step 7
 

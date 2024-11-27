@@ -24,7 +24,6 @@ This sunny low-carb recipe takes its inspiration from Mexico and will be on the 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1646759008488-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary, and if you like your steak well-done, it may take you a little longer than 10 mins
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646759017136-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Pat the rump steaks dry with kitchen paper
 
 Drizzle them with vegetable oil and season all over with salt, pepper, the ground cumin and dried oregano – these are your spice crusted steaks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646759028986-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steaks are cooked, transfer them to a plate to rest
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646759039119-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add 3 tbsp <span class="text-danger">[5 tbsp]</span> olive oil, a pinch of sal
 
 Tip: Taste the dressing and add a pinch of sugar if it needs it
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646759047271-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Chop the cherry tomatoes in half and season them with a pinch of salt
 
 Wash the baby leaf salad, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646759056332-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the steaks done, wipe out the steak pan with kitchen paper and return it to
 
 Add the drained black beans and soy sauce and cook for 1-2 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646759065000-x200.jpg)
 
 ### Step 7
 

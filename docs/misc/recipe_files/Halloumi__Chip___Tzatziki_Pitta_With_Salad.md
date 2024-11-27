@@ -24,7 +24,6 @@ For this Mediterranean-inspired dish, you'll tuck golden halloumi sticks and her
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597161103406-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Add the sliced red onion to a bowl, cover with boiled water and set aside for later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597161109156-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Give everything a good mix up and put the tray in the oven for 25-30 min or unti
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597161114710-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Grate half the cucumber and slice the rest into batons
 
 Add the chopped garlic, chopped mint and grated cucumber to a bowl with the natural yoghurt and mix it all together – this is your tzatziki
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597161276787-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Return to the bowl and add the white wine vinegar with a generous pinch of sugar
 
 Stir to combine and set aside to pickle – these are your quick-pickled onions
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1597161291131-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the halloumi sticks and cook for 2-3 min on each side or until golden
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597161302995-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the chips are almost done, add the pittas to the tray
 
 Return the tray to the oven and cook for 2-3 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597161308786-x200.jpg)
 
 ### Step 7
 

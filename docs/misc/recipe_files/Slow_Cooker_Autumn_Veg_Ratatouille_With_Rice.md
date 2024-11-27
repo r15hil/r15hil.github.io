@@ -28,7 +28,6 @@ This is French soul food in a bowl. You’ll slow-cook flat white mushrooms, squ
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1670332695238-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your slow cooker and all your ingredients ready, then wash your fruit and veg
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666688048584-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Turn on your slow cooker to high
 
 Boil half a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666688054405-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Peel and chop your red onion[s] into wedges
 
 Add the chopped aubergine and onion wedges to the pan
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666688059536-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the mushroom chunks and butternut squash cubes to the pan and season generou
 
 Cook for 2-3 min or until lightly browned
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666688065191-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Add 150ml <span class="text-purple">[195ml] </span><span class="text-danger">[25
 
 Cover and cook on high for 4 hours – this is your autumn veg ratatouille
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666688070596-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666688076132-x200.jpg)
 
 ### Step 7
 

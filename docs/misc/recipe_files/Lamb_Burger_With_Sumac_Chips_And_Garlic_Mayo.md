@@ -21,7 +21,6 @@ Take a bite of this takeaway favourite. You’ll pan-fry lamb patties before loa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678972895822-x200.jpg)
 
 ### Step 1
 
@@ -33,13 +32,11 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a generous pi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678972898759-x200.jpg)
 
 ### Step 2
 
 Whilst the chips are in the oven, peel and grate the garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678972901884-x200.jpg)
 
 ### Step 3
 
@@ -49,13 +46,11 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide into 2 <span class="text-danger">[4] </span>and shape into equal-sized patties
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678972906839-x200.jpg)
 
 ### Step 4
 
 Combine the mayo and remaining grated garlic in a separate bowl with half the ground sumac (save the rest for later!) and a drizzle of olive oil – this is your garlic mayo
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678972910797-x200.jpg)
 
 ### Step 5
 
@@ -63,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the lamb patties, press them down firmly with a spatula and cook for 4-5 min on each side or until cooked through and charred (no pink meat!) – these are your lamb burgers
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678972914530-x200.jpg)
 
 ### Step 6
 
@@ -75,7 +69,6 @@ Remove 4<span class="text-danger"> [8]</span> outer leaves and set aside, then c
 
 Add the lettuce wedges to the dressing and give everything a good mix up – these are your dressed lettuce wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678972917774-x200.jpg)
 
 ### Step 7
 

@@ -23,7 +23,6 @@ This is your how-to guide on turning juicy chicken breasts into a creamy pie, wi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1636729318257-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ This recipe takes around 5-10min to prep, so get your casserole dish and all you
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1698916185962-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a drizzle of ve
 
 Once hot, add your diced chicken breast to the dish with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and your dried thyme and cook for 2 min or until very lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1698916190253-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Boil half a kettle
 
 Chop your sweet potato[es] (skin on) into large, bite-sized pieces
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1698916194620-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Bring to the boil over a high heat
 
 Cover with a lid and put the dish in the oven for 25-30 min or until the chicken is cooked through (no pink meat!) and the potato is tender
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1698916199732-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Tip: Cooking for 4 or more? Use 2 trays!
 
 Score a cross in the middle of the pastry and put it in the oven for 15 min or until puffed up, golden and cooked through – this is your pie lid
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636048647439-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1698916205683-x200.jpg)
 
 ### Step 7
 

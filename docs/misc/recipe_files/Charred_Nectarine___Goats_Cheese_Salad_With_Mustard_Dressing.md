@@ -23,7 +23,6 @@ Dish up the sunshine with this fruit-packed plate. You’ll top lettuce, cucumbe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684415496691-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Tear your ciabatta[s] into bite-sized pieces and add them to a baking tray with 
 
 Put the tray in the oven for 6-7 min or until golden and crisp – these are your crispy croutons
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684415498255-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Remove the stone[s] using a spoon
 
 Chop half your nectarine[s] into 6 wedges per person and set the remaining nectarine aside
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684415502436-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add your wholegrain mustard with your white wine vinegar, 1 1/2 tbsp<span class=
 
 Blitz until smooth – this is your mustard dressing
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684415509427-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Remove the outer leaves from the lettuce and shred the inner core
 
 Wash your salad, then pat it dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684415530831-x200.jpg)
 
 ### Step 5
 
@@ -75,13 +70,11 @@ Combine the mustard dressing, torn lettuce and shredded inner core in a large bo
 
 Add the chopped tomatoes, diced cucumber and dried cranberries and toss until fully combined – this is your salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684415542359-x200.jpg)
 
 ### Step 6
 
 Crumble your goats' cheese into rough bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684415543144-x200.jpg)
 
 ### Step 7
 

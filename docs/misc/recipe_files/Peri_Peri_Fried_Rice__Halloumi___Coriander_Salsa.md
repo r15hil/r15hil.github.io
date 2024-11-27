@@ -24,7 +24,6 @@ Kick fried rice into high gear with this fragrant, comforting dish. You'll pack 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1729794392311-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721652197103-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and chop (or grate) your garlic
 
 Slice your halloumi into 3 pieces per person
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721652200603-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced pepper to the pan with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721652203751-x200.jpg)
 
 ### Step 4
 
@@ -64,7 +60,6 @@ Meanwhile, chop your coriander finely (including the stalks)
 
 Combine the chopped coriander and your white wine vinegar in a small bowl with 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your coriander salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721652207177-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Tear the top corner of the pouch[es]<span class="text-danger"> </span>(just a li
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721652233483-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Once the pepper is soft, add the chopped garlic, ground smoked paprika, ground t
 
 Once fragrant, add the cooked white long grain rice and your blanched peas to the pan along with a splash of water and cook for 1-2 min or until warmed through – this is your spicy rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721652236121-x200.jpg)
 
 ### Step 7
 

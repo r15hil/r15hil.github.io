@@ -27,7 +27,6 @@ In this recipe you’ll create a restaurant quality curry, but in your own home!
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2342Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel and finely chop (or grate) the garlic
 
 Peel and chop most of the red onion<span class="text-danger">[s]</span> into wedges and finely dice the rest
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2342Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the diced red onion, black mustard seeds  with the ground turmeric and ground cumin, chopped potatoes, 1/3 of the chopped garlic and a generous pinch of salt, then cook, covered, for 15-18 min or until almost tender
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2342Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Meanwhile, cut the red chilli<span class="text-danger">[es]</span> in half lengt
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2342Step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Add the garam masala, halved cherry tomatoes and tomato paste and cook for a fur
 
 Tip: Add a little more vegetable oil if the pan is looking a little dry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2342Step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,13 +80,11 @@ Add the drained jumbo prawns to the pan and cook for 6-7 min or until the prawns
 
 Tip: Once the jumbo prawns are cooked through, season to taste!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2342Step-6-x200.jpg)
 
 ### Step 6
 
 Once the potatoes are almost cooked through, remove the lid and continue to cook for 2-3 min or until all the water has evaporated and the potatoes are tender – this is your Bombay aloo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2342Step-7-x200.jpg)
 
 ### Step 7
 

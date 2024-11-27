@@ -31,7 +31,6 @@ Whip up this stew like a real Sicilian. Packed with aubergine and red pepper, yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684234867537-x200.jpg)
 
 ### Step 1
 
@@ -43,7 +42,6 @@ Once hot, add your pine nuts and cook for 2-3 min or until toasted and lightly g
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684234871328-x200.jpg)
 
 ### Step 2
 
@@ -55,7 +53,6 @@ Chop your tomato[es] into wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into large chunks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684234875935-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix and tomato paste in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml] </span>boiled water – this is your tomato stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684234879069-x200.jpg)
 
 ### Step 4
 
@@ -75,7 +71,6 @@ Once the veg is starting to brown, add the chopped pepper, tomato wedges and cho
 
 Once fragrant, add your dried oregano, sultanas and red wine vinegar and cook for 1 min or until the vinegar has evaporated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684234882740-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Once the vinegar has evaporated, add the tomato stock and bring to the boil over
 
 Once boiling, reduce the heat to medium-high and cook, covered, for 10-12 min or until the veg is tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684234886372-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ While the veg is cooking, chop your parsley finely, including the stalks
 
 Add your couscous and a generous pinch of salt to a heatproof bowl with 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiled water, cover and set aside until all of the liquid has been absorbed
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684234890413-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ For this deliciously zingy salad you'll mix lemony chicken and courgette ribbons
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1439.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Cook for 15-20 min or until cooked through but with a slight bite
 
 Once cooked, drain and rinse under cold water until cool
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1439.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -58,7 +56,6 @@ Add the sliced chicken to the bowl of lemon zest with 1 tsp <span class="text-da
 
 Give everything a good old mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1439.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,7 +64,6 @@ Add the chicken with any&nbsp;remaining marinade to a baking tray&nbsp;
 
 Put the tray in the oven for 15-20 min or until cooked through
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1439.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,7 +72,6 @@ Meanwhile, top and tail the courgette<span class="text-danger">[s]</span>
 
 Peel lengths of courgette until you end up with a pile of courgette 'ribbons'
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1439.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Cut the&nbsp;red chilli<span class="text-danger">[es]</span> in half lengthways,
 
 Strip the mint leaves and chop them finely, discarding the stems&nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1439.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,7 +91,6 @@ Combine the chopped garlic, chopped chilli (Can't handle the heat? Go easy!) wit
 
 Season with a generous pinch of salt and pepper and half the mint leaves (save the rest for later!) &ndash; this is your lemony dressing&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1439.-step-7-x200.jpg)
 
 ### Step 7
 

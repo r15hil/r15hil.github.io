@@ -30,7 +30,6 @@ Make your own with creamy truffle mayo-smothered pigs in blankets, stuffed into 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666964968031-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the fries to a baking paper-lined baking tray with a drizzle of vegetable oi
 
 Give everything a good mix up and put the tray in the oven for an initial 25-30 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666964974762-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Combine your honey and wholegrain mustard in a bowl with a drizzle of vegetable 
 
 Wrap each sausage in 1 and 1/2 strips of bacon – these are your pigs in blankets
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666964983001-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Pour over the honey-mustard glaze and reserve the bowl
 
 Put the tray in the oven for 20-25 min or until cooked through – these are your honey mustard pigs in blankets
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666964998403-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Cook for 3-4 min or until golden, stirring frequently
 
 Once golden, transfer to a plate and reserve the pan for later – this is your stuffing crumble
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666965006715-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Wash your lamb's lettuce and pat it dry with kitchen paper
 
 Combine the lamb's lettuce and sliced apple in a bowl with your red wine vinegar and a little drizzle of olive oil – this is your apple salad
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666965016009-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Return the reserved pan to a medium heat and add the brioche halves, cut-side do
 
 Set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666965024380-x200.jpg)
 
 ### Step 7
 

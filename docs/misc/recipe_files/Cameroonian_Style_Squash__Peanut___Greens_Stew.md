@@ -27,7 +27,6 @@ The inspiration for this aromatic stew comes from the Cameroonian dish, 'ndolé'
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602077287925-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Scoop out the seeds with a spoon and discard, then slice finely
 
 Add to a foil-lined baking tray with a drizzle of vegetable oil, the cayenne pepper (can't handle the heat? Go easy!) and a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602077438850-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Heat a wide-based pan (preferably non-stick with a matching lid) over a high hea
 
 Once hot, add the sliced onions with a pinch of salt and cook for 8-10 min or until browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602077452422-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Add in the peanuts and blitz again until roughly chopped – this is your peanut
 
 Tip: Add a splash more cold water if needed!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602077527748-x200.jpg)
 
 ### Step 4
 
@@ -79,7 +75,6 @@ Once fragrant, crumble in the Kallo vegetable stock cube<span class="text-danger
 
 Give everything a good mix up then cook for a further 3-4 min or until starting to thicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602077600012-x200.jpg)
 
 ### Step 5
 
@@ -91,13 +86,11 @@ Give everything stir then cook, covered, for 4-5 min or until the spinach and ka
 
 Tip: Add a splash more boiled water if the pan is looking dry!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602077621728-x200.jpg)
 
 ### Step 6
 
 Meanwhile, finely slice the red chilli<span class="text-danger">[es]</span> (not a fan of spice? Deseed the chilli!)
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602077671312-x200.jpg)
 
 ### Step 7
 

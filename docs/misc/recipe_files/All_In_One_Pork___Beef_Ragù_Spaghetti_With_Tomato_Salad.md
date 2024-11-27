@@ -27,7 +27,6 @@ With our oven-baked Italian-style ragù, staying in never tasted so good. You’
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1695657717090-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695657732285-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695657740362-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Peel and grate your garlic
 
 Add your tomato paste, grated garlic and a knob of butter to the dish and give everything a good mix up
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695657744740-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add your chopped tomatoes, beef stock mix, balsamic vinegar and 650ml <span clas
 
 Bring to the boil over a high heat, season generously with salt and pepper, then cover with a lid and put the dish in the oven for an initial 30 min – this is your pork & beef ragù
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695657748541-x200.jpg)
 
 ### Step 5
 
@@ -77,13 +72,11 @@ Break your spaghetti in half and add it to the dish, giving everything a good mi
 
 Return the dish to the oven and cook, covered, for a final 25 min or until the spaghetti is tender and the mince is cooked through (no pink meat!) – this is your all-in-one pork & beef ragù spaghetti
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695657753125-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695657758419-x200.jpg)
 
 ### Step 7
 

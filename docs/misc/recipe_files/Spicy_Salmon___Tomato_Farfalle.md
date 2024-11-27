@@ -24,7 +24,6 @@ This salmon and tomato pasta is rich, herby and on the table in minutes. Pack yo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1700568495071-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle and set aside
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1700568501830-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Chop your tomato[es]<span class="text-danger"> </span>roughly
 
 Peel and finely slice (don't chop!) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1700568507543-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced leek and sliced garlic to the pan with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>sugar and cook for 3-4 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1700568512775-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Once softened, add the chopped tomato and most of your chilli flakes (can't hand
 
 Cook for 1 min or until fragrant
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1700568518250-x200.jpg)
 
 ### Step 5
 
@@ -70,7 +65,6 @@ Once fragrant, add your finely chopped tomatoes, vegetable stock mix and dried o
 
 Cook for a further 3-4 min or until it's slightly thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1700568523261-x200.jpg)
 
 ### Step 6
 
@@ -78,7 +72,6 @@ Once the sauce has slightly thickened, add the salmon flakes
 
 Season with a generous grind of pepper and cook for 2-3 min or until the salmon is warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1700568527867-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ A tangy homemade remoulade will take this simple chicken sarnie to the next leve
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1706023473271-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut your sweet potato[es] (skin on) into thin chips, then add them to a baking
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1706023479472-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Peel and finely chop your shallot[s]
 
 Chop your parsley finely, including the stalks
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1706023486441-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add your free range chicken breast portion[s] to a chopping board and cover with
 
 Pat dry with kitchen paper – this is your chicken escalope
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1706023492432-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Turn the chicken escalope[s] in the garlic panko until fully coated – this is 
 
 Tip: Press the chicken into the breadcrumbs firmly to coat evenly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1706023497734-x200.jpg)
 
 ### Step 5
 
@@ -76,13 +71,11 @@ Once hot, add the garlic panko chicken and cook for 4-5 min on each side, or unt
 
 Tip: Add a drizzle more oil if the pan looks a little dry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1706023503435-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add your ciabatta[s] to a baking tray and pop the tray in the oven for 3-4 min or until warmed through
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1706023509242-x200.jpg)
 
 ### Step 7
 

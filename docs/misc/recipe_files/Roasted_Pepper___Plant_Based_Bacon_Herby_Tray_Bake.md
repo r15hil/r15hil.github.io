@@ -21,7 +21,6 @@ A plant-based tray bake that’s packed with delectable veg, and jives well with
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1649847612131-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Cut your tomato[es] into wedges
 
 Chop your potatoes (skins on) into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1649847616085-x200.jpg)
 
 ### Step 2
 
@@ -41,13 +39,11 @@ Add the chopped potatoes, chopped pepper and tomato wedges to a baking tray (o
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 25-30 min or until everything is cooked through and starting to crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649847620457-x200.jpg)
 
 ### Step 3
 
 Meanwhile, chop your chives roughly
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649847623723-x200.jpg)
 
 ### Step 4
 
@@ -55,7 +51,6 @@ Add the chopped chives to a food processor with your white wine vinegar, 2 tbsp 
 
 Blitz until smooth – this is your chive dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689588897075-x200.jpg)
 
 ### Step 5
 
@@ -63,13 +58,11 @@ Wash your spring greens then pat dry with kitchen paper
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1689588925672-x200.jpg)
 
 ### Step 6
 
 Once the vegetables have had an initial 25-30 min, remove the tray from the oven and add your meat-free bacon lardons and the sliced spring greens and stir it all together
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689588937189-x200.jpg)
 
 ### Step 7
 

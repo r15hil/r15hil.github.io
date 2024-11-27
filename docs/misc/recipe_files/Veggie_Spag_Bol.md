@@ -24,7 +24,6 @@ For this plant-based take on a classic spaghetti bolognese you'll make a rich, v
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1893.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Top, tail, peel and finely dice the carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1893.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the diced onion with a pinch of salt and cook for 3 min or until the onion has softened slightly but not coloured
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1893.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Add the diced pepper and carrot to the pan and cook for 8 min or until softene
 
 Add the chopped garlic and cook for 1 min further – this is your veggie mix
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1893.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ While the veggie mix is cooking, dissolve vegetable stock mix in 150ml <span cla
 
 Drain and rinse the green lentils
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1893.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook, covered, for 15-20 min or until slightly thickened and the carrots are cooked – this is your veggie bolognese
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1893.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Cook the spaghetti for 8-12 min or until cooked with a slight bite
 
 Once done, drain the wholewheat spaghetti and return to the pot until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1893.-step-7-x200.jpg)
 
 ### Step 7
 

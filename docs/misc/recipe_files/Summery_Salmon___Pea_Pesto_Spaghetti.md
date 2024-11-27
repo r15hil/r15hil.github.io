@@ -21,7 +21,6 @@ Whip up this summery pasta in no time. You'll coat your spaghetti in a creamy pe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1625571853913-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Add your spaghetti to a pot of boiled water with a pinch of salt and bring to th
 
 Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1625571857773-x200.jpg)
 
 ### Step 2
 
@@ -41,13 +39,11 @@ While the spaghetti is cooking, peel and finely chop (or grate) your garlic
 
 Slice your sun-dried tomatoes finely
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1625571861702-x200.jpg)
 
 ### Step 3
 
 Combine your soft cheese, pesto and vegetable stock mix with 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[255ml]</span> boiled water – this is your creamy pesto stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1625571871801-x200.jpg)
 
 ### Step 4
 
@@ -55,13 +51,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped garlic and most of the sliced sun-dried tomatoes (save a little for garnish!) and cook for 1-2 min or until the garlic has softened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1625571877513-x200.jpg)
 
 ### Step 5
 
 Add the creamy pesto stock to the pan
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1625571881901-x200.jpg)
 
 ### Step 6
 
@@ -69,7 +63,6 @@ Add your salmon flakes and give everything a good mix up
 
 Season with a generous grind of black pepper and cook for 1-2 min or until the sauce has thickened slightly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625571885980-x200.jpg)
 
 ### Step 7
 

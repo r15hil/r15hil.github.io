@@ -28,7 +28,6 @@ Give your childhood chicken nugget dinner a grown-up flavour boost. You’ll fry
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665138112960-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Add the chips to a baking tray with the nigella seeds, a drizzle of vegetable oi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665138116056-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Peel and finely chop (or grate) the garlic
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665138119310-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Heat a pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until softened
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665138122438-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Combine the cornflour in a bowl with half the garam masala and half the curry p
 
 Add the cubed paneer to the bowl and give everything a good mix up until the paneer is fully coated
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665138125864-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Once fragrant, add 150ml <span class="text-danger">[250ml]</span> boiled water, 
 
 Once boiling, reduce the heat to medium and cook for 4-5 min further or until the sauce has thickened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665138129564-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once hot, add the coated paneer and cook for 5-6 min until golden, turning occas
 
 Once done, transfer the golden paneer to a plate – these are your spiced paneer nuggets
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665138133426-x200.jpg)
 
 ### Step 7
 

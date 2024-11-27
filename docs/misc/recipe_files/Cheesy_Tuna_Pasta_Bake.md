@@ -24,7 +24,6 @@ There's never a bad time for a tuna pasta bake. For this cheesy delight, you'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1620229660000-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Deseed the red pepper<span class="text-danger">[s] </span>(scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620229664430-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion, sliced pepper and a pinch of salt then cook for 5-6 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620229668788-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Once cooked, drain the tortiglioni
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620229677636-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Slice the cherry tomatoes in half
 
 Dissolve the tomato paste and vegetable stock mix in 150ml <span class="text-danger">[250ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1620229730638-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Drain the tuna
 
 Once the sauce has thickened, stir the cooked tortiglioni and drained tuna through the tomato sauce and season generously with black pepper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620229734643-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Drain the mozzarella, then pat it dry with kitchen paper (squeeze as much liquid
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620229756470-x200.jpg)
 
 ### Step 7
 

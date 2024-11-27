@@ -23,7 +23,6 @@ It doesn’t get better than this Mediterranean-style dinner. You’ll stuff war
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674485088770-x200.jpg)
 
 ### Step 1
 
@@ -31,7 +30,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674485096305-x200.jpg)
 
 ### Step 2
 
@@ -39,7 +37,6 @@ Add the chips to a baking tray (or two!) with a drizzle of olive oil and a gene
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674485106823-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Peel and finely chop (or grate) your garlic
 
 Drain and rinse your chickpeas
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674485118940-x200.jpg)
 
 ### Step 4
 
@@ -63,19 +59,16 @@ Add a generous drizzle of olive oil and a pinch of salt and pepper and give ever
 
 Put the tray[s] in the oven for 18-20 min or until the veg is lightly charred and softened – this is your roasted veg
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674485123906-x200.jpg)
 
 ### Step 5
 
 While the veg is cooking, crumble your Greek cheese into rough bite-sized pieces
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674485129857-x200.jpg)
 
 ### Step 6
 
 Combine the remaining chopped garlic (not a big garlic fan? Try using less!) with your mayo in a small bowl with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>cold water and a generous grind of black pepper – this is your garlic mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674485134232-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This mushroom rice is subtly spiced and super speedy. You’ll sauté mushrooms 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676045556969-x200.jpg)
 
 ### Step 1
 
@@ -36,13 +35,11 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676045560526-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel and finely chop your brown onion[s]
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676045563883-x200.jpg)
 
 ### Step 3
 
@@ -50,7 +47,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676045570177-x200.jpg)
 
 ### Step 4
 
@@ -58,7 +54,6 @@ Whilst the onion is cooking, slice your white cup mushrooms finely
 
 Boil half a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676045573918-x200.jpg)
 
 ### Step 5
 
@@ -68,7 +63,6 @@ Once softened, reduce the heat to medium and add your ginger & garlic paste with
 
 Cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676045654377-x200.jpg)
 
 ### Step 6
 
@@ -76,7 +70,6 @@ Once fragrant, add your blanched peas to the pan with 75ml<span class="text-purp
 
 Once the rice is cooked, stir through your vegetable stock mix
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676045665025-x200.jpg)
 
 ### Step 7
 

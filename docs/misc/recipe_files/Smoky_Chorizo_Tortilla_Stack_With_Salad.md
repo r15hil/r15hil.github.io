@@ -25,7 +25,6 @@ Quick, fun and totally smokin'! You'll layer crispy tortilla wraps with a dollop
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1645180161680-x200.jpg)
 
 ### Step 1
 
@@ -33,13 +32,11 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Preheat the grill to medium-high
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612783448673-x200.jpg)
 
 ### Step 2
 
 Once hot, add the diced chorizo to the pan and cook for 2-3 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612783456994-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Put the tray under the grill for 3-4 min, turning the wraps once halfway so they
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612783483853-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ Add the chopped pepper to the pan with the chorizo and cook for 1 min
 
 Drain and rinse the cannellini beans
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612783497526-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Add the chopped tomatoes, drained cannellini beans and half of the smoked paprik
 
 Cook for 3-4 min or until the pepper has softened – this is your chorizo mixture
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612783512621-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Combine the remaining smoked paprika with the mayo and half of the white wine vi
 
 Wash the salad, then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612783522768-x200.jpg)
 
 ### Step 7
 

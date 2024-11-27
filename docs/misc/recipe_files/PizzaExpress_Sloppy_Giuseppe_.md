@@ -24,7 +24,6 @@ Master the art of PizzaExpress at home with this tasty take on the Sloppy Giusep
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666191044478-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Cut the PizzaExpress pizza dough in half
 
 Shape the dough into 2 <span class="text-danger">[4]</span> balls and set aside for 15 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1666191049115-x200.jpg)
 
 ### Step 2
 
@@ -44,7 +42,6 @@ Dice the mozzarella into small bite-sized pieces and add to some kitchen paper
 
 Press down on the diced mozzarella with another piece of kitchen paper to squeeze out as much liquid as you can
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666191054143-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Deseed the green pepper<span class="text-danger">[s]</span> (scrape the seeds an
 
 Peel and finely chop (or grate) the garlic
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666191057351-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the beef mince and cook for 3-4 min or until beginning to brown, breaking up the mince with a wooden spoon as you go
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666191064813-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Add a pinch of salt and cook for 2 min or until fragrant
 
 Once fragrant, remove the pan from the heat and set aside for later – this is your sloppy mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666191066538-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Repeat with the other dough ball<span class="text-danger">[s]</span> – these a
 
 Transfer the pizza bases to a baking paper-lined baking tray
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666191071242-x200.jpg)
 
 ### Step 7
 

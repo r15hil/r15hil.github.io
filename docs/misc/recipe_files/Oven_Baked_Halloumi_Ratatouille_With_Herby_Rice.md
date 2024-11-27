@@ -26,7 +26,6 @@ France meets Cyprus in this Mediterranean match-up. You’ll pair a colourful ra
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1668513464011-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692361414220-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Trim the green stalk[s] off your aubergine[s] and cut into bite-sized pieces
 
 Once hot, add the chopped aubergine to the dish and cook for 1-2 min or until lightly browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692361417249-x200.jpg)
 
 ### Step 3
 
@@ -58,13 +55,11 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughl
 
 Add the onion wedges and chopped pepper to the dish and stir it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692361423410-x200.jpg)
 
 ### Step 4
 
 Cut your halloumi<span class="text-danger"> </span>into bite-sized chunks (save the halloumi juices from the packet for later!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692361426781-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Add 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[35
 
 Give everything a good mix up and put the dish in the oven, covered, for 30-35 min or until the veg is tender – this is your oven baked halloumi ratatouille
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692361430279-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Whilst the ratatouille is cooking, add your white long grain rice, the remaining
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your herby rice
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683099899901-x200.jpg)
 
 ### Step 7
 

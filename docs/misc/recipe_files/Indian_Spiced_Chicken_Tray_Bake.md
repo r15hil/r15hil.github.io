@@ -29,7 +29,6 @@ For this easy, one-pan traybake, you'll marinate chicken thighs in ginger, cocon
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643122848522-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Add your chicken thighs and give everything a good mix up until the chicken is fully coated in the marinade, then refrigerate until later
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643122868031-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Peel and chop your red onions into wedges
 
 Crush your garlic with the side of a knife, keeping the skins on
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643122874675-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Sprinkle over your ground turmeric and yellow mustard seeds
 
 Season with a generous pinch of salt and pepper and stir it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643122879861-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ Add the juice of half the lemon wedges to the potatoes, then add the squeezed we
 
 Cut the remaining lemon[s] into 1 wedge per person
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643122885158-x200.jpg)
 
 ### Step 5
 
@@ -79,7 +74,6 @@ Add the crushed garlic to the tray[s], along with the marinated chicken and any 
 
 Put the tray[s] in the oven for an initial 30 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643122892138-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Remove the tray[s] from the oven, push the chicken to one side of the tray and a
 
 Return the tray[s] to the oven for a further 5 min or until the spinach has wilted and the chicken is cooked through (no pink meat!) – this is your Indian-spiced chicken
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643122898957-x200.jpg)
 
 ### Step 7
 

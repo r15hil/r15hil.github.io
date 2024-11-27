@@ -25,7 +25,6 @@ This unbeatable bánh mì comes straight out of Saigon. You’ll load up a crust
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723802823798-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 then take your chicken out of th
 
 Add your chicken thighs to a baking tray (use tin foil to avoid mess!) with a drizzle of vegetable oil  and put the tray in the oven for 20-25 min or until cooked through (no pink meat!)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723802847693-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Slice your white cup mushrooms finely
 
 Peel and finely chop (or grate) your garlic
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723802853157-x200.jpg)
 
 ### Step 3
 
@@ -49,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced mushrooms and cook for 6-8 min or until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723802871020-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Strip your mint leaves from their stems
 
 Finely chop half your mint and coriander and set aside the remaining leaves
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723802878838-x200.jpg)
 
 ### Step 5
 
@@ -69,7 +64,6 @@ Combine half your rice vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp]</
 
 Combine your mayo and sriracha (can't handle the heat? Go easy!) in a small bowl with the remaining rice vinegar, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a small splash of cold water – this is your sriracha mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723802885230-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once fragrant, transfer the mushrooms to a food processor with a knob of butter 
 
 Blitz until smooth – this is your mushroom pâté
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723802898553-x200.jpg)
 
 ### Step 7
 

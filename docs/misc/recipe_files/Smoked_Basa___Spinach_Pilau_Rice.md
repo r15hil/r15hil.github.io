@@ -24,7 +24,6 @@ This light, aromatic dinner is inspired by Indian pilau rice. To whip it up in 1
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1614008248855-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582890944965-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Squeeze your pouch[es] of the cooked white long grain rice, making sure to sepa
 
 Once hot, remove the pan off the heat and add your ginger & garlic paste and cooked white long grain rice to the pan and give everything a good mix up
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1582890948901-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Return the pan back to the heat and sprinkle your ground turmeric and vegetable 
 
 Pour in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[380ml]</span> boiled water and mix it all together
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582890952620-x200.jpg)
 
 ### Step 4
 
@@ -64,19 +60,16 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Add the spinach and half your chilli flakes to the pan (can't handle the heat? Go easy!)
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582890956594-x200.jpg)
 
 ### Step 5
 
 Give everything a good mix up, then sit your smoked basa fillet[s] over the rice and cook, covered, for an initial 4-5 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1582890960404-x200.jpg)
 
 ### Step 6
 
 Trim, then slice your spring onion[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582890965548-x200.jpg)
 
 ### Step 7
 

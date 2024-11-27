@@ -24,7 +24,6 @@ Bring the heat with this spicy twist on an American favourite. You’ll load you
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674557179121-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into thin chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674557188740-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Give everything a good mix up and put the tray[s] in the oven for 20-25 min or u
 
 Once golden, remove the tray[s] from the oven and sprinkle over your toasted sesame seeds – these are your fiery sesame fries
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674557193123-x200.jpg)
 
 ### Step 3
 
@@ -50,13 +47,11 @@ Meanwhile, add your mooli slaw mix and rice vinegar to a bowl with a small pinch
 
 Give everything a good mix up and set aside – this is your quick-pickled mooli slaw
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674557199170-x200.jpg)
 
 ### Step 4
 
 Trim, then slice your spring onion[s]
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674557203898-x200.jpg)
 
 ### Step 5
 
@@ -64,13 +59,11 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your hot dog sausage[s] and cook for 10-12 min, turning frequently until browned all over and cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674557209667-x200.jpg)
 
 ### Step 6
 
 While the sausage[s] is cooking, combine your mayo and remaining sriracha (not a fan of spice? Just add a little!) in a small bowl and give everything a good mix up – this is your sriracha mayo
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674557226882-x200.jpg)
 
 ### Step 7
 

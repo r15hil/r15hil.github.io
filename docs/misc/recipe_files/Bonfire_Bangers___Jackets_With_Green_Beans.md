@@ -22,7 +22,6 @@ It's getting chilly, so why not warm up with our bonfire bangers nestled in a wa
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634047501634-x200.jpg)
 
 ### Step 1
 
@@ -32,7 +31,6 @@ Prick the potatoes a few times with a sharp knife and add them to a large heat-p
 
 Put the potatoes in the microwave for 6 min
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634047502893-x200.jpg)
 
 ### Step 2
 
@@ -42,7 +40,6 @@ Once the potatoes are done, add them to the other side of the baking tray with a
 
 Put the baking tray in the oven for an initial 15 min
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634047503450-x200.jpg)
 
 ### Step 3
 
@@ -52,7 +49,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced red onion with a pinch of salt and 1 tsp <span class="text-danger">[2 tsp] </span>sugar and cook for 10-15 min or until caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634047508697-x200.jpg)
 
 ### Step 4
 
@@ -62,7 +58,6 @@ Combine the honey and wholegrain mustard in a small bowl – this is your honey 
 
 Grate the cheddar cheese
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634047729254-x200.jpg)
 
 ### Step 5
 
@@ -72,7 +67,6 @@ Return the tray to the oven for a final 10-12 min or until the sausages are cook
 
 Dissolve the beef stock mix in 200ml [350ml] boiled water with the tomato ketchup – this is your beefy tomato stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634047738672-x200.jpg)
 
 ### Step 6
 
@@ -82,7 +76,6 @@ Return the pan to a medium heat with a knob of butter and once melted, add  1 ts
 
 Add the beefy tomato stock then whisk until combined and cook for 3-4 min or until thickened to a gravy-like consistency – this is your beefy tomato gravy
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Draining-green-beans--1636972088838-x200.jpg)
 
 ### Step 7
 

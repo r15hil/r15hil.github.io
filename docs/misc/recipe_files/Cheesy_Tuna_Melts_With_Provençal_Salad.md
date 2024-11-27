@@ -27,7 +27,6 @@ This cheesy tuna melt takes its inspiration from the classic French Salade Niço
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1217.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the green beans to a pot of boiled water with a pinch of salt, bring to the 
 
 Once tender, drain and set aside&nbsp;
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1217.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Drain the tuna&nbsp;
 
 Add the drained tuna and the&nbsp;grated cheddar to a bowl with a generous&nbsp;pinch of salt and give everything a good mix up&nbsp;
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1217.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,7 +66,6 @@ Sandwich the cheese &amp; tuna mix between two slices &ndash; these are your tun
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1217.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Heat a large, non-stick pan over a medium heat&nbsp;and once hot, add the tuna s
 
 Add a heavy weight (eg. several tins) to the top pan and cook for 3-4 min per side, checking occasionally &ndash; these are your tuna melts
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1217.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,7 +88,6 @@ Slice the cherry tomatoes&nbsp;in half
 
 Peel and slice the shallot<span class="text-danger">[s]</span> finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1217.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,7 +96,6 @@ Peel and chop (or grate) the garlic finely&nbsp;
 
 Combine the mayo, chopped garlic, apple cider vinegar, dried oregano and Dijon mustard with a drizzle of olive oil and a pinch of salt and pepper&nbsp;&ndash; this is your<span class="text-highlight"> Proven&ccedil;al</span> dressing
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1217.-step-7-x200.jpg)
 
 ### Step 7
 

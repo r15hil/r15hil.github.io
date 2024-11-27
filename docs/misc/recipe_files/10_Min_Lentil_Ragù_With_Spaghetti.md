@@ -26,7 +26,6 @@ Pack flavour into this plant-based ragù with chestnut mushrooms, roasted garlic
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1972.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1972.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
 Trim, then chop the spring onions roughly (chop them in one bunch for speed!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1972.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Once hot, add the chopped spring onions and grated carrot to the pan
 
 Tear the chestnut mushrooms into the pan and cook for 3-4 min or until starting to brown
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1972.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,19 +68,16 @@ Cook the quick cook spaghetti for 3-4 min or until cooked with a slight bite
 
 Once done, drain the quick cook spaghetti and return it to the pot with a drizzle of olive oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1972.-step-5-x200.jpg)
 
 ### Step 5
 
 While the spaghetti is cooking, drain and rinse the lentils
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1972.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the roasted garlic paste and dried oregano to the pan and cook for 30 secs
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1972.-step-7-x200.jpg)
 
 ### Step 7
 

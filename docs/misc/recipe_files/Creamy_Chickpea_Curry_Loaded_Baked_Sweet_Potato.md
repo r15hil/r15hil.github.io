@@ -30,7 +30,6 @@ This coconutty chickpea curry has heaps of protein and tastes incredible over a 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586949746050-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Transfer the softened sweet potato[es] to a baking tray with a drizzle of veget
 
 Put the tray in the oven and cook for 12-15 min or until the skin is crispy
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586949751672-x200.jpg)
 
 ### Step 2
 
@@ -56,7 +54,6 @@ Peel and finely chop (or grate) your garlic
 
 Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil over a medium heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586949758955-x200.jpg)
 
 ### Step 3
 
@@ -66,7 +63,6 @@ Once softened, add the chopped ginger, chopped garlic and curry powder and cook 
 
 While the onion is softening, chop your creamed coconut roughly (if required!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586949764146-x200.jpg)
 
 ### Step 4
 
@@ -78,7 +74,6 @@ Drain and rinse your chickpeas
 
 Add the coconut stock and drained chickpeas and cook for 4-5 min or until the sauce has thickened
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586949774134-x200.jpg)
 
 ### Step 5
 
@@ -90,7 +85,6 @@ Once cool, squeeze the water out of the spinach
 
 Once the curry has thickened, add the wilted spinach and the juice of half your lime[s] – this is your creamy chickpea curry
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586949781518-x200.jpg)
 
 ### Step 6
 
@@ -98,7 +92,6 @@ Once the potato[es] is cooked, add your cashew nuts to the tray and return it to
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586949788099-x200.jpg)
 
 ### Step 7
 

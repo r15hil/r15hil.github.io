@@ -30,7 +30,6 @@ Make the table go, "phwoar!" with these delicious homemade falafel kebabs. You'l
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682354222238-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682354226377-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ While the chips are cooking, peel and roughly chop half your red onion[s]
 
 Finely slice the remaining red onion and set aside for later
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682354229942-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Chop your parsley roughly, including the stalks
 
 Drain and rinse your chickpeas
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682354233884-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once finely chopped, add the drained chickpeas, 2 tbsp <span class="text-purple"
 
 Pulse until everything is blitzed but not smooth – this is your falafel mix
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682354238026-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the falafel balls to one side of a baking paper-lined baking tray, then pres
 
 Drizzle the falafel with olive oil and bake for an initial 15 min or until golden and firm – these are your herby falafel
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682354242008-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ Peel and finely chop (or grate) the remaining garlic
 
 Cut your lemon[s] into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682354246426-x200.jpg)
 
 ### Step 7
 

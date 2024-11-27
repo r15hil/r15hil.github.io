@@ -23,7 +23,6 @@ You won’t be able to resist this comforting classic. You’ll sizzle pork stea
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/454_step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely slice half your<span class="text-danger"> </span>red onion[s]
 
 Chop the remaining red onion into wedges
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/454_step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add a drizzle of vegetable oil with a pinch of salt and pepper and give everythi
 
 Put the tray in the oven for 20-25 min or until the potatoes are golden and crisp and the apples are softened – this is your roast apple & potatoes
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/454_step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Once hot, add the sliced onion with a pinch of salt and sugar and give everythin
 
 Reduce the heat to low and cook the onion for 7-8 min or until softened and caramelised
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/454_step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Peel and chop (or grate!) your garlic
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/454_step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Scrunch the edges of the foil to form a sealed parcel[s] and add to a baking tra
 
 Put the tray in the oven for 10-12 min or until the greens are tender
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/454_step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Once hot, add the steaks and cook for 4-5 min on each side or until they're brow
 
 Once done, transfer the cooked steaks to a clean chopping board, cover with a clean tea towel and leave them to rest for 2 min
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/454_step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,7 +24,6 @@ Make stuffing the star of the show with this twist on a roast dinner. You’ll c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699976319223-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Chop your potatoes into bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699976324256-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Grate your cheddar cheese finely
 
 Once the butter has melted, add your panko breadcrumbs and dried sage to the bowl with the grated cheese and a pinch of salt and pepper and give everything a good mix up, then set aside to absorb – this is your cheese & sage stuffing mixture
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699976328166-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Give everything a good mix up and put the tray[s] in the oven for 20-25 min or u
 
 Reboil half a kettle
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699976332419-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Cover the chicken with cling film and bash with a rolling pin until it is of eve
 
 Top the butterflied chicken with the cheese & sage stuffing mixture, then press it down gently to coat the surface of the chicken – this is your stuffing crusted free range chicken
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699976335986-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Once hot, add the stuffing crusted free range chicken (stuffing side down first)
 
 Once crispy, add the stuffing crusted free range chicken to a baking tray (or two!) and add it to the oven for 12-14 min or until cooked through (no pink meat!), reserve the pan and oil
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699976340433-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add the carrot discs and sliced leek with a small knob of butter, a pi
 
 Cook, covered, for 7-8 min or until the carrot is tender with a slight bite – this is your buttery veg
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699976343896-x200.jpg)
 
 ### Step 7
 

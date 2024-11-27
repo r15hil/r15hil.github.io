@@ -26,7 +26,6 @@ For this easy twist on a takeaway classic, you'll flavour butternut squash and c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675165646757-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675165655090-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Once hot, add the sliced onion with a big pinch of salt and 2 tsp <span class="
 
 Whilst the onion softens, boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675165664195-x200.jpg)
 
 ### Step 3
 
@@ -54,7 +51,6 @@ Heat a pot (with a matching lid) with a drizzle of vegetable oil and a large kn
 
 Once the butter has melted, add the nigella seeds and basmati rice and stir to fully coat the grains in oil
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675165673590-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once cooked, remove from the heat and keep covered until serving – this is you
 
 Meanwhile, reboil a kettle
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675165686008-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Dissolve the vegetable stock mix and tomato paste in 300ml<span class="text-dan
 
 Drain and rinse the chickpeas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675165696002-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Peel and finely chop (or grate) the garlic
 
 Cut the tomatoes into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675165704875-x200.jpg)
 
 ### Step 7
 

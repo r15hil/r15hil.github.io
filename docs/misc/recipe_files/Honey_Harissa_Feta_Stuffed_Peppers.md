@@ -23,7 +23,6 @@ Harissa is a warm North African chilli paste. Here we’ve used it two ways. Fir
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/366_step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Cut the red onion<span class="text-danger">[s]</span>&nbsp;into quarters (keepin
 
 Cut the red pepper<span class="text-danger">[s]</span>&nbsp;in half
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/366_step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,7 +51,6 @@ Season&nbsp;with salt and pepper&nbsp;
 
 Put the tray in the oven for 20 min or until the vegetables are tender with a slight bite
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/366_step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Meanwhile, add the bulgur to a pot with plenty of salted boiled water over a hig
 
 Cook for 8-10 min or until tender with a slight bite, then drain and return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/366_step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Reserve the remaining honey and harissa for the next step
 
 Season with salt and pepper &ndash; this is your harissa dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/366_step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,7 +81,6 @@ Combine the remaining harissa paste with the remaining honey and the chopped gar
 
 Season with salt and pepper and mix well to combine &ndash; this is your honey harissa mixture for the next step
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/366_step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Transfer the cooked onions to a chopping board
 
 Spoon the honey harissa mixture over the carrots and courgettes
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/366_step-7-x200.jpg)
 
 ### Step 7
 

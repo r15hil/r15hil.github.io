@@ -22,7 +22,6 @@ Our Gnocchi Ragu is made with soy mince, which creates a quick, simple and flavo
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/332.-step1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Combine 250ml <span class="text-danger">(400ml)</span> of boiled water with the 
 
 Add the veggie mince to the stock and leave to soak until step 5
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/332.-step2-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Peel and finely dice the red onion<span class="text-danger">(s)</span>
 
 Peel and grate (or finely chop) the garlic cloves
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/332.-step3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Place the florets on one oven tray and the gnocchi on a separate oven tray, driz
 
 Season to your taste with salt and pepper and put them in the oven until the broccoli is crisp and the gnocchi cooked (approx. 20 min)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/332.-step4-x200.jpg)
 
 ### Step 4
 
@@ -70,13 +66,11 @@ When hot, add the red onion with a pinch of salt and cook on a medium-low heat f
 
 Once caramelised, add the garlic and cook for a further min, stirring constantly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/332.-step5-x200.jpg)
 
 ### Step 5
 
 Add the soaked veggie mince to the softened onion and stir fry on a high heat for 2 min
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/332.-step6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add the tin<span class="text-danger">(s)</span> of chopped tomatoes and bring to
 
 Once boiling, lower to a medium heat and reduce by half (approx. 10 min) or until it's thickened and combined
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/332.-step7-x200.jpg)
 
 ### Step 7
 

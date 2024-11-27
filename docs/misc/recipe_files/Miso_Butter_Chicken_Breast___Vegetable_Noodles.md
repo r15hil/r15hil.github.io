@@ -25,7 +25,6 @@ Savoury-sweet miso butter is the saucy secret to this umami-rich supper. You'll 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1732095473407-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Slice your chestnut mushrooms finely
 
 Peel and finely chop (or grate) your ginger and garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1732095482861-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and cook for 7-8 min or until browned
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1732095490953-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Add your medium egg noodles to a pot of boiling water over a high heat and cook 
 
 Once done, drain, reserving a cup of starchy noodle water then return to the pot
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1732095496645-x200.jpg)
 
 ### Step 4
 
@@ -61,19 +57,16 @@ Melt 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">
 
 Once melted, add your soy sauce, white miso paste, a pinch of sugar and the chopped ginger and garlic and whisk to combine – this is your miso-butter
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1732095502796-x200.jpg)
 
 ### Step 5
 
 Once the chicken is almost cooked, add the pepper strips, sliced mushrooms and mangetout to the pan and cook for 3-4 min or until the veg is slightly softened but still crunchy and the chicken is cooked through (no pink meat!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1732095509740-x200.jpg)
 
 ### Step 6
 
 Once slightly softened, add the miso-butter to the pan with the vegetables along with a splash of starchy noodle water and mix well
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1732095517462-x200.jpg)
 
 ### Step 7
 

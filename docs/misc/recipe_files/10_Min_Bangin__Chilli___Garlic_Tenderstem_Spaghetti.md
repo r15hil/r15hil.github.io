@@ -23,7 +23,6 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1936.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Wash your fruit and veg
 
 Note: <span class="text-highlight">Equipment</span> and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1936.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,13 +54,11 @@ Heat a large wide-based pan (preferably non-stick) with 1 tbsp <span class="text
 
 Meanwhile, chop the courgette<span class="text-danger">[s]</span> roughly
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1936.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the chopped courgette and cook for 4-5 min or until starting to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1936.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,7 +67,6 @@ While the courgette softens, add the quick cook spaghetti and <span class="tex
 
 Cook for 3-4 min or until cooked with a slight bite, then drain
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1936.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ While the spaghetti and broccoli are cooking, dissolve 1/2 <span class="text-dan
 
 Add the roasted garlic paste – this is your stock
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1936.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Cut the lemon<span class="text-danger">[s]</span> in half
 
 Cut half the lemon into wedges
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1936.-step-7-x200.jpg)
 
 ### Step 7
 

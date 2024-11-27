@@ -23,7 +23,6 @@ For this nutrient-rich dish, you'll combine the natural sweetness of roasted bee
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595949214068-x200.jpg)
 
 ### Step 1
 
@@ -33,7 +32,6 @@ Peel and cut the red onions into wedges
 
 Drain the cooked beetroot and chop into quarters
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595949221933-x200.jpg)
 
 ### Step 2
 
@@ -41,7 +39,6 @@ Add the red onion wedges, chopped beetroot and butternut squash cubes to a bakin
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until tender and golden
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Quinoa-in-pan-1664300463998-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered, until serving
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664300372415-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ While the quinoa is cooking, combine the balsamic vinegar and onion marmalade wi
 
 Season with a pinch of salt and pepper – this is your balsamic onion dressing
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595949264996-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Crumble the Greek cheese into small pieces
 
 Wash the lamb's lettuce, then pat it dry with kitchen paper
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595949280259-x200.jpg)
 
 ### Step 6
 
@@ -79,7 +73,6 @@ Once the vegetables are roasted and tender, add the pumpkin seeds to the tray a
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595949294777-x200.jpg)
 
 ### Step 7
 

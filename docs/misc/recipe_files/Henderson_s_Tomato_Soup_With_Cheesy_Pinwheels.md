@@ -27,7 +27,6 @@ This tangy tomato soup is a real treat for you Henderson’s lovers. You’ll bl
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687784000285-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Peel and finely chop (or grate) your garlic
 
 Top, tail and dice your carrot[s] finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687784002888-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Once hot, add the diced carrot, sliced onion, chopped tomato and chopped garlic 
 
 Add a small splash of cold water and cook for 10-12 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687784005572-x200.jpg)
 
 ### Step 3
 
@@ -63,7 +60,6 @@ Grate your Italian hard cheese finely
 
 Dissolve your vegetable stock mix and Marmite in 500ml<span class="text-purple"> [650ml]</span> <span class="text-danger">[850ml] </span>boiled water – this is your stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687784008090-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Line a baking tray (or two!) with non-stick baking paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687784011610-x200.jpg)
 
 ### Step 5
 
@@ -81,7 +76,6 @@ Spread your tomato paste evenly over the pastry with the back of a spoon, leavin
 
 Sprinkle your dried thyme and half the grated Italian hard cheese (you'll use the rest later!) all over with a pinch of salt and top with the torn mozzarella
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687784014624-x200.jpg)
 
 ### Step 6
 
@@ -91,7 +85,6 @@ Cut into 3 slices per person, approx. 1 inch thick – these are your pinwheel s
 
 Add the pinwheel slices to the lined baking tray[s], filling side up, and put in the oven for 15-17 min or until golden, oozy and cooked through – these are your cheesy pinwheels
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687784017544-x200.jpg)
 
 ### Step 7
 

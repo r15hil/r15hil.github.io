@@ -24,7 +24,6 @@ This pasta-free lasagne is as delicious and hearty as the classic. You'll layer 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1622545547215-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the sweet potato discs to a baking tray with a drizzle of olive oil and a pi
 
 Put the tray in the oven and cook for 10-12 min until softened slightly
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1622545551647-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the chopped onion and diced carrot with a pinch of salt and cook for 4 min or until softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1622545557051-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once the onion and carrot have softened, add the beef mince to the pan and inc
 
 Cook for 3-4 min or until browned all over, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1622545563243-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the beef stock mix, tomato paste, dried oregano and a pinch of sugar in 200ml <span class="text-danger">[400ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1622545569257-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the tomato stock with a generous grind of black pepper and cook for 5-7 mi
 
 Meanwhile, add a pot to a medium heat with 2 tbsp<span class="text-danger"> [4 tbsp] </span>vegetable oil, once hot, add 20g <span class="text-danger">[40g]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1622545573775-x200.jpg)
 
 ### Step 6
 
@@ -92,7 +86,6 @@ While the béchamel is cooking, combine the balsamic vinegar with a drizzle of
 
 Wash the rocket, then pat it dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1622545579296-x200.jpg)
 
 ### Step 7
 

@@ -22,7 +22,6 @@ Gem lettuce cups make this Thai-inspired recipe a healthy, quick and easy and fu
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/529.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -34,7 +33,6 @@ Bring to the boil over a high heat
 
 Once boiling, reduce the heat to very low, cover and cook for 10-15 min or until the water has absorbed and the rice is tender
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/529.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -49,7 +47,6 @@ Once hot, add the onion with a big pinch of both salt and sugar (use brown sugar
 
 Cook for 4 min or until slightly softened
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/529.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Add the pork mince and cook for 5-8 min or until the pork is starting to crisp
 
 &nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/529.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Meanwhile, chop off and discard the root end<span class="text-danger">(s)</span>
 
 Tip: By chopping off the base first, your leaves should separate easier
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/529.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Chop the roasted peanuts roughly
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/529.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Fluff the cooked rice and squeeze in the juice of half a&nbsp;<span class="text-
 
 &nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/529.-step--7-x200.jpg)
 
 ### Step 7
 

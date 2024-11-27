@@ -26,7 +26,6 @@ This bright tasting Thai classic is packed with fresh flavours of mint, chilli, 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1336.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered, until serving
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1336.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Heat a large, wide-based pan with a drizzle of vegetable oil&nbsp;over a medium 
 
 Once hot, add the pineapple and cook for 2-4 min or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1336.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Once browned, push the pineapple&nbsp;to the side of the pan and add the pork mi
 
 Cook the pork for 5-6 min, breaking it up with a spatula as you go&nbsp;
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1336.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Slice the lime<span class="text-danger">[s]</span> into wedges&nbsp;
 
 &nbsp;
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1336.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,7 +84,6 @@ Remove the pan from the heat and set aside &ndash; this is your pork larb
 
 &nbsp;
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1336.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,7 +98,6 @@ Chop the mint leaves and coriander roughly
 
 Squeeze the juice of 1/2<span class="text-danger"> [1]</span> lime into the pan and add the chopped mint, coriander, shallot and cooked quinoa and give everything a good old mix up&nbsp;
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1336.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ Say bonjour to this creamy Parisian-style bisque. You’ll simmer garden veg and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670332938275-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Top, tail, peel and dice the carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670332943270-x200.jpg)
 
 ### Step 2
 
@@ -46,7 +44,6 @@ Heat a large pot with a matching lid with a drizzle of olive oil and a knob of b
 
 Once hot, add the chopped onion and diced carrot with a very generous pinch of salt and pepper and cook for 4-5 min or until starting to soften
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670332947649-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Peel the potato<span class="text-danger">[es] </span>and chop into bite-sized pi
 
 Dissolve the vegetable stock mix, tomato paste and saffron in 600ml <span class="text-danger">[1.2L] </span>boiled water – this is your saffron stock
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670332951198-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once aromatic, add the saffron stock, bay leaves, chopped potato and white crab 
 
 Once boiling, reduce the heat to medium and cook, covered, for 18-20 min or until the potatoes are cooked through
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670332955813-x200.jpg)
 
 ### Step 5
 
@@ -74,13 +69,11 @@ While the soup is cooking, tear the ciabatta<span class="text-danger">[s]</span
 
 Put the tray in the oven for 7-8 min or until crisp and golden – these are your ciabatta croutons
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670332959601-x200.jpg)
 
 ### Step 6
 
 Chop the chives finely
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670332963932-x200.jpg)
 
 ### Step 7
 

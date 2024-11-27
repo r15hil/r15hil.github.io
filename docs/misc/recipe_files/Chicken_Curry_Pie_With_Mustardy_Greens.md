@@ -26,7 +26,6 @@ This curry pie's a million times tastier than one you'll find at a football grou
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Peel and finely slice your brown onion[s]
 
 Peel and roughly chop your potato[es]
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until starting to caramelise
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Transfer the pastry to a non-stick baking paper-lined tray (or two!) and score a
 
 Sprinkle your nigella seeds over the pastry and put the tray[s] in the oven for 15-20 min or until golden and cooked through – this is your pie lid[s]
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the onion has caramelised, increase the heat to high and add your chicken b
 
 Meanwhile, dissolve your tomato paste and chicken stock mix in 200ml<span class="text-danger"> <span class="text-purple">[300ml] </span>[400ml]</span> boiled water – this is your tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Whilst the chicken is cooking, wash your spring greens then pat it dry with kitc
 
 Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once hot, add your mustard seeds and cook for 1-2 min or until fragrant and sta
 
 Add the sliced spring greens with a pinch of salt and cook for 3-4 min or until tender with a slight bite – these are your mustardy greens
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-7-x200.jpg)
 
 ### Step 7
 

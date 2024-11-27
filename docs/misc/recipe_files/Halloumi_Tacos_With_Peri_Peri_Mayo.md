@@ -24,7 +24,6 @@ Check out this halloumi hero - you'll wrap up pan-fried halloumi, sweetcorn sals
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1654707228369-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580808016065-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Add 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil, 1 tbsp <span cla
 
 Give it a good mix up – this is your peri peri mayo
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3--1580808020911-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Cut the lime<span class="text-danger">[s]</span> in half
 
 Cut 1/2<span class="text-danger"> [1]</span> lime into 2 <span class="text-danger">[4]</span> wedges
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580808025261-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Add the drained sweetcorn and chopped spring onion to a bowl
 
 Add the juice of the lime half<span class="text-danger">[ves]</span> (save the wedges for later!) and a pinch of salt, give it a good mix up – this is your sweetcorn salsa
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580808030130-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Remove the stone<span class="text-danger">[s]</span> using a teaspoon
 
 Scoop the avocado out of the skin<span class="text-danger">[s]</span> using a spoon and slice it finely, lengthways
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580808034460-x200.jpg)
 
 ### Step 6
 
@@ -90,7 +84,6 @@ Once hot, add the halloumi slices
 
 Cook for 1-2 min on each side or until golden
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580808038783-x200.jpg)
 
 ### Step 7
 

@@ -25,7 +25,6 @@ This mild paneer curry packs in flavours, no punches needed. Mild isn't a byword
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586956602170-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Once melted, add the basmati rice with a pinch of ground turmeric (save the res
 
 Cook for 30 secs or until the grains are coated in the spices
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1586956607390-x200.jpg)
 
 ### Step 2
 
@@ -43,7 +41,6 @@ Add 300ml<span class="text-danger"> [600ml]</span> cold water and the sultanas 
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked – this is your sultana rice
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1586956611078-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1586956617909-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginge
 
 Chop the tomatoes roughly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1586956625746-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Once the onion is beginning to soften, add the chopped paneer and cook for 1-2 m
 
 Add the chopped garlic, chopped ginger, chopped tomatoes, remaining ground turmeric, tomato paste and garam masala to the pan and cook for 1 min or until fragrant
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1586956630911-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ Stir in the vegetable stock mix, then add 50ml <span class="text-danger">[80ml]
 
 Once boiling, reduce the heat to medium and cook for 5-6 min further or until the sauce has thickened slightly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1586956634881-x200.jpg)
 
 ### Step 7
 

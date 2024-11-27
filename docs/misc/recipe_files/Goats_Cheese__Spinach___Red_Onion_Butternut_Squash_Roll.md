@@ -22,7 +22,6 @@ Calling all vegetarians – this is how you roll. To give the iconic classic an 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666180367331-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Once hot, add the sliced onion with pinch of salt and pepper and cook for 4-5 mi
 
 Meanwhile, strip your thyme leaves from their stems
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666180370397-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once done, set aside to cool slightly – this is your red onion chutney
 
 Tip: Cooling will help to thicken the chutney!
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666180374029-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Once tender, roughly mash the cooked butternut squash with a fork
 
 Wash your spinach and pat dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666180377657-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Once wilted, add your goats cheese with a pinch of salt and a generous grind of 
 
 Wash your salad and pat dry with kitchen paper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666180381240-x200.jpg)
 
 ### Step 5
 
@@ -80,7 +75,6 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666180384104-x200.jpg)
 
 ### Step 6
 

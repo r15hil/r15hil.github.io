@@ -26,7 +26,6 @@ Melt-in-the-mouth baked aubergine is a Greek classic. You’ll cook yours with r
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1713881569648-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1713881574071-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a medium-high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1713881577705-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Wash your lettuce, then pat dry with kitchen paper and roughly chop
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1713881581779-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Add your tomato paste, chopped tomatoes, dried oregano, red wine stock paste, ha
 
 Season with a pinch of salt and pepper and 1 1/2 tsp <span class="text-purple">[2 1/2 tsp] </span><span class="text-danger">[3 1/2 tsp]</span> sugar and give everything a good mix up
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Cup-of-tea-1715942243894-x200.jpg)
 
 ### Step 5
 
@@ -78,13 +73,11 @@ Put the dish in the oven, lid off, for 35 min, stirring once halfway until the a
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1713881587945-x200.jpg)
 
 ### Step 6
 
 When everything's nearly ready, put your ciabatta[s] in the oven for 5 min or until warmed and crusty
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1713881591255-x200.jpg)
 
 ### Step 7
 

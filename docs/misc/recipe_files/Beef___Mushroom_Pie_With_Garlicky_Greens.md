@@ -25,7 +25,6 @@ Bake a pie in half the time with our favourite time-saving twist. You'll cook up
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1511.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4 min or until beginning to soften
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1511.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Slice your chestnut mushrooms finely
 
 Boil a kettle
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1511.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ Once the onion has softened, add your beef mince to the pan with 1 tsp <span cla
 
 Increase the heat to medium-high and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1511.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,7 +59,6 @@ While the mince is browning, dissolve your beef stock mix, tomato paste and soy 
 
 Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1511.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,7 +68,6 @@ Add the beef stock, give everything a good mix up and bring to the boil over a h
 
 Reduce the heat to medium and cook for 15-18 min or until thickened to a bolognese-like consistency and cooked through (no pink meat!) – this is your beef & mushroom pie mix
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1511.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Transfer the pastry to a non-stick baking paper-lined baking tray (or two!), the
 
 Crimp the borders with a fork and put the tray[s] in the oven for 15 min or until puffed up, golden and cooked through – this is your pie lid[s]
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1511.-step-7-x200.jpg)
 
 ### Step 7
 

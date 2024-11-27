@@ -26,7 +26,6 @@ Whip up a feast of Middle Eastern flavours, featuring a 'jewelled' cranberry and
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652874065009-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Trim your courgette[s] and dice
 
 Peel and finely slice your red onion[s], peel and finely chop (or grate) your garlic and chop your dried cranberries finely
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652874071482-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Once hot, add the sliced onion, diced pepper and diced courgette and cook for 4-
 
 Reduce the heat to medium and add the chopped garlic, chopped cranberries and ras el hanout with a generous pinch of salt and cook for 4 min or until fragrant
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652874074182-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, transfer to a chopping board and set aside to cool (save the pan for later!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652874083264-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Reduce the heat to low and cook, covered, for 10-12 min or until almost all of t
 
 Once done, remove the pan from the heat, keep covered, and set aside
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652874084494-x200.jpg)
 
 ### Step 5
 
@@ -82,7 +77,6 @@ Crumble your feta into rough bite-sized pieces
 
 Chop the cooled pistachios coarsely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652874086230-x200.jpg)
 
 ### Step 6
 
@@ -94,7 +88,6 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Remove the fried egg[s] from the heat and season with a pinch of salt and pepper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1652874090137-x200.jpg)
 
 ### Step 7
 

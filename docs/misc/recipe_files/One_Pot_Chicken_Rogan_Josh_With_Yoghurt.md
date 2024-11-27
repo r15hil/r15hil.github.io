@@ -29,7 +29,6 @@ This one-pot curry will be bubbling away in no time. You’ll add tender chicken
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1613669487683-x200.jpg)
 
 ### Step 1
 
@@ -39,7 +38,6 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don’t have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1605095725599-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6 and boil half a kettle
 
 Heat a large, hob-safe oven-proof casserole dish with a drizzle of vegetable oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1605095734261-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Chop your tomato[es] into wedges
 
 Add the wedged tomato[es] and onion to the dish with a pinch of salt
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1605095743975-x200.jpg)
 
 ### Step 4
 
@@ -69,13 +65,11 @@ Crush your garlic cloves open by squashing them with the side of a knife and rem
 
 Crush your cardamom pods open by squashing them with the side of a knife
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1605095750730-x200.jpg)
 
 ### Step 5
 
 Add the crushed garlic and cardamom pods to the dish with your ground turmeric, ground coriander, curry powder and chilli flakes (can't handle the heat? Go easy!)
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1605095766624-x200.jpg)
 
 ### Step 6
 
@@ -85,7 +79,6 @@ Add your diced chicken breast and bring to the boil over a high heat
 
 Once boiling, put the dish in the oven, uncovered, for 30-35 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened – this is your one-pot chicken rogan josh
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611141939479-x200.jpg)
 
 ### Step 7
 

@@ -26,7 +26,6 @@ This vibrant burger gets its Asian flavours from Portobello mushrooms simmered i
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629108968975-x200.jpg)
 
 ### Step 1
 
@@ -38,7 +37,6 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629108972329-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop the stems in half
 
 Once hot, add the portobello mushrooms and halved stems to the pan and cook for 3-4 min on each side or until starting to brown
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629108976166-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Add your soy sauce and chopped garlic to the pan with 150ml <span class="text-purple">[195ml] </span><span class="text-danger">[250ml] </span>cold water and cook, covered, for a further 12-13 min or until the mushrooms are soft and the soy sauce has reduced
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629108980309-x200.jpg)
 
 ### Step 4
 
@@ -68,13 +64,11 @@ Slice your cucumber into discs
 
 Slice each individual cucumber disc into matchsticks
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629108983462-x200.jpg)
 
 ### Step 5
 
 Combine your mayo and red chilli relish in a small bowl – this is your chilli mayo
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629108987699-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Cut your brioche bun[s] in half
 
 Once hot, add the brioche halves, cut-side down, and cook for 3 min or until toasted and charred, then set aside until serving
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629108991807-x200.jpg)
 
 ### Step 7
 

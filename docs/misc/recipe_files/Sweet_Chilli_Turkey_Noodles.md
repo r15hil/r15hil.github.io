@@ -23,7 +23,6 @@ Stir-fries don’t get much better than this. In 10 minutes, you'll serve up swe
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612374796484-x200.jpg)
 
 ### Step 1
 
@@ -35,7 +34,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2027-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Add the medium egg noodles to a pot and cover them with boiled water until fully
 
 Bring to the boil over a high heat and cook for 5-6 min or until cooked with a slight bite
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2027-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,7 +52,6 @@ While the noodles are cooking, heat a large, wide-based pan (preferably non-st
 
 Once the pan is hot, add the turkey mince with the ginger & garlic paste and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2027-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,13 +63,11 @@ Once the noodles are almost cooked, add the halved mangetout and cook for 1 min 
 
 Once cooked, drain the noodles & mangetout and reserve a cup of the starchy noodle water
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2027-Step-5-x200.jpg)
 
 ### Step 5
 
 Trim, then chop the spring onion<span class="text-danger">[s]</span> roughly
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2027-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once the turkey mince has browned, add<span class="text-danger"> </span>the soy 
 
 Cook for 30 secs further, or until thickened
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2027-Step-7-x200.jpg)
 
 ### Step 7
 

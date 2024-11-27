@@ -27,7 +27,6 @@ Did someone say empanadas? Instead of making your own dough, you'll seal tortill
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1657628036176-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Cut the potatoes (skins on) into chips, then add them to a baking tray with a dr
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until the chips are golden and crisp – these are your paprika chips
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-4-1657628080145-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Drain and rinse the black beans
 
 Drain and rinse the sweetcorn
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1657628123917-x200.jpg)
 
 ### Step 3
 
@@ -61,7 +58,6 @@ Once hot, add half the diced shallot, half the chopped pepper and half the diced
 
 Once softened, add the chopped garlic, ground cumin and the remaining smoked paprika and cook for a further 1 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-4-1657628135448-x200.jpg)
 
 ### Step 4
 
@@ -73,7 +69,6 @@ Meanwhile, grate the cheddar cheese finely
 
 Combine 2 tbsp<span class="text-danger"> [3 tbsp]</span> flour with 2 tbsp <span class="text-danger">[3 tbsp]</span> cold water in a small bowl to form a thick paste – this is your flour paste
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1657628191480-x200.jpg)
 
 ### Step 5
 
@@ -83,7 +78,6 @@ Rub some of the flour paste along the edge of the tortillas, fold over and press
 
 Tip: Use a little more flour paste if it's not sealing!
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-4-1657628223978-x200.jpg)
 
 ### Step 6
 
@@ -95,7 +89,6 @@ Meanwhile, strip the mint leaves from their stems and chop them roughly, discard
 
 Chop the parsley finely, including the stalks
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-4-1657628290777-x200.jpg)
 
 ### Step 7
 

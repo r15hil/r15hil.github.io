@@ -25,7 +25,6 @@ We've adapted tapas-style meatballs into this mouthwatering twist. You'll stud j
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651675610336-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Chop the black olives roughly
 
 Peel and chop (or grate!) the garlic
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651675615774-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Add the pork mince to a large bowl with the diced shallot, chopped olives, half 
 
 Mix thoroughly with clean hands, then divide the mixture into 6 <span class="text-danger">[12] </span>and shape into meatballs – these are your pork & olive meatballs
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651675621306-x200.jpg)
 
 ### Step 3
 
@@ -53,7 +50,6 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a dri
 
 Once hot, add the pork & olive meatballs and cook for 5 min or until browned
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651675626081-x200.jpg)
 
 ### Step 4
 
@@ -61,7 +57,6 @@ Meanwhile, chop the tomato<span class="text-danger">[es]</span> roughly
 
 Dissolve the chicken stock mix, tomato paste and soft cheese in 100ml <span class="text-danger">[150ml]</span> boiled water – this is your creamy tomato stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651675631104-x200.jpg)
 
 ### Step 5
 
@@ -71,7 +66,6 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once cooked, drain the cooked spaghetti and reserve a cup of the starchy pasta water
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651675638655-x200.jpg)
 
 ### Step 6
 
@@ -81,7 +75,6 @@ Once fragrant, add the creamy tomato stock and bring to the boil over a high hea
 
 Once boiling, reduce the heat to low and cook, covered, for 8-10 min or until the sauce has thickened and the meatballs are cooked through (no pink meat!) – this is your pork & olive meatball sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651675644777-x200.jpg)
 
 ### Step 7
 

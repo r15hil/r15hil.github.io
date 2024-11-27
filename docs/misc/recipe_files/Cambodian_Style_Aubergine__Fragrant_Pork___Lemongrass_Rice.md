@@ -27,7 +27,6 @@ Go global with our take on Cambodian favourite cha traop dot. You’ll pan-fry p
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-3-1681912395260-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Add your aubergine[s] to a baking tray (or two!) and add a drizzle of vegetable 
 
 Give everything a good mix up and season with a pinch of salt
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1681912401028-x200.jpg)
 
 ### Step 2
 
@@ -45,7 +43,6 @@ Put the tray[s] in the oven for 25-30 min or until very tender
 
 Once cooked, carefully cut a slit down the centre of each aubergine with a sharp knife, taking care not to cut all the way through – this is your roasted aubergine
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-4-1681912406281-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Strip your coriander leaves from their stalks and chop the stalks finely (save the leaves for garnish!)
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1681912409199-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your lemongrass rice
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1681912412857-x200.jpg)
 
 ### Step 5
 
@@ -75,7 +70,6 @@ Meanwhile, heat a large-wide based pan (preferably non-stick) with a small drizz
 
 Once hot, add your pork mince (remove the paper if required!) and cook for 6-7 min or until nicely browned, breaking it up with a wooden spoon as you go
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-4-1681912416737-x200.jpg)
 
 ### Step 6
 
@@ -83,7 +77,6 @@ While the pork is browning, combine your hoisin sauce with 100ml <span class="te
 
 Add your soy sauce, chilli flakes (can't handle the heat? Go easy!) and a pinch of salt and stir it all together – this is your hoisin stock
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-5-1681912420768-x200.jpg)
 
 ### Step 7
 

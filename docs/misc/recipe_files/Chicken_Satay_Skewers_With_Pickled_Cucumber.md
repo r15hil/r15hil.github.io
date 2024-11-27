@@ -30,7 +30,6 @@ Recreate the irresistible satay flavours found across Southeast Asia. You'll mar
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step_1-1-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Slice your chicken breast portion[s] lengthways into 2 strips per person
 
 Chop your creamed coconut roughly (if required!) and combine with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water – this is your coconut stock
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step_1-2-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Combine your curry powder and 2 tbsp<span class="text-purple"> [3 tbsp] </span
 
 Add the chicken strips, mix well and set aside to marinate
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step_1-3-x200.jpg)
 
 ### Step 3
 
@@ -56,7 +53,6 @@ Add your peanut butter, soy sauce, chilli flakes (can't handle the heat? Go e
 
 Cook for 15-20 min or until it has reduced to the consistency of a thick custard, stirring occasionally – this is your satay sauce
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step_1-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step_1-5-x200.jpg)
 
 ### Step 5
 
@@ -76,7 +71,6 @@ Slice the cucumber halves finely
 
 Trim, then slice your spring onion[s] finely
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step_1-6-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Mix well and set aside to marinate – this is your quick-pickled cucumber
 
 Thread each marinated chicken strip onto a soaked skewer in a snake-like fashion
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step_1-7-x200.jpg)
 
 ### Step 7
 

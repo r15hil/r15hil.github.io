@@ -25,7 +25,6 @@ Caution: This Italian dinner is red-hot. Kick off Valentine’s with a fiery spi
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673977636385-x200.jpg)
 
 ### Step 1
 
@@ -37,7 +36,6 @@ Peel and finely chop (or grate) the garlic
 
 Drain the mozzarella, then pat and squeeze as much liquid out as you can with kitchen paper and tear into small, bite-sized pieces
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673977639969-x200.jpg)
 
 ### Step 2
 
@@ -47,7 +45,6 @@ Divide the meatball mixture into 2 <span class="text-danger">[4]</span> balls, t
 
 Split the torn mozzarella equally between each meatball
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673977643477-x200.jpg)
 
 ### Step 3
 
@@ -57,7 +54,6 @@ Add the stuffed meatballs to a baking paper-lined oven-proof dish and drizzle wi
 
 Put the dish in the oven for 25-30 min or until browned, cooked through and the top of the meatball has cracked open – these are your ‘love volcano’ meatballs
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673977647850-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Once hot, add the diced onion with a pinch of salt and cook for 6-7 min or until
 
 Dissolve the remaining beef stock mix and half the balsamic vinegar (save the rest for garnish!) in 200ml <span class="text-danger">[350ml] </span>boiled water – this is your balsamic stock
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673977652409-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Once fragrant, add the chopped tomatoes and balsamic stock with a pinch of salt 
 
 Once boiling, reduce the heat to medium and cook for 12-14 min or until thickened, stirring occasionally – this is your rich tomato sauce
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673977656944-x200.jpg)
 
 ### Step 6
 
@@ -89,7 +83,6 @@ Tip: Your pasta will finish cooking in the sauce!
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673977660898-x200.jpg)
 
 ### Step 7
 

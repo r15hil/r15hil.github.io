@@ -24,7 +24,6 @@ This colourful salad is full of sweet, tangy spice. You'll toss golden chicken w
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687173440458-x200.jpg)
 
 ### Step 1
 
@@ -36,7 +35,6 @@ Add the drained chickpeas to a baking tray with the ground coriander, 1 tbsp <sp
 
 Put the tray in the oven for 20-25 min or until golden and crispy – these are your crispy chickpeas
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687173443591-x200.jpg)
 
 ### Step 2
 
@@ -48,7 +46,6 @@ Chop the coriander finely, including the stalks
 
 Combine the chopped chilli (can't handle the heat? Go easy!), ginger and coriander with the rice vinegar, 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt – this is your chilli dressing
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687173448783-x200.jpg)
 
 ### Step 3
 
@@ -60,7 +57,6 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Slice the mango flesh finely, discarding the stone<span class="text-danger">[s]</span>
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687173451891-x200.jpg)
 
 ### Step 4
 
@@ -68,7 +64,6 @@ Peel and chop the red onion<span class="text-danger">[s]</span> into wedges, th
 
 Cut the chicken breast portions into bite-sized pieces
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687173454942-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Once hot, add the chopped chicken and a pinch of salt and cook for an initial 3-
 
 Once lightly browned, add the onion petals and cook for a further 5-6 min or until the chicken is cooked through (no pink meat!) and the onion has softened
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687173457982-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Once the chicken is cooked, add the tamarind paste to the pan with a small splas
 
 Remove the pan from the heat and stir it all together until everything's coated in the tamarind sauce
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687173461165-x200.jpg)
 
 ### Step 7
 

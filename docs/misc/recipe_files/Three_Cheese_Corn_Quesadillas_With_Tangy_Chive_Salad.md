@@ -27,7 +27,6 @@ This hearty quesadilla is the big cheese. You’ll stuff tortillas with sweet co
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1685098982788-x200.jpg)
 
 ### Step 1
 
@@ -41,7 +40,6 @@ Crumble your feta into small pieces
 
 Drain your sweetcorn
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1685098993006-x200.jpg)
 
 ### Step 2
 
@@ -51,7 +49,6 @@ Give everything a good mix up – this is your three-cheese filling
 
 Combine the remaining ground smoked paprika with a small drizzle of olive oil in a small bowl and mix it all together – this is your smoky oil
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1685099000246-x200.jpg)
 
 ### Step 3
 
@@ -59,7 +56,6 @@ Divide the three-cheese filling between your tortillas (make sure to only cove
 
 Fold each tortilla over so you're left with 3 half moon-shaped sandwiches per person– these are your loaded quesadillas
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685099009630-x200.jpg)
 
 ### Step 4
 
@@ -67,7 +63,6 @@ Add the loaded quesadillas to a baking tray (or two!)
 
 Brush each loaded quesadilla with the smoky oil
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685099018627-x200.jpg)
 
 ### Step 5
 
@@ -77,7 +72,6 @@ Place a baking paper piece on top of the loaded quesadillas, then add a second�
 
 Put the stacked baking tray[s] in the oven and cook for 12-15 min, or until the quesadillas are slightly browned and the cheese has melted – these are your three-cheese corn quesadillas
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685099029749-x200.jpg)
 
 ### Step 6
 
@@ -87,7 +81,6 @@ Once hot, add your pine nut & seed mix and cook for 2-3 min or until toasted and
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1685099034990-x200.jpg)
 
 ### Step 7
 

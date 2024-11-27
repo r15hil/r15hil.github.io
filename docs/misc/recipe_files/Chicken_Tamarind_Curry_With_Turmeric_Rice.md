@@ -32,7 +32,6 @@ Tender chicken breast in a dish – delish. You’ll smother sweet, tangy curry 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682082053724-x200.jpg)
 
 ### Step 1
 
@@ -42,7 +41,6 @@ Add your white long grain rice to a pot with a lid with your ground turmeric, a 
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682082060513-x200.jpg)
 
 ### Step 2
 
@@ -54,7 +52,6 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Chop your creamed coconut roughly (if required!)
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682082064074-x200.jpg)
 
 ### Step 3
 
@@ -62,7 +59,6 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped garlic, chopped ginger and curry powder and cook for 1-2 min or until fragrant
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682082067925-x200.jpg)
 
 ### Step 4
 
@@ -70,7 +66,6 @@ Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purp
 
 Once fragrant, add the tamarind stock to the pan and cook for a further 4-5 min or until thickened to a curry-like consistency – this is your tamarind curry
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682082070520-x200.jpg)
 
 ### Step 5
 
@@ -78,7 +73,6 @@ Meanwhile, wash your spinach, then pat it dry with kitchen paper
 
 Once the sauce has thickened, add the spinach and a pinch of salt and cook for 1-2 min or until the spinach has wilted
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682082073663-x200.jpg)
 
 ### Step 6
 
@@ -86,7 +80,6 @@ Chop your chicken breast strips into bite-sized pieces
 
 Increase the heat to high, then top the curry with the chopped chicken and a pinch of salt and cook, covered, for 10-12 min further or until the chicken is cooked through (no pink meat!) – this is your chicken tamarind curry
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682082076648-x200.jpg)
 
 ### Step 7
 

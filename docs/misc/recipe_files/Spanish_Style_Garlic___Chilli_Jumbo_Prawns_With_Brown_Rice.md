@@ -28,7 +28,6 @@ Make a Spanish sensation in minutes! You'll whip up a tasty smoked paprika and c
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1668687045737-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1800-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,7 +48,6 @@ Chop your cherry tomatoes in half
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of olive oil over a high heat
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1800-v2-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,7 +55,6 @@ Once hot, add the halved cherry tomatoes and most of your roasted garlic paste (
 
 Wash your spinach, then pat it dry with kitchen paper
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1800-v2-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,7 +62,6 @@ Once the tomatoes have started to soften, add your chilli flakes (can't handle
 
 Season with a pinch of salt and pepper
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1800-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,7 +69,6 @@ Drain, then add your jumbo prawns to the pan and cook for 6-7 min further – t
 
 Note: Please make sure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1800-v2-x200.jpg)
 
 ### Step 6
 
@@ -84,7 +78,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1800-v2-Step-7-x200.jpg)
 
 ### Step 7
 

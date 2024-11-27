@@ -28,7 +28,6 @@ Grab a spoon, this veg-packed bowlful has it all. Crisp up smoky tofu bites and 
 
 ## Instructions
 
-![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1-1654013159429-x200.jpg)
 
 ### Step 1
 
@@ -40,7 +39,6 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
-![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654013164131-x200.jpg)
 
 ### Step 2
 
@@ -52,7 +50,6 @@ Cut the tofu into strips
 
 Add the tofu strips to a bowl with the tamari soy sauce
 
-![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654013169105-x200.jpg)
 
 ### Step 3
 
@@ -64,7 +61,6 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated tofu and cook for 6 min or until crispy all over, then transfer to a plate lined with kitchen paper – this is your crispy smoky tofu
 
-![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654013174441-x200.jpg)
 
 ### Step 4
 
@@ -74,7 +70,6 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
-![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654013180849-x200.jpg)
 
 ### Step 5
 
@@ -88,7 +83,6 @@ Strip your mint leaves from their stalks and chop them finely, discard the stalk
 
 Combine the chopped coriander and chopped mint, then finely chop them together
 
-![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654013185745-x200.jpg)
 
 ### Step 6
 
@@ -96,7 +90,6 @@ Add the grated carrot, sliced cucumber and cider vinegar to a bowl with a pinch 
 
 Wash your salad, then pat dry with kitchen paper
 
-![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654013190456-x200.jpg)
 
 ### Step 7
 
