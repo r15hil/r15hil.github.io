@@ -25,6 +25,7 @@ Take these tuna fishcakes to Thailand, by jazzing 'em up with spring onion, cori
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2325-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the sweet potato wedges to a baking tray with a drizzle of vegetable oil and
 
 Put the tray in the oven and cook for 20-25 min or until cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2325-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop the coriander finely, including the stalks
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2325-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the soy sauce, panko breadcrumbs, chopped coriander, chopped chilli (can’t
 
 Add 50ml <span class="text-danger">[75ml] </span>cold water and give it a good mix up then set aside to absorb – this is your Thai-style tuna mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2325-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Peel lengths off the cucumber until you end up with a pile of cucumber ribbons
 
 Add the carrot and cucumber ribbons to a large bowl with the rice vinegar and a pinch of salt and set aside to pickle – this is your quick-pickled carrot & cucumber ribbons
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2325-Step-5-x200.jpg)
 
 ### Step 5
 
 With clean hands, shape the Thai-style tuna mix into 2 <span class="text-danger">[4]</span> patties – these are your Thai-style tuna fishcakes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2325-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add the Thai-style tuna fishcakes to a lightly oiled tray and put the tray in th
 
 Tip: If they’re not holding together give them a good squeeze to get them back into shape
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2325-Step-7-x200.jpg)
 
 ### Step 7
 

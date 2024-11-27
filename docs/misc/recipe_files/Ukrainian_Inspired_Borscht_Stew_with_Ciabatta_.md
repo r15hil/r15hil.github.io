@@ -27,6 +27,7 @@ In this recipe you'll make a rich, deeply crimson stew with beetroots, red cabba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603365291861-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Top, tail and slice finely
 
 Peel and finely dice the potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1603365311084-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Cook for 6-8 min or until starting to soften, then add the diced potatoes and co
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603365334594-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Cook for 30 secs or until fragrant
 
 Meanwhile, grate the beetroot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603365347210-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once boiling reduce to a simmer and cook, covered, for 20-25 until the potatoes 
 
 Tip: Stir the stew occasionally to make sure nothing sticks to the bottom of the pan!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603365363879-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Separate a few dill fronds for garnish
 
 Chop the remaining dill and the chives roughly, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1603365370760-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the ciabatta rolls to a baking tray
 
 Once the soup is almost ready, put the tray in the oven for 4-5 min or until hot and crusty
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603365396066-x200.jpg)
 
 ### Step 7
 

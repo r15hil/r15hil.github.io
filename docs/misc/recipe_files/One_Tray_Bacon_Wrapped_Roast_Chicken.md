@@ -25,6 +25,7 @@ Hack your way to a dreamy chicken dinner with next to no washing up. You’ll sm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707212117329-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the carrot batons to a large piece of tin foil (or two!) with a generous spl
 
 Scrunch the foil around them to form a tightly sealed parcel and add to a baking tray (or two!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707212124300-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the chopped potatoes to a large heat-proof bowl covered with cling film
 
 Put the bowl in the microwave for 5-8 min or until slightly tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707212130060-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely chop (or grate) your garlic
 
 Trim your green beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707212138819-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Season your chicken breast portion[s] all over with your dried thyme and a pinch
 
 Top with a knob of butter and the chopped garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707212146407-x200.jpg)
 
 ### Step 5
 
 Wrap the seasoned chicken in your smoked streaky bacon – this is your bacon-wrapped chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707212155521-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the green beans to the parcel with the carrots
 
 Return the tray[s] to the oven for 22-25 min or until the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707212163027-x200.jpg)
 
 ### Step 7
 

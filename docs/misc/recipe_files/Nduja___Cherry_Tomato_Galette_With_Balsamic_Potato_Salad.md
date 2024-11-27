@@ -24,6 +24,7 @@ Add more sunshine to your plate with a stunning gallette. You’ll fill your pas
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1651675013455-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and grate (don't chop!) your garlic
 
 Chop your 'Nduja into small pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1651675020304-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Mix everything together so the potatoes are evenly coated
 
 Put the baking tray in the oven for 25-30 min or until the potatoes are tender and lightly charred, then set aside to cool slightly – these are your balsamic roast potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1651675024478-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Dust your work surface with a generous sprinkling of flour, unwrap your puff pas
 
 Add the rolled pastry to the tray[s] and prick it all over with a fork (this will stop it getting a soggy bottom!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1651675028309-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine the chopped 'Nduja and cornflour in a bowl
 
 Give everything a good mix up – this is your coated 'Nduja
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1651675032549-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Top with the coated 'Nduja (can't handle the heat? Go easy!)
 
 Sprinkle over your dried oregano
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1651675036812-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Fold the pastry border over the edge of the filling
 
 Tip: Start from one corner and work around in one direction, overlapping the pastry each time
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1651675041650-x200.jpg)
 
 ### Step 7
 

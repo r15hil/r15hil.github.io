@@ -27,6 +27,7 @@ Take on a fruity Greek cheese feast from the Middle East. You’ll dine on honey
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669726907435-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Slice the courgettes in half lengthways then scrape out the inner seeds using a
 
 Chop the inner seeds roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669726911321-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Combine the chopped courgette and chopped garlic in a bowl with the crumbled Gre
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your Greek cheese stuffing
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669726915474-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Add a drizzle of vegetable oil and put the tray<span class="text-danger">[s]</span> in the oven for 12-15 min or until the courgette has softened and the Greek cheese stuffing is golden – this is your Greek cheese-stuffed courgette
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669726919710-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669726924968-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, transfer to a pestle & mortar
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669726929651-x200.jpg)
 
 ### Step 6
 
 Add the ground turmeric and a pinch of salt to the pestle & mortar and grind to a fine crumble – this is your pistachio dukkah
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669726944246-x200.jpg)
 
 ### Step 7
 

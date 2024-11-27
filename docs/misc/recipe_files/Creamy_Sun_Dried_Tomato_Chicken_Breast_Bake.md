@@ -23,6 +23,7 @@ This Italian-inspired chicken tray bake is full of flavour. You'll cook chicken 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-8-1691496134882-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Boil a kettle
 
 Chop your potatoes (skins on) into large bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-9-1691496138841-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Add your dried oregano, drizzle with olive oil, season with a pinch of salt and 
 
 Put the tray in the oven and cook for 20-25 min or until golden and crisp – these are your herby potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-9-1691496141619-x200.jpg)
 
 ### Step 3
 
 Meanwhile, chop your cherry tomatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-8-1691496144935-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Dissolve your chicken stock mix in 100ml <span class="text-purple">[150ml]</span
 
 Add your soft cheese and sun-dried tomato pesto and mix to combine – this is your creamy pesto stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-7-1691496148079-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Top the sauce with your chicken breast portion[s]
 
 Drizzle the chicken with olive oil and season with a pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-7-1691496151821-x200.jpg)
 
 ### Step 6
 
 Put the dish in the oven for 18-20 min or until cooked through (no pink meat!) – this is your creamy sun-dried tomato chicken breast bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-11-1691496155431-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ For this speedy twist on a keema, you'll pan fry lamb with basmati rice, vegetab
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623402125724-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1587399968884-x200.jpg)
 
 ### Step 2
 
@@ -50,16 +52,19 @@ Once hot, add your lamb mince and sprinkle in your beef stock mix
 
 Cook for 4-5 min or until the lamb is browned all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1587399974140-x200.jpg)
 
 ### Step 3
 
 Meanwhile, top, tail, peel and grate your carrot[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1587399978303-x200.jpg)
 
 ### Step 4
 
 Once browned, add your curry powder, tomato paste, ginger & garlic paste and grated carrot to the pan and cook for 1 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1587399986388-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the rice to the pan with a small splash of water and give everything a good 
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1587399991798-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Note: Please make sure you cook your lamb thoroughly (until piping hot!) as cook
 
 Once done, season with a generous pinch of salt and pepper and stir it all together – this is your lamb keema
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1587399997115-x200.jpg)
 
 ### Step 7
 

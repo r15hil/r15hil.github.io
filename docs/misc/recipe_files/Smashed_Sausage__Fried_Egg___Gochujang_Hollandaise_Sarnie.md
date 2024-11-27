@@ -24,6 +24,7 @@ Level up your sausage sarnie game with a Korean twist. Load toasted ciabatta wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723568728115-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut your potatoes (skins on) into chips, then add the chips to a baking paper-li
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723568731860-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the w
 
 Combine the smashed cucumber, half your rice vinegar (you'll use the rest later!), your toasted sesame seeds and a small drizzle of olive oil – this is your sesame smashed cucumber
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723568736543-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Sprinkle over a handful of flour and cover the thick patty[ies] with a sheet of 
 
 Roll out to approx. 0.5cm thickness with a rolling pin until evenly flattened – this is your smashed patty[ies]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723568740237-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once hot, add the smashed patty[ies]
 
 Press down very firmly with a spatula and cook for 5 min on on each side, pressing down continuously, until slightly charred and cooked through (no pink meat!) – this is your smashed sausage patty[ies]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723568744510-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Once hot, crack your egg[s] into the pan
 
 Cover with a lid and cook for 2-3 min or until done to your liking
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723568749007-x200.jpg)
 
 ### Step 6
 
 While your egg is cooking, slice your ciabatta[s] in half and place in the toaster for 1-2 min or until toasted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723568752074-x200.jpg)
 
 ### Step 7
 

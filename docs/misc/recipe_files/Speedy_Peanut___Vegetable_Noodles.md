@@ -27,6 +27,7 @@ In this dish, egg noodles are tossed in a creamy nutty sauce made with peanut bu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1068.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Deseed the red and yellow peppers (scrape the seeds and pith out with a teaspoon
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1068.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Combine the peanut butter,&nbsp;tahini paste&nbsp;and 3 tbsp<span class="text-da
 
 Add the fresh&nbsp;chilli jam, toasted sesame oil, honey, rice vinegar and soy sauce sachets and mix to combine &ndash; this is your peanut &amp; sesame sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1068.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the yellow and red pepper strips and cook for 3-4 min or until beginning to char&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1068.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Bash the roasted peanuts with a rolling pin&nbsp;until roughly crushed (keep the
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1068.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the peppers are charred, add the chopped spring onion and cook for 2 min further or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1068.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Bring to the boil over a high heat and cook for 1-2 min until tender with a slig
 
 Once cooked, drain the&nbsp;noodles, reserving a cup of&nbsp;starchy noodle water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1068.-step-7-x200.jpg)
 
 ### Step 7
 

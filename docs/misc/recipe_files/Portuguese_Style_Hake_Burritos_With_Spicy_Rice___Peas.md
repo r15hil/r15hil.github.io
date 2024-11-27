@@ -26,6 +26,7 @@ Perfect your wrapping skills with this deliciously spiced burrito. You’ll load
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-36-1715675328458-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Strip your mint leaves from their stems and chop them finely, discard the stems
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-35-1715675334246-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until
 
 Once softened, add half the chopped chilli (can't handle the heat? Go easy!) and half your ground cumin (you'll use the rest later!) with your ground coriander and cook for 1 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-41-1715675338088-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add 175ml <span class="text-purple">[230ml] </span><span class="text-danger">[35
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving – this is your spicy rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-36-1715675343590-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Give everything a good mix up – this is your spiced flour
 
 Coat the chopped hake in the spiced flour – this is your coated hake
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-37-1715675347426-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once hot, add the coated hake and cook for 3-4 min on each side or until golden,
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-36-1715675351358-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once done, drain and return to the pot with a knob of butter, a pinch of salt, t
 
 Mash the peas until they come together nicely – these are your fragrant peas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-36-1715675355795-x200.jpg)
 
 ### Step 7
 

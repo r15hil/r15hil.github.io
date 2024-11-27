@@ -24,6 +24,7 @@ Cosy up to our lean beef, chestnut mushroom and carrot pie, enriched with Hender
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663757336354-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663757339584-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of o
 
 Top, tail and chop your carrot[s] into rounds
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689690486225-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once the casserole dish is hot, add your lean beef mince with a pinch of salt
 
 Crumble your chestnut mushrooms roughly into the pan with your hands
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1689690492162-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add in your beef stock mix with your tomato paste, Henderson's Relish and 300ml 
 
 Stir through your Marmite and bring to the boil over a high heat – this is your pie filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689690500762-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Carefully arrange the potato discs over the top of the pie filling
 
 Season with a pinch of salt and put the dish in the oven for 35-40 min or until everything’s bubbling, the potatoes are cooked and the beef is cooked through (no pink meat!) – this is your all-in-one hearty beef & mushroom pie
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Cup-of-tea-1689690421455-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1689690526978-x200.jpg)
 
 ### Step 7
 

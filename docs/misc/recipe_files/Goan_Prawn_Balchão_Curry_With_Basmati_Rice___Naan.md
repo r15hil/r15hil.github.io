@@ -27,6 +27,7 @@ This dry-style curry draws influence from the region's 450-year Portuguese colon
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1598386383908-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ 395°F/ Gas 6
 
 Peel and dice the red onions (as finely as you can!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598386392235-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the diced onion with a pinch of salt and cook for 10-12 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1598386400700-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once done, remove from the heat and keep covered until serving
 
 Tip: Add a knob of butter once cooked for extra indulgence
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598386406276-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and roughly chop the ging
 
 Peel and roughly chop the garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598386410301-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add 2 tbsp<span class="text-danger"> [4 tbsp] </span>vegetable oil and give ev
 
 Tip: Alternatively, use a food processor!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1598386429084-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the onion has softened, add the balchão spice paste and tomato paste to th
 
 Once fragrant, add the plain naans to a baking tray and put the tray in the oven for 3-4 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1598386438921-x200.jpg)
 
 ### Step 7
 

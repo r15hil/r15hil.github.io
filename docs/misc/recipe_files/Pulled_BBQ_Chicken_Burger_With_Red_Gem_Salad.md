@@ -25,6 +25,7 @@ Nothing beats BBQ flavours, pulled off perfectly in this easy chicken burger. Yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/B.Test.1532.-step-1.2-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil
 
 Season with a pinch of salt and put the tray in the oven for 30-35 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/B.Test.1532.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Add the tomato paste, tomato ketchup, hoisin sauce, Dijon mustard, Henderso
 
 Season with a generous grind of black pepper and give everything a good mix up – this is your bbq sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/B.Test.1532.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,16 +64,19 @@ Add the chicken thighs to an oven-proof dish and cover them with the bbq sa
 
 Put the dish in the oven for 25-30 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/B.Test.1532.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine the mayonnaise and cider vinegar with a generous pinch of salt and pepper in a small bowl – this is your creamy dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/B.Test.1532.-step-5-x200.jpg)
 
 ### Step 5
 
 Cut the red gem<span class="text-danger">[s]</span> into quarters, lengthways
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/B.Test.1532.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once everything's done, remove the bbq chicken from the oven
 
 Add the brioche rolls to a baking tray and put the tray in the oven for 3-4 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/B.Test.1532.-step-7-x200.jpg)
 
 ### Step 7
 

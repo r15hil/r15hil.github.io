@@ -31,6 +31,7 @@ A classic chicken pathia is sweet, tangy, with a slight kick from the fragrant s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2328-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once the pan is hot, add the chopped onion with a generous pinch of salt and cook for 6-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2328-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add your cumin seeds and cook for 1-2 min or until sizzling
 
 Once the cumin seeds start to sizzle, carefully add your basmati rice and stir it all together
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2328-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,11 +65,13 @@ Once cooked, remove from the heat and keep covered until serving – this is you
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1621954817206-x200.jpg)
 
 ### Step 4
 
 While the rice is cooking, chop your chicken thighs into large, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2328-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once fragrant, add your ground cumin, curry powder and cayenne pepper (can't ha
 
 Tip: Add a drizzle of vegetable oil if the pan looks a little dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2328-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add your tamarind paste with 150ml<span class="text-purple"> [200ml] </span><spa
 
 Give everything a good mix up, then add the chopped chicken and cook for 16 min or until the chicken is cooked through (no pink meat!) – this is your chicken thigh pathia
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1677940134525-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ For quick festive flavour, this Persian-inspired pilaf is perfect. You'll sizzle
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1636109438505-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2387Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Heat a large, wide-based pan (preferably non-stick) with a generous knob of butt
 
 Once melted, add the diced chicken thigh with a pinch of salt and pepper and cook for 3-4 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2387Step-3-x200.jpg)
 
 ### Step 3
 
 Add your ground cumin, ground turmeric and roasted garlic paste to the pan and cook for 30 secs or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2387Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2387Step-5-x200.jpg)
 
 ### Step 5
 
 Add your dried cranberries to the pan and cook for 30 secs further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2387Step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add the spinach to the pan along with your soy sauce and cook for 2-3 min furthe
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2387Step-7-x200.jpg)
 
 ### Step 7
 

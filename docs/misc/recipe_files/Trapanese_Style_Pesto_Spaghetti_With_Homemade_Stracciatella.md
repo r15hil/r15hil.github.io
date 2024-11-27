@@ -27,6 +27,7 @@ This is pesto pasta like you’ve never had before. Add a Sicilian twist with ga
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697645955446-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once hot, add your panko breadcrumbs and dried basil with a pinch of pepper
 
 Cook for 3-4 min or until toasted and golden, then transfer to a plate and reserve the pan – these are your herby breadcrumbs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697645958730-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tear the drained mozzarella into small pieces and add them to a medium bowl with
 
 Season with a generous pinch of salt and pepper and give it a good stir – this is your homemade stracciatella
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697645962310-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697645965336-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Wipe out the reserved pan and return to a medium heat with a drizzle of olive oi
 
 Add the sliced shallot with a pinch of salt and cook for 3-4 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697645969860-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Once the shallot has softened, add the halved tomatoes and garlic to the pan wit
 
 Cook for 4-5 min over a medium-high heat or until the tomatoes have softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697645973015-x200.jpg)
 
 ### Step 6
 
 Wash your salad and pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697645977724-x200.jpg)
 
 ### Step 7
 

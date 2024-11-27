@@ -31,6 +31,7 @@ A classic chicken pathia is sweet, tangy, with a slight kick from the fragrant s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629716238558-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely chop your brown onion[s], then finely chop your<span class="text
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a medium heat, once hot, add the chopped onion with a generous pinch of salt and cook for 6-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629716243678-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add your cumin seeds and cook for 1-2 min or until sizzling
 
 Once the cumin seeds start to sizzle, carefully add your basmati rice and stir it all together
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629716247269-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Once cooked, remove from the heat and keep covered until serving – this is you
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629716251252-x200.jpg)
 
 ### Step 4
 
 While the rice is cooking, chop your chicken thighs into large, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629716254598-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once fragrant, increase the heat to high and add the chopped chicken with your g
 
 Tip: Add a drizzle of oil if the pan looks a little dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629716258027-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the chicken is beginning to brown, reduce the heat to medium-high cook for 
 
 Tip: Add an extra splash of water if the sauce thickens too quickly!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1717602993712-x200.jpg)
 
 ### Step 7
 

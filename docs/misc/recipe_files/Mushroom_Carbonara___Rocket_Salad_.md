@@ -23,6 +23,7 @@ Say 'buongiorno' to Mushroom & Sage Carbonara - a mushroomy version of the class
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/986.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Slice the portobello mushrooms finely
 
 Slice the chestnut mushrooms finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/986.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the sage leaves and cook them for 1 min or until they're crisp
 
 Once crisp, transfer them to a plate (keep the pan with the oil!) and season them lightly with&nbsp;salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/986.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Return the pan to a medium heat&nbsp;
 
 Once hot, add the sliced&nbsp;chestnut mushrooms and sliced&nbsp;portobello mushrooms with a big pinch of salt and cook them for 5-6 min or until the mushrooms have lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/986.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Cook the linguine for 8-10 min or until it's cooked with a slight bite
 
 Once done reserve 300ml <span class="text-danger">[600ml]</span> of the starchy pasta water, then drain the linguine
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/986.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Crack the eggs&nbsp;into a shallow bowl and beat them with a fork
 
 Add 3/4 of the&nbsp;grated cheese and season with a generous pinch of salt and pepper - this is your&nbsp;cheesy egg mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/986.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Meanwhile, add the balsamic vinegar, 1 tsp <span class="text-danger">[2 tsp]</sp
 
 Wash and dry the rocket, then add it to the bowl and mix - this is your rocket salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/986.-step-7-x200.jpg)
 
 ### Step 7
 

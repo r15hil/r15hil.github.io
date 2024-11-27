@@ -25,6 +25,7 @@ For this plant-based crowd pleaser, you'll coat tofu in spicy sriracha, sweet ma
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1732524933645-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and chop your red onion[s] into wedges
 
 Trim, then cut your asparagus in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1732524943810-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Put the tray in the oven and cook for 10-15 min or until softened
 
 Whilst the onion is cooking, combine your sriracha (can't handle the heat? Go easy!), maple syrup and half of your soy sauce (save the rest for later!) in a bowl – this is your sticky sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1988.-step-3.2-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Drain your tofu, then pat it dry with kitchen paper
 
 Cut the tofu in half and then cut each half into thick strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1988.-step-4.2-x200.jpg)
 
 ### Step 4
 
 Once hot, add the tofu strips to the pan and cook for 3 min on each side or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1988.-step-5-new-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ After an initial 3 min, add the halved asparagus to the pot with the noodles an
 
 Once done, drain and return to the pot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1988.-step-6.2-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Cook for 1 min further until sticky and caramelised
 
 Once caramelised, add your black sesame seeds and 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> boiled water and cook for 30 secs further, or until slightly loosened – this is your sticky sesame tofu
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729091635740-x200.jpg)
 
 ### Step 7
 

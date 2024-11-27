@@ -26,6 +26,7 @@ If the words "double garlic" have your ears burning, get ready. For an epic fake
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1643798516440-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your potatoes (skins on) into chips, then add to a baking tray with a drizzl
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp – these are your smoky chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1643798525532-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cut a piece of tin foil approx. the size of an A4 sheet of paper
 
 Lay half your garlic (you'll use the rest later!) (skins on) in the middle of the foil, then add a drizzle of olive oil, a small splash of water and a pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1643798543415-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the garlic parcel to a separate tray and put the tray in the oven for 15 min
 
 Once soft, carefully remove the skins from the roasted garlic (they will be hot!), mash with a fork and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1643798554318-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 12-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1643798614846-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Peel and chop (or grate) the remaining garlic
 
 Combine the chopped parsley, chopped garlic and half your grated Italian hard cheese (save the rest for garnish!) with the warmed butter and a generous pinch of salt – this is your cheesy garlic butter
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1643798623230-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Spread the cheesy garlic butter over the outside of the ciabatta lids and the in
 
 Meanwhile, combine the mashed roasted garlic, mayo and your white wine vinegar in a small bowl – this is your roasted garlic aioli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1643798632674-x200.jpg)
 
 ### Step 7
 

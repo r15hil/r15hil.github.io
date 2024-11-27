@@ -27,6 +27,7 @@ For this all-American cheeseburger, you'll top veggie patties with oozing chedda
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1631018935866-x200.jpg)
 
 ### Step 1
 
@@ -38,11 +39,13 @@ Cut your potatoes (skins on) into wedges, then add them to a large baking tray 
 
 Put the tray[s] in the oven for 25-30 min or until the wedges are golden and starting to crisp – these are your potato wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631018951371-x200.jpg)
 
 ### Step 2
 
 While the wedges are cooking, slice your cucumber in half lengthways, then slice the halves into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1631018981270-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the cucumber wedges to the bowl and give everything a good mix up, then 
 
 Tip: Give the cucumber the occasional shake while pickling!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631018988305-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Line a separate baking tray with tin foil
 
 Add your meat-free patties to one side of the tray (or two!) and put the tray in the oven for 10-12 min or until cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631018996167-x200.jpg)
 
 ### Step 5
 
 Meanwhile, grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631019016825-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Slice your brioche buns in half
 
 Drain the quick-pickled cucumber wedges and discard the liquid
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631019022486-x200.jpg)
 
 ### Step 7
 

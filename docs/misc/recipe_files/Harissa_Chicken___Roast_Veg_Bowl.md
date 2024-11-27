@@ -31,6 +31,7 @@ Take fakeaway night to the streets of Beirut. You’ll roast sumac-coated onion 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686046350385-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and chop your red onion[s]<span class="text-danger"> </span>into wedges
 
 Add your chicken breast strips to a bowl with half your harissa paste (can't handle the heat? Go easy!), a drizzle of vegetable oil and a pinch of salt – this is your marinated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686046380713-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the courgette discs and onion wedges to one side of a tin foil-lined baking 
 
 Add the marinated chicken to the other side of the baking tray[s] and put in the oven for 15-18 min or until the veg is tender and the chicken is cooked through (no pink meat!) – this is your harissa chicken & roasted veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686046371628-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, stir through your chicken stock mix until dissolved, then remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686046370637-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ While the rice is cooking, peel and slice your shallot[s] finely
 
 Add the sliced shallot to a bowl with half your red wine vinegar (you'll use the rest later!) and a pinch of salt and sugar and set aside to pickle – this is your quick-pickled shallot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686046381015-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dice your tomato[es] finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686046381332-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, add the diced tomato, tomato paste, remaining red wine vinegar and rem
 
 Add 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> sugar with 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[150ml]</span> cold water, then cook for 6-8 min further, stirring frequently, or until thickened and sticky – this is your spiced tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686046381329-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Give this Italian classic an autumnal twist. You’ll pan-fry juicy sage-crusted
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1725272615184-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Pat your pork loin steak[s] with kitchen paper and cut the rind off, then using 
 
 Add the scored rind to a baking paper-lined baking tray with a drizzle of vegetable oil and a generous pinch of salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1725272618404-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Cover the steak[s] in cling film and bash them with a rolling pin until even
 
 Combine 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> flour and your dried sage on a plate with a pinch of salt and pepper, then drizzle the flattened steak with a little vegetable oil and press them into the seasoned flour until well coated – this is your coated pork
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1725272621711-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender and once cooked, drain and return them to the pot to steam dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1725272625084-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the coated pork and cook for 5-6 min on each side or until golden 
 
 Once cooked through, transfer the pork scaloppine[s] to a plate to rest and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1725272628455-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Return the reserved pan to a medium-high heat with a small knob of butter
 
 Once melted, add the chopped shallot, chopped garlic and a pinch of salt and cook for 2 min or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1725272631564-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Bring to the boil over a high heat and cook for a final 2 min or until the sauce
 
 Transfer the pork scaloppine[s] to the pan and reduce the heat to very low until ready to serve – this is your pork scaloppine & creamy sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1725272634329-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ This super grain bowl (fibre-packed lentils and brown rice) is packed with flavo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1628678640941-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving – this is your sultana rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1628678666771-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Whilst the rice is cooking, cut the cauliflower into small florets (save the lea
 
 Add the cauliflower florets to a bowl with the curry powder and a drizzle of vegetable oil and give it a good mix up – this is your curried cauliflower
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1628678676049-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once the cauliflower is almost cooked, add the cashew nuts and cauliflower leave
 
 Tip: Watch the nuts like a hawk to make sure they don’t burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1628678685386-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ While the cauliflower is cooking, peel, then slice the shallots as finely as you
 
 Add the sliced shallots to a small bowl with the cider vinegar and a pinch of salt, then set aside to pickle – these are your quick-pickled shallots
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1628678692583-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Chop the coriander roughly, including the stalks
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1628678699626-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Drain and rinse the green lentils
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1628678712618-x200.jpg)
 
 ### Step 7
 

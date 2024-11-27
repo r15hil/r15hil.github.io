@@ -25,6 +25,7 @@ Umami-rich rump delivers deep flavour and melt-in-your-mouth texture. Served wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1631617641805-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel your potatoes and chop them into bite-sized pieces, then add them to a pot 
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631617646510-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cook for 6-8 min or until golden, stirring frequently
 
 Once golden, transfer the golden breadcrumbs to a bowl until ready to serve and reserve the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631617656998-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Tip: For extra smooth pomme purée add to a food processor and blitz until very 
 
 Set the pomme purée aside (keep it in the pot!), ready to reheat later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631617668642-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Scrunch the edges of the foil around the kale to form a sealed parcel then put t
 
 Tip: Cooking for 3 or more? Make 2 separate parcels!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631617676804-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ For rare, cook for 2 min max on each side; for medium- rare, cook for 3-4 min on
 
 Once the steak is cooked, transfer to a clean plate to rest (reserve the pan)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631617684749-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Add the remaining double cream, your beef stock mix, cracked black pepper, Chine
 
 Cook for 4-5 min or until thickened – this is your peppercorn sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631617689604-x200.jpg)
 
 ### Step 7
 

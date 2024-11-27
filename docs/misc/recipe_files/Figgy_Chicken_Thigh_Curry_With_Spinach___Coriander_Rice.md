@@ -23,6 +23,7 @@ This decadent chicken thigh curry is made even more delicious with a fig relish 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654520228237-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Boil a kettle
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654520229694-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once hot, add the chicken thighs and cook for 3 min on each side
 
 Once coloured, transfer the chicken thighs to a baking tray (use tin foil to avoid mess) and put it in the oven for 10 min (reserve the pan for later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654520237201-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Wash the spinach, then add and cook covered for a further 2-5 min or until the w
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654520277659-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once hot, add the sliced red onion with 1/2 tsp <span class="text-danger">[1 tsp
 
 Tip: This may seem like too much salt, but stick with it, the salt balances the sweet coconut and fig flavours
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654520274009-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Roughly chop the creamed coconut (if required!)
 
 Combine the fig relish and chopped creamed coconut with 200ml <span class="text-danger">[400ml] </span>boiled water and whisk to combine – this is your figgy coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654520284522-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the curry powder, chopped ginger, chopped garlic and a generous amount of bl
 
 Add the figgy coconut stock and chicken thighs, increase the heat to medium-high and cook, covered until the sauce has reduced to a curry-like consistency – this is your figgy chicken curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654520291600-x200.jpg)
 
 ### Step 7
 

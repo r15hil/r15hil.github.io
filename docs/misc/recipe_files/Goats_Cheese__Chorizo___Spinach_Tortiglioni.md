@@ -19,6 +19,7 @@ Add instant spicy richness to your pasta with a simple ingredient: chorizo. Cook
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1598437141083-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the diced chorizo and cook for 4-5 min or until crisped
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598437145611-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Cook the pasta for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1598437162062-x200.jpg)
 
 ### Step 3
 
@@ -44,16 +47,19 @@ Wash the spinach, then pat it dry with kitchen paper
 
 Once the chorizo is crisped, add the spinach to the pan with a splash of water and cook, covered, for 1-2 min or until the spinach has wilted
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598437177243-x200.jpg)
 
 ### Step 4
 
 Meanwhile, chop the basil finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598437188767-x200.jpg)
 
 ### Step 5
 
 Once wilted, add half the chilli flakes (can't handle the heat? Go easy!) and stir through half the goats' cheese until fully combined
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598437196059-x200.jpg)
 
 ### Step 6
 
@@ -61,6 +67,7 @@ Once the pasta is cooked, add it to the pan with the sauce, a pinch of salt and 
 
 Give everything a good mix up – this is your goats' cheese, chorizo & spinach tortiglioni
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1598437203257-x200.jpg)
 
 ### Step 7
 

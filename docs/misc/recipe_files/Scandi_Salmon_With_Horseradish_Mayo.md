@@ -21,6 +21,7 @@ We love simple, clean flavours when it comes to great fish in the summer sun. He
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/604.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Tip:&nbsp;waxy potatoes come in varying sizes so if yours are particularly big, 
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/604.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the potatoes to a pot, cover with&nbsp;boiled water and a pinch of salt
 
 Bring to the boil over a high heat and cook for 15-20 min or until fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/604.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, cut the cucumber in half lengthways, and then into strips
 
 Cut the strips into small pieces and set aside in a mixing bowl
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/604.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once very hot, add the salmon, skin-side down
 
 Cook for 2 min, then transfer the salmon (skin-side up) to a baking tray (use tin foil to avoid mess!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/604.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Chop the dill finely, including the stalks&nbsp;
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/604.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Combine the mayonnaise and horseradish&nbsp;sauce&nbsp;with the white wine vineg
 
 Season with salt and pepper - this is your horseradish mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/604.-step-7-x200.jpg)
 
 ### Step 7
 

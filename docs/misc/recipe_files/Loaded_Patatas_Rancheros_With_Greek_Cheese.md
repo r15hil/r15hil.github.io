@@ -29,6 +29,7 @@ Load up on these smoky patatas rancheros. You’ll top crispy potatoes with chip
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680083249065-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the halved potatoes and your ground smoked paprika to a baking tray (or two!
 
 Put the tray[s] in the oven for an initial 20 min or until the potatoes are golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680083258362-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and cook for 3-5 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680083262598-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Dissolve your vegetable stock mix in 400ml <span class="text-purple">[520ml]</sp
 
 Once the onion has started to soften, increase the heat to medium-high and add your tomato paste and chipotle paste (can't handle the heat? Go easy!) to the pan and cook for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680083266740-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once fragrant, add the drained black beans & sweetcorn with the vegetable stock�
 
 Once done, crush some of the beans with a masher and give everything a good mix up until fully combined – this is your rancheros-style chilli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680083272266-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add the sliced chilli to a bowl with the juice of half your<span class="text-dan
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680083277116-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add a drizzle of vegetable oil and and give everything a good mix up
 
 Put the tray[s] back in the oven and cook for a further 5-8 min or until the potatoes are crisp and golden – these are your crispy potatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680083281649-x200.jpg)
 
 ### Step 7
 

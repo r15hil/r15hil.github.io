@@ -27,6 +27,7 @@ Laksa is a fragrant soup from South East Asia which is flavoured with a base of 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1438.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Rip/tear the chestnut&nbsp;mushrooms (this saves time and creates an interesting
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1438.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Once hot, add the chopped spring onion and&nbsp;mushrooms with a pinch of salt a
 
 Add the red curry paste,&nbsp;curry powder, turmeric&nbsp;and chopped&nbsp;lemongrass and cook for 1-2 min further or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1438.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Meanwhile, remove the coconut cream from the sachet<span class="text-danger">[s]
 
 Dissolve the&nbsp;chopped coconut cream&nbsp;in 800ml&nbsp;<span class="text-danger">[1.6L]</span>&nbsp;boiled water and add the soy sauce&nbsp;&ndash; this is your&nbsp;coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1438.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Add the wholewheat noodles and cook for 4-5 min or until they're almost cooked t
 
 Tip: separate the noodles in the pot with a fork to ensure they're all cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1438.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Cut the pak choi in half, separating the white base and green tops
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice!) and cut in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1438.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Add the&nbsp;chopped pak choi and cook for 1-2 min further or until cooked with 
 
 Squeeze the juice of 1/2 <span class="text-danger">[1]</span> lime into the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1438.-step-7-x200.jpg)
 
 ### Step 7
 

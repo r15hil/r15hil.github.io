@@ -21,6 +21,7 @@ Feed the need for speed with this 20-minute dinner. You’ll pan-fry pork loin s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1730802167803-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Top, tail and chop your carrot[s] into bite-sized pieces
 
 Top, tail and chop your parsnip[s] into quarters lengthways, then into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1730802194436-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1730802210760-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once hot, add the steak[s] with a pinch of salt and pepper and cook for 5-6 min 
 
 Once done, transfer the cooked steak[s] to a clean chopping board (reserve the pan!), cover with a clean tea towel and leave to rest for 2 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1730802279772-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine the chopped garlic with a small knob of butter in a bowl – this is your garlic butter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1730802297867-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Return the drained potatoes & veg to a low heat with a splash of milk and a pinc
 
 Mash until smooth – this is your root veg mash
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1730802307772-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Put the bowl in the microwave and cook for 3-4 min or until the kale is tender
 
 Once cooked, add the garlic butter with a pinch of salt and pepper and toss – these are your garlicky greens
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1730802313635-x200.jpg)
 
 ### Step 7
 

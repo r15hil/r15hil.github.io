@@ -25,6 +25,7 @@ This Italian dish is a classic (with good reason!). You’ll create a crispy her
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1670...-step-1-x200.jpg)
 
 ### Step 1
 
@@ -48,6 +49,7 @@ Add the potatoes, rosemary leaves and crushed garlic to a baking tray with a gen
 
 Put the tray in the oven and cook for 30 min or until the potatoes are golden and crispy.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1670...step-2-x200.jpg)
 
 ### Step 2
 
@@ -65,6 +67,7 @@ Tip: this will make the steaks really tender!
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1670.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -79,6 +82,7 @@ Crack the&nbsp;egg<span class="text-danger">[s]</span> into a shallow bowl and b
 
 Add the&nbsp;panko breadcrumbs&nbsp;to a plate with the grated Italian hard cheese, dried oregano and a pinch of&nbsp;salt&nbsp;and&nbsp;pepper.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1670.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -90,6 +94,7 @@ Coat the steaks in the flour, tap off the excess, then dip into the beaten egg a
 
 Tip: make sure the steaks are fully coated in the breadcrumbs!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1670.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -107,6 +112,7 @@ Chop&nbsp;the basil leaves finely.
 
 Combine the chopped capers with the chopped basil leaves, juice of 1/2 <span class="text-danger">[1]</span> lemon, 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt&nbsp;&ndash; this is your lemon &amp; caper dressing.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1670.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -121,6 +127,7 @@ Drain and rinse under&nbsp;cold water&nbsp;to cool them down slightly and stir t
 
 Set this aside until serving.&nbsp;&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1670.-step-7-x200.jpg)
 
 ### Step 7
 

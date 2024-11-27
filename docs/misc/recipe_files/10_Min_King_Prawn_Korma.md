@@ -21,6 +21,7 @@ Get this takeaway classic on the table in no time! Cook the king prawns in a kor
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1704.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Boil a kettle
 
 Add the coriander mini naans to a baking tray and put the tray in the oven for 5 min or until warmed through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1704.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Remove the coconut cream from the sachet<span class="text-danger">[s]</span> and
 
 Dissolve the coconut cream in 250ml <span class="text-danger">[400ml]</span> boiled water and add the sultanas&nbsp;<span class="text-highlight">&ndash;</span> this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1704.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once hot, add the korma curry powder and cook for 10 sec
 
 Add the coconut stock&nbsp;with a pinch of salt and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1704.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Cook for 3-4 min or until the prawns are cooked through and the sauce has thicke
 
 Note: please ensure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1704.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Meanwhile, microwave the steamed pure basmati rice according to packet instructi
 
 Tip: if you're cooking two packets, pop them in together but increase the microwave cook time accordingly!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1704.-step-7-x200.jpg)
 
 ### Step 7
 

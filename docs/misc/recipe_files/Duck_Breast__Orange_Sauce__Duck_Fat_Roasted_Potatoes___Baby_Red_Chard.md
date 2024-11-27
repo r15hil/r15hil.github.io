@@ -22,6 +22,7 @@ Try this delicious take on the classic French dish 'duck à l'orange'. You’ll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1556.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut the waxy potatoes (skins on) into bite-sized pieces, add them to a pot o
 
 Once cooked, drain and set them aside. Reserve the pot for later.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1556.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the scored duck, skin-side down, to a cold dry pan over a low-medium heat. C
 
 Tip: By cooking this over a low-medium heat, you'll render all of the fat.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1556.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Add the drained potatoes to a separate baking tray, crush gently with a fork an
 
 Put the potatoes in the oven for 30-35 minutes or until golden and crisp.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1556.-step-4-new-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Peel and finely dice the red onion<span class="text-danger">[s]</span>.
 
 Dissolve 1/2 <span class="text-danger">[1]</span> Knorr chicken stock cube in 200ml <span class="text-danger">[300ml]</span> boiled water.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1556.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,6 +97,7 @@ Meanwhile, put the duck breasts in the oven for 10-12 minutes for medium. Cook f
 
 Tip: Resting your duck will keep it moist and tender!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1556.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Once the onion has softened, add the honey, chicken stock and the juice of the o
 
 Once sticky, stir in the orange zest – this is your orange sauce.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1556.-step-7-x200.jpg)
 
 ### Step 7
 

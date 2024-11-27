@@ -28,6 +28,7 @@ Your next excuse to chow down on peri-peri has arrived. You’ll crisp up spiced
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1661184835891-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chicken thighs, skin-side down and cook for 8 min or until the skins have slightly crisped
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1661184842806-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Top, tail and slice the carrot<span class="text-danger">[s]</span> finely on the
 
 Once the skin has slightly crisped, transfer the browned chicken to a baking paper-lined tray (reserve the pan) and sprinkle over half the smoked paprika, the dried oregano, 1 tsp <span class="text-danger">[2 tsp] </span>sugar, a pinch of salt and a drizzle of vegetable oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1661184845728-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Return the reserved pan to a medium heat and once hot, add the sliced onion and 
 
 Cook for 10 min or until the onion has softened and the carrot is tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1661184848562-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Cut half the red chilli<span class="text-danger">[es]</span> in half lengthways,
 
 Slice the remaining red chilli finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661184851473-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1661184853958-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Combine the tomato paste and chipotle paste (can't handle the heat? Go easy!) wi
 
 Add the soy sauce, the juice of 1/2 <span class="text-danger">[1]</span> lemon and the white wine vinegar – this is your peri-peri sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661184856601-x200.jpg)
 
 ### Step 7
 

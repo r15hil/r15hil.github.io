@@ -24,6 +24,7 @@ Take your tastebuds to Thailand with this classic spicy and sour soup flavoured 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2421Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Separate the tough outer layer<span class="text-danger">[s]</span> from the sof
 
 Chop the<span class="text-highlight"> softer inner core<span class="text-danger">[s]</span></span> in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2421Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your lemongrass rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2421Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2421Step4V2jpg-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Cook for 2 min until fragrant
 
 Meanwhile, slice the baby button mushrooms finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2421Step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Once fragrant, add the chopped ginger, garlic, and half the chilli flakes (c
 
 Add the sliced baby button mushrooms, Sriracha and fish sauce and cook for 2 min or until the mushrooms have started to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2421Step-6-x200.jpg)
 
 ### Step 6
 
 <span class="text-highlight">While the mushrooms soften,</span> roughly chop the coriander, including the stalks<br /><br />Slice the lime<span class="text-danger">[s]</span> into 4 <span class="text-danger">[8]</span> wedges<br /><br /><br />
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2421Step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Albondigas, pronounced 'al-bon-deegas' are what the Spanish call meatballs. Thes
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1030.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the yellow pepper<span class="text-danger">[s]</span> to a baking tray, skin
 
 Once cooked, set aside to cool slightly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1030.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Mix thoroughly (clean hands are best!), then divide the mixture into 8 <span cla
 
 Shape into meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1030.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Tip:&nbsp;over-crowding the pan can make the meatballs sweat, so cook them in ba
 
 Once browned, transfer the&nbsp;meatballs&nbsp;to a plate and keep the pan for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1030.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Once cooled, cut the charred yellow pepper<span class="text-danger">[s]</span> i
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1030.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Once hot, add the diced red onion and&nbsp;chopped courgette&nbsp;with a pinch o
 
 Once softened, add the meatballs and charred yellow pepper and cook for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1030.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,6 +106,7 @@ Stir in the tomato paste, chopped tomatoes and chicken stock and cook for 6-7 mi
 
 Re-boil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1030.-step-7-x200.jpg)
 
 ### Step 7
 

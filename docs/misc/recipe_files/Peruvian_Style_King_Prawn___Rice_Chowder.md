@@ -29,6 +29,7 @@ Inspired by Peru's national dish, Chupe de Camarones, this punchy tomato and pra
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1611576344007-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 6-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1611576354999-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 600ml <span class="text-purple">[900ml]</span> <span class="text-danger">[1.2L]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1611576372419-x200.jpg)
 
 ### Step 3
 
 Once the onion has softened, add your tomato paste, chopped garlic, ground cumin, dried oregano and cayenne pepper (can't handle the heat? Go easy!) and cook for 30 secs or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1611576381622-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Once boiling, reduce the heat to medium-low and cook, covered, for an initial 20
 
 Tip: Stir the pan occasionally to stop anything from sticking!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1611576426481-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your coriander finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1611576446255-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the rice has had 20 min, bring the heat to medium, then drain then add your
 
 Once done, taste for seasoning, adding a pinch of salt if needed – this is your Peruvian-style king prawn & rice chowder
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611576451866-x200.jpg)
 
 ### Step 7
 

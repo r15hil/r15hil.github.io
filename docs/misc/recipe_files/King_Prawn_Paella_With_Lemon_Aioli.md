@@ -28,6 +28,7 @@ With just one pan, you'll fill your home with the sizzling aromas of a Spanish-s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/496.-step-1.n-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely slice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/496.-step-2.n-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the pepper strips, sliced onion and chopped garlic with a pinch of
 
 Cook for 8-10 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/496.-step-3.n-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once softened, add your ground turmeric, ground smoked paprika and tomato paste
 
 Add your arborio rice and stir to fully coat the grains and cook for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/496.-step-4.n-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Bring to the boil then reduce the heat to low
 
 Cook, covered, for an initial 20-25 min or until the rice is tender and has absorbed most of the liquid
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/496.-step-5.n-x200.jpg)
 
 ### Step 5
 
 After 20-25 min, drain, then add your king prawns and cook covered for a further 4-5 min or until the prawns are cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/496.-step-6.n-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Combine a squeeze of lemon juice with your mayo and a good grind of black pepper
 
 Chop your parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/496.-step-7.n-x200.jpg)
 
 ### Step 7
 

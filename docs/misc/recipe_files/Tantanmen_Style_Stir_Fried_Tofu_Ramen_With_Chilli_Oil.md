@@ -30,6 +30,7 @@ This delicious noodle soup is full of flavour thanks to sticky stir-fried tofu a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2150Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Boil a full kettle
 
 Combine your toasted sesame oil and cayenne pepper (can't handle the heat? Go easy!) in a small bowl, give everything a good mix up and set aside for later – this is your chilli oil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2150Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2150Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Once hot, crumble the tofu directly into the pan and cook for 5-6 min or until g
 
 Once golden, add the chopped ginger and garlic and cook for 1-2 min further or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2150Step-4-x200.jpg)
 
 ### Step 4
 
 Whilst the tofu is cooking, add your white miso paste, rice vinegar, half your soy sauce (save the rest for later!) and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar to a pot with 800ml <span class="text-purple">[1.1L] </span><span class="text-danger">[1.4L]</span> boiled water over a medium heat and cook for 3-4 min, stirring well to combine
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2150Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Tip: Separate the noodles with a fork so that they're all submerged in the brot
 
 After an initial 4 min, add the halved pak choi and cook for 2-3 min further or until the noodles are cooked and the pak choi is tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2150Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once fragrant, add the remaining soy sauce and hoisin sauce to the pan with the
 
 Meanwhile, trim, then slice your spring onion[s] finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2150Step-7-x200.jpg)
 
 ### Step 7
 

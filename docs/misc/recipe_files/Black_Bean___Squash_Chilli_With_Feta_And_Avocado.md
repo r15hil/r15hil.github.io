@@ -29,6 +29,7 @@ Cook black beans, butternut squash cubes and pepper in a chipotle stock. Thicken
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1854.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1854.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1/2
 
 Once hot, add the chopped onion, chopped pepper and butternut squash cubes with a pinch of salt and cook for 4-5 min or until softened but not browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1854.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Dissolve your vegetable stock mix and chipotle paste (can't handle the heat? Go 
 
 Drain and rinse your black beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1854.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Once the vegetables have softened, add the chopped garlic, tomato paste, ground 
 
 Cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1854.-step-5-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the chipotle stock with the drained black beans and cook, covered, for 15-20 min or until the sauce has thickened and the squash is cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Sliced-avocado-1732271347552-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Meanwhile, cut your avocado[s] in half lengthways, around the stone
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely lengthways
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1854.-step-7-x200.jpg)
 
 ### Step 7
 

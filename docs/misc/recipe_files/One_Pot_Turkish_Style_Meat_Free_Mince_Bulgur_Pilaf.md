@@ -29,6 +29,7 @@ This Turkish-inspired bulgur takes minutes to prep. You'll bake meat-free mince,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1647265707887-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634715935473-x200.jpg)
 
 ### Step 2
 
@@ -51,11 +53,13 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Chop your tomatoes into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634715938690-x200.jpg)
 
 ### Step 3
 
 Add your meat-free mince (remove the paper if required!) to the dish with your dried oregano, bay leaf[ves] and baharat and<span class="text-danger"> </span>cook for 2-3 min, breaking the mince into rough, large chunks until very lightly browned all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634715941187-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the pepper rings and tomato wedges to the dish, season with a pinch of salt 
 
 Put the dish in the oven, covered, for an initial 15 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634715944051-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Dissolve your vegetable stock mix and tomato paste in 300ml <span class="text-pu
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634715947355-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Cover with a lid and return the dish to the oven for 15 min further – this is 
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634715950255-x200.jpg)
 
 ### Step 7
 

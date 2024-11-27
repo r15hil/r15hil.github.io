@@ -27,6 +27,7 @@ There are many ways to cook Picadillo - beef stewed in layers of delicious flavo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580806412378-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the chopped carrot, onion and garlic and cook for 3-4 min or until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580806416998-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, boil a kettle
 
 Peel and chop the potatoes into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580806422211-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the vegetables are starting to soften, add the beef mince and chopped p
 
 Once browned, add the dried oregano and ground cumin and cook for 2-3 min further or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580806426851-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Chop the baby plum tomatoes in half
 
 Chop the capers and sultanas roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580806431685-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Bring to the boil over a high heat, once boiling, reduce the heat to medium and 
 
 After 15 min, cook, covered for a further 5 min until the stew has thickened and the potatoes are fork-tender - this is your Cuban picadillo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580806438072-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it is te
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580806443523-x200.jpg)
 
 ### Step 7
 

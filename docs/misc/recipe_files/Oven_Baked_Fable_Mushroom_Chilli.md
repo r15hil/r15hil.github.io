@@ -30,6 +30,7 @@ Plant get enough of chilli? Try this. You’ll stew black beans and charred fabl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-10-min-meals-1729256415821-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-4-1729257146464-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add your white long grain rice to an oven-proof dish with 300ml <span class="tex
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674045017894-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ While the rice cooks, heat a large, wide-based hob-safe oven-proof casserole dis
 
 Once hot, add your Fable pulled mushrooms to the dish and cook for 30 secs or until beginning to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729256527665-x200.jpg)
 
 ### Step 4
 
 Meanwhile, drain and rinse your black beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-4-1729256855567-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once beginning to brown, add your tomato paste to the dish with your ground smok
 
 Cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-4-1729256866170-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once fragrant, add the drained black beans, chopped tomatoes, vegetable stock mi
 
 Once boiling, put the dish in the oven, uncovered, for 25-30 min or until the sauce has thickened – this is your Fable mushroom chilli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-4-1729256875477-x200.jpg)
 
 ### Step 7
 

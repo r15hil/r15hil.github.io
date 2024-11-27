@@ -20,6 +20,7 @@ This simple dish packs all the flavours of classic fish and chips but in a light
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/244_step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Cut the potatoes (skins on) into equal bite-sized pieces
 
 Top, tail and cut the courgettes into quarters lengthways, then in half to create batons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/244_step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cook for 5 min, or until the potatoes are browning&nbsp;
 
 Tip: careful! The oil may spit a little after adding the potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/244_step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine the mayonnaise, apple cider vinegar and most of the dill (save the rest 
 
 Add 1 tbsp <span class="text-danger">[2 tbsp]&nbsp;</span>water and a drizzle of olive oil&nbsp;&ndash; this is your dill mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/244_step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add the courgette to the potatoes and cook for a further 5 min
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/244_step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Put the tray in the oven for 8-12 min, or until both the courgettes and potatoes
 
 Once done, season with salt and pepper and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/244_step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Place the basa over the garlic and cook for 3-4 min
 
 Season&nbsp;lightly with salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/244_step-7-x200.jpg)
 
 ### Step 7
 

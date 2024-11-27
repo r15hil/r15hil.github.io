@@ -31,6 +31,7 @@ This chilli beef stir-fry is a real firecracker. You’ll sizzle lean beef mince
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1715088887169-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lean beef mince and cook for 3-4 min or until beginning to brown, breaking it up into bite-size pieces with a wooden spoon as you go
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1715088892061-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715088896689-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the carrot discs and cook for 3-4 min or until beginning to soften
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1715088900734-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Meanwhile, dissolve your tomato paste in 150ml <span class="text-purple">[200ml]
 
 Add your ginger & garlic paste, Chinese rice wine, 2/3 soy sauce (save the rest for later!) and your red chilli relish with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your chilli stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1715088905250-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once the carrot has slightly softened, add the chilli stock with your chilli fla
 
 Cook for 7-8 min or until the sauce has slightly thickened, the carrot is tender with a slight bite and the beef is cooked through (no pink meat!) – this is your firecracker lean beef stir fry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1715088909423-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Cut narrow slices (about the width of a pound coin) across the middle of the cuc
 
 Tip: Don't have chopsticks, use two wooden spoons instead!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715088913045-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ To add flavour to this spicy spinach curry, you'll sizzle tomato, onion and spic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1730735862274-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and dice your red onion[s], then roughly chop your tomato[es]
 
 Add your chicken breast portion to a tray with a drizzle of olive oil, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730735868910-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Remove from the heat and keep covered until serving – this is your cardamom ri
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730194746477-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the chopped paneer and cook for 3-5 min until it's browned on all
 
 Once browned, transfer to a plate and season with a pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1730194750154-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add the diced onion and cook for 3-4 min or until starting to soften
 
 Once softened, add the chopped tomato, garam masala and 3/4 of the chopped red chilli (can't handle the heat? Go easy!) and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1730194753483-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Squeeze as much water out of the spinach as you can and chop it roughly
 
 Reboil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1730194756926-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Return the pan to the heat and and cook for 1 min
 
 Dissolve your vegetable stock mix in 250ml<span class="text-purple"> [325ml]</span> <span class="text-danger">[425ml]</span> boiled water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730194760753-x200.jpg)
 
 ### Step 7
 

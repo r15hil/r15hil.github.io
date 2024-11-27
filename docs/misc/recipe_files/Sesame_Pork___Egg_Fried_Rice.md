@@ -26,6 +26,7 @@ Whip up tasty fried rice in no time. You'll fry pork mince with rice, soy sauce 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623406381842-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1606132782704-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick), with a drizzle of vegetabl
 
 Once hot, add your pork mince (remove the paper if required!) and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1606132788067-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Meanwhile, top, tail and grate your carrot[s]
 
 Trim, then roughly chop your spring onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606132797915-x200.jpg)
 
 ### Step 4
 
 Once the pork has started to brown, add your ginger & garlic paste and sriracha (can't handle the heat? Go easy!) and cook for 1 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1606132808935-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Once fragrant, add your white long grain rice, soy sauce and toasted sesame oil 
 
 Give everything a good mix up until all the rice is coated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1606132815758-x200.jpg)
 
 ### Step 6
 
 Once the rice is coated, add your blanched peas and grated carrot to the pan and cook for 3-4 min further or until the rice is piping hot and the pork is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1606132820349-x200.jpg)
 
 ### Step 7
 
@@ -79,6 +86,7 @@ Once done, turn down the heat to medium-high, push the rice to one side of the p
 
 Stir the egg[s] with a wooden spoon to break the yolks and cook for 1-2 min until it resembles scrambled egg, then mix it all through the rice – this is your sesame pork & egg fried rice
 
+![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2735---10-Min-Pork-_-Egg-Fried-Rice0220-1642782051344-x200.jpg)
 
 ### Step 8
 

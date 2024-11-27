@@ -31,6 +31,7 @@ Turn the heat on high and get set for this sticky stir-fried sensation! You'll p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650451959430-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain into a sieve and set aside (save the pot for later!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650451963326-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Dice your cucumber
 
 Add the diced cucumber and sliced radishes to a bowl with your rice vinegar, a pinch of salt and sugar and set aside for later – this is your quick-pickled salad
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650451969896-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Peel and finely chop (or grate) your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650451973694-x200.jpg)
 
 ### Step 4
 
 Combine the chopped ginger, chopped garlic, chopped chilli (can't handle the heat? Go easy!), tomato ketchup, soy sauce and honey in a bowl – this is your soy and honey sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650451978321-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Drain your king prawns, then add them to a separate bowl with your five-spice 
 
 Tip: Not a fan of five spice? Just add half!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650451984325-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, add the seasoned prawns and cook for 2-3 min or until starting to br
 
 Once browned add the soy and honey sauce to the pan and cook for a further 2-4 min or until the prawns are cooked through and a sticky sauce has formed, then remove from the heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650451998688-x200.jpg)
 
 ### Step 7
 

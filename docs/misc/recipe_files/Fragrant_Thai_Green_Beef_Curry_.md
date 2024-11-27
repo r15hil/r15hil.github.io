@@ -26,6 +26,7 @@ This Thai green curry is sure to impress. You'll whizz up a homemade curry paste
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1598262414904-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1598262422502-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 Chop the green beans into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602153376533-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Chop the coriander roughly, reserving some leaves for garnish
 
 Add the ginger, garlic, half of the red chilli (save the rest for later) and chopped coriander to a food processor with 2 tbsp <span class="text-danger">[4 tbsp]</span> water and blitz until smooth – this is your Thai green curry paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598262481180-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the shallot with a pinch of salt and cook for 1 min
 
 Once the shallot has softened, add the beef strips and cook for 2-3 min or until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1598262494503-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once browned, add the Thai green curry paste to the pan with the beef and cook 
 
 Meanwhile, dissolve the coconut cream in 150ml <span class="text-danger">[300ml]</span> boiled water, add the fish sauce with the lime leaves, the juice of 1/2 <span class="text-danger">[1] </span>lime and 1 tsp <span class="text-danger">[2 tsp]</span> sugar – this is your fragrant stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1598262517648-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the chopped green beans and fragrant stock to the pan and cook for 4 min or
 
 Tip: Add an extra splash of water if the sauce thickens too quickly!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1598262523097-x200.jpg)
 
 ### Step 7
 

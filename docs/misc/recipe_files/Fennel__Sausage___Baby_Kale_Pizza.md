@@ -22,6 +22,7 @@ Fennel and sausage make the perfect Italian-inspired pairing for this simple yet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1077.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Remove the sausage meat from their skins and discard the skins
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1077.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once hot, add the sausage meat, breaking it up into small pieces with a wooden 
 
 Cook for 4 min or until the sausage meat is brown and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1077.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Season generously with salt and pepper - this is your tomato sauce
 
 Drain the mozzarella, tear it into bite-sized pieces, and pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1077.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Spread the tomato sauce over the pizza bases with the back of a spoon
 
 Dot the torn mozzarella over and put the tray in the oven until step 6
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1077.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ While the pizza bases are in the oven, add the chopped garlic, chilli flakes (c
 
 Cook, covered for 1-2 min or until the baby kale is starting to wilt - this is your kale & sausage mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1077.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the kale has wilted, top the pizza bases with the kale & sausage mixture
 
 Return them to the oven for 10-12 min or until the mozzarella has melted and the pizza bases are crispy - these are your fennel, sausage & baby kale pizzas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1077.-step-7-x200.jpg)
 
 ### Step 7
 

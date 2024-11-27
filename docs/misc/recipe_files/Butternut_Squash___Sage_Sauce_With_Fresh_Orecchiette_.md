@@ -20,6 +20,7 @@ For a taste of true Italian cooking (that won’t take you all evening), look no
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694605652262-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694605657172-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat and 
 
 Swirl the butter around the pan as it melts, and cook for 3-5 min or until the butter starts to brown and smell nutty, then remove the pan from the heat – this is your brown butter
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694605662355-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the squash cubes are fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694605667123-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[175ml]</span> of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694605670683-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, add your walnuts and cook for 2-3 min or until toasted and lightly gol
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694605674893-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Meanwhile, peel and slice (don't chop!) your garlic
 
 Strip your sage leaves from their stems, discard the stems
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694605679308-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ Fancy taking a classic Japanese dish and burger-ing it? You got it. First, you'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641303003324-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut your white potato[es] and sweet potato[es] (skins on) into fries
 
 Add the fries to a tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper, then give it a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641303006517-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Combine your rice vinegar with 1/2 tsp <span class="text-purple">[3/4 tsp]</span
 
 Add the grated carrot and sliced radish to the bowl, give everything a good mix up and set aside – this is your quick-pickled slaw
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641303010109-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add 2 tbsp<span class="text-purple"> [3 tbsp]</span><span class="text-danger"> [
 
 Add your panko breadcrumbs to another plate
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641303014145-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Coat your chicken breast portion[s] in the flour mixture, tap off the excess, th
 
 Tip: If your chicken is a bit too thick, slice it in half horizontally so you’re left with two thinner pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641303018506-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Heat a large, wide-based pan with a very generous drizzle of vegetable oil (enou
 
 Once hot, add the coated chicken and cook for 8 min on each side, pressing down firmly with a spatula until the outside is golden and the chicken is cooked through (no pink meat!) – this is your chicken katsu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641303021739-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Chop your coriander finely, including the stalks
 
 Put your ciabatta[s] in the oven for 5 min or until hot and crusty
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641303024858-x200.jpg)
 
 ### Step 7
 

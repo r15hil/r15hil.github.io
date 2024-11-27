@@ -26,6 +26,7 @@ For a colourful tray bake that's bursting with flavour, you'll crisp chicken thi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1671.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp<span class="text
 
 Pat your chicken thighs dry with kitchen paper and season them generously on both sides with salt and pepper, then add to the pan, skin-side down, and cook for 4-5 min or until the skin is golden brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1671.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Pick your basil leaves from the stalks (you'll be using both)
 
 Cut your cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1671.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon) and s
 
 Peel and chop your potatoes into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1671.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the chicken has browned, transfer it to a plate for later, reserve the pa
 
 Add the onion wedges, sliced pepper and chopped garlic to the reserved pan and cook for 4-5 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1671.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Add in your chicken stock mix and season with a good grind of pepper
 
 Cook for a further 2 min, stirring regularly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1671.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the vegetables and any remaining juices from the pan into an oven-proof dish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1671.-step-7-x200.jpg)
 
 ### Step 7
 

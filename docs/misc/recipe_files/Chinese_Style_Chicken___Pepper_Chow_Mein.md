@@ -23,6 +23,7 @@ Time for a cheeky Chinese fakeaway. You’ll fry succulent chicken thigh with sp
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695721340978-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the diced chicken thigh with a pinch of salt and cook for 6-7 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695721345599-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695721348545-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Trim, then slice your spring onion[s] into batons
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695721353781-x200.jpg)
 
 ### Step 4
 
@@ -57,16 +61,19 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain the noodles and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695721359251-x200.jpg)
 
 ### Step 5
 
 Once the chicken has browned, add the chopped garlic, chopped ginger, spring onion batons and sliced pepper to the pan and cook for 4-5 min or until beginning to soften and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695721363837-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add your toasted sesame oil to the drained noodles and give everything a good mix up – these are your sesame noodles
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695721367780-x200.jpg)
 
 ### Step 7
 

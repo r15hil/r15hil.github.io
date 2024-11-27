@@ -31,6 +31,7 @@ The classic Seekh (pronounced 'Sheek') Kebab is an Indian staple. Traditionally 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/888.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/888.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Peel and finely chop your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/888.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Combine your beef mince and half the chopped mint (save the rest for later!) in 
 
 Season with a generous pinch of salt and pepper and mix until fully combined – this is your kebab mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/888.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Divide the kebab mixture and shape onto the skewers into 2 sausage-shaped keb
 
 Tip: Once the kebabs are on the skewers, roll, like you would a rolling pin, to help form the sausage shape
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/888.-step-5-x200.jpg)
 
 ### Step 5
 
 Place the kebabs on a tin foil-lined baking tray, put the tray under the grill and cook for 4-5 min on each side until nicely charred and cooked through (no pink meat!) – these are your spiced seekh kebabs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/888.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Combine the juice of half your lime[s] in a large mixing bowl with 1 tbsp <spa
 
 Add the shredded lettuce and diced tomato and mix it all together – this is your zesty salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/888.-step-7-x200.jpg)
 
 ### Step 7
 

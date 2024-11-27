@@ -28,6 +28,7 @@ This plant-based twist on mac 'n' cheese is easy, 'cheezy' comfort food. You'll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1608054025964-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1608054036372-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cook the butternut squash for an initial 5 min or until starting to soften
 
 Once the onion has softened, add the chopped garlic and cook for 1-2 min further or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1608054043757-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Pick your basil leaves from their stalks and finely chop the stalks
 
 Grate your cheddar flavour block
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1608054054136-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Carefully transfer the butternut squash from the colander into a food processor,
 
 Add the softened onion & garlic to the food processor with your single creamy soy and blitz until you're left with a smooth sauce – this is your creamy butternut squash sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1608054062001-x200.jpg)
 
 ### Step 5
 
 Return the drained macaroni to the pot over a medium-low heat and add the creamy butternut squash sauce with your vegetable stock mix, chopped basil stalks and grated cheddar flavour block and cook for 2-3 min until the sauce has thickened slightly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1608054070519-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Tip: Push the sun-dried tomatoes into the pasta so they don't burn!
 
 Put the dish in the oven and cook for 15-20 min or until golden and crispy – this is your butternut squash mac 'n' cheeze
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1608054079148-x200.jpg)
 
 ### Step 7
 

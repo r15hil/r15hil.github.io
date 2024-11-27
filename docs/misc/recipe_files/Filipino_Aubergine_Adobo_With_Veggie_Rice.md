@@ -25,6 +25,7 @@ Adobo is Filipino comfort food at its finest. The silky aubergine is flavoured w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629197766696-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped aubergine to a baking tray with a generous drizzle of vegetable 
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until the aubergine has softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629197770277-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the sliced onion and cook for 5-6 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629197775631-x200.jpg)
 
 ### Step 3
 
 While the onion softens, chop the green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629197779629-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once the onion has softened, reduce the heat to medium-low
 
 Add the bay leaves, chopped garlic, soy sauce and 4 tbsp <span class="text-danger">[8 tbsp] </span>water and cook, covered, for 4-5 min or until the sauce has reduced slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629197784648-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ When the rice is boiling, add the Tenderstem broccoli and halved green beans an
 
 Once cooked, remove from the heat and keep covered until serving – this is your veggie rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629197788977-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Finely slice the red chilli<span class="text-danger">[es]</span> into rounds
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629197793995-x200.jpg)
 
 ### Step 7
 

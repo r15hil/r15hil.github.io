@@ -27,6 +27,7 @@ Recreate a feast of Chinese-inspired dishes. You'll serve up crispy salt and pep
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641288968352-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add the cauliflower florets to the batter, coating them all over, then dip them 
 
 Drizzle with vegetable oil and put the tray in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641288976575-x200.jpg)
 
 ### Step 2
 
@@ -57,6 +59,7 @@ Cover the rice tightly with tin foil and once the cauliflower has had an initial
 
 Cook both for 30 min or until all the water is absorbed and the rice is cooked and the cauliflower is golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641288981306-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Chop the red chilli<span class="text-danger">[es]</span> into rounds
 
 Reboil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641288985925-x200.jpg)
 
 ### Step 4
 
@@ -81,6 +85,7 @@ Once browned, add the spring onion thirds with half the ginger & garlic paste (s
 
 Remove from the heat and set aside for later – this is your chow mein-style veg
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641288990497-x200.jpg)
 
 ### Step 5
 
@@ -92,6 +97,7 @@ When the cauliflower and rice have 15 min left, heat a separate, large, wide-bas
 
 Once hot, add the marinated tofu strips to the pan and cook for 3 min on each side or until golden
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641288994780-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Once the tofu is golden, add the Tenderstem broccoli thirds with 1 tsp <span cla
 
 Add the hoisin stock and toasted sesame oil and cook for 3-4 min or until the sauce has thickened and the Tenderstem broccoli is tender with a slight bite – this is your hoisin Tenderstem broccoli & tofu
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641289001592-x200.jpg)
 
 ### Step 7
 

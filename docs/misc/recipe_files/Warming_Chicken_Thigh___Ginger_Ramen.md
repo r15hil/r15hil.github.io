@@ -29,6 +29,7 @@ Traditionally, ramen takes days to prepare, but this easy one-pot twist only nee
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1653325139944-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Boil a full kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1653325144064-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop your mangetout into bite-sized pieces
 
 Slice your chestnut mushrooms finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1653325150297-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the chopped ginger, star anise and chilli flakes (can't handle the
 
 Once fragrant, add your diced chicken thigh and sliced mushrooms and cook for 4-5 min or until lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1653325160387-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add 1L <span class="text-purple">[1.5L] </span><span class="text-danger">[2L]</s
 
 Bring to the boil and once boiling, reduce the heat to medium-high
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/311.step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Add your wholewheat noodles to the pot and cook for 4-5 min, or until nearly coo
 
 Tip: The noodles will carry on cooking, so aim for 'al dente' at this point!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1653325166924-x200.jpg)
 
 ### Step 6
 
 Add your soy sauce and sliced spring onion whites (you'll use the greens later!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1653325173862-x200.jpg)
 
 ### Step 7
 

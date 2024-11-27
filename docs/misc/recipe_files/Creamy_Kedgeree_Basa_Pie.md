@@ -26,6 +26,7 @@ Almost everything's better in pie form. Especially this creamy, coconutty number
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699372927151-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Slice your potatoes (skins on) into discs
 
 Add your sliced potatoes to a baking tray (or two!) with a generous drizzle of vegetable oil and a pinch of salt and pepper and give everything a good mix up, then put the tray[s] in the oven for 12-15 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699372932379-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once boiling, cook for 9-10 min for hard-boiled eggs, then fill a bowl of very c
 
 Reboil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699372937083-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the sliced onion and a pinch of salt and cook for 4-5 min or until
 
 Once softened, add your curry powder to the pan and cook for 1-2 min or until fragrant – these are your curried onions
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699372941953-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel and roughly chop your cooled egg[s]
 
 Chop your smoked basa fillet[s] into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699372949022-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Dissolve your cornflour, chopped creamed coconut and vegetable stock mix in 250m
 
 Wash your spinach then pat dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699372955513-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once thickened, add the chopped egg, chopped basa, blanched peas and spinach to 
 
 Cook for 1-2 min further or until the spinach has wilted – this is your curry fish pie mix
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699372960524-x200.jpg)
 
 ### Step 7
 

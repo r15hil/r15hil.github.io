@@ -22,6 +22,7 @@ This coconut peanut sauce is sweet, salty and nutty. It goes beautifully with st
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/554.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Place the coconut cream sachet<span class="text-danger">[s]</span> in a mug and 
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/554.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Once done, remove from the heat and keep covered until later
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/554.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Drizzle with vegetable oil and season generously with salt and pepper&nbsp;
 
 Put the tray directly under the grill and cook for 12-15 min or until nicely charred
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/554.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,6 +85,7 @@ Rub them with a little vegetable oil and season generously with salt on both sid
 
 Heat a dry, wide-based pan (preferably non-stick) over a medium-high heat until very hot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/554.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,6 +97,7 @@ Transfer the cooked steaks to a plate and leave to rest
 
 Reserve the pan for the next step&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/554.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Whisk together (off the heat) until smooth
 
 Once smooth, return the pan to a low heat and whisk until a sauce forms (approx. 3-4 min) then remove from the heat and set aside (it will thicken a little as it cools)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/554.-step-7-x200.jpg)
 
 ### Step 7
 

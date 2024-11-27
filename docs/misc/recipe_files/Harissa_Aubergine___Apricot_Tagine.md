@@ -27,6 +27,7 @@ This Moroccan-inspired tagine is filled with the aromatics of North Africa. You'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2528Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top and tail the aubergine<span class="text-danger">[s] </span>and slice, length
 
 Mix everything together and put the tray<span class="text-danger">[s]</span> in the oven for 20-25 min or until tender – these are your roasted aubergine wedges & tomatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2528Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop the diced apricots roughly
 
 Boil a full kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2528Step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or u
 
 Once softened, add the chopped garlic, ras el hanout and cinnamon (not a fan of cinnamon? Just add a little!) and cook for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2528Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Drain and rinse the butter beans, then add them to the pan with 300ml <span cla
 
 Add the chopped apricots to a bowl and cover them with 80ml <span class="text-danger">[100ml]</span> boiled water, then set aside to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2528Step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add the pistachio nuts to a separate baking tray and put the tray in the oven fo
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2528Step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the soaked apricots with the soaking liquid from the bowl and 1 tsp <span 
 
 Cut the lemon<span class="text-danger">[s]</span> in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2528Step-7-x200.jpg)
 
 ### Step 7
 

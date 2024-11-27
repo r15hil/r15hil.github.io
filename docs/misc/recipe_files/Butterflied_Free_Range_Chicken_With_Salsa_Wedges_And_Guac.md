@@ -23,6 +23,7 @@ Get a load of this vibrant, zingy chicken! You'll dollop punchy homemade salsa o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1719992166529-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the potato wedges to a baking tray (or two!) with a drizzle of vegetable oil
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1719992170034-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Slice through the thickest part of the chicken breast, being careful not to cut 
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1719992173782-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the seasoned butterflied chicken and cook for 4 min on each side until golden, then turn the heat down to medium and cook for a further 3-4 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1719992177359-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Dice the remaining onion finely
 
 Once the potato wedges have had 15 min, add the onion wedges to the tray[s] and return to the oven for 10-15 min or until the potatoes are golden and crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1719992180863-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your coriander finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1719992186789-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger
 
 Give everything a good mix up – this is your zingy salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1719992191863-x200.jpg)
 
 ### Step 7
 

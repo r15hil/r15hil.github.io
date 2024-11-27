@@ -25,6 +25,7 @@ Samla curry is mild but mighty. Flavoured with creamy coconut, tangy lemongrass 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634572667227-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634572670477-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 18-20 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634572674622-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pepper strips, chopped garlic, ground turmeric, chopped ginger and chopped lemongrass and cook for 2-3 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634572677961-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Chop the creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 250ml <span class="text-danger">[400ml]</span> boiled water and add the lime leaves, fish sauce and 1 tsp <span class="text-danger">[2 tsp]</span> sugar – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634572681829-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Trim, then cut the green beans in half
 
 Add the coconut stock, halved green beans and a pinch of salt to the pan and cook for an initial 3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634572685870-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Cook for a further 6 min or until the basa is cooked through and the sauce has t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634572689787-x200.jpg)
 
 ### Step 7
 

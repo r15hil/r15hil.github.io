@@ -32,6 +32,7 @@ This oven-baked curry is prepped in moments and packed with sweet potato, tomato
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1623678210398-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1730108893098-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Boil half a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a medium heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623678265858-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop your sweet potato[es] (skin on) into bite-sized pieces
 
 Add your ginger paste and the chopped sweet potato[es] to the dish and give everything a good stir
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623678277328-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Trim, then chop your green beans in half
 
 Chop your cherry tomatoes in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623678297465-x200.jpg)
 
 ### Step 5
 
 Add the halved green beans and halved cherry tomatoes to the dish with your tomato paste, nigella seeds, ground turmeric and curry powder and stir it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623678305748-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Cover with a lid, and put the dish in the oven for 25-30 min or until the sweet 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1623678314933-x200.jpg)
 
 ### Step 7
 

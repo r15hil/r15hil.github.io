@@ -29,6 +29,7 @@ Try our take on a Turkish-style dinner, inspired by traditional manti. You'll wh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1727430864615-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727430867903-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add your lamb mince to the dish with a generous pinch of salt
 
 Cook for 2 min, breaking the mince into large chunks with a wooden spoon, until very lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727430871877-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727430874690-x200.jpg)
 
 ### Step 4
 
 Combine your natural yoghurt with your roasted garlic paste and a pinch of salt – this is your garlic yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727430879043-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add your onion wedges, chicken stock mix, tomato paste, ground cumin, chilli fla
 
 Nestle the pasta into the water as much as you can, then stir everything together and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727430882444-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Tip: Give everything a stir halfway through for evenly cooked pasta!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727430885398-x200.jpg)
 
 ### Step 7
 

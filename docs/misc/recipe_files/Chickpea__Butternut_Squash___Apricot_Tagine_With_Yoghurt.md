@@ -31,6 +31,7 @@ Invented by nomads cooking on-the-go, say besseha (cheers) to this Moroccan tagi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671612812289-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop your garlic
 
 Chop your cherry tomatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671612815525-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 6-8 min or until caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671612819150-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Drain and rinse your chickpeas
 
 Once the onion has caramelised, add the chopped garlic, baharat, diced butternut squash and chopped cherry tomatoes and cook for 3-4 min or until the tomatoes are beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671612823212-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the tomatoes are soft, add the harissa stock, drained chickpeas and diced a
 
 Tip: Add a splash of water if it's looking a little dry!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671612826799-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Dissolve the remaining vegetable stock mix in 200ml <span class="text-purple">[3
 
 Add your couscous to a heatproof bowl with the vegetable stock, cover and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671612830983-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once hot, add your flaked almonds and cook for 1-2 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671612836198-x200.jpg)
 
 ### Step 7
 

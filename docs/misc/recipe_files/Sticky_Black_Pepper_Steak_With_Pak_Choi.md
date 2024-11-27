@@ -21,6 +21,7 @@ This one tastes as good as it sounds! This bangin’ Cantonese-style dish is on 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622804979328-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Before you start cooking, take your steak out of the fridge, open the packet and
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1902.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Season one side of your rump steak[s] with a pinch of salt and half your cracked black pepper (save the rest for later!), cover in cling film and bash with a rolling pin until flat and approx. 1 cm in thickness
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1902.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the steak is cooked, transfer to a plate to rest and reserve the pan
 
 Wash and pat dry with kitchen paper, then cut the base[s] off your pak choi and slice in half lengthways
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1902.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Remove the pan from the heat, add the halved pak choi, cut-side down, to the pan
 
 Add a splash of boiled water and cook, covered, for 1-2 min further or until tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1902-Step-5-v2-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1902.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Return the reserved pan to a medium heat
 
 Add your hoisin sauce, gluten free soy sauce, Chinese rice wine, remaining cracked black pepper and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp]</span> boiled water and cook for 1-2 min or until thickened – this is your black pepper sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1902.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -18,6 +18,7 @@ Pack size (800g). Refer to package for cooking instructions.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Creamy-Chicken-_-Sweet-Potato-Curry-With-Crispy-Onions-Packaging14521-copy-1705400385908-x200.jpeg)
 
 ### Step 1
 
@@ -31,31 +32,37 @@ Check food is piping hot throughout before serving.
 
 Do not reheat.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Creamy-Chicken-_-Sweet-Potato-Curry-With-Crispy-Onions-Packaging14521-copy-1705400389408-x200.jpeg)
 
 ### Step 2
 
 -
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Creamy-Chicken-_-Sweet-Potato-Curry-With-Crispy-Onions-Packaging14521-copy-1705400393950-x200.jpeg)
 
 ### Step 3
 
 -
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Creamy-Chicken-_-Sweet-Potato-Curry-With-Crispy-Onions-Packaging14521-copy-1705400397890-x200.jpeg)
 
 ### Step 4
 
 -
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Creamy-Chicken-_-Sweet-Potato-Curry-With-Crispy-Onions-Packaging14521-copy-1705400402873-x200.jpeg)
 
 ### Step 5
 
 -
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Creamy-Chicken-_-Sweet-Potato-Curry-With-Crispy-Onions-Packaging14521-copy-1705400407156-x200.jpeg)
 
 ### Step 6
 
 -
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Creamy-Chicken-_-Sweet-Potato-Curry-With-Crispy-Onions-Packaging14521-copy-1705400413376-x200.jpeg)
 
 ### Step 7
 

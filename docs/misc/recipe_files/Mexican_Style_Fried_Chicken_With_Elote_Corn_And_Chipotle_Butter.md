@@ -28,6 +28,7 @@ Feeling like fried chicken tonight? Dive into these crisp and golden thighs, pac
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1712930036812-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once fragrant, add your white long grain rice and chicken stock mix with a pinch
 
 Give everything a good mix up until the rice is fully coated
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1712930040301-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your red rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1712930043852-x200.jpg)
 
 ### Step 3
 
 Combine the remaining ground smoked paprika (save a pinch for garnish!), remaining dried oregano and your ground coriander in a large bowl with 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp]</span> flour and a generous pinch of salt and pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1712930047007-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add your chicken thighs to the bowl with 4 tsp <span class="text-purple">[6 tsp]
 
 Give everything a good mix up and, using your hands, scrunch the flour onto the chicken until fully coated – this is your coated chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1712930050798-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, reduce the heat to medium-high and add the coated chicken to the pan a
 
 Once done, season the cooked chicken with a pinch of salt – this is your Mexican-style fried chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1712930054296-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Crumble in your feta and give everything a good mix up – this is your elote co
 
 Chop the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1712930057731-x200.jpg)
 
 ### Step 7
 

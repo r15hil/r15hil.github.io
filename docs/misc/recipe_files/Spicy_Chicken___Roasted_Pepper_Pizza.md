@@ -24,6 +24,7 @@ Tuck into flame-baked pizza bases topped with tomato sauce, mozzarella, tender p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2057.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice 
 
 Put a large baking tray (or two) in the oven to heat up (this will stop the pizza bottoms from going soggy!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2057.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the pepper strips and chicken breast strips to a baking tray with a generous
 
 Put the tray in the oven for 15-18 min or until the pepper has softened and the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2057.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and give everything a good mix up – this is your pizza sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2057.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Drain your mozzarella, then pat it dry with kitchen paper (squeeze as much li
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2057.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Divide the pizza sauce between the pizza bases and spread it evenly all over 
 
 Top with the torn mozzarella
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2057.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once the chicken and peppers are cooked, remove the tray<span class="text-danger
 
 Transfer the cooked chicken to a clean board and shred into rough, bite-sized pieces using two forks – this technique is known as ‘pulling’
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2057.-step-7-x200.jpg)
 
 ### Step 7
 

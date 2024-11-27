@@ -23,6 +23,7 @@ This quick one-pot pasta dish is inspired by sunny Spanish flavours and is a bre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/474.step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely slice the red&nbsp;onion<span class="text-danger">[s]</span>
 
 Strip the rosemary leaves from the stalks and chop finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/474.step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the chorizo and onion
 
 Cook&nbsp;for 3-4 min or until the chorizo has released its oil and the onion has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/474.step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Deseed the&nbsp;yellow pepper<span class="text-danger">[s]</span>&nbsp;(scrape t
 
 Chop the tomato<span class="text-danger">[es]</span>&nbsp;coarsely&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/474.step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the chopped&nbsp;rosemary to the pot and cook for 1-2 min or until fragrant
 
 Add the chopped&nbsp;garlic, tomato and pepper and cook for a further min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/474.step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the stock, conchiglie&nbsp;pasta and a large pinch of sugar to the pot and g
 
 Cover and cook for 7-10 min or until the pasta is nearly cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/474.step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Meanwhile, grate the cheddar
 
 Chop the parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/474.step-7-x200.jpg)
 
 ### Step 7
 

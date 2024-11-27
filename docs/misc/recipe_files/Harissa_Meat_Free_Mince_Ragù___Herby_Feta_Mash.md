@@ -24,6 +24,7 @@ Whip up a whole new twist on ragù. You'll add ruby-red harissa to your sauce fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655813232471-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655813236481-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the diced onion and cook for 3-4 min or until softened
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655813240944-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once the onion has softened, add the chopped garlic and cook for 1-2 min further
 
 Add your meat-free mince and cook for 4-6 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655813245427-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Whilst the meat-free mince is browning, top, tail and chop your courgette[s] int
 
 Once the mince is browned, add the chopped courgette and cook for 3-4 min further or until the courgette has started to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655813255797-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Dissolve your vegetable stock mix and your harissa paste (can't handle the heat?
 
 Once the courgette has softened, add the harissa stock and chopped tomatoes and cook for 8-10 min or until the sauce has thickened to a bolognese-like consistency – this is your harissa meat-free mince ragù
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655813258862-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Whilst the ragù is cooking, strip your mint leaves from their stems and chop th
 
 Chop your parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655813264091-x200.jpg)
 
 ### Step 7
 

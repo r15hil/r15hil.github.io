@@ -30,6 +30,7 @@ Dal is India's comfort food. For this easy twist, you'll top yours with crispy m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/592.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Peel and finely slice your brown onion[s]
 
 Add your creamed coconut to a mug and cover with boiled water (this softens the naturally hard cream)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/592.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add half the sliced onion (you'll use the rest later!) with a pinch of salt and cook for 5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/592.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Dissolve your vegetable stock mix in 350ml <span class="text-purple">[450ml]</
 
 Drain and rinse your chickpeas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/592.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the rinsed red lentils and drained chickpeas
 
 Add the vegetable stock and softened creamed coconut and cook for 15-20 min or until all the water is absorbed and the lentils are tender and porridge-like in consistency – this is your dal
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/592.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Place under the grill for 5-10 min or until nicely charred (keep an eye on them 
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/592.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Peel (scrape the skin off with a teaspoon) and roughly chop (or grate) your ging
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/592.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ How do you create chicken nuggets in about 20 minutes? Here we use a seasoned al
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/559_step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Combine the ground almonds, panko&nbsp;breadcrumbs and smoked paprika in a bowl 
 
 Spread half of this breadcrumb mixture evenly on a large plate
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/559_step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add them to a pot of salted boiled water and cook over a high heat for 10 min or
 
 Trim and cut the runner beans into thin strips lengthways, then chop them into small pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/559_step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Top with the other half of the breadcrumb mixture and press the chicken firmly i
 
 Tip: work in batches if your plate is too crowded
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/559_step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,11 +73,13 @@ Cover&nbsp;with a lid and cook for 8 min, turning once halfway through or until 
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/559_step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine the honey, wholegrain mustard and mayonnaise - this is your honey mustard dipping sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/559_step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once the potatoes are almost fork-tender, add the&nbsp;chopped runner beans to t
 
 Once done, drain and transfer the runner beans to the chicken pan, push the nuggets to the side to keep warm until serving and return the cooked potatoes to the pot ready for mashing&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/559_step-7-x200.jpg)
 
 ### Step 7
 

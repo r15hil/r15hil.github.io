@@ -20,6 +20,7 @@ This tart's off the charts. You'll top pastry with sweet roasted peppers and cre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2210-step-1-x200.jpg)
 
 ### Step 1
 
@@ -27,6 +28,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Deseed your peppers (scrape the seeds and pith out with a teaspoon) and cut into thin strips (as finely as you can)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2210-step-2-x200.jpg)
 
 ### Step 2
 
@@ -34,6 +36,7 @@ Add the pepper strips to a baking tray with a drizzle of olive oil and a pinch o
 
 Put the tray in the oven for 10 min or until the peppers begin to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2210-step-3-x200.jpg)
 
 ### Step 3
 
@@ -43,6 +46,7 @@ Add the discs to a separate baking tray with a generous drizzle of vegetable oil
 
 Put the tray in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2210-step-4-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Transfer the pastry square[s] to a sheet of non-stick baking paper (the size
 
 Score a 1cm border around the edge of the pastry with a knife and prick the inside of the border all over with a fork (this will stop you getting a soggy bottom!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2210-step-5-x200.jpg)
 
 ### Step 5
 
@@ -61,11 +66,13 @@ Top the centre of the pastry squares with the softened peppers and transfer them
 
 Tip: Use the same baking tray the peppers were on to save on washing up!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2210-step-6-x200.jpg)
 
 ### Step 6
 
 Put the tray in the oven for 15 min or until the pastry is golden and crisp and the edges have puffed up – these are your roasted pepper tarts
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2210-step-7-x200.jpg)
 
 ### Step 7
 

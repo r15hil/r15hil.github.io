@@ -26,6 +26,7 @@ Spice up your salad game with fiery ‘Nduja-coated Greek cheese. You’ll top c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681806449367-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and slice your shallot[s] finely
 
 Chop your tomato[es] roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681806453229-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once fragrant, add the chopped tomato, tear in your 'Nduja (can't handle the hea
 
 Meanwhile, chop your waxy potatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681806458072-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once boiling, cook for 12-15 min or until fork-tender, then drain and return to 
 
 Once the tomato has softened, remove the pan from the heat and add the juice of half your lemon[s] with a grind of black pepper, a pinch of sugar and a drizzle of olive oil – this is your spicy 'Nduja marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681806462627-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Put the dish in the oven for 8-10 min or until beginning to soften – this is 
 
 Meanwhile, add the sliced shallot to a large bowl with the juice of the remaining lemon and a pinch of sugar and set aside to pickle – this is your quick-pickled shallot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681806467758-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Chop your parsley finely, including the stalks
 
 Drain and rinse your butter beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681806471058-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add your Dijon mustard to the quick-pickled shallot with 2 tbsp <span class="tex
 
 Give everything a good mix up – this is your mustard & shallot dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681806476435-x200.jpg)
 
 ### Step 7
 

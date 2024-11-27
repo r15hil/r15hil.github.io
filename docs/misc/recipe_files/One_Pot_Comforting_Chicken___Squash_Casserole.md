@@ -24,6 +24,7 @@ Casseroles always hit the spot. You'll simmer tender chicken thigh and butternut
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1351Step-1-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ While the chicken is cooking, peel and finely slice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1351.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Dissolve your chicken stock mix in 450ml <span class="text-purple">[600ml]</span> <span class="text-danger">[750ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1351.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Meanwhile, cut your waxy potatoes into large bite-sized pieces
 
 Strip your thyme leaves from their stems and chop them roughly, discard the stems (save some whole leaves for garnish!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1351.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the onion has softened, add the diced chicken thigh with the chopped thyme
 
 Add the chicken stock and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R1351Step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the chopped potatoes and butternut squash cubes
 
 Once boiling, reduce the heat to medium and cook, covered, for 10-15 min or until everything is tender and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1351.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the potatoes are nearly done, cut your ciabatta[s] in half and add them t
 
 Put the tray in the oven for 2-3 min or until they're golden and crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1351.-step-7-x200.jpg)
 
 ### Step 7
 

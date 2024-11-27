@@ -25,6 +25,7 @@ Cantonese pork is known for its sweet and sticky glaze. Our version with tender 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC804Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cantonese pork is known for its sweet and sticky glaze. Our version with tender 
 
 <span class="text-highlight">Once cooked, remove from the heat and transfer to a plate and spread it out flat to help the rice cool down</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC804Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, slice the pork loin steaks into cubes 
 
 Add the cubed pork to a bowl with the smoked <span class="text-highlight">paprika</span>, Chinese five-spice and a pinch of salt and give everything a good mix up until the pork is coated in the spices
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC804Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching <span class="
 
 Once hot, add the cubed pork and cook for 2-3 min or until browned<span class="text-highlight"> - this is your five-spiced pork</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC804Step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the pork has browned, add the hoisin sauce and half the soy sauce (save t
 
 Reduce the heat to medium-low and cook for 2-3 min or until the sauce is sticky and the pork is cooked through (no pink meat!<br /><br /><br />
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC804Step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Peel and finely chop (or grate) the ginger
 
 <span class="text-highlight">Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC804Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Return the pan to a medium-high heat with the chopped garlic, ginger and 3/4 of
 
 Once fragrant, add the spring greens and cook for 3 min until they're wilted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC804Step-7-x200.jpg)
 
 ### Step 7
 

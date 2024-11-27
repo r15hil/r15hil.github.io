@@ -27,6 +27,7 @@ Try a new take on cacio e pepe with creamy cheese sauce, butter beans and plenty
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-18-1694086218351-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop your shallot[s]
 
 Drain and rinse your butter beans
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-18-1694086228175-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the chopped shallot and half the chopped garlic (you'll use the re
 
 Meanwhile, dissolve your vegetable stock mix in 500ml <span class="text-purple">[750ml]</span> <span class="text-danger">[1L]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-18-1694086231600-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-18-1694086237240-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once toasted, transfer to a plate and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-17-1694086243906-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Zest half your<span class="text-danger"> </span>lemon[s] (try to grate lightly w
 
 Cut your lemon[s] into 1 slice per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-16-1694086247018-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once hot, add the halved broccoli to the pan with a pinch of salt and cook for 6
 
 Once tender, add the remaining chopped garlic and lemon zest to the pan and cook for 1-2 min further or until fragrant – this is your garlic & lemon broccoli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-20-1694086250134-x200.jpg)
 
 ### Step 7
 

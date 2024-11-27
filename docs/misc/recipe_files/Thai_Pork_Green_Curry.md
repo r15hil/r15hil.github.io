@@ -25,6 +25,7 @@ This classic Thai pork curry is pummeled with an abundance of fresh flavours inc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/860.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the basmati rice and 350ml <span class="text-danger">[700ml]</span> water to
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/860.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Remove the coconut cream&nbsp;from the sachet<span class="text-danger">[s]</span
 
 Dissolve the coconut cream in 400ml <span class="text-danger">[650ml]</span> boiled water and add the fish sauce&nbsp;- this is your coconut stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/860.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the pork strips with a pinch of salt and cook for 1-2 min or until
 
 Once done, transfer the pork to a plate and keep the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/860.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Cut the lime<span class="text-danger">[s]</span> in half
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/860.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Add the coconut stock and cook, covered, for 4-6 min or until thickened to a loo
 
 Squeeze in 1 tbsp <span class="text-danger">[2 tbsp]</span> lime juice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/860.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Chop the basil roughly, including the stalks
 
 Chop the cooled peanuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/860.-step-7-x200.jpg)
 
 ### Step 7
 

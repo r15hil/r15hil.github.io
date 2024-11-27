@@ -27,6 +27,7 @@ Fast meets fusion with these tasty tacos. After stuffing your tortillas with car
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611071113418-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1656425097332-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ Once hot, add your lean beef mince and cook for 3-4 min or until beginning to
 
 Tip: Spoon off and discard any excess fat that may come out of the meat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1611071203070-x200.jpg)
 
 ### Step 3
 
 Top, tail and grate your carrot[s] (no need to peel!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656425105474-x200.jpg)
 
 ### Step 4
 
@@ -61,16 +65,19 @@ Once the lean beef mince has started to brown, add your ginger & garlic paste, h
 
 Give everything a good mix up and cook for 4-5 min or until the lean beef mince has caramelised and is cooked through (no pink meat!) – this is your sticky lean beef
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708440367394-x200.jpg)
 
 ### Step 5
 
 Cut your cucumber into quarters lengthways, then slice into batons
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1611071225579-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1611071233003-x200.jpg)
 
 ### Step 7
 

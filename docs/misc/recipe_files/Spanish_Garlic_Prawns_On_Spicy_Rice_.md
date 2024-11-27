@@ -26,6 +26,7 @@ We've taken influence from the classic tapas dish 'gambas pil pil' (prawns with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/752.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and cut the red onion<span class="text-danger">[s] </span>into large pieces
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/752.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Cook for 5 min, or until they have softened slightly
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/752.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -71,6 +74,7 @@ Add the white wine vinegar and 3 tbsp <span class="text-danger">[6 tbsp]</span> 
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/752.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -85,6 +89,7 @@ Add the stock and bring to the boil
 
 Once boiling, reduce the heat to very low, and cook, covered, for 15-20 min or until the water has absorbed - this is your spicy rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/752.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -102,6 +107,7 @@ Tip: watch the spices like a hawk to make sure they don't burn!
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/752.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -110,6 +116,7 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, the tomatoes and
 
 Meanwhile, chop the coriander&nbsp;roughly, including the stalks&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/752.-step-7-x200.jpg)
 
 ### Step 7
 

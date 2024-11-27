@@ -24,6 +24,7 @@ It’s not Christmas without pie. This festive twist pairs creamy garlic basa-fi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1668539822506-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Dissolve your vegetable stock mix in 75ml <span class="text-purple">[115ml]</spa
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of olive oil over a medium-high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668539831099-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, reduce the heat to medium and cook for 3-4 min further or until co
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668539836216-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the chopped potatoes to a pot of boiled water, bring to the boil over a hig
 
 Once done, drain and return to the pot to steam dry and reboil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668539842183-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Cut the puff pastry into 2 squares per person and add them to a non-stick baking
 
 Divide the creamy fish mixture evenly between each piece of pastry, leaving a 1cm border around the edge
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1668539848538-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Put the tray in the oven for 15-20 min or until golden, cooked through and the e
 
 Meanwhile, top, tail, peel and chop your carrot[s] into batons
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668539853399-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once boiling, cook, covered for 2-3 min or until starting to soften
 
 Once starting to soften, remove the lid and cook for a final 3 min or until the liquid has fully evaporated and the carrots are starting to char – these are your glazed carrots
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1668539857768-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Sweet, sticky and inspired by the smoky flavours of the American South, this tas
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644924531636-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 240°C/ 220°C (fan)/ gas 9, then take your steaks out of th
 
 Slice your potatoes (skins on) into thick discs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644924604540-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Season with a generous pinch of salt and pepper and give everything a good mix u
 
 Put the tray in the oven for 20-25 min or until the potatoes are golden and crisp – these are your smoky potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644924613804-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the shallot discs to a medium bowl with your red wine vinegar and 1/2 tsp<sp
 
 Mix everything together and set aside until later – these are your quick-pickled shallots
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644924622068-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Pat your pork loin steaks dry with kitchen paper
 
 Rub them with a little vegetable oil and season both sides with salt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644924625918-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a h
 
 Meanwhile, combine the remaining ground smoked paprika with your tomato ketchup, your wholegrain mustard, honey, Henderson's Relish and 50ml <span class="text-purple">[60ml]</span> <span class="text-danger">[80ml]</span> cold water – this is your barbecue sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644924629848-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once browned, pour the barbecue sauce over the steaks, reduce the heat to low an
 
 Transfer the BBQ pork steaks to a clean board and leave to rest for 2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644924633586-x200.jpg)
 
 ### Step 7
 

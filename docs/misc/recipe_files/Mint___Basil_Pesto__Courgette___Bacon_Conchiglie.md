@@ -23,6 +23,7 @@ Freshen up your herby pesto pasta with summery mint, basil and spinach for some 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1658224745051-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much of the water out of the cooled spinach as you can, then chop it roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1658224748367-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Roughly chop the basil, including the stalks
 
 Peel and roughly chop the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1658224751591-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, a generous pinc
 
 Add the chicken stock mix, soft cheese and 1 tbsp <span class="text-danger">[2 tbsp] </span>cold water and blitz again – this is your mint & basil pesto
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1658224755412-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Top, tail and peel lengths off the courgette<span class="text-danger">[s]</span>
 
 Chop the remaining courgette core<span class="text-danger">[s]</span> into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1658224759002-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Cook for 8-10 min or until cooked with a slight bite
 
 Once the pasta is done, add the courgette ribbons to a sieve and drain the conchiglie over the courgette ribbons, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658224762956-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, add the bacon lardons and cook for 3-4 min or until golden and crisp
 
 Once golden, add the chopped courgette core to the pan and cook for 2 min further or until softened and caramelised
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1658224766576-x200.jpg)
 
 ### Step 7
 

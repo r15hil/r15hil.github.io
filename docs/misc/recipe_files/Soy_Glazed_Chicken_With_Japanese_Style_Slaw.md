@@ -29,6 +29,7 @@ Cook up a succulent bowlful of soy-glazed chicken breast to serve with sticky su
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586266001040-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1586266005024-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1596631782224-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once the chicken has browned, add 100ml <span class="text-purple">[150ml]</span>
 
 Cook for 12-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1596631798037-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Peel and finely chop (or grate) your garlic, then combine the chopped garlic (no
 
 Season with pepper – this is your Japanese-style dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1596631815103-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Slice your apple[s] finely, discard the core[s] then chop into matchsticks
 
 Add the grated carrot, apple matchsticks and halved mangetout to the Japanese-style dressing and give everything a good mix up – this is your Japanese-style slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/spicy-soy-sauce-1596631925364-x200.jpg)
 
 ### Step 6
 
 Combine your cornflour with your soy sauce and honey in a small bowl – this is your soy glaze
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1586266026556-x200.jpg)
 
 ### Step 7
 

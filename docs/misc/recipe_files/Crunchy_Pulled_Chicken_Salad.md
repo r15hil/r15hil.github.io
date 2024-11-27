@@ -23,6 +23,7 @@ A pulled chicken salad is no meagre meal. It brings together warm chicken and ho
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/392_step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add them to one end of the baking tray, drizzle with olive oil and season with s
 
 Add the almonds to the other end and set the tray aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/392_step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the chicken thigh fillets, season them in the pan with a big pinch
 
 Once&nbsp;browned, cover with a lid, reduce the heat to low and cook for a further 2 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/392_step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Meanwhile, place the ciabatta and almonds in the warmed oven for 10 min or until
 
 Once browned, set the tray aside to cool
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/392_step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Meanwhile, combine the mayonnaise with the wholegrain mustard, white wine vinega
 
 Shred or tear the little gem lettuce<span class="text-danger">[s]</span> into bite-sized pieces,&nbsp;add them to a large mixing bowl and set aside&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/392_step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Trim then slice the spring onion<span class="text-danger">[s]</span>&nbsp;finely
 
 Add the apple, celery and spring onion to the salad bowl&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/392_step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once the chicken thigh fillets are cooked through, transfer them to a clean chop
 
 Shred&nbsp;the rested chicken with&nbsp;two forks, tearing the meat up &ndash; this is known as 'pulling'
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/392_step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Inspired by the Malaysian sayur lemak, you’ll flavour pepper and aubergine wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1706544646445-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Peel and chop your shallots into wedges, then peel and chop your garlic roughly
 
 Crush your cardamom pod[s] open by squashing with the side of a knife and discard the outer green pod (reserve the seeds!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678121924408-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Tip: If you don't have a pestle & mortar, crush the coriander seeds by squashing
 
 Add the chopped ginger and garlic to a food processor with half the shallot wedges (you'll use the rest later), your curry spice mix and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> cold water and blitz until smooth – this is your Malaysian-style curry paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678121932831-x200.jpg)
 
 ### Step 3
 
@@ -59,11 +62,13 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678121941155-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix, chopped creamed coconut and tamarind paste in 250ml <span class="text-purple">[325ml]</span><span class="text-danger"> [450ml]</span> boiled water with a pinch of sugar – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678121948928-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678121976970-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, add the Malaysian-style curry paste, ground turmeric and 1 tbsp <span 
 
 Once fragrant, add the chopped pepper, chopped aubergine, remaining shallot wedges and a generous pinch of salt and cook for 3-4 min or until the veg is fully coated and starting to soften
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678121986216-x200.jpg)
 
 ### Step 7
 

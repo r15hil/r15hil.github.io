@@ -25,6 +25,7 @@ Let this hearty mushroom pie warm you up on those frostier nights. You’ll top 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1826Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Tear your chestnut mushrooms into rough, bite-sized pieces
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1826Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion, chopped garlic and torn mushrooms with a pinch of salt and cook for 6-8 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1826Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Line a baking tray (or two!) with non-stick baking paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1826Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add the pastry squares to the tray[s]<span class="text-danger"> </span>and score
 
 Crimp the borders with a fork and put the tray[s] in the oven for 15-20 min or until puffed up, golden and cooked through – these are your pie lids
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1826Step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Put the tray in the oven and cook for 15 min or until the sprouts are tender an
 
 Reboil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1826Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add the stock to the mushrooms and cook for 4-5 min or until thickened to a sing
 
 Once thickened, strip your thyme leaves from their stems (discard the stems) into the pan with the creamy mushrooms and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1826Step-7-x200.jpg)
 
 ### Step 7
 

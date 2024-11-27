@@ -24,6 +24,7 @@ This oven-baked tart is easy peasy. You’ll layer flaky puff pastry with herby 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1672755974078-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Slice your tomato[es] into rounds
 
 Peel and grate your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1672755977886-x200.jpg)
 
 ### Step 2
 
@@ -44,16 +46,19 @@ Add the chopped courgette and onion wedges to a baking tray with a drizzle of ol
 
 Give everything a good mix up and put the tray in the oven for 10-12 min or until slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1672755982027-x200.jpg)
 
 ### Step 3
 
 Whilst the veg is cooking, cut your potatoes (skins on) into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1672755987478-x200.jpg)
 
 ### Step 4
 
 Combine your tomato paste and grated garlic in a bowl with your vegetable stock mix, dried oregano, a pinch of sugar and 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-danger">[6 tbsp]</span> cold water – this is your tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1672755992087-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Give everything a good mix up and put the tray[s] in the oven for 20-25 min or u
 
 Meanwhile, line a separate baking tray (or two!) with non-stick baking paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1672755999103-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add the pastry rectangle[s] to the tray[s] and score a 1cm border around the edg
 
 Prick the inside of the border all over with a fork (this will stop you getting a soggy bottom!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1672756005705-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This moreish meat-free gnocchi will leave you with a hankering for seconds. Sati
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729165136717-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your flat white mushroom[s] into thick slices
 
 Peel and chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729165140403-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Give everything a good mix up until everything is well coated
 
 Put the tray[s] in the oven for 20-25 min or until the mushrooms are tender and crisp – these are your crispy mushrooms
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729165144093-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Chop your cherry tomatoes in half
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729165147123-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729165150782-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, add the chopped cherry tomatoes, ground smoked paprika and the remaini
 
 Cook for 2-3 min or until the tomatoes have softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729165154163-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the tomatoes have softened, add your creamy single soy and vegetable stock 
 
 Give everything a good mix up and cook for 4-5 min or until the sauce has thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729165158196-x200.jpg)
 
 ### Step 7
 

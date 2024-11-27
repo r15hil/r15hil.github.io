@@ -24,6 +24,7 @@ You'll serve crispy, tender British duck leg with truffled cauliflower cheese an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1707.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the duck legs to a baking tray and season all over with a pinch of salt.
 
 Put the tray in the oven for an initial 20-25 minutes, or until you reach step 3.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1707.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Once the potatoes are done, drain and leave them to steam dry for 5 minutes.
 
 Tip: <span class="text-highlight">For</span> extra crispy potatoes, shake them around in a colander to fluff up the edges a little before roasting!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1707.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,6 +72,7 @@ Add the drained potatoes with a generous pinch of salt and give everything a goo
 
 Return the tray to the oven for 50 minutes further, or until the duck is cooked through (no pink meat!) and the potatoes are golden and crispy.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1707.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,6 +87,7 @@ Add the cauliflower florets to a baking tray, drizzle with 1 tbsp <span class
 
 Put the tray in the oven and cook for 15-20 minutes or until tender and golden.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1707.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -100,6 +105,7 @@ Once boiling, reduce the heat to low and cook for 10-15 minutes or until the sau
 
 Once reduced, add a knob of butter and cook for 1-2 minutes further or until thick and glossy – this is your redcurrant jus.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1707.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -114,6 +120,7 @@ Heat a pot over a medium heat with a small knob of butter. Once melted, add 1 t
 
 Add the roasted cauliflower to an oven-proof dish and pour over the truffle cheese sauce. Put the dish in the oven for 15-20 minutes or until golden.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1707.-step-7-x200.jpg)
 
 ### Step 7
 

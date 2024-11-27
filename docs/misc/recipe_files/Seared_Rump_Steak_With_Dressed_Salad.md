@@ -21,6 +21,7 @@ Say hello to your dream salad. You'll serve juicy steak with cherry tomatoes, ro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1734.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Chop your waxy potatoes into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1734.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Put the tray[s] in the oven and cook for 25-30 min or until the potatoes are golden and crispy – these are your crispy potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1734.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ Meanwhile, peel most of your Italian hard cheese until you end up with a pile of
 
 Grate the remaining Italian hard cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1734.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -51,6 +55,7 @@ Slice your cherry tomatoes in half
 
 Pat the rump steak[s] dry with kitchen paper, drizzle them with vegetable oil and season both sides generously with salt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1734.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Tip: Don’t be tempted to move the steak around too much in the pan – this will stop them from browning
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1734.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Once cooked, transfer the seared rump steak to a plate and leave them to rest fo
 
 Meanwhile, add your balsamic vinegar and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil to a large bowl with a pinch of salt and mix well to combine – this is your balsamic vinaigrette
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1734.-step-7-x200.jpg)
 
 ### Step 7
 

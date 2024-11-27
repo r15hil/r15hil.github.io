@@ -29,6 +29,7 @@ Give it up for this gourmet goulash. You’ll slow cook beef in a rich tomato an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1667297047014-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Before you begin...
 
 This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so get your slow cooker and all your ingredients ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1666774344867-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Boil a kettle
 
 Turn on your slow cooker to high
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1666774350170-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced beef and cook for 2-3 min until slightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1666774357754-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Top, tail, peel and chop your carrot[s] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1666774365546-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once slightly browned, add your cornflour, onion wedges and ground smoked paprik
 
 Cook for 1-2 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1666774374133-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add the pepper strips and chopped carrot with 150ml <span class="text-purple">[1
 
 Season with a generous pinch of salt and pepper, then cover and cook on high for 4 hours – this is your beef goulash
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1666774379702-x200.jpg)
 
 ### Step 7
 

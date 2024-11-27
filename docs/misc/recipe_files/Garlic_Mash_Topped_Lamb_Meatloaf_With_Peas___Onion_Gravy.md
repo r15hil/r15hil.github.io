@@ -22,6 +22,7 @@ Shepherd's pie meets meatloaf in this tasty lamb dish. You'll bake a flavoursome
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663666304988-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely dice half your brown onion[s]
 
 Slice the remaining onion finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663666310986-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the lamb mixture to one side of a baking tray (use tin foil to avoid mess!) 
 
 Put the tray in the oven for an initial 20-25 min or until browned – this is your lamb meatloaf
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663666318257-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the chopped potatoes and peeled garlic to a pot with plenty of boiled water 
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender then drain and return to the pot to steam dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663666326302-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Reboil half a kettle
 
 Return the drained potatoes & garlic to a low heat with a splash of milk, a knob of butter and a pinch of pepper and mash until smooth – this is your garlic mash
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663666334288-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Top the lamb meatloaf with the garlic mash, spread it with the back of a spoon t
 
 Return the meatloaf to the oven for a final 15 min or until the potato is golden and crispy and the lamb is cooked through (no pink meat!) – this is your garlic mash topped lamb meatloaf
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663666338922-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the onion has caramelised, increase to the heat to medium and add 1/2 tbsp 
 
 Once dissolved, whisk in the onion beef stock with a generous pinch of pepper and cook for 7-8 min or until thickened to a gravy-like consistency – this is your onion gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663666344233-x200.jpg)
 
 ### Step 7
 

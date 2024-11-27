@@ -30,6 +30,7 @@ This Thai-style pesto is full of vibrant flavours, and boosted with heart-health
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676908893633-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Drain and rinse your chickpeas, add them to a baking tray with 1 tbsp <span clas
 
 Put the tray in the oven for 15-20 min or until golden and crispy – these are your roasted chickpeas
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676908896559-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676908901678-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Strip your mint leaves from their stems, then chop them finely and discard the s
 
 Chop your coriander finely, including the stems
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676908905673-x200.jpg)
 
 ### Step 4
 
@@ -70,11 +74,13 @@ Add your toasted sesame oil, rice vinegar and 1 tbsp <span class="text-purple">[
 
 Tip: Alternatively, use a food processor!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676908909103-x200.jpg)
 
 ### Step 5
 
 Combine your chilli flakes (can't handle the heat? Go easy!) with the juice of half your lime[s] and your soy sauce in a small bowl – this is your chilli & lime marinade
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676908912967-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the pan is hot, add your diced chicken breast and cook for an initial 4-5 m
 
 Add the chilli & lime marinade and cook for a further 2-3 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your chilli chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684770055529-x200.jpg)
 
 ### Step 7
 

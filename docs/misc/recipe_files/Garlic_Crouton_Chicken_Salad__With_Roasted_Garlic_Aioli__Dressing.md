@@ -23,6 +23,7 @@ Double up on garlicky goodness with this cheesy chicken salad. You’ll top crun
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686818625712-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Add half your garlic cloves (skins on) to a piece of tin foil with a drizzle of olive oil, a small splash of cold water and a pinch of salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686818629108-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the garlic parcel to a baking tray and put the tray in the oven for 15 min o
 
 Once soft, carefully remove the skins from the roasted garlic, mash with a fork and set aside – this is your mashed roasted garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686818632536-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick with a matching li
 
 Once hot, add the chicken breast portions with a generous pinch of salt and pepper and cook for 3 min on each side or until golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686818636129-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Once the chicken is golden, add a couple of splashes of cold water to the pan an
 
 Cook for a further 12-15 min or until the chicken is cooked through (no pink meat!) – this is your cooked chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686818640091-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Peel and chop (or grate) the remaining garlic
 
 Combine the chopped parsley, chopped garlic and half your grated Italian hard cheese (save the rest for garnish!) in a bowl with 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span> <span class="text-danger">[2 tbsp] </span>cold water<span class="text-danger"> </span>and a generous pinch of salt – this is your cheesy garlic oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686818644344-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Tear your ciabatta[s] into bite-sized pieces and add to a separate baking tray 
 
 Give everything a good mix up so the ciabatta is fully coated and put the tray in the oven for 6-7 min or until crisp – these are your garlic bread croutons
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686818651323-x200.jpg)
 
 ### Step 7
 

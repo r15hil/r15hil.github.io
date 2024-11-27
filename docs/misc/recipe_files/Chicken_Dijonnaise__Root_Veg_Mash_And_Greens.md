@@ -23,6 +23,7 @@ To reduce the carb count in this deliciously satisfying wintery combo, you'll se
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1870.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Top, tail, peel and roughly chop your parsnips and carrot[s], then add them to a
 
 Once boiling, cook for 10-15 min or until fork-tender, then once done, drain, return them to the pot and cover to keep warm
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1870.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Slice in half as if you were cutting a burger bun, so you are left with 2 thinne
 
 Season the sliced chicken with salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1870.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once hot, add the sliced chicken and cook for 3 min on each side, or until brow
 
 Once browned, transfer the browned chicken to a tray (or two!) put the tray[s] in the oven for an initial 10 min and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1870.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1870.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the chicken stock and cook for 2-3 min or until it's starting to thicken
 
 Once thickened, add your soft cheese, Dijon mustard and wholegrain mustard and cook for 1-2 min until a thick, smooth sauce remains – this is your Dijonnaise sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1870.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Rip the leaves off the spring greens, discard the tough stalks, then layer the l
 
 Add the shredded spring greens to the tray[s] with the chicken and return it to the oven for 4-5 min or until the greens are wilted and tender and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1870.-step-7-x200.jpg)
 
 ### Step 7
 

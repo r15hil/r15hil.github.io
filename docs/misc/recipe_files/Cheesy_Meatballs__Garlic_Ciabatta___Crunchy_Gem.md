@@ -26,6 +26,7 @@ For this delicious crowd pleaser, you'll prep then bake succulent mozzarella-top
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1614688935856-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop half your<span class="text-danger"> </span>brown onion[s]
 
 Grate the remaining onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1614688987393-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Combine your beef mince, grated onion, panko breadcrumbs and a pinch of salt a
 
 Divide the meatball mixture into 6 per person and shape them into meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1614689005980-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Tip: Cooking for 3 or more? You may need to do this in batches!
 
 Once the meatballs have browned, reduce the heat to medium-high and cook for 1 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1614689026205-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or unt
 
 Add half the chopped garlic (save the rest for later!) and cook for 1 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1614689048330-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Return the browned meatballs to the pan and cook, covered, for 10-11 min or unti
 
 Meanwhile, drain your mozzarella and tear it into rough pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1614689068988-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Top with the torn mozzarella and put the dish in the oven for 8-10 min or until 
 
 Meanwhile, combine the remaining balsamic vinegar with 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your balsamic dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1614689084452-x200.jpg)
 
 ### Step 7
 

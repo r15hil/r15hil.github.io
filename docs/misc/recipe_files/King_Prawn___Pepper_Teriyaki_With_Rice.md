@@ -29,6 +29,7 @@ Whip up Japanese flavours in a pinch with this umami-packed plate. Stir-fry juic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1657033383625-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657033386100-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pepper strips to the pan with a pinch of salt and cook for 8-10 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685976300347-x200.jpg)
 
 ### Step 3
 
@@ -54,21 +57,25 @@ Combine your cornflour, ginger paste, rice vinegar, chilli flakes (can't handle 
 
 Give it a good mix up – this is your teriyaki sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Sliced-finely-spring-onions-1687848784498-x200.jpg)
 
 ### Step 4
 
 Trim, then slice your spring onion[s] finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657033394757-x200.jpg)
 
 ### Step 5
 
 Once the pepper has softened, drain your king prawns, then add to the pan and cook for 2-3 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657033397217-x200.jpg)
 
 ### Step 6
 
 Add the teriyaki sauce to the pan and cook for 2-3 min further or until the sauce has thickened and the prawns are cooked through – this is your king prawn & pepper teriyaki
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1-1657033399928-x200.jpg)
 
 ### Step 7
 

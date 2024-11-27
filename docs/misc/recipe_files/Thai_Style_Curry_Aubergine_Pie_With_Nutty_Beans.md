@@ -29,6 +29,7 @@ This Thai-style curry-inspired pie is packed full of roasted aubergine and red l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1653319091212-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and finely dice your shallot[s], then peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1653319102516-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the chopped aubergine to an oven-proof dish with a drizzle of vegetable oil 
 
 Tip: Stir the aubergine halfway through for even cooking!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1653319111538-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the sliced potatoes to a baking tray (or two!) with a drizzle of vegetable o
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1653319122852-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add the chopped ginger, diced shallot and pepper and cook for 2-3 min 
 
 Add your red Thai curry paste and curry powder and cook for 1 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1653319131973-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Rinse your red lentils in a sieve under cold running water, then add them to the
 
 Bring to the boil over a high heat and cook for 10-12 min or until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1653319142454-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Return the dish to the oven for 10 min further or until everything's bubbling an
 
 Reboil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1653319204815-x200.jpg)
 
 ### Step 7
 

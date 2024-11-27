@@ -25,6 +25,7 @@ Combining crispy baharat spiced halloumi with 'batata harra' – a tasty Middle 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633341595300-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the halved potatoes to a pot of boiled water with a pinch of salt, bring to 
 
 Once cooked, drain and leave them to steam dry (save the pot!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633341598579-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, dese
 
 Cut the halloumi into thick slices
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633341602406-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the sliced halloumi to the spices and turn them several times until they're 
 
 Reboil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633341606518-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the drained potatoes, ground turmeric and coriander seeds and cook for 3-4 min or until beginning to crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633341609669-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender with a s
 
 Once done, drain and return to the pot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633341614181-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the potatoes are beginning to crisp, add the chopped garlic, chilli strips 
 
 Remove the pan from the heat, add the chopped parsley and dill, then set aside for serving (save the pan!) – this is your batata harra
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633341617632-x200.jpg)
 
 ### Step 7
 

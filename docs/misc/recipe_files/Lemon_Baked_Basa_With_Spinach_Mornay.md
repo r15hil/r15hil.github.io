@@ -20,6 +20,7 @@ To make this twist on a classic French supper, you'll bake lemony basa fillets i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/330_step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Cut your potatoes (skins on) into discs, approx. 1cm thick
 
 Add them to a baking tray (or two), making sure they don't overlap
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/330_step-2-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ Drizzle the potato discs with olive oil, then season with a large pinch of salt 
 
 Put the tray[s] in the oven for 20-25 min or until the potatoes are cooked through and crispy – these are your crispy potato discs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/330_step-3-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box gr
 
 Wash your spinach, then pat it dry with kitchen paper and chop roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/330_step-4-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Melt 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dang
 
 Once melted, add 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/330_step-5-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Gradually whisk in 200ml<span class="text-purple"> [300ml] </span><span class="t
 
 Remove from the heat until everything is almost ready to serve
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/330_step-6-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Put the tray[s] in the oven for 12-15 min or until the basa is cooked through �
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/330_step-7-x200.jpg)
 
 ### Step 7
 

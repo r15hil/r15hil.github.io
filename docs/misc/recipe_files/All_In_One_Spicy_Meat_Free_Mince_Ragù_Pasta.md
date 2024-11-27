@@ -28,6 +28,7 @@ This easy one-pot wonder combines meat-free mince, carrot and onion in a spicy t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1667895301737-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635242203119-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid,
 
 Peel and roughly chop your red onion[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635242206645-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Top, tail and chop your carrot[s] in half lengthways, then slice at an angle
 
 Crush your garlic cloves open by squashing them with the side of a knife and remove the skins
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635242209927-x200.jpg)
 
 ### Step 4
 
 Add your meat-free mince to the dish, breaking it up into rough, large chunks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635242213548-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add your balsamic vinegar with 1 tsp <span class="text-purple">[1 1/2 tsp]</span
 
 Grate your Italian hard cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1635242217050-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Cover with a lid and put the dish in the oven for 20 min or until everything's b
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635242220129-x200.jpg)
 
 ### Step 7
 

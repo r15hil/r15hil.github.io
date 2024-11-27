@@ -22,6 +22,7 @@ This hearty pesto pasta is super speedy. You’ll whip up an easy sauce, packed 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674562261687-x200.jpg)
 
 ### Step 1
 
@@ -33,16 +34,19 @@ Cook for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674562272141-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674562284742-x200.jpg)
 
 ### Step 3
 
 Dissolve your vegetable stock mix in 50ml <span class="text-purple">[75ml]</span><span class="text-danger"> [100ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674562295972-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Once hot, add the chopped garlic and 1/2 tsp <span class="text-purple">[3/4 tsp]
 
 Once fragrant, add your soft cheese and a good grind of pepper and cook for 2 min or until the soft cheese has started to melt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674562308300-x200.jpg)
 
 ### Step 5
 
@@ -59,11 +64,13 @@ Once starting to melt, add the vegetable stock and cook for 1-2 min or until com
 
 Once combined, add your traditional Italian pesto and cook for a further 1-2 min or until creamy and starting to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674562317153-x200.jpg)
 
 ### Step 6
 
 While the sauce is cooking, grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674562329908-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Sticky, sweet and the perfect level of crispy, this is a retro classic that neve
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1705323702906-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your white long grain rice to a pot with a lid with 225ml<span class="text-p
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1705323706229-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cut a piece of tin foil (or two!) approx. the size of A3 paper, then lay the hal
 
 Scrunch the edges of the foil around the Tenderstem to form a sealed parcel[s], then put the tray in the oven for 15 min or until tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1705323710886-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add your honey, a sprinkle of your cornflour, half of your soy sauce (save the r
 
 Give everything a good mix up – this is your lemon sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1705323714885-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the remaining cornflour to a bowl along with 1 tsp [<span class="text-purpl
 
 Add the chicken strips to the bowl and give everything a good mix up until all the chicken is coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1705323718118-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the pan is very hot, add the coated chicken strips along with the remaining
 
 Once crispy, transfer to a plate and set aside (save the pan!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1705323721262-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Stir the sliced spring onion and chopped chilli (can't handle the heat? Go easy!) into the cooked rice – this is your chilli rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1705323724343-x200.jpg)
 
 ### Step 7
 

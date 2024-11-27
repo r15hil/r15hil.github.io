@@ -30,6 +30,7 @@ Got the hots for sweet chilli? You’re going to love, chicken smothered in stic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1608572535624-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Top, tail, peel and dice your carrot[s] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1608572539583-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, add the diced carrot and reduce the heat to very low, then cook, c
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1608572547809-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your chicken thighs and give everything a good mix up until fully coated
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1608572559097-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the coated chicken and cook for 3 min on each side or until lightl
 
 While the chicken is browning, combine your honey, chilli relish and 30ml <span class="text-purple">[45ml]</span> <span class="text-danger">[60ml] </span>cold water in a small bowl – this is your sweet chilli sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1608572568436-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add the sweet chilli sauce to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1608572579356-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add your blanched peas to a colander and pour boiled water all over them to refr
 
 Once the rice is cooked, add the refreshed peas, black sesame seeds and remaining soy sauce and mix everything together – this is your veg-packed rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1-1608572591662-x200.jpg)
 
 ### Step 7
 

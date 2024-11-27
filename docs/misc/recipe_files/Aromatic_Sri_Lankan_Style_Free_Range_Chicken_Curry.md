@@ -30,6 +30,7 @@ Take your tastebuds to the streets of Colombo with a punchy coconut-spiked free 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1719390968135-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once the rice is cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1719390971962-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your free range chicken thighs and cook for 3 min on each side or until golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1719390976990-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and chop your garlic very roughly
 
 Roughly separate your coriander leaves from their stalks and set them aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1719390980777-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Blitz until smooth or very finely chopped – this is your Sri Lankan-style curr
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1719390984299-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the Sri Lankan-style curry paste to the browned chicken and reduce the heat
 
 Boil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1719390988290-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your red wine vinegar, soy sauce and 1 tsp<span class="text-purple"> [1 1/2
 
 Add the coconut stock and cherry tomatoes to the pan and cook, covered, for 10-15 min or until a thick sauce remains and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1719390992742-x200.jpg)
 
 ### Step 7
 

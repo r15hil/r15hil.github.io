@@ -30,6 +30,7 @@ This is how to experience hotpot from home. You'll roast chicken breast and vege
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1699369288938-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop your brown onion[s] into wedges, then top, tail and slice y
 
 Peel (scrape the skin off with a teaspoon) and grate your ginger, wash then slice your pak choi in half, lengthways and pat dry with kitchen paper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1699369295189-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add the onion wedges, carrot discs and halved mushrooms to the dish and cook for 3-4 min or until the vegetables begin to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1699369304653-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Cover tightly with tin foil and put the dish in the oven for 25 min or until all
 
 Reboil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1699369310203-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the vegetables have softened, add your diced chicken breast to the dish wit
 
 Dissolve your beef stock mix, soy sauce and sriracha (can't handle the heat? Go easy!) in 400ml <span class="text-purple">[600ml]</span> <span class="text-danger">[800ml] </span>boiled water – this is your stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1699369320320-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once fragrant, pour in the stock and bring to the boil over a high heat
 
 Once boiling, cover with a lid and place in the oven for 15-20 min or until the vegetables are tender and the chicken is cooked through (no pink meat!) – this is your Chinese-style chicken breast hotpot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1699369327590-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, carefully pour the heated oil into the bowl, give it a good mix up and
 
 Tip: Be careful – the ginger will sizzle from the heat of the oil!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1699369332797-x200.jpg)
 
 ### Step 7
 

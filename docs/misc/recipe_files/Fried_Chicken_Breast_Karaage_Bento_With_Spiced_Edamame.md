@@ -31,6 +31,7 @@ Delicious and picture-perfect, bento boxes are a joyful Japanese treat. To make 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-6-1691490963560-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut your cucumber into quarters lengthways, then slice finely and add to a bowl
 
 Add the remaining rice vinegar to the sliced cucumber with a pinch of salt and sugar and set aside to pickle – this is your quick-pickled cucumber
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1691490966988-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-6-1691490971163-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get perfectly fluffy rice!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-5-1691490974796-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add your diced chicken breast to a bowl with the chopped garlic and ginger, your
 
 Add your cornflour and give everything a good mix up until the chicken is fully coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1691490979148-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Heat a large, wide-based pan (preferably non-stick) with 3 tbsp <span class="te
 
 Once hot, add the coated chicken breast pieces and cook for 10-12 min on each side or until golden, crispy and cooked through (no pink meat!) – this is your fried chicken karaage
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-4-1691490982348-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the salad to the quick-pickled cucumber and give everything a good mix up �
 
 Rinse your blanched edamame beans under cold running water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-9-1691490985626-x200.jpg)
 
 ### Step 7
 

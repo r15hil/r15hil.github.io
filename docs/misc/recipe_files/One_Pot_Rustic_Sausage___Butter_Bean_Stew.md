@@ -22,6 +22,7 @@ Add some rustic charm to dinner time with this hearty stew. You’ll simmer saus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1689688447821-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1689688459329-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your sausages to the dish and cook for 3-4 min or until lightly browned all over
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1689688498248-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Meanwhile, chop your leek[s] into large chunks, then wash thoroughly to remove a
 
 Chop your potato[es] (skins on) into small bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689688503256-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Crush your garlic open by squashing them with the side of the knife then remove 
 
 Drain and rinse your butter beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689688527339-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Add the chopped potato to the dish with the chopped leek and chopped garlic
 
 Add the drained butter beans with your chicken stock mix, chopped tomatoes, dried thyme, 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml] </span>boiled water and a pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689688531638-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Cover with a lid and put the dish in the oven for an initial 30 min or until the
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689688535744-x200.jpg)
 
 ### Step 7
 

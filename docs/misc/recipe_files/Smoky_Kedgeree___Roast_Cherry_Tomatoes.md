@@ -21,6 +21,7 @@ Back in Victorian Britain, returning colonials from India brought spices and ric
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/281.-step1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Back in Victorian Britain, returning colonials from India brought spices and ric
 
 <span class="text-highlight">Put&nbsp;them in the oven for 20 min</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/281.-step2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Back in Victorian Britain, returning colonials from India brought spices and ric
 
 <span class="text-highlight">Once cooked, place&nbsp;the smoked basa fillets over the rice and cook, covered, for a further 3 min or until the fish is cooked through</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/281.-step3-x200.jpg)
 
 ### Step 3
 
@@ -63,11 +66,13 @@ Back in Victorian Britain, returning colonials from India brought spices and ric
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/281.-step4-x200.jpg)
 
 ### Step 4
 
 <span class="text-highlight">Meanwhile, peel and chop the onion<span class="text-danger">[s]</span>&nbsp;finely</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/281.-step5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Back in Victorian Britain, returning colonials from India brought spices and ric
 
 <span class="text-highlight">Cook for 5-7 min or until softened, then add and stir the curry powder&nbsp;through</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/281.-step7-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Back in Victorian Britain, returning colonials from India brought spices and ric
 
 <span class="text-highlight">Meanwhile, chop the parsley finely, including the stalks</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/281.-step6-x200.jpg)
 
 ### Step 7
 

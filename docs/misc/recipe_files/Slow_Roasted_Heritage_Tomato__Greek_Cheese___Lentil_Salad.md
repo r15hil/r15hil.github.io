@@ -26,11 +26,13 @@ Bring out the best of heritage tomatoes by slow-roasting them with crumbled Gree
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1728.-step-1-x200.jpg)
 
 ### Step 1
 
 Preheat the oven to 160°C/ 140°C (fan)/ gas 3
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1728.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the halved tomatoes to a baking tray with a generous drizzle of olive oil an
 
 Put the tray in the oven for 20-25 min or until softened – these are your slow-roasted tomatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1728.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Meanwhile, crumble your Greek cheese onto one side of a separate baking tray and
 
 Put the tray in the oven for an initial 15 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1728.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ While the Greek cheese and pine nuts & seeds are baking, peel and finely chop (o
 
 In a large bowl, combine the chopped garlic (don't like raw garlic? Go easy!) with your Dijon mustard, balsamic vinegar, 3 tbsp<span class="text-danger"> <span class="text-purple">[4 1/2 tbsp]</span> [6 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp]</span> cold water and a pinch of salt and pepper – this is your balsamic vinaigrette
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1728.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Chop your basil finely, including the stalks
 
 Slice your ciabatta roll[s] into 3<span class="text-danger"> </span>slices per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1728.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Drizzle the ciabatta slices with olive oil and season them with a pinch of salt
 
 Put the tray in the oven for a further 5 min or until lightly crisped
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1728.-step-7-x200.jpg)
 
 ### Step 7
 

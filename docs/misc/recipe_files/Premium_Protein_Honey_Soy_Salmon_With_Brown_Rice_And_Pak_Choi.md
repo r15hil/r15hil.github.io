@@ -24,6 +24,7 @@ A simple blend of soy, ginger and sticky honey is all it takes to coat your salm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-8-1725282973643-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-9-1725282975104-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add your salmon fillet[s], skin-side down, and cook for 8-9 min, turni
 
 Tip: Your fish is cooked through when it’s opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-10-1725282982784-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Wash your pak choi, then pat it dry with kitchen paper
 
 Cut the base[s] off the pak choi and discard, then chop the rest roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-10-1725282983960-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min o
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-10-1725282992427-x200.jpg)
 
 ### Step 5
 
 Once the pan is hot, add the chopped pak choi and cook for 2-3 min or until wilted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-9-1725282994978-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Combine your ginger paste, soy sauce, honey and the juice of half your lime[s] 
 
 Once the salmon is cooked, add the honey soy sauce to the pan with the salmon and cook for 2 min or until slightly thickened – this is your honey soy salmon
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-8-1725282999949-x200.jpg)
 
 ### Step 7
 

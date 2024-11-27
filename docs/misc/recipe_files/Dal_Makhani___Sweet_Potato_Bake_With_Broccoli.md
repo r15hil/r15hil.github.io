@@ -32,6 +32,7 @@ This veg-packed bake is a plant-based dream. You’ll simmer green lentils in a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1689937501320-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Slice your sweet potato[es] (skins on) into discs and add them to a baking paper
 
 Put the tray[s] in the oven for an initial 15 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689937506472-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689937511117-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the diced onion with a pinch of salt and cook for 3-4 min or until
 
 Once softened, add the chopped ginger & garlic to the pan with your garam masala, ground smoked paprika, chilli flakes (can't handle the heat? Go easy!), ground turmeric and half your cumin seeds (save the rest for later!) and cook for 2-3 min further or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1689937529312-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once fragrant, add the drained lentils, tomato paste and creamy stock to the pan
 
 Bring to the boil then remove from the heat – this is your dal makhani
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689937655991-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Transfer the dal makhani to an oven-proof dish, reserving the pan
 
 Top with the softened sweet potato and a grind of black pepper, then put the dish in the oven for 15-20 min or until everything is bubbling and the potatoes are golden and cooked through – this is your dal makhani & sweet potato bake
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1689937659607-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add your Tenderstem broccoli to the middle of the foil with a pinch of salt and 
 
 Scrunch the edges of the foil to form a sealed parcel (or two!) and put the tray in the oven for 10-12 min or until the Tenderstem broccoli is tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689937664931-x200.jpg)
 
 ### Step 7
 

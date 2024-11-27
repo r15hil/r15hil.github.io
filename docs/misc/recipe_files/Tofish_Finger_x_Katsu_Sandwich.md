@@ -30,6 +30,7 @@ Katsu, is that you? Your favourite Japanese dish is getting sarnie’d in this e
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660752273565-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660752276875-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ While the chips are cooking, heat a pot with a lid with 1/2 tbsp<span class="tex
 
 Once hot, add half your curry powder (you'll use the rest later!) and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>flour and cook for 30 secs or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660752281417-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once fragrant, add your soy sauce, half your ginger paste (save the rest for lat
 
 Cook for 3-4 min or until the sauce has reduced to a thick curry-like consistency, then cover with a lid and set aside for later – this is your katsu sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660752285500-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Peel and finely dice your shallot[s]
 
 Combine the diced shallot with the mayo in a small bowl along with a squeeze of lime juice and give everything a good mix up – this is your lime tartare sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660752290560-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the tofu strips and remaining ginger paste to a bowl with 1 tbsp <span class
 
 Add the remaining cornflour to a large bowl with your panko breadcrumbs and the remaining curry powder – these are your curried breadcrumbs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660752294610-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Heat a large, wide-based pan (preferably non-stick) with 3 tbsp<span class="text
 
 Once hot, add the coated tofu and cook for 5-6 min on each side or until browned – these are your katsu tofish fingers
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660752298560-x200.jpg)
 
 ### Step 7
 

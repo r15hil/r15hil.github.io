@@ -26,6 +26,7 @@ For a fragrant twist on a classic Kiev, you'll stuff chicken breasts with a spic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1731065379036-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add 3 tbsp<span class="text-purple"> [4 1/2 tbsp]</span> <span class="text-dange
 
 Tip: If your butter is not soft then microwave for a few secs or until soft to the touch but not melted!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1731065395942-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely chop (or grate) your garlic
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731065401793-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Use a sharp knife to cut a deep pocket along the top of the chicken breast porti
 
 Fill the pockets with as much of the spiced butter as you can, reserving any leftover for the potatoes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731065414223-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Crack your egg[s] into a shallow bowl and beat with a fork
 
 Add your panko breadcrumbs to another plate with the remaining ras el hanout and mix together
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1731065422388-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Transfer the breaded chicken, butter-side up, to a baking paper-lined tray (or t
 
 Put the tray[s] in oven for 22-25 min or until golden and cooked through (no pink meat!) – this is your harissa & garlic butter stuffed chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1731065427626-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cook for 12-15 min or until fork-tender and once done, drain and return them to 
 
 Add the remaining spiced butter to the cooked potatoes with a pinch of salt and mash until smooth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1731065433163-x200.jpg)
 
 ### Step 7
 

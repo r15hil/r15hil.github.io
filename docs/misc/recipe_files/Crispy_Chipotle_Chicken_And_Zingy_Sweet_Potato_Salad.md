@@ -26,6 +26,7 @@ This twist on chicken and chips comes from the calles of Mexico. You’ll pan-fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681478551655-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop your sweet potato[es] (skins on) into bite-sized pieces and add them to a b
 
 Put the tray[s] in the oven for 25 min or until the sweet potato is cooked through and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681478565515-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ While the sweet potato is cooking, add your chicken breast portion[s] to a chopp
 
 Bash the chicken with a rolling pin until evenly flattened – this is your chicken escalope[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681478569478-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add your panko breadcrumbs to a plate and season with a pinch of salt – these 
 
 Add the coated chicken to the seasoned breadcrumbs and press firmly to coat evenly all over – this is your breaded chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681478573138-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the breaded chicken with a pinch of salt and cook for 5-6 min on each side (cooking for 5? Do this in batches!) or until golden and cooked through (no pink meat!) – this is your crispy chipotle chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681478577563-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Chop half your lime[s] into wedges and set them aside for garnish
 
 Trim, then slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681478582885-x200.jpg)
 
 ### Step 6
 
 Combine your mayo with the chopped garlic (don't like raw garlic? Go easy!), a squeeze of lime juice, a pinch of salt and a drizzle of olive oil – this is your lime mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681478588371-x200.jpg)
 
 ### Step 7
 

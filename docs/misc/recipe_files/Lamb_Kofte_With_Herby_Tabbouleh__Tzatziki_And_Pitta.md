@@ -29,6 +29,7 @@ This tantalising, crowd-pleasing platter brings together a mix of classic Middle
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1576.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1576.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add a generous pinch of both salt and pepper and give everything a good mix up (
 
 Divide the lamb mince and shape into 3 koftes per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1576.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the koftes to a baking tray
 
 Put the tray in the oven and cook for 15 min or until cooked through and golden (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1576.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,11 +77,13 @@ Chop your parsley finely, including the stalks
 
 Cut your lemon[s] in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1576.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine your natural yoghurt, half of the chopped mint (you'll use the rest later!) and grated cucumber in a small bowl with a pinch of salt and pepper – this is your tzatziki
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1576.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the diced cucumber, tomato, sliced spring onion, chopped parsley and the rem
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and squeeze in the juice of half your<span class="text-danger"> </span>lemon[s], season with a generous pinch of salt and give everything a good mix up – this is your tabbouleh
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1576.-step-7-x200.jpg)
 
 ### Step 7
 

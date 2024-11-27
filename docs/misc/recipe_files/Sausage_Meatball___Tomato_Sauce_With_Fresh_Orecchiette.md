@@ -24,6 +24,7 @@ Serve up meatballs in minuti like a true Neapolitan nonna. Hand roll your juicy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683889903483-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683889907192-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Roll your sausage meat (remove the paper if required!) into 6<span class="text-danger"> </span>meatballs per person (clean hands are the best way!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683889911588-x200.jpg)
 
 ### Step 3
 
 Once hot, add the meatballs to the pan with a pinch of salt and cook, turning occasionally, for 4-5 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683889915709-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
 Reboil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683889920741-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Chop your parsley finely, including the stalks
 
 Dissolve your chicken stock mix and tomato paste in 250ml<span class="text-purple"> [325ml]</span> <span class="text-danger">[450ml]</span> boiled water – this is your tomato stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683889929921-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the meatballs are starting to brown, add the sliced garlic, dried oregano a
 
 Once fragrant, add the tomato stock to the pan and cook for 2-3 min or until the sauce has thickened slightly and the meatballs are cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683889934487-x200.jpg)
 
 ### Step 7
 

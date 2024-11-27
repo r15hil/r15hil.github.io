@@ -20,6 +20,7 @@ This creamy chicken dish is so quick to make, you'll be able to get it on the ta
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1--1638875627392-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638875489718-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a separate, large, wide-based pan (preferably nonstick) with a generous dri
 
 Chop the cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638875494164-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ When the pan with the vegetable oil is hot, add the diced chicken thigh with the
 
 Once the other pan is hot, add the gnocchi and season with a pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1638875497955-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Tip: Give the gnocchi a shake in the pan once in a while to make sure they are c
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1638875502195-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Return the pan to the heat, then cook for 2-3 min or until the spinach has wilte
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638875506276-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the chicken is cooked, add the chicken stock mix and garlic & herb spread t
 
 Give everything a good mix up – this is your creamy tomato & chicken sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638875510071-x200.jpg)
 
 ### Step 7
 

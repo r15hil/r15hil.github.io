@@ -21,6 +21,7 @@ To make comforting chicken pie a little lighter, we've packed it with veg and sw
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-3-1723723307495-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-4-1723723312307-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add your chicken breast portion[s] to a tin foil-lined baking tray with a drizzl
 
 Put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-5-1723723316508-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Put it in the microwave and cook for 30-40 secs or until thickened and give ever
 
 Drain your sweetcorn
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-4-1723723321663-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once hot, add the sliced onion with a pinch of salt and sugar, then reduce the h
 
 Once caramelised, add your garlic and cook for a further 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-5-1723723328230-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add your pulled chicken and any remaining juices to the pan with the drained swe
 
 Give everything a good mix up and remove from the heat – this is your pie filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-4-1723723332365-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Top the pie filling with the mashed potato
 
 Put the dish in the oven for 15-20 min or until everything is bubbling and the mash is golden – this is your chicken & sweetcorn pie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-3-1723723337289-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ We've taken a firm family favourite and given it a lighter, veg-packed twist. Yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1656259918370-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Combine your beef mince with half of the grated garlic (you’ll use the rest la
 
 Give everything a good mix up until thoroughly combined (clean hands are the best way!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656259926387-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add the meatballs to the pan and cook for 2 min on each side or until 
 
 Once browned, transfer to a plate and reserve the pan and any remaining oil for later (these will finish cooking in the oven later)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1656259930874-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the diced onion and remaining grated garlic and cook for 6-7 min o
 
 Tip: Add an extra drizzle of oil if the pan's looking a little dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1656259935160-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Without cutting through the stalk[s], carefully slice the trimmed courgette[s] i
 
 Then, peel lengths of the sliced courgette[s]<span class="text-danger"> </span>until you have a pile of 'courgetti'
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1656259940863-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Meanwhile, chop your basil roughly, including the stalks
 
 Once the sauce has slightly thickened, add half of the chopped basil (save the rest for garnish!) with a pinch of salt and a very generous crack of black pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1656259945446-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Add the tomato & basil sauce to an oven-proof dish with 200ml<span class="text-p
 
 Place the browned meatballs on top and put the dish in the oven for an initial 20 min or until cooked through (no pink meat!) – this is your courgetti & beef meatball bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1656259950388-x200.jpg)
 
 ### Step 7
 

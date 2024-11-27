@@ -28,6 +28,7 @@ Time to spice up your bacon sarnie. You’ll layer toasted brioche buns with che
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679397842339-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and sea
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679397846460-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add your smoked streaky bacon to one side on a separate baking paper-lined tray 
 
 Put the tray[s] in the oven for 12-15 min or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679397850750-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Slice your brioche bun[s] in half
 
 Combine your curry powder and tomato ketchup in a bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water – this is your curried ketchup
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679397855215-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add your ginger & garlic paste, garam masala, chilli flakes (can't han
 
 Once fragrant, add 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp]</span> cold water and a pinch of sugar, stir it all together and cook for a further 1-2 min – this is your masala sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679397862230-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ After 15 min, remove the tray[s] with the crispy bacon from the oven and top wit
 
 Add the brioche halves to the other side of the baking tray[s], cut side up, and return the tray[s] to the oven for 4-5 min or until the brioche is toasted and the cheese has melted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679397866281-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Tip: Give your egg[s] a little shake before you crack for a perfectly centred yolk[s]!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679398327496-x200.jpg)
 
 ### Step 7
 

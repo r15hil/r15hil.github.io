@@ -26,6 +26,7 @@ Whether you're six or sixty, crispy nuggets are always a treat. You’ll coat ou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2010.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Boil half a kettle
 
 Cut your potatoes (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2010.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of s
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2010.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ While the potato wedges are cooking, cut your tofu into 6 nuggets per person
 
 Press each tofu nugget dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2010.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Combine your mayo with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <s
 
 Combine your panko breadcrumbs with 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp]</span> [2 tbsp]</span> vegetable oil and a pinch of salt and pepper in a separate bowl – this is your breadcrumb mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2010.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Press them into the breadcrumb mixture firmly to evenly coat all over
 
 Add the breaded tofu nuggets to a separate baking tray and put the tray in the oven for 20-25 min or until golden and crispy – these are your crispy tofu nuggets
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2010.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ While the crispy tofu nuggets are cooking, drain and rinse your cannellini beans
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml]</span> boiled water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2010.-step-7-x200.jpg)
 
 ### Step 7
 

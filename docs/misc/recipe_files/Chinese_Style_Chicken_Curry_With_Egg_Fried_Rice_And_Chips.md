@@ -27,6 +27,7 @@ Nothing says 'perfect night in' like a Chinese-style chicken curry with green be
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612879964610-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 18-20 min or un
 
 Once done, transfer the rice to a plate and spread it out flat to help it cool down, reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612879971094-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut the potatoes (skins on) into chips
 
 Add the chips to a baking tray with half <span class="text-danger">[all]</span> the five-spice mix, a drizzle of vegetable oil, 1/2 tsp <span class="text-danger">[1 tsp]</span> sugar and a generous pinch of salt and pepper, then put the tray in the oven for 20-25 min or until golden and crisp – these are your salt & pepper chips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612879998183-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612880010490-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add the chopped chicken and onion petals and cook for 3-4 min or until
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612880022675-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once the chicken has browned, add 30g <span class="text-danger">[60g]</span> but
 
 Once the butter has melted, add the chopped green beans, grated carrot, curry powder and chopped ginger and garlic to the pan and cook for 3-4 min further until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612880029231-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Meanwhile, dissolve the cornflour in 100ml <span class="text-danger">[200ml]</sp
 
 Add the cornflour mixture to the pan and cook for 2-3 min further until the sauce has thickened and the veg is tender – this is your Chinese-style chicken curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612880058530-x200.jpg)
 
 ### Step 7
 

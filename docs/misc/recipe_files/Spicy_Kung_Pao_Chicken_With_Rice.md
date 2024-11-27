@@ -31,6 +31,7 @@ Kung Pao chicken originates from the Sichuan province of China, famed for its ho
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637748473071-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop your ginger
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637748478926-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and roughly slice your brown onion[s]
 
 Deseed your peppers (scrape the seeds and pith out with a teaspoon) and cut into large, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637748481853-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637748486617-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ While the rice is cooking, heat a large, wide-based pan or wok (preferably non-s
 
 Once hot, add the diced chicken thigh to the pan and cook for 3-4 min or until browned all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637748492376-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Once the chicken has browned, add the sliced garlic and chopped ginger and cook 
 
 Once slightly softened, add the sliced onion and chopped peppers and cook for 3-4 min further or until beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637748495311-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your cornflour, toasted sesame oil, soy sauce and red chilli relish in a bowl with 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> cold water and give everything a good mix up – this is your Kung Pao sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637748499983-x200.jpg)
 
 ### Step 7
 

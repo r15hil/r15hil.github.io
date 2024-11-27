@@ -24,6 +24,7 @@ This is peri peri chicken, with an Italian twist. After roasting chicken thighs 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1721210169674-x200.jpg)
 
 ### Step 1
 
@@ -31,11 +32,13 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Combine half your peri peri spice mix (can’t handle the heat? Go easy!) in a bowl with 2 tbsp<span class="text-purple"> [3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>olive oil and a pinch of salt and mix to combine – this is your peri peri marinade
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1721210181554-x200.jpg)
 
 ### Step 2
 
 Add your chicken thighs to the bowl and mix well until they're fully coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1721210185190-x200.jpg)
 
 ### Step 3
 
@@ -43,6 +46,7 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1721210188900-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Put the tray in the oven for 17-18 min or until the chicken is cooked through (n
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1721210199122-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
 Dissolve your chicken stock mix in 175ml <span class="text-purple">[225ml]</span><span class="text-danger"> [300ml] </span>boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1721210204955-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once hot, add the chopped garlic and remaining peri peri spice mix (not a fan of
 
 Once fragrant, add the chicken stock and soft cheese, bring to the boil and cook for 4-5 min or until the sauce has thickened – this is your peri peri sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1721210208161-x200.jpg)
 
 ### Step 7
 

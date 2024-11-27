@@ -27,6 +27,7 @@ Add some French finesse to a comfort food classic. You’ll infuse mac ‘n’ c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681287793468-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely slice your brown onion[s]
 
 Peel and finely slice (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681287797971-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the sliced onion, sliced garlic and 100ml <span class="text-purple
 
 Add your thyme (chuck it in, stalks and all!) and cook, covered, for 8-10 min or until the onion has completely softened, stirring frequently
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681287803003-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Cook the macaroni for 6-7 min or until cooked with a bite
 
 Once done, drain the macaroni reserving 150ml<span class="text-danger"> <span class="text-purple">[175ml]</span> [200ml]</span> starchy pasta water and set aside until later, reserve the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681287807411-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Tip: Watch them like a hawk and stir frequently to make sure they don't burn!
 
 Once caramelised, discard the thyme stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681287811152-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Return the reserved pot to a medium heat with 1 tbsp <span class="text-purple">[
 
 Gradually whisk 100ml<span class="text-purple"> [150ml]</span> <span class="text-danger">[175ml]</span> milk and the starchy pasta water into the roux, and cook for 4-5 min or until a smooth, thick sauce remains, then stir through half the grated cheese (save the rest for later!) with your clotted cream – this is your cheese sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681287815593-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Transfer the mac 'n' cheese mixture to an oven-proof dish and sprinkle over the 
 
 Put the dish in the oven for 10-12 min or until golden and bubbling – this is your French onion-style mac 'n' cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729525999074-x200.jpg)
 
 ### Step 7
 

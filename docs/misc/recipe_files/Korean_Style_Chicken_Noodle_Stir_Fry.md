@@ -24,6 +24,7 @@ Our speedy chicken stir-fry has a secret, punchy weapon. Spicy gochujang. With a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-9-1726590860280-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-9-1726590865567-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast to the pan with a generous pinch of salt and cook for 6 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-9-1726590869973-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain, reserving a cup of the starchy noodle water and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-9-1726590875547-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Slice your white cup mushrooms finely
 
 Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up & slice into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-9-1726590879858-x200.jpg)
 
 ### Step 5
 
 Add the grated carrot, sliced mushroom and sliced spring greens to the pan and cook for 4 min or until the chicken is cooked through (no pink meat!) and the veg has softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-9-1726590885083-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Peel and grate your garlic
 
 Combine your gochujang paste (can't handle the heat? Go easy!), grated garlic, soy sauce and a splash of cold water in a small bowl – this is your gochujang stir-fry sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1726828405454-x200.jpg)
 
 ### Step 7
 

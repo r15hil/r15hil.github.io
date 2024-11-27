@@ -26,6 +26,7 @@ Get a load of these fries! You'll top them with sticky caramelised mushrooms smo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1608570131123-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop the remaining onion into 2 <span class="text-danger">[4] </span>wedges
 
 Separate the red onion wedges into petals
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1608570134564-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the torn mushrooms and red onion petals to a large bowl with the smoked papr
 
 Add a generous pinch of pepper and a drizzle of olive oil, gently mix it all together set aside to marinate – this is your marinated veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1608570150422-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1608570161836-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the marinated veg to a large baking tray (use tin foil to avoid mess!)
 
 Put the tray in the oven for 20-25 min or until the mushrooms have started to crisp – this is your shredded mushroom doner
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1608570167047-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Peel and finely chop (or grate) the garlic
 
 Combine the chopped garlic (not a fan of raw garlic? Just add a little!), sriracha, mayo and 1 tsp <span class="text-danger">[2 tsp]</span> cold water in a small bowl – this is your chilli garlic mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1608570177984-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Wash the little gem lettuce, then pat it dry with kitchen paper
 
 Shred the lettuce finely and add it to a bowl with the sliced red onion, a pinch of salt and pepper and a drizzle of olive oil – this is your lettuce salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1608570184383-x200.jpg)
 
 ### Step 7
 

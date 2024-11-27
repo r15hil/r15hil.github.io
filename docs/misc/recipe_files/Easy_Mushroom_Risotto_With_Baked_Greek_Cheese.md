@@ -24,6 +24,7 @@ For some midweek magic, flavour your risotto with a classic chestnut mushroom-ga
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1634721171746-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your chestnut mushrooms roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634721179665-x200.jpg)
 
 ### Step 2
 
@@ -42,16 +44,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion, garlic and mushrooms with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634721187418-x200.jpg)
 
 ### Step 3
 
 Whilst the veg is softening, dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634721214492-x200.jpg)
 
 ### Step 4
 
 Once softened, add your arborio rice and Chinese rice wine to the pan and cook for 1 min or until the wine has evaporated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634721221773-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Add your vegetable stock to the pan and cook for 25-30 min, stirring frequently,
 
 Tip: Add in the liquid all at once for ease, but don't forget to stir to release the starches in the rice!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634721229255-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Add your Greek cheese to a tin foil-lined baking tray
 
 Drizzle with olive oil and season with a grind of black pepper and put in the oven for 10-15 min or until golden and softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634721240496-x200.jpg)
 
 ### Step 7
 

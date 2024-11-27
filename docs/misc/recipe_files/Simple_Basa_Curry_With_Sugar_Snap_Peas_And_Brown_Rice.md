@@ -29,6 +29,7 @@ For a curry that'll really float your boat, you'll whizz up your own curry paste
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2232.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2232.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Separate your coriander leaves from the stalks, then chop them both finely
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2232.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the chopped ginger, garlic, tomato[es], chilli (can't handle the heat? Go e
 
 Add a pinch of salt and blitz until smooth – this is your curry paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2232.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-7 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2232.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once the onion has softened, add your garam masala and ground cumin and cook for
 
 Add the curry paste and cook for 2-3 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2232.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Meanwhile, chop your basa fillet[s] into large bite-sized pieces
 
 Cut your lime[s] in half, then cut half of the lime halves into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2232.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Speedy stir-fries don't get much better than this. You'll pack your dish with a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721750259017-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1721750276851-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and chop your red onion[s] into wedges, then separate the layers into petal
 
 Cut your orange[s] in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721750291552-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Combine your cornflour with half your five-spice mix (you'll us the rest later!)
 
 Drain, then add your king prawns to the bowl and mix together until coated in the sesame batter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721750336487-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Add the battered prawns and cook for 2-3 min on each side or until cooked through and crispy – these are your sesame prawns
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1721750376625-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ While the prawns are cooking, combine the juice of the orange[s], rice vinegar, 
 
 Once the sesame prawns are cooked through, transfer them to a plate and set aside for later, reserve the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721750400151-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once hot, add the onion petals, pepper strips and remaining five-spice mix and c
 
 Once starting to soften, add the orange sauce and cook for 2-3 min or until the sauce is beginning to thicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1721750420144-x200.jpg)
 
 ### Step 7
 

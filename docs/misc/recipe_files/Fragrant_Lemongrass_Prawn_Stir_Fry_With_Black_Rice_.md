@@ -24,6 +24,7 @@ This fragrant prawn stir-fry is simple healthy goodness. You'll cook juicy prote
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599138034817-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil a kettle
 
 Add the black rice to a pot of plenty of boiled water and cook over a high heat for 30 min or until it's tender (it will still have a slight bite to it when cooked)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599138047635-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Remove the tough outer layer<span class="text-danger">[s] </span>of the lemongra
 
 Once the rice is cooked, drain and return to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599138054078-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop the ginger
 
 Peel and finely chop the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599138060036-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with 1 tbsp
 
 Once hot, add the sliced spring greens and blanched edamame beans with a pinch of salt and cook for 2-3 min or until almost cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599138073494-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Add the chopped garlic, half of the chopped lemongrass and half of the ginger (y
 
 Drain the king prawns, then add them to the pan and cook for 4-5 min or until everything is cooked through – this is your lemongrass prawn stir-fry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599138078325-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Whilst everything is cooking, slice the red chilli<span class="text-danger">[es]
 
 Peel the carrot<span class="text-danger">[s]</span>, then continue to peel lengths until you end up with a pile of carrot ribbons
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599138094401-x200.jpg)
 
 ### Step 7
 

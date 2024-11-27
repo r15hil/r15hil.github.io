@@ -23,6 +23,7 @@ This steak combo is a simple yet utterly delicious classic. You'll cook up juicy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2127.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Chop your potatoes (skins on) into large bite-sized pieces
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2127.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add your portobello mushroom[s] to the tray[s]
 
 Top the mushroom[s] with half of the chopped garlic (you’ll use the rest later!), a knob of butter and pinch of salt, then drizzle your Chinese rice wine evenly over the top
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2127.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Meanwhile, combine your panko breadcrumbs with a drizzle of vegetable oil and a 
 
 Pat your rump steak[s] dry with kitchen paper, then drizzle with vegetable oil and season with a generous pinch of salt on both sides
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2127.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Tip: Don’t be tempted to move the steak around too much in the pan – this will stop it from browning
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2127.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the potatoes are starting to crisp, add your cherry tomatoes to the tray[s]
 
 Return everything to the oven and cook for a further 6-8 min or until the breadcrumbs are golden and the cherry tomatoes are starting to burst – this is your garlic portobello, crispy potatoes and roasted cherry tomatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2127.-step-6-1-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Wash your spinach, then pat dry with kitchen paper
 
 Once hot, remove the pan from the heat, then add the spinach, return the pan to the heat and add your remaining chopped garlic with a pinch of salt and cook for 2-3 min or until wilted – this is your buttery spinach
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2127.-step-7-x200.jpg)
 
 ### Step 7
 

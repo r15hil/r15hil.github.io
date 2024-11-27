@@ -21,6 +21,7 @@ Get this vibrant coconut curry onto the table in minutes! Tender prawns and pak 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1602.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,21 +49,25 @@ Chop the white bases into rough, large pieces
 
 Discard the tough stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1602.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the red curry paste, ginger paste and ground turmeric to the pan and cook for 30 sec
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1602.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the coconut milk with the soy sauce and a pinch of sugar and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1602.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the chopped pak choi white bases and king prawns and cook, covered, for 3 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1602.-step-6new-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1602.-step-7-x200.jpg)
 
 ### Step 7
 

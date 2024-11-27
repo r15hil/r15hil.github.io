@@ -27,6 +27,7 @@ Rustle up this rich red wine ragu in minutes. You’ll simmer pork mince, shallo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682435572664-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682435579211-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add your pork mince (remove the paper if required!) with a pinch of sa
 
 Whilst the pork is cooking, dissolve your beef stock mix, red wine paste and tomato paste in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> boiled water – this is your red wine stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682435582826-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the pork has browned, reduce the heat to medium-high, add the chopped shall
 
 Once softened, add the chopped garlic with your fennel seeds and cook for 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682435590075-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682435595787-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once fragrant, add your chopped tomatoes to the pan with the red wine stock and 
 
 Once boiling, reduce the heat to medium and cook for 7-8 min or until thickened and the pork is cooked through (no pink meat!) – this is your pork, fennel & red wine ragu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682435600603-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Whilst everything is cooking, chop your parsley finely, including the stalks
 
 Peel your Italian hard cheese until you end up with a pile of cheese shavings
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682435604776-x200.jpg)
 
 ### Step 7
 

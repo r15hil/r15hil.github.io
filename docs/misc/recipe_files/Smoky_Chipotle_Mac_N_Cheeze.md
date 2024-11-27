@@ -28,6 +28,7 @@ We've given this comforting classic a lighter Mexican makeover. You'll flavour y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657008002721-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced peppers and cook, covered, for 4-5 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657008005647-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and slice your red onion[s]
 
 Add the sliced onion to the pan with a pinch of salt and cook, covered, for a further 4-5 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657008007919-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Cook for 7 min or until cooked with a slight bite
 
 Once done, drain the cooked macaroni, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657008010609-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Combine your panko breadcrumbs, ground smoked paprika and a pinch of salt  – t
 
 Grate your cheddar flavour block
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657008014899-x200.jpg)
 
 ### Step 5
 
 Drain your sweetcorn
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657008018387-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the onion has softened, add your chipotle paste (can't handle the heat? Go
 
 Once thickened, take the pan off the heat and stir in the grated cheeze, then give everything a good mix up – this is your smoky chipotle mac ‘n’ cheeze
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657008021308-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Our Greek inspired bake is somewhere between a ratatouille and a moussaka. You'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/739.step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Slice the courgettes&nbsp;thinly
 
 Add the sliced aubergine and courgette to a baking tray season generously with&nbsp;salt and pepper, drizzle with olive oil and&nbsp;a pinch&nbsp;of the oregano,&nbsp;then&nbsp;pop in the&nbsp;oven until step 6&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/739.step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Once hot, add the tomatoes with a pinch of both&nbsp;salt and sugar and cook the
 
 Meanwhile, peel and finely chop (or grate) the garlic&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/739.step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add the cinnamon and 2/3 of the garlic to the tomato pan and cook for a further 
 
 Add 100ml <span class="text-danger">[200ml]</span> water and cook for 5-7 min or until thickened to the consistency of a pasta sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/739.step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Once melted, add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour, stirrin
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/739.step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,6 +95,7 @@ Once the sauce has thickened, remove it from the heat and add most of the cheese
 
 Season with salt and pepper and&nbsp;remove the bay leaf<span class="text-danger">[ves]</span>&nbsp;- this is your b&eacute;chamel sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/739.step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,6 +110,7 @@ Top with the b&eacute;chemal and scatter the panko breadcrumbs and remaining che
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/739.step-7-x200.jpg)
 
 ### Step 7
 

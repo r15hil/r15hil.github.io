@@ -25,6 +25,7 @@ Spending hours on a chilli con carne stops today! In our speedy twist, you'll ad
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634575944354-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1645029528033-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free mince (remove the paper if required!) to the pan and cook for 4 min, or until browned all over, breaking it up with a wooden spoon as you go, then cook for a further 3 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1645029269157-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you’re cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1645029544593-x200.jpg)
 
 ### Step 4
 
@@ -63,16 +67,19 @@ Add your vegetable stock mix, chopped tomatoes and chipotle paste (not a fan of
 
 Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml] </span>cold water and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650645488771-x200.jpg)
 
 ### Step 5
 
 Meanwhile, drain and rinse your red kidney beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634574337362-x200.jpg)
 
 ### Step 6
 
 Add the drained red kidney beans to the pan and cook for 2 min further or until the meat-free mince is cooked through – this is your smoky meat-free chilli con carne
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634574362777-x200.jpg)
 
 ### Step 7
 

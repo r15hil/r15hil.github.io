@@ -27,6 +27,7 @@ If you're a burrito fan, you'll love our Moroccan-infused twist. Tint your filli
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1656240590415-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Add your couscous, diced apricots and ground turmeric to a heatproof bowl, seaso
 
 Add 130ml <span class="text-purple">[190ml] </span><span class="text-danger">[260ml]</span> boiled water to the bowl, then cover with a tea towel and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1656240595727-x200.jpg)
 
 ### Step 2
 
 Peel and finely slice your brown onion[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1656240599943-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 2-3 min or unti
 
 Once starting to soften, increase the heat to high add your diced chicken thigh and cook for 5-6 min further until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656240604773-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add the grated carrot to a large bowl with half your white wine vinegar (you'll 
 
 Season with a pinch of salt and pepper, give everything a good mix up and set aside – this is your carrot slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656240609379-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the chicken has browned, and add your ras el hanout with a splash of cold w
 
 Meanwhile, add your tortillas to a plate and put the plate in the microwave for 20 secs on high or until the tortillas are warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656240613158-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add your tahini, mayo, chopped garlic (not a big garlic fan? Try using less!), r
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656240616587-x200.jpg)
 
 ### Step 7
 

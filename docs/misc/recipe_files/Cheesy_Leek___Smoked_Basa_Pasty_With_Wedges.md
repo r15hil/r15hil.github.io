@@ -20,6 +20,7 @@ Throw a pasty party with this twist on a Cornish classic. You’ll layer buttery
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1668523771832-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Slice half the leek finely and chop the remaining leek into 4 <span class="text-
 
 Chop the parsley & dill finely, including the stalks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668523775003-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Grate the cheddar cheese finely
 
 Wash the spinach and pat it dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668523778519-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the sliced leek with a pinch of salt and cook for 3-4 min until so
 
 Once softened, add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste coats the leek – this is your leek roux
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668523782629-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Gradually whisk 100ml<span class="text-danger"> [200ml] </span>milk into the lee
 
 Once thickened, add the chopped smoked basa, chopped parsley & dill, half the grated cheese (you'll use the rest later!), a generous grind of black pepper and stir until the cheese has melted – this is your pasty filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1668523786342-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cut the puff pastry into 2<span class="text-danger"> [4] </span>rectangles and a
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668523791795-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Fold the pastry over the filling and seal firmly together then use a fork to cri
 
 Top with the remaining grated cheese, then put the tray in the oven for 17-20 min or until golden and cooked through – these are your cheesy leek & smoked basa pasties
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1668523796017-x200.jpg)
 
 ### Step 7
 

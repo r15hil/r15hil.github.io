@@ -20,6 +20,7 @@ Our midweek steak and chips is the answer to home-made comfort food. The flash-f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/285.-step1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Drizzle with 1-2 tbsp vegetable oil and season with a pinch of salt
 
 Oven-roast for 30 min, or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/285.-step2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Meanwhile, peel and chop the shallots finely
 
 Cut the tomato<span class="text-danger">[es]</span>&nbsp;in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/285.step3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Place a large, wide-based pan over a medium-high heat for 2 min- you want it rea
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/285.-step4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Transfer to a plate, cover&nbsp;with foil or a tea towel and reserve the pan
 
 Add the tomatoes to the chip tray in the oven, cut side up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/285.-step5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add 100ml <span class="text-danger">[200ml]</span>&nbsp;boiled water to the pan
 
 Scrape the bottom of the pan and mix well
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/285.-step6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add 1 tsp <span class="text-danger">[2 tsp]</span>&nbsp;black pepper
 
 Add the dijon mustard and cook for 2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/285.-step7-x200.jpg)
 
 ### Step 7
 

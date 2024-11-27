@@ -21,6 +21,7 @@ You can’t go wrong with the nation’s favourite pepperoni pizza. You’ll top
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1712074707925-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid out
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1712074712276-x200.jpg)
 
 ### Step 2
 
@@ -39,11 +41,13 @@ Add your tomato paste to a bowl with your dried oregano and a pinch of salt, pep
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span><span class="text-danger"> [10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1712074716670-x200.jpg)
 
 ### Step 3
 
 Slice your red chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1712074720377-x200.jpg)
 
 ### Step 4
 
@@ -51,16 +55,19 @@ Remove the heated tray[s] from the oven and add your pizza base[s]
 
 Spread the tomato base evenly over your pizza base[s] with the back of a spoon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1712074724127-x200.jpg)
 
 ### Step 5
 
 Top with the torn mozzarella, sliced pepperoni and sliced chilli (can't handle the heat? Go easy!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1712074728373-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your fiery pepperoni pizza
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1712074731995-x200.jpg)
 
 ### Step 7
 

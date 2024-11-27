@@ -24,6 +24,7 @@ This simple stir-fry is perfect for the whole family to enjoy! Chicken breast, c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/red-pepper-and-chopped-garlic-1686310445813-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1622551600305-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Chop your chicken breast strips into smaller strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1622551605977-x200.jpg)
 
 ### Step 3
 
 Once hot, add the chicken strips to the pan and cook for 4-5 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1622551626419-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain, reserving a cup of the starchy noodle water and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1622551654680-x200.jpg)
 
 ### Step 5
 
@@ -63,11 +68,13 @@ Add the chopped pepper to the pan with the chicken
 
 Add your ginger paste and chopped garlic and cook for 6-7 min further or until the chicken is cooked through (no pink meat!) and the pepper is beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1622551671487-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your soy sauce with your toasted sesame oil and honey in a bowl – this is your stir-fry sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1622551678663-x200.jpg)
 
 ### Step 7
 

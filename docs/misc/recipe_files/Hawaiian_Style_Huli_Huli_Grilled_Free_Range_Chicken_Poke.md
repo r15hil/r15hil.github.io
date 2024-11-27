@@ -26,6 +26,7 @@ Traditionally, huli huli chicken should be turned several times during cooking. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629817065058-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the drained rice with 200ml <span class="text-purple">[300ml] </span><span c
 
 Once boiling, reduce the heat to low until very gently bubbling and cook, covered, for 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629817080845-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel your shallot[s]<span class="text-danger"> </span>and slice into thin rounds
 
 Add the shallot rounds to a small bowl with your red wine vinegar and a pinch of sugar, then set aside – this is your quick-pickled shallot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629817107295-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Preheat the grill to high
 
 Drain your pineapple (keep the juice for later!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629817166977-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Turn the chicken thighs over and add the huli huli sauce to the pan, give everyt
 
 Tip: Cooking for 4? Your sauce may take a little longer to reduce!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629817198058-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add the huli huli chicken with any remaining huli huli sauce to a tin foil-lined
 
 Return the pan to the heat with a small drizzle of vegetable oil, add 2 pineapple rings per person and cook for 3-4 min, turning once until charred – this is your charred pineapple
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629817222571-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Meanwhile, add your edamame beans to a colander and pour boiled water all over t
 
 Chop the remaining pineapple into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629817260198-x200.jpg)
 
 ### Step 7
 

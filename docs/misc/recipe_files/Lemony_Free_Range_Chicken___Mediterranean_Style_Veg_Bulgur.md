@@ -26,6 +26,7 @@ For a healthy and satisfying meal, this light dinner checks all the boxes! You'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1968.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop your parsley finely, including the stalks
 
 Chop your cherry tomatoes in half, then peel and roughly chop your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1968.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the chopped tomatoes and chopped onion to a baking tray (or two!) with a dr
 
 Put the tray[s] in the oven for 10-15 min or until the vegetables have softened and are beginning to char – this is your roasted veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1968.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook, covered for 7-9 min or until almost all the water has absorbed
 
 Once done, remove the pot from the heat, fluff with a fork and set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1968.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Slice through the thickest part of the chicken, being careful not to cut all the
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1968.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Give everything a good mix up – this is your herb marinade
 
 Dip the butterflied chicken in the herb marinade until fully coated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1968.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, add the coated chicken and cook for 4 min on each side until golden, t
 
 Once the chicken is almost cooked add the remaining herb marinade to the pan and cook for a further 1-2 min, then once done, set aside to rest – this is your lemony free range chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1968.-step-7new-x200.jpg)
 
 ### Step 7
 

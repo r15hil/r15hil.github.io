@@ -27,6 +27,7 @@ This rustic French casserole is the perfect weeknight warmer. Slow-cook spicy ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1632223735454-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632393821032-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based oven-proof casserole dish with a matching lid with a dr
 
 Once hot add the diced chorizo and cook for 2-3 min until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632393830597-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Crush the garlic cloves open by squashing them with the side of a knife and remo
 
 Roughly chop the potato<span class="text-danger">[es]</span> into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632393835519-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the tomato paste, chopped onion, crushed garlic, sliced carrot, bay leaves a
 
 Drain and rinse the cannellini beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632393840112-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Add 350ml <span class="text-danger">[650ml]</span> boiled water to the casserole
 
 Nestle the potatoes into the stock as much as you can, then cover with a lid and put the dish in the oven for 45 min or until and the potatoes are tender – this is your chorizo cassoulet
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632393845199-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632223845220-x200.jpg)
 
 ### Step 7
 

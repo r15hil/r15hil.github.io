@@ -32,6 +32,7 @@ Travel to paradise with the rich aromas of the Middle East. You'll throw the aro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1654015234060-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1654015248117-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a drizzle of ve
 
 Peel and chop your brown onion[s] into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1654015253894-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add your lamb mince to the dish, breaking it up into rough, large chunks and coo
 
 Once browned, stir in 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>flour
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1654015256874-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Top, tail and chop your carrot[s] into rough pieces
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1654015259873-x200.jpg)
 
 ### Step 5
 
 Add the crushed garlic, chopped potatoes and onion wedges to the dish and stir everything together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1654015262812-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add your ground turmeric, baharat and half of your chilli flakes (can't handle t
 
 Season with a generous pinch of salt and pepper and bring to the boil over a high heat, then stir in your diced apricots
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1654015266384-x200.jpg)
 
 ### Step 7
 

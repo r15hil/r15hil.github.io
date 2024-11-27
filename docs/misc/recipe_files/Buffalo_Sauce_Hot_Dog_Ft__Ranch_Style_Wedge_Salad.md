@@ -24,6 +24,7 @@ Fire up the grill and dig into The Buffalo Rookie. This sizzling sensation is lo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691659145340-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691659149643-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Meanwhile, add your hot dog sausage[s] to one side of a tin foil-lined-baking tr
 
 Put the tray[s] in the oven for 25 min or until the sausage[s] are cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691659153991-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add half your cider vinegar (you'll use the rest later!) to a bowl with a small 
 
 Add the sliced cucumber to the bowl and set aside to pickle – this is your quick-pickled cucumber
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691659157829-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once melted, remove the pot from the heat and add your sriracha (can't handle th
 
 Stir everything together until it combines and becomes a sauce-like consistency – this is your buffalo sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691659162140-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Chop your chives finely
 
 Wash your lettuce, then pat dry with kitchen paper and cut into quarters lengthways – these are your lettuce wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691659165947-x200.jpg)
 
 ### Step 6
 
 Combine your mayo and most of the chopped chives (save the rest for garnish!) in a small bowl with a pinch of salt and pepper and a splash of cold water – this is your ranch-style chive mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691659170475-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ It's salad, but better. With a rainbow of pepper, lentils, cannellini beans and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661935713628-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660640667035-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Peel and roughly chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660640670257-x200.jpg)
 
 ### Step 3
 
 Once the pan is hot, add the chopped shallot with a large pinch of salt and cook for 2-3 min or until the shallot has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660640673351-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Drain and rinse your green lentils and cannellini beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660640676625-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the sliced peppers to the pan along with your roasted garlic paste and cook 
 
 Once soft, add the drained lentils & cannellini beans and cook for 1 min further or until everything is warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660640679046-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Crumble your goats' cheese into rough bite-sized pieces
 
 Cut your lemon[s] into 2 wedges per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660640681862-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ This one pot masterpiece is a real crowd pleaser. You’ll bake gnocchi in a spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1709044134650-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil half a kettle
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1709044139383-x200.jpg)
 
 ### Step 2
 
@@ -40,16 +42,19 @@ Chop your cherry tomatoes in half
 
 Grate your cheddar cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1709044144044-x200.jpg)
 
 ### Step 3
 
 Add your diced chicken thigh to a bowl with a drizzle of vegetable oil and a generous pinch of salt and pepper and give everything a good mix up – this is your seasoned chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1709044147374-x200.jpg)
 
 ### Step 4
 
 Combine your tomato paste, chicken stock mix, chopped garlic and a pinch of sugar with 150ml<span class="text-purple"> [200ml] </span><span class="text-danger">[250ml]</span> boiled water in an oven-proof dish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1709044151412-x200.jpg)
 
 ### Step 5
 
@@ -57,11 +62,13 @@ Wash and add your spinach, halved cherry tomatoes and half of your gnocchi to t
 
 Top with the remaining gnocchi
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1709044155211-x200.jpg)
 
 ### Step 6
 
 Add the seasoned chicken and grated cheddar and season with a generous grind of black pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1709044159131-x200.jpg)
 
 ### Step 7
 

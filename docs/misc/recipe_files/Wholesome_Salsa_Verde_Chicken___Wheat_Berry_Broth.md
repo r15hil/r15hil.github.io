@@ -24,6 +24,7 @@ This nourishing dish is packed with green goodness, including courgette, roast l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1322.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Trim, then slice the&nbsp;courgette<span class="text-danger">[s]&nbsp;</span>
 
 Add the leek and courgette to a baking tray with a drizzle of olive oil and a pinch of salt and pepper&nbsp;then put the tray in the oven for an initial 10-15 min or until step 3
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1322.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Once cooked, drain and set aside
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1322.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,6 +72,7 @@ Remove the tray of vegetables from the oven and add the chicken
 
 Season with a pinch of salt and pepper and return the tray to the oven for 15 min or until everything's cooked&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1322.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,6 +87,7 @@ Add the&nbsp;chopped parsley&nbsp;to a pestle &amp; mortar with the&nbsp;capers,
 
 Grind to a paste, then add 1 tbsp&nbsp;<span class="text-danger">[2 tbsp]&nbsp;</span>olive oil&nbsp;and mix to combine &ndash; this is your&nbsp;salsa verde&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1322.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,6 +99,7 @@ Peel and finely slice (don't chop!) the&nbsp;garlic&nbsp;
 
 Dissolve the chicken stock cube<span class="text-danger">[s] </span>in 500ml<span class="text-danger"> [1L]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1322.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,6 +111,7 @@ Once hot, add the sliced garlic and cook for 30 sec or until fragrant&nbsp;
 
 Add the chicken stock,&nbsp;wholegrain mustard and the juice of 1/2<span class="text-danger"> [1]</span> lemon and bring to the boil over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1322.-step-7-x200.jpg)
 
 ### Step 7
 

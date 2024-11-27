@@ -24,6 +24,7 @@ These wraps are crispy, cheesy and so easy. You'll bake spiced halloumi strips w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1597676531218-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Add a handful of flour to a plate along with the ground paprika and a generous grind of pepper and mix it all together – this is your spice mix
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1597676535021-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Grate the cheddar cheese
 
 Add your panko breadcrumbs to another plate with the grated cheese, a generous grind of pepper and a generous drizzle of olive oil and mix it all together – these are your cheesy breadcrumbs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1597676539593-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Coat the halloumi strips in the spice mix (make sure to tap off any excess!)
 
 Add the coated halloumi strips to the milk and finally press them into the cheesy breadcrumbs firmly to coat evenly – these are your breaded halloumi strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1597676543580-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Add the breaded halloumi strips to the tray and top them with any remaining chee
 
 Put the tray in the oven for 10-15 min or until golden – these are your crispy halloumi strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633101312998-x200.jpg)
 
 ### Step 5
 
@@ -65,11 +70,13 @@ While the halloumi strips are cooking, slice your tomato[es] finely into rounds
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1597676552875-x200.jpg)
 
 ### Step 6
 
 Add your chilli relish to a bowl with your mayo and a drizzle of olive oil and give it a good mix up – this is your chilli mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1597676556760-x200.jpg)
 
 ### Step 7
 

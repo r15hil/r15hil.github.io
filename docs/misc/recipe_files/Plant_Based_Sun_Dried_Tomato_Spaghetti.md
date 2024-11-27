@@ -23,6 +23,7 @@ This plant-based spaghetti is quick and easy. You’ll char pepper with garlic, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670928845164-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your sun-dried tomatoes into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670928857902-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the chopped pepper to the pan with a pinch of sugar and cook for 3
 
 Once starting to char, reduce the heat to medium-high and add the sliced shallot with a pinch of salt and cook for a further 2-3 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670928871522-x200.jpg)
 
 ### Step 3
 
@@ -54,16 +57,19 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670928878259-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[195ml]</span><span class="text-danger"> [255ml] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670928883900-x200.jpg)
 
 ### Step 5
 
 Once the shallot is starting to soften, add the chopped garlic, chopped sun-dried tomatoes and dried oregano to the pan and cook for a further 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670928891522-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once fragrant, add your balsamic vinegar, vegetable stock and chopped tomatoes
 
 Season with a pinch of salt, pepper and sugar and cook for 4-5 min or until slightly thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670928896776-x200.jpg)
 
 ### Step 7
 

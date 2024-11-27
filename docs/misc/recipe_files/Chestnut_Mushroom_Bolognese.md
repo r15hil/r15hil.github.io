@@ -31,6 +31,7 @@ For this veggie bolognese, you'll make a flavour-packed sauce that nods to what 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/onion324.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely dice your carrot[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/onion324.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add the diced carrot and diced onion with a pinch of salt
 
 Cook for 5 min or until starting to soften and caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/324_step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving approx. 150ml <span class="text-purple">[195ml] </span><span class="text-danger">[250ml] </span>of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/onion324.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Peel and finely chop (or grate) your garlic
 
 Add both the grated and sliced mushrooms and chopped garlic to the pan and cook for 5 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/324_step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add 1/2 tsp <span class="text-purple">[3/4 tsp] </span><span class="text-danger"
 
 Stir constantly until the mixture is evenly coated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/324_step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the reserved starchy pasta water, a little at a time, stirring it in as you
 
 Reduce the heat to medium and cook until the sauce has thickened – this is your chestnut mushroom bolognese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/324_step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Our veggie take on a classic teriyaki is packed with flavour and on the table in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687528239566-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687528244524-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add your Fable pulled mushrooms and cook for 5-6 min or until browned, breaking them up with a wooden spoon as you go – these are your pulled mushrooms
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687528250544-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Whilst the mushrooms are cooking, peel and cut your brown onion[s] into quarters
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687528258871-x200.jpg)
 
 ### Step 4
 
@@ -58,16 +62,19 @@ Once the mushrooms have browned, add the onion petals and diced pepper to the pa
 
 Cook for 4-5 min or until the veg is starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687528265439-x200.jpg)
 
 ### Step 5
 
 Whilst the veg is cooking, combine your cornflour and 4 tbsp<span class="text-purple"> [6 tbsp] </span><span class="text-danger">[8 tbsp] </span>cold water in a bowl with your soy sauce, maple syrup, toasted sesame oil, mirin and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your teriyaki sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687528271281-x200.jpg)
 
 ### Step 6
 
 Trim, then slice your spring onion[s] on the diagonal
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687528275584-x200.jpg)
 
 ### Step 7
 

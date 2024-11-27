@@ -25,6 +25,7 @@ For the hug in a bowl that a good soup brings, you'll blitz roasted pepper, red 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/384_step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel your red onion[s] and roughly chop into wedges
 
 Crush and peel your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/384_step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Season to taste with salt and pepper – this is your seasoned veg
 
 Transfer the seasoned veg to a baking tray (save the bowl for later!) and put in the oven for 20-25 min or until soft and beginning to char
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/384_step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the veg is roasting, boil a kettle
 
 Slice your ciabatta[s] in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/384_step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the vegetable stock and your chopped tomatoes to a blender (or pan if using 
 
 Set aside until later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/384_step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Grate your cheddar cheese
 
 Combine the chopped mozzarella and grated cheese in the reserved bowl and season with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/384_step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat and onc
 
 Add a heavy weight (e.g. several cans) to the top pan and cook for 2-3 min per side, checking occasionally – this is your cheese melt[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/384_step-7-x200.jpg)
 
 ### Step 7
 

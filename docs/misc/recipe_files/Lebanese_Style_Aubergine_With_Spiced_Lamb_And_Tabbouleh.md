@@ -30,6 +30,7 @@ Inspired by Lebanese flavours, you'll stuff roasted aubergine halves with garlic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1646755723234-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Place the aubergine half[ves] onto a plate and put the plate in the microwave fo
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1646755731864-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced shallot and cook for 3-4 min or until softened, then add the garlic and cook for a further 1-2 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646755739865-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add a drizzle of olive oil and a generous pinch of salt and pepper and put the t
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1646755748555-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once the shallot and garlic has softened, add your ground cinnamon (not a fan of
 
 Once fragrant, turn the heat up to high, then add your lamb mince and cook for 4-5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1646755756037-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return it to the pot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1646755764191-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ While the sauce is reducing, chop your parsley finely, including the stalks
 
 Chop your tomato[es] roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646756090763-x200.jpg)
 
 ### Step 7
 

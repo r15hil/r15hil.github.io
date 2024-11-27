@@ -29,6 +29,7 @@ In this delicious recipe, you'll be making your own kofte with succulent beef sp
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2175.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Top, tail, peel and grate your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2175.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add your cider vinegar, 2 tsp <span class="text-purple">[3 tsp]</span> <span cla
 
 Add the grated carrot to the bowl and set aside to pickle – this is your quick-pickled carrot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2175.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add your beef mince, 1 tbsp <span class="text-purple">[1 1/2 tbsp]<span class="t
 
 Give everything a good mix up until thoroughly combined (clean hands is the best way!) – this is your kofte mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2175.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add the beef kofte and cook for 2-3 min on each side or until lightly browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2175.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ After the initial 6-7 min, remove the lid and cook for a final 2-3 min or until 
 
 <span class="text-danger">Ordered extra halloumi? Slice and cook in a pan with a little oil for 4-6 min or until golden all over</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2175.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
 Slice your tomato[es]<span class="text-danger"> </span>finely into rounds, then cut in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2175.-step-7-x200.jpg)
 
 ### Step 7
 

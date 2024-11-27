@@ -24,6 +24,7 @@ You’ll pan-fry tomatoes and sweetcorn in smoked paprika and garlic before stir
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721219940847-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721219944296-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Drain your sweetcorn
 
 Once hot, add your baby plum tomatoes and drained sweetcorn with a pinch of salt and cook for 2-3 min or until the tomatoes are starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721219948422-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Grate your cheddar cheese
 
 Wash your spinach, pat dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721219952678-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the cooked gnocchi, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721219956202-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the tomatoes have softened, add your smoked paprika, roasted garlic paste a
 
 Cook for 2-3 min or until the spinach is starting to wilt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721219959739-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the spinach has wilted, add your soft cheese with your vegetable stock mix 
 
 Season with a generous grind of black pepper and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721219963386-x200.jpg)
 
 ### Step 7
 

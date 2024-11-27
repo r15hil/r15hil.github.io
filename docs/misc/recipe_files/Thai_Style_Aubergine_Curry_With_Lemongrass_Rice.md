@@ -30,11 +30,13 @@ Sweet, sour and just the right amount of spice – this aubergine and red pepper
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/904.-step-1-x200.jpg)
 
 ### Step 1
 
 Bash your lemongrass with a rolling pin, cut down the middle lengthways, remove the tough outer layers and set aside for later then chop the softer inner core[s] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/904.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once boiling, reduce the heat to very low and stir for 1 min, then cook, covered
 
 Once cooked, remove from the heat and set aside (lid on) to steam until serving – this is your fragrant rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/904.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Cut your red chilli[s] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/904.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the chopped aubergine and cook for 5 min or until starting to brow
 
 Once starting to brown, add a drizzle of vegetable oil and the chopped pepper and cook for a further 2 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/904.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Dissolve the chopped creamed coconut and soy sauce in 300ml <span class="text-pu
 
 Add the chopped ginger, chopped lemongrass inner core with your red Thai curry paste and half of the chopped chilli (can't handle the heat? Go easy!) to the pan and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/904.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once fragrant, add the coconut stock to the pan with 1 tsp <span class="text-pur
 
 Cook for 10-15 min or until the sauce has thickened and the vegetables are tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/904.-step-7-x200.jpg)
 
 ### Step 7
 

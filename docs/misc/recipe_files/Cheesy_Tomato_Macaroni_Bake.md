@@ -27,6 +27,7 @@ Serve up a weeknight hit with this hearty crowd-pleaser. You’ll toss macaroni 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1673366600729-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1673366603126-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once cooked, drain the macaroni, reserving 150ml <span class="text-purple">[200m
 
 Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1673366606605-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ While the pasta is cooking, heat a large, wide-based pan (preferably non-stick) 
 
 Once hot, add the sliced shallot to the pan and cook for 3-4 min or until the shallot has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1673366611600-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Give everything a good mix up and cook for 1-2 min or until fragrant
 
 Meanwhile, preheat the grill to high
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1673366614837-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once fragrant, add your chopped tomatoes and vegetable stock mix to the pan with
 
 Cook for 7-8 min further or until the sauce has thickened – this is your tomato pasta sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1673366617506-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Grate your cheddar cheese
 
 Combine the halved cherry tomatoes and a small drizzle of olive oil in a bowl with a grind of pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1673366621047-x200.jpg)
 
 ### Step 7
 

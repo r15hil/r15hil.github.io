@@ -24,6 +24,7 @@ If you're craving a Chinese but fancy something lighter, this easy option is a g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581615114907-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once the brown rice is cooked, drain and keep it in the sieve, reserving the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581615120347-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with 1/
 
 Once hot, add the chicken pieces and cook for 2-3 min on each side, or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581615125438-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once the chicken has browned, reduce the heat to medium and add the hoisin sauce
 
 Cook, covered, for a further 8-10 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened - this is your Chinese chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581615130238-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop the roots from the pak choi and separate the leaves, discarding the roots
 
 Chop any larger leaves in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581615135397-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581615140610-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once hot, add the shredded kale and pak choi with a pinch of salt and cook for 2
 
 Add the chopped ginger, garlic and cooked brown rice and cook for a further 1-2 min or until everything is well combined - this is your veg-packed rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581615146193-x200.jpg)
 
 ### Step 7
 

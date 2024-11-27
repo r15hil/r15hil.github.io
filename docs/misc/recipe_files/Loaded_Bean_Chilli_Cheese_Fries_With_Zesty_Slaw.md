@@ -29,6 +29,7 @@ Smoky chilli cheese fries are a Tex-Mex classic. You'll top homemade oven chips 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680022518542-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 20-25 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680022560513-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced shallot, ground cumin and ground smoked paprika with the chopped garlic and a pinch of salt and cook for 1-2 min or until the shallot has slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680022565195-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Mix it all together – this is your spicy stock
 
 Drain and rinse your black beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680022573194-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once fragrant, add the spicy stock and drained black beans to the pan and cook f
 
 Once thickened, remove the pan from the heat and set aside for later – this is your bean chilli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680022577365-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Combine your mayo with the juice of the lime lime[s], the lime zest, 1 tbsp <sp
 
 Grate your cheddar cheese finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680022581504-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Top each pile with the bean chilli then the grated cheese and return the tray[s
 
 Once done, set aside for a few minutes to cool slightly – these are your loaded bean chilli cheese fries
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680022585353-x200.jpg)
 
 ### Step 7
 

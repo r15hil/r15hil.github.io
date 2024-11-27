@@ -23,6 +23,7 @@ Romesco is a punchy, red-pepper-based sauce from Spain. For this flavoursome rom
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1388.-step-1.2-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut the tomato<span class="text-danger">[es]</span><span class="text-danger"> 
 
 Add the pepper and tomato to a baking tray, drizzle with olive oil and put in the oven for 20 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1388.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Once done, drain the linguine, reserving 50ml <span class="text-danger">[100ml]<
 
 Return the linguine to the pot and keep warm
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1388.-step-3.2-x200.jpg)
 
 ### Step 3
 
@@ -65,11 +68,13 @@ Chop the Tenderstem broccoli into bite-sized pieces
 
 Add the Tenderstem broccoli and garlic to the baking tray, drizzle with olive oil and return the tray to the oven for 10-15 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1388.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve the 1/2 <span class="text-danger">[1] </span>vegetable stock cube in the reserved pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1388.-step-5.2-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Leave the Tenderstem broccoli on the tray 
 
 Add the flaked almonds to the baking tray and return the tray to the oven for 5 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1388.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Meanwhile, add the hazelnuts, red wine vinegar, smoked paprika, vegetable stock
 
 Give everything a blitz until smooth – this is your romesco sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1388.-step-7.2-x200.jpg)
 
 ### Step 7
 

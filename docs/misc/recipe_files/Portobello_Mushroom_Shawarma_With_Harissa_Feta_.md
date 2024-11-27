@@ -27,6 +27,7 @@ Here's our veggie twist on a Middle-Eastern classic. You'll press portobellos to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1613560077317-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Drizzle olive oil over both sides of the portobello mushrooms and add them to th
 
 Tip: Cooking for 4? You may need to do this in batches!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1613560115816-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Cook for 4-5 min further or until most of the moisture has been released
 
 Once done, remove the pan from the heat and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1613560144063-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the carrot batons to a baking tray with a drizzle of olive oil, half the har
 
 Give everything a mix up and put the tray in the oven for 15-20 min or until tender and beginning to crisp – these are your harissa roasted carrots
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1613560165999-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Crumble the feta into a small bowl and add the remaining harissa paste (not a fa
 
 Combine the ground cumin, cinnamon, paprika and dried oregano on a small plate with a pinch of salt and pepper – this is your shawarma seasoning
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1613560199048-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Peel and finely chop the garlic
 
 Combine the natural yoghurt with the chopped garlic (not a fan of raw garlic? Try using less!) and a pinch of salt – this is your garlic yoghurt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1613560216913-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Return the reserved pan to a medium heat with a drizzle of olive oil
 
 Cook the seasoned mushrooms for 3-4 min or until beginning to blacken – these are your shawarma mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1613560329213-x200.jpg)
 
 ### Step 7
 

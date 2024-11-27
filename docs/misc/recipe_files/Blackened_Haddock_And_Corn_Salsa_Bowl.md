@@ -27,6 +27,7 @@ For this colourful bowl, you'll top rice with zingy corn salsa, chipotle mayo an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/991.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/991.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cut your half of your lime[s] in half
 
 Drain your sweetcorn
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/991.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Squeeze over the juice of your lime and drizzle in 1 tbsp <span class="text-purp
 
 Season generously with both salt and pepper – this is your corn salsa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/991.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cut the remaining lime into wedges
 
 Wash the lettuce, then pat it dry with kitchen paper and roughly shred
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/991.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the chopped haddock to the spice mix and give everything a good mix up so t
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/991.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once hot, add your spiced haddock bites and cook for 3-4 min, turning once half
 
 Tip: Don't be alarmed if the haddock bites look like they're burning, they will become 'blackened', which gives them the smoky, charred flavour you want
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/991.-step-7-x200.jpg)
 
 ### Step 7
 

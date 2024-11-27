@@ -28,6 +28,7 @@ Transport your taste buds to China with these char siu pork bao buns. Legend has
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670921955043-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Transfer your BBQ pulled pork to an oven-proof dish with half of the juices, dis
 
 Cover the dish with tin foil and put it in the oven for an initial 20 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670921960123-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670921980979-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Meanwhile, add your mooli slaw mix and rice vinegar to a large bowl with a pinch
 
 Give everything a good mix up and set aside – this is your quick-pickled mooli slaw
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670921992241-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Combine the grated garlic with your five-spice mix, hoisin sauce, honey and soy 
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> vegetable oil and stir everything together – this is your char siu-style sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670922004424-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Combine your sriracha (can't handle the heat? Go easy!) and mayo in a small bowl
 
 Pick your coriander leaves from the stalks, discard the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670922013637-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ After an initial 20 min, remove the dish with the pulled pork joint from the ove
 
 Spoon the char siu-style sauce all over the joint and return it to the oven for 10-12 min further, basting it twice more until the sauce is thick and the pork is nicely glazed – this is your char siu-style pork
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670922027994-x200.jpg)
 
 ### Step 7
 

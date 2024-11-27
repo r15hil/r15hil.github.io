@@ -31,6 +31,7 @@ Grab some napkins for these lean pork and pineapple tacos. You'll crisp up lean 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1655827807066-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel your red onion[s] and slice into rings, 1 per person, then dice the remaini
 
 Add the onion rings and red wine vinegar to a shallow bowl and set aside to pickle until serving – these are your quick-pickled red onion rings
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655827814520-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion with a pinch of salt and cook for 8-10 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655827820183-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Chop your coriander as finely as you can, including the stalks
 
 Combine your mayo with 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp] </span>cold water and the chopped coriander – this is your herby mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655827873794-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once the onion has softened, increase the heat to medium-high and add the choppe
 
 Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!) and soy sauce, then cook for a further 8-10 min or until the pork mince is cooked through (no pink meat!) and starting to crisp – this is your smoky lean pork mince
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655827887565-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Tip: Don’t chuck pineapple juice down the drain. Instead, add it to your smoot
 
 Combine the shredded lettuce, diced pineapple and chilli flakes (not a fan of spice? Just add a little!) in a bowl with plenty of black pepper – this is your pineapple salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1676299618037-x200.jpg)
 
 ### Step 6
 
 Add the tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1655827899812-x200.jpg)
 
 ### Step 7
 

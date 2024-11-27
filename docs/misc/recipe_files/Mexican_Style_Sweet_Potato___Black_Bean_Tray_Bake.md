@@ -27,6 +27,7 @@ This simple veggie tray bake is packed full of Mexican flavours! Coat sweet pota
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1812.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Cut your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1812.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the chopped sweet potato to a baking tray (or two!) with the chopped pepper
 
 Give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1812.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine your ground smoked paprika, ground cumin and chilli flakes (can't handl
 
 Season with a pinch of salt and pepper and give it a good mix up – this is your spice mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1812.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the spice mix to the vegetables & black beans and give everything a good m
 
 Put the tray[s] in the oven for an initial 15-20 mins or until the sweet potato has softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1812.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Meanwhile, crumble your Greek cheese into small bite-sized pieces
 
 Chop your coriander finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1812.-step-7-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ After the initial 15-20 min, remove the tray[s] from the oven and sprinkle the c
 
 Return the tray[s] to the oven and cook for 5-10 min further or until everything is tender and golden – this is your Mexican-Style Sweet Potato & Black Bean Tray Bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1812.-step-6-x200.jpg)
 
 ### Step 7
 

@@ -21,6 +21,7 @@ As part of our Savour The Summer menu, this easy breezy French-inspired chicken 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/458.-step1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Cut the potatoes into bite-size pieces (skins on)
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/458.-step2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the potatoes to a pot with a lid, cover with salted boiled water by 5cm and 
 
 Once boiling, cook, covered for 10-15 min or until fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/458.-step3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Chop the tarragon finely, including the stalks
 
 Chop the capers roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/458.-step4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the pistachios to a dry, wide-based pan (preferably non-stick) over a low he
 
 Once&nbsp;toasted, transfer them to a bowl and bash with a rolling pin into a coarse rubble, reserving the pan for the next step
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/458.-step5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Return the pan to a medium heat with 1 tbsp <span class="text-danger">[2 tbsp]</
 
 Once hot, add the chicken and cook for approx. 2 min&nbsp;on each side, or until golden<span class="text-danger">&nbsp;</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/458.-step6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once cooked, drain the lot and add them to the chicken with the garlic and a kno
 
 Cook for a further 3 min until the chicken is cooked through and the potatoes are starting to turn golden&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/458.-step7-x200.jpg)
 
 ### Step 7
 

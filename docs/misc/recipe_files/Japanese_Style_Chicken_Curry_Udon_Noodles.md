@@ -27,6 +27,7 @@ Slurp up oodles of katsu curry-inspired noodles tonight. You'll stir homemade Ja
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581673259973-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast with a pinch of salt and cook for 10-12 min or until golden and cooked through (no pink meat!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581673266855-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ While the chicken is cooking, top, tail, peel and dice your carrot[s]
 
 Trim, then chop your green beans in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581673272961-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the chicken is cooked, transfer it to a plate and set aside
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581673278678-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once hot, add the diced carrot[s]<span class="text-danger"> </span>and halved gr
 
 Tip: Add a drizzle of oil if your pan is looking a little dry, to help cook out all of the spices!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581673284422-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once fragrant, add 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span cl
 
 Add 200ml <span class="text-purple">[250ml]</span> <span class="text-danger">[350ml]</span> boiled water with your mirin, soy sauce and 1 tsp<span class="text-purple"> [1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> sugar and cook for 2-3 min or until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581673289947-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once thickened, add your udon noodles to the pan, gently separating them with a 
 
 Return the cooked chicken to the pan and cook for 2-3 min further, stirring until the noodles are coated in the sauce and everything is warmed through – this is your Japanese-style chicken curry udon
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581673295146-x200.jpg)
 
 ### Step 7
 

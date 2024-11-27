@@ -23,6 +23,7 @@ The base for our pilaf, traditionally a mixed rice dish, is made up of super tre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/784.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the quinoa to a pot with plenty of boiled water and a pinch of salt (the sam
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/784.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Add the lamb and cook for&nbsp;4 min, breaking it up as you go, until it's starting to crisp and colour
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/784.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Strip the mint leaves from the stems and chop finely, discarding the stems
 
 Drain the chickpeas in a sieve for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/784.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add the almonds to a baking tray and put them in the oven for 5 min or until the
 
 Once toasted, remove the tray from the oven and leave to cool&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/784.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Cook for 2 min, then add the drained chickpeas
 
 Cook for 3 min further or until the mince is cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/784.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once the quinoa is tender, add the dried&nbsp;cranberries&nbsp;straight into the
 
 Drain the cooked quinoa and cranberries in a sieve and leave to steam-dry for a few min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/784.step-7-x200.jpg)
 
 ### Step 7
 

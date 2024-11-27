@@ -24,6 +24,7 @@ These beetroot & feta patties combine sweet and earthy beetroot with creamy salt
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/706.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut the potatoes (skins on) into wedges, put them on a baking tray, drizzle with
 
 Put them in the oven for 20-25 min or until golden and crispy&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/706.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, drain and grate the beetroot into a sieve, over a bowl, then press to
 
 Tip: try and squeeze as much juice out as you can, this will help the beet burgers stick together
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/706.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Pat the feta dry with kitchen paper and break it up into small pieces&nbsp;
 
 Peel and slice the red&nbsp;onion<span class="text-danger">[s]</span> finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/706.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Slice the ciabattas in half and then into 4 (see picture) - this will give you 4
 
 Heat a wide-based pan (preferably non-stick) with 1-2 tbsp olive oil over a medium-high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/706.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Reduce the heat to medium-low, add the beetroot juice and cook for a further 5 m
 
 Once the onions are cooked, transfer them to a dish, wipe the pan clean and reserve it for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/706.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Return the reserved pan to a medium-high heat with 1-2 tbsp vegetable oil
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/706.-step--7-x200.jpg)
 
 ### Step 7
 

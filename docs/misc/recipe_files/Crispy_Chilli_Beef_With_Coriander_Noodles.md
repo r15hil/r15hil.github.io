@@ -29,6 +29,7 @@ We like to describe this as savoury 'n' sweet, with a touch of heat. You'll glaz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1628779264543-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely chop your shallot[s]
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1142.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince and chopped shallot and cook for 4 min until browned, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1142.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, trim, then roughly chop your spring onions
 
 Chop most of your coriander finely, including the stalks (save a few whole leaves for garnish!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1142.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Boil a kettle
 
 Once the beef has browned, add the grated carrot to the pan and cook for a further 3 min or until crisped
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1142.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Bring to the boil over a high heat and cook for 1-2 min or until tender, then dr
 
 Once drained, return the noodles to the pot and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1142.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once the beef has crisped, add the chopped garlic, ginger and chilli (can't han
 
 Add your red chilli relish and half of the soy sauce (you’ll use the rest later!) and cook for a further 4 min or until everything is browned and crispy (no pink meat!) – this is your crispy chilli beef
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1142.-step-7-x200.jpg)
 
 ### Step 7
 

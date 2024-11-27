@@ -23,6 +23,7 @@ Take a trip to the Spanish coast with baked Mediterranean-inspired monkfish, ser
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1579.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the pepper<span class="text-danger">[s]</span> and tomato<span class="text-d
 
 Put the tray in the oven for 20 minutes or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1579.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Meanwhile, peel and chop the potatoes into small bite-sized pieces
 
 Strip the thyme leaves and chop them roughly, discarding the stems
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1579.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the chopped potatoes and thyme to a baking tray with a drizzle of vegetable 
 
 Put the tray in the oven for 25-30 minutes or until golden and crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1579.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Blitz until smooth – this is your romesco sauce
 
 Tip: You'll serve this at room temperature so set this aside until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1579.-step-5-x200.jpg)
 
 ### Step 5
 
 Pat the monkfish fillets dry with kitchen paper and season them with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1579.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once hot, add the monkfish fillets and cook for 3-4 minutes. Add a knob of butt
 
 Tip: Your fish is cooked when it turns opaque
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1579.-step-7-x200.jpg)
 
 ### Step 7
 

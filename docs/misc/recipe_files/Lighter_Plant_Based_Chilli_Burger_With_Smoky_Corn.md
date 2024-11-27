@@ -24,6 +24,7 @@ This spicy, satisfying burger is all your Mexican and fast food cravings in one.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1669122298976-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Scrunch the tin foil around the corn until tightly sealed and add to the baking 
 
 Put the tray in the oven for 20-25 min or until the corn is tender – this is your smoky corn
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669122263933-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a pinch of salt to 
 
 Once dissolved, add the red wine vinegar and sliced red chilli (can't handle the heat? Go easy!) and set aside – this is your quick-pickled chilli
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669122271512-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile, drain and rinse the black beans
 
 Dissolve the tomato paste and 1 tsp <span class="text-danger">[2 tsp]</span> sugar in 75ml <span class="text-danger">[150ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669122274486-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the ultimate vegan burger patties to one side of a baking paper-lined bak
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669122279807-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the drained black beans, ground cumin and the remaining smoked pap
 
 Once fragrant, add the tomato stock and a pinch of salt and pepper and cook for 3-4 min or until thickened – this is your black bean chilli
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669122283384-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Wash the gem lettuce, then pat it dry with kitchen paper
 
 Remove 2 <span class="text-danger">[4]</span> leaves from the gem lettuce and set aside, then cut the remaining lettuce into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669122286809-x200.jpg)
 
 ### Step 7
 

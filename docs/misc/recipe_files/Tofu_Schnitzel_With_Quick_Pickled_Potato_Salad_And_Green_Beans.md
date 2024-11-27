@@ -28,6 +28,7 @@ Dine in Deutschland with this plant-based twist on schnitzel. To make this Germa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670330603265-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your waxy potatoes to a baking tray with a drizzle of olive oil and a pinch 
 
 Put the tray in the oven for 25-30 min or until the potatoes are crispy and cooked through – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670330606868-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the sliced tofu to a bowl with your soy sauce and wholegrain mustard
 
 Give everything a good mix up, then set aside for later – this is your mustard marinated tofu
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670330610189-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Cut your lemon[s] into wedges
 
 Trim your green beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670330613554-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the diced shallot to a large bowl with the juice of half the lemon wedges an
 
 After 1-2 min, add your mayo to the bowl and stir it all together – this is your quick-pickled shallot mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670330616817-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your panko breadcrumbs to a plate with your ground smoked paprika and a gene
 
 Press the mustard marinated tofu into the smoky breadcrumbs firmly to evenly coat all over – this is your smoky breaded tofu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670330620599-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the smoky breaded tofu and cook for 4-5 min on each side or until browned – this is your tofu schnitzel
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670330624297-x200.jpg)
 
 ### Step 7
 

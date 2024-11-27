@@ -21,6 +21,7 @@ Add some pizzazz to your salad with this creamy, lemony avocado dressing. Drizzl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655806803242-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Tear the ciabatta into rough, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655806808198-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Add the torn ciabatta to a baking tray with a drizzle of olive oil and a pinch o
 
 Put the tray in the oven for 5 min or until golden and crisp – these are your croutons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655806810431-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ Cut the avocado<span class="text-danger">[s]</span> in half lengthways, around t
 
 Remove the stone<span class="text-danger">[s]</span> using a spoon, then scoop out the avocado flesh and dice roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655806815407-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Chop the basil roughly, including the stalks
 
 Peel and finely slice the garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655806818453-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once hot, add the chicken breast portions and most of the sliced garlic (save so
 
 Add a couple of splashes of water to the pan and cover with a lid, then cook for a further 12-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655806819863-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Add the juice of 1/2 <span class="text-danger">[1]</span> lemon, 1 tbsp<span cla
 
 Blitz until smooth – this is your avo dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655806825396-x200.jpg)
 
 ### Step 7
 

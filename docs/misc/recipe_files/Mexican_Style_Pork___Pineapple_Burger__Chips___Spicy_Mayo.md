@@ -30,6 +30,7 @@ This delicious Mexican burger will have you shouting ¡Arriba! The succulent por
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1676.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Chop your potatoes (skins on) into chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1676.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add your pineapple slices (save the juice for later!) to a separate tray
 
 Put both trays in the oven for 25 min or until the pineapple is golden and the chips are crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1676.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add your cumin seeds and cook for 1-2 min or until fragrant
 
 Once fragrant, transfer the toasted cumin seeds to a large bowl and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1676.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Divide and shape into 1 equal-sized burger patty per person
 
 Tip: kneading the patties for longer will make them more tender!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1676.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once hot, add the burger patty[ies] to the pan and cook for 4-5 min on each si
 
 Tip: Push the patties down with a spatula so they cook evenly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1676.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the pineapple slices are nearly done, remove the tray from the oven, then a
 
 Return the tray to the oven and cook for a final 3-4 min or until the bun is warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1676.-step-7-x200.jpg)
 
 ### Step 7
 

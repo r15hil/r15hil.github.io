@@ -24,6 +24,7 @@ French cuisine is known for elevating classic ingredients into sophisticated sup
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1672.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and chop the brown onion<span class="text-danger">[s]</span> into wedges
 
 Add the onion wedges to an oven-proof dish, drizzle with olive oil and a pinch of salt and give it a good mix up
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1672.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Put the dish in the oven and cook for 15-20 min or until the chicken skin is sta
 
 Tip: keep an eye on your onions so they don't burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1672.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Dissolve the chicken stock cube<span class="text-danger">[s]</span> in 100ml <sp
 
 Add the chopped garlic, clotted cream, Dijon mustard and wholegrain mustard and give everything a good mix up – this is your mustard stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1672.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Reboil a kettle
 
 Drain and rinse the canned lentils
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1672.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add the drained lentils and mustard stock to the onions and give everything a go
 
 Return the chicken to the dish and put everything into the oven for a further 10-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1672.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Meanwhile, chop the green beans in half 
 
 Add the chopped green beans to a pan of boiling water and cook over a high heat for 5-6 min or until tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1672.-step-7-x200.jpg)
 
 ### Step 7
 

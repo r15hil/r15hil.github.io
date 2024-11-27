@@ -24,6 +24,7 @@ Why ultimate? This baby has a three-cheese sauce made with cheddar, mozzarella a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/943.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the baby plum&nbsp;tomatoes to a baking tray with a drizzle of olive oil and
 
 Put them in the oven to slow-roast until serving (approx. 30 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/943.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Cook the&nbsp;conchiglie&nbsp;for 8-10 min or until cooked with a slight bite
 
 Once done, drain the&nbsp;conchiglie, reserving 300ml <span class="text-danger">[600ml]</span> of the&nbsp;starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/943.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat and once ho
 
 Cook for 3-4 min or until crisped, then transfer to kitchen paper and set aside (keep the pan!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/943.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Grate the&nbsp;cheddar&nbsp;
 
 Drain, pat dry and rip the&nbsp;mozzarella&nbsp;into small, bite-size pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/943.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Once melted, add 30g <span class="text-danger">[60g]</span>&nbsp;flour&nbsp;and 
 
 Gradually whisk 350ml <span class="text-danger">[700ml]</span>&nbsp;milk&nbsp;into the roux and cook for 5 min or until a smooth, thick sauce remains - this is your&nbsp;b&eacute;chamel sauce&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/943.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Once thickened, add the&nbsp;Italian hard cheese,&nbsp;cheddar,&nbsp;wholegrain 
 
 Tip: you want your sauce to be quite loose as it will continue to thicken in the oven!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/943.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ These quick and easy chicken tacos are inspired by the sunshine of the Caribbean
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1690363722885-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Add your ground allspice, ground smoked paprika and cayenne pepper (can't handle the heat? Go easy!) to a plate with a generous pinch of salt and pepper and mix it all together, then add the chicken breast portion[s] to the plate and turn them several times until fully coated in all the spices – this is your coated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1690363726411-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated chicken to the pan and cook for 7-8 min on each side or until charred and cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1690363729694-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Peel and finely dice your shallot[s]<span class="text-danger"> </span>and chop y
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely/ roughly shred
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1690363736449-x200.jpg)
 
 ### Step 4
 
 Combine the chopped pineapple, diced shallot and chopped coriander in a bowl with a pinch of salt – this is your pineapple salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1690363741052-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine your mayo and reserved pineapple juice in a separate bowl with a pinch of salt and pepper – this is your pineapple mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1690363744295-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once the chicken is cooked, transfer it to a clean board and shred it apart, usi
 
 Return the pulled chicken to the pan with the chopped garlic and cook over a medium-high heat for 1-2 min or until fragrant – this is your Caribbean-style chicken breast
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1690363835098-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Thai curry is a fragrant mix of zingy citrus, ginger, chilli and herbs. For this
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1102.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1102.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cut the remaining chilli in half lengthways, deseed (scrape the seeds out with a
 
 Trim the green stalk off your aubergine[s] and chop into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1102.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped aubergine with a generous pinch of salt and cook for 3-4 min or until beginning to soften and brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1102.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Sliced your sugar snap peas in half
 
 Once the aubergine has softened, add your Thai green curry paste, chopped chilli (can't handle the heat? Go easy!) and chopped ginger to the pan with the aubergine and cook for 2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1102.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Dissolve the chopped creamed coconut and vegetable stock mix in 350ml <span clas
 
 Add the juice of 1/2 your lime[s], your lime leaves and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and mix to combine – this is your aromatic stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1102.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the aromatic stock to the pan with the Tenderstem broccoli stems and halved 
 
 Add the Tenderstem broccoli tips and cook for 2 min further or until everything's tender with a slight bite and the sauce has thickened slightly – this is your Thai green vegetable curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Lime-wedges-on-board-1662473362967-x200.jpg)
 
 ### Step 7
 

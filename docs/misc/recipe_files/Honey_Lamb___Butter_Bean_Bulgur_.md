@@ -23,6 +23,7 @@ This super simple lamb dish is inspired by the Greek island of Paros. You'll car
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/610.-step2-x200.jpg)
 
 ### Step 1
 
@@ -40,11 +41,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of&nbsp;olive
 
 Once hot, add the chopped courgette and&nbsp;sliced red onion&nbsp;with a pinch of salt and cook for 4-5 min or until beginning to soften and brown&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/610.-step1-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add the bulgur wheat to a pot with plenty of salted boiled water (the same as you would for pasta) and cook over a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/610.-step3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Return the pan to a medium-high heat
 
 Once hot, add the&nbsp;lamb mince&nbsp;and cook&nbsp;for 3-4 min or until&nbsp;browned, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/610.-step4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Meanwhile, drain&nbsp;and rinse the butter beans
 
 Add the drained butter beans to the pan and cook for a further 2 min or until the beans have started to caramelise and brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/610.-step5-x200.jpg)
 
 ### Step 5
 
@@ -78,11 +83,13 @@ Cut the cherry tomatoes in half
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/610.-step6-x200.jpg)
 
 ### Step 6
 
 Stir the&nbsp;dried&nbsp;dill&nbsp;and cherry tomatoes&nbsp;into the drained bulgur&nbsp;wheat with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper &ndash;&nbsp;this is your dill-flecked&nbsp;bulgur&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/610.-step7-x200.jpg)
 
 ### Step 7
 

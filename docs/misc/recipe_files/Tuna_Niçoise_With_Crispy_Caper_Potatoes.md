@@ -23,6 +23,7 @@ For a taste of the French riviera, sprinkle your crispy caper potatoes over gree
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1530.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Boil a kettle
 
 Chop the potatoes (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1530.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the chopped potatoes to a pot of boiling water with a large pinch of salt an
 
 Once cooked, drain and return them to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1530.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Cut the cherry tomatoes in half
 
 Chop the black olives roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1530.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Drizzle everything with olive oil, season with a pinch of salt and give everythi
 
 Put the tray in the oven for 15-20 min, or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1530.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ After 4 min add the green beans and boil for a further 3-4 min or until the bean
 
 Once done, drain and run everything under cold water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1530.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the Dijon mustard and white wine vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper in a large bowl – this is your Dijon vinaigrette
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1530.-step-7-x200.jpg)
 
 ### Step 7
 

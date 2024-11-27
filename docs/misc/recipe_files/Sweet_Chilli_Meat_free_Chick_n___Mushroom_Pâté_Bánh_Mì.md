@@ -24,6 +24,7 @@ This unbeatable bánh mì comes straight out of Saigon. You’ll load up a crust
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723802066767-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Slice your white cup mushrooms finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723802071865-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced mushrooms and cook for 6-8 min or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723802081035-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Cut your cucumber in half lengthways, then slice half the cucumber lengthways an
 
 Strip your mint leaves from their stems, then finely chop half your mint and coriander and set aside the remaining leaves
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723802101404-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Combine half your rice vinegar (you'll use the rest later!) and 1 tsp <span clas
 
 Combine your mayo and sriracha (can't handle the heat? Go easy!) in a small bowl with the remaining rice vinegar, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a small splash of cold water – this is your sriracha mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723802108097-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once fragrant, transfer the mushrooms to food processor (reserve the pan for lat
 
 Blitz until smooth – this is your mushroom pâté
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723802112932-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once hot, add your meat-free chick'n and cook for 6-7 min or until warmed throug
 
 Once starting to brown, add your red chilli relish to the pan and give everything a good mix up – this is your sweet chilli meat-free chick'n
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723802119351-x200.jpg)
 
 ### Step 7
 

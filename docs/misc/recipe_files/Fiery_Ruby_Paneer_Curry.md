@@ -28,6 +28,7 @@ Time for a classic paneer Ruby Murray with a fiery kick. You’ll pack in the he
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-3-1716392929161-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1716392934856-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped paneer and cook for 3-5 min or until golden, turning occasionally for even colouring
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-4-1716392947504-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ While the paneer is cooking, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml] </span>boiled water – this is your stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1716392960341-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the paneer is golden, reduce the heat to medium-low and add a drizzle of ve
 
 Add your ground smoked paprika, garam masala and curry powder and cook for 1 min or until very fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1716392969601-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the stock and your chopped tomatoes to the pan with a pinch of salt and pepp
 
 Increase the heat to medium-high and cook for 6-8 min or until the sauce has thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1716392983136-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Wash your spinach
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-3-1716392993545-x200.jpg)
 
 ### Step 7
 

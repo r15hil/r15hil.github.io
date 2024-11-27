@@ -32,6 +32,7 @@ Our twist on the classic rogan josh is made with lamb meatballs, making it speed
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/842.step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Add your lamb mince to a bowl with a generous pinch of salt and pepper and mix
 
 Divide the mince and shape into 3 meatballs per person
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/842.step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once hot, add the meatballs and cook for 2 min on each side, turning occasionall
 
 Return the pan to a medium-low heat, add the sliced onion with a pinch of salt and cook for 10 min or until they're softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/842.step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/842.step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Cut your tomato[es] into wedges
 
 Dissolve your vegetable stock mix and tomato paste in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/842.step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Increase the heat to high and add your garam masala and cayenne pepper (can't ha
 
 Add most of the chopped garlic (you'll use the rest later!) and all of the chopped ginger and cook for a further 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/842.step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once fragrant, return the meatballs to the pan and add the tomato stock, tomato
 
 Cook, covered, for 12-15 min or until the sauce resembles a curry-like consistency and the meatballs are cooked through (no pink meat!) – this is your lamb meatball rogan josh
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1648213141195-x200.jpg)
 
 ### Step 7
 

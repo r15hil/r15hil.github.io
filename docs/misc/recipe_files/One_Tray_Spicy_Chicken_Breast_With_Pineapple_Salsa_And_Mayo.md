@@ -22,6 +22,7 @@ You'll cook your succulent chicken breast on a bed of potato wedges and green pe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1728663240099-x200.jpg)
 
 ### Step 1
 
@@ -31,11 +32,13 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1728663243308-x200.jpg)
 
 ### Step 2
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into large bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1728663250859-x200.jpg)
 
 ### Step 3
 
@@ -43,6 +46,7 @@ Add the chopped potato, pepper to a baking tray with a drizzle of olive oil, hal
 
 Put the tray in the oven for an initial 10-12 min or the vegetables are starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1728663253622-x200.jpg)
 
 ### Step 4
 
@@ -52,16 +56,19 @@ After 10 min, remove the tray from the oven and arrange the seasoned chicken bre
 
 Return the tray in the oven for a further 18-20 min or until the chicken is cooked through (no pink meat!) and the potatoes are tender – this is your one tray spicy roast chicken breast
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1728663265363-x200.jpg)
 
 ### Step 5
 
 Meanwhile, drain your pineapple (save the juice!) and chop finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1728663268855-x200.jpg)
 
 ### Step 6
 
 Season the chopped pineapple with a pinch of salt and pepper and a drizzle of olive oil and toss together until fully combined – this is your pineapple salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1728663277496-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This simple, summery quinoa bowl has wholesome written all over it. Nutty rocket
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1145.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to low <span class="text-highlight">&amp;</span> c
 
 Once cooked, remove from the heat <span class="text-highlight">&amp;</span> leave to steam-dry <span class="text-highlight">until cool</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1145.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ Drizzle with the honey and sprinkle with both the toasted and black sesame seeds
 
 Put the tray in the oven for 15-20 min or until the feta is starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1145.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and finely chop (or grate) the garlic&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1145.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the chopped&nbsp;garlic (don't like raw garlic? Go easy!)&nbsp;to a large bo
 
 Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice!), cut in half and juice into the bowl &ndash; this is your lemon &amp; garlic dressing&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1145.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Slice the&nbsp;radishes finely
 
 Trim, then slice the spring onions&nbsp;finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1145.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the feta&nbsp;has browned, remove it from the oven and let cool slightly for 5 min &ndash; this is your baked honey &amp; sesame feta&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1145.-step-7-x200.jpg)
 
 ### Step 7
 

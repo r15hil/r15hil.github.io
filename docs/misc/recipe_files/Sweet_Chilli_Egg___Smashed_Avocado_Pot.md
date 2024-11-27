@@ -23,6 +23,7 @@ For this grab ‘n’ go brekkie, you’ll layer jammy eggs with sweet chilli sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073634863-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Make steps 2-6 the night before and finish the rest in the morning! Let the dish
 
 Skim through these steps and get all your equipment ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727103364706-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once boiling, cook for exactly 8 min for perfect, mid-boiled eggs
 
 Once done, drain and refill the pot with ice-cold water and the cooked egg[s] then set them aside to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727103368532-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Reboil the kettle
 
 Chop your tomato[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727103372428-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can – this is your blanched spinach
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1727103376097-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Add the juice of half the lime[s] to a small bowl with your red chilli relish, a
 
 Cut the remaining lime[s] into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727103379489-x200.jpg)
 
 ### Step 6
 
 Peel the cooled egg[s] and cut them into quarters
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727103383391-x200.jpg)
 
 ### Step 7
 

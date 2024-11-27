@@ -23,6 +23,7 @@ Harissa, ginger and garlic add a spicy kick to your crunchy Mediterranean veg an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629302453118-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the king prawns and cook for 4-5 min or until cooked through, then transfer them to a plate and reserve the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629302457886-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the ginger & garlic paste, cumin seeds, and half of the harissa paste (can't
 
 Once fragrant, add the Mediterranean veg mix, 1 tbsp <span class="text-danger">[2 tbsp]</span> cold water and cook, covered, for 4 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629302463455-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ In a small bowl, combine the Greek-style yoghurt and the remaining harissa paste
 
 Wash the baby leaf salad, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629302477947-x200.jpg)
 
 ### Step 4
 

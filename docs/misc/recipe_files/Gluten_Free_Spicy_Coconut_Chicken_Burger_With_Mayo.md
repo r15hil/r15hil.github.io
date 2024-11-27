@@ -29,6 +29,7 @@ This tropical gluten free burger will have you dreaming of palm trees. You'll ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679659645395-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ol
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679659650272-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Peel your garlic
 
 Combine 1 tsp <span class="text-purple"><span class="text-danger">[1 1/2tsp]</span> [2 tsp]</span> sugar in a small bowl with the juice of half the lime[s] and the chilli rounds and set aside – this is your quick-pickled chilli
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679659654605-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Add 1 tbsp <span class="text-purple">[1 1/2tbsp]</span> <span class="text-danger
 
 Tip: Don't have a food processor? Chop the ingredients and grind to a paste in a pestle & mortar instead!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679659658732-x200.jpg)
 
 ### Step 4
 
 Add your mayo to a bowl with half the coconut marinade (you'll use the rest later!) – this is your sunshine mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679659663170-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Slice through the thickest part of your chicken breast portion[s], being careful
 
 Add the butterflied chicken to a large bowl with the remaining coconut marinade and give everything a good mix up – this is your coconut marinated chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679659666746-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the coconut marinated chicken and cook for 6 min on each side or until slightly charred and cooked through (no pink meat!) – this is your spicy coconut chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679659670744-x200.jpg)
 
 ### Step 7
 

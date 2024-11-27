@@ -21,6 +21,7 @@ In just 10 minutes you'll have a fabulous steak dinner inspired by the cuisine o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623398832658-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary, and if you like your steak well-done, it may take you a little longer than 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1775.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on each side; for medium, cook for 3-4 min on each side
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1775.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Meanwhile, chop your chestnut mushrooms roughly
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1775.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of 
 
 Once hot, add the chopped mushrooms with a pinch of salt and cook for 3-4 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1775.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Return the pan to a medium-high heat and add your gnocchi with a generous knob 
 
 Tip: Don’t stir too often as this will prevent the gnocchi from crisping!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1775.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the mushrooms have softened, add your balsamic vinegar and cook for 1-2 min
 
 Once the balsamic vinegar has evaporated, remove the pan from the heat and add your spinach, mix it all together and set aside until slightly wilted – this is your balsamic mushrooms & spinach
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1775.-step-7-x200.jpg)
 
 ### Step 7
 

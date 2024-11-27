@@ -28,6 +28,7 @@ These spicy, smoky prawns are incredible. You'll marinade them in paprika, garli
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2413Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add most of the chopped garlic (you'll use the rest later!), your ground smoked 
 
 Add a pinch of salt and pepper and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil and give it a good mix up – this is your spicy marinade
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2413Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Drain your jumbo prawns, then add them to the spicy marinade and gently mix toge
 
 Set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2413Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once boiling, reduce the heat to medium and cook, for 6-8 min or until all the q
 
 Once cooked, drain and return it to the pot until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2413Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Cut your avocado[s] in half lengthways, remove the stone[s] using a teaspoon, sc
 
 Add it all to a bowl and give it a gentle mix up – this is your salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2413Step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Chop your coriander finely, including the stalks
 
 Cut your lime[s] in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2413Step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add a pinch of salt and blitz until smooth – this is your lime & coriander yog
 
 Tip: Don't have a food processor? Chop the coriander and garlic as finely as you can then mix it all together in a small bowl
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2413Step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Fancy a fragrant fakeaway? You’ll make pork and prawn patties, chock full of g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-7-1678455828181-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) half your 
 
 Wash your pak choi, then pat it dry with kitchen paper and chop into quarters lengthways
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-4-1678455836095-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water, the chopped creamed coconut and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-3-1678455841217-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1678455845940-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Tip: Cooking for 3 or more? Make 2 separate parcels!
 
 Put the tray in the oven for 15-20 min or until the pak choi is tender – this is your ginger pak choi
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-4-1678455850223-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Drain your king prawns and pat them dry with kitchen paper, then set aside 3 dra
 
 Combine your pork mince (remove the paper if required!) and the minced prawns in a large bowl with the grated garlic, chopped coriander, grated ginger, panko breadcrumbs, red Thai curry paste and a pinch of salt, then divide and shape into 3 patties per person, then press a reserved prawn firmly into the top of each patty – these are your Thai-style patties
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1678455854627-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the Thai-style patties (prawn-side up!) and cook, covered, for 5-6 min, then reduce the heat to medium-high, flip and cook, covered, for a further 5 min or until cooked through (no pink meat!) – these are your Thai-style pork & prawn cakes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-3-1678455857820-x200.jpg)
 
 ### Step 7
 

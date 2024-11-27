@@ -27,6 +27,7 @@ Fall in meat-loaf with this stove-top showstopper. You’ll pan-fry your homemad
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676975634430-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 10-12 min, then drain over a large bowl (save the water for later!) and shake them around the colander to fluff up the edges, reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676975638825-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and grate (don't chop!) the garlic
 
 Combine the red wine paste, tomato paste and honey in a small bowl with 2 tbsp <span class="text-danger">[4 tbsp] </span>cold water – this is your red wine glaze
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676975643463-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Shape the pork mixture into 2 <span class="text-danger">[4] </span>mini<span cla
 
 Reboil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676975648163-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once hot, add the meatloaves to the pan and cook for 2-3 min, turning occasional
 
 Once browned, turn the heat down to low, add 80ml <span class="text-danger">[100ml] </span>boiled water to the pan and drizzle the red wine glaze over the meatloaves (reserve the bowl) and cook, covered for 20-22 min or until cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676975664681-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Heat a separate, large, wide-based pan (preferably non-stick) with a very genero
 
 Once hot, add the drained potatoes with a generous pinch of salt and cook for 16-17 min or until golden and crispy, turning occasionally for even colouring
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676975669803-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once melted, add the sliced onion and remaining garlic with a generous pinch of 
 
 Once softened, add the Chantenay carrots (no need to top or peel!) with 120ml <span class="text-danger">[200ml] </span>reserved potato water and cook, covered for an initial 8-9 min or until tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676975673272-x200.jpg)
 
 ### Step 7
 

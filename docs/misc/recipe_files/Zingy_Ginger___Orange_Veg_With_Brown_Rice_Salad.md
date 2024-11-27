@@ -27,6 +27,7 @@ Ginger's not just a zingy addition to this aubergine salad, it's also famous for
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626447752857-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Transfer the aubergine wedges to a baking tray (or two!) with a drizzle of veget
 
 Put the tray in the oven for an initial 20 min or until the aubergine is tender and lightly golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626447758934-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626447767771-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Peel and grate the garlic
 
 Cut the orange<span class="text-danger">[s] </span>in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626447780310-x200.jpg)
 
 ### Step 4
 
 Combine the juice of the orange<span class="text-danger">[s]</span>, grated ginger, grated garlic and soy sauce in a small bowl – this is your zingy ginger & orange dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626447790044-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Wash the gem lettuce and pat it dry with kitchen paper
 
 Chop the root<span class="text-danger">[s]</span> off the lettuce and discard, then separate the leaves and set them aside until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626447798308-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Cook for 10 min further or until the broccoli is tender – this is your zingy g
 
 Add the sesame oil and cider vinegar to the remaining zingy ginger & orange dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626447807454-x200.jpg)
 
 ### Step 7
 

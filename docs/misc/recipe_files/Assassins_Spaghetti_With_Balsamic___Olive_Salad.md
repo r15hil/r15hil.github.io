@@ -29,6 +29,7 @@ Watch out, this Puglian cult classic is absolutely killer. Make your own by char
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687517621393-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely dice brown onion[s]
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat, then once hot, add the diced onion and cook for 3-4 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687517625321-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine your tomato paste and 300ml<span class="text-purple"> [450ml]</span> <span class="text-danger">[600ml]</span> boiled water with your chopped tomatoes, vegetable stock mix, half your balsamic vinegar (you'll use the rest later!) and the chopped garlic – this is your tomato stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687517629022-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Tip: You may need to break the spaghetti in half to fit the pan
 
 Add a pinch of salt and pepper and cook for 2-3 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687517633943-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once fragrant, increase the heat to medium-high and add a splash of the tomato s
 
 Cook for 4-5 min or until starting to char, turning the spaghetti occasionally
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687517638072-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Meanwhile, add your cherry tomatoes to a baking paper-lined baking tray with a d
 
 Put the tray in the oven and cook for 8-10 min or until starting to blister and char – these are your roast cherry tomatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687517643193-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the spaghetti is slightly charred, add the tomato stock a ladle at a time, 
 
 Tip: Add a splash more water if it is looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687517648968-x200.jpg)
 
 ### Step 7
 

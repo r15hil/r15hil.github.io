@@ -21,6 +21,7 @@ Add extra crunch to breaded fish by coating your fillets in crunchy seeds and br
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1036.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Trim the woody ends off the asparagus spears and add them to a baking tray
 
 Drizzle the trimmed asparagus with olive oil and season with a pinch of salt, then put the tray in the oven for 15-20 min or until the asparagus is tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1036.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt over a hi
 
 Once cooked, drain and return them to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1036.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the mayo and a generous pinch of both salt and pepper to the bowl and give e
 
 Cut the remaining lemon<span class="text-danger">[s] </span>into 2 <span class="text-danger">[4] </span>wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1036.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Crack the egg<span class="text-danger">[s]</span> into a shallow bowl and beat l
 
 Combine the panko breadcrumbs and the pine nut & seed mix<span class="text-danger"> </span>in a large bowl with a generous pinch of salt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1036.-step-5-x200.jpg)
 
 ### Step 5
 
 Coat the basa fillets in the flour, tap off the excess, then dip them into the beaten egg and finally press them into the seed & breadcrumb mix firmly to coat everything evenly – these are your seeded fish fillets
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1036.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once hot, add the seeded fish fillets and cook for 3-4 min on each side, or unti
 
 Tip: Add some extra oil if your pan is looking dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1036.-step-7-x200.jpg)
 
 ### Step 7
 

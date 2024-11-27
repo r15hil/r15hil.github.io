@@ -23,6 +23,7 @@ This meat-free bacon tart is a work of art. You'll top buttery puff pastry with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714663629323-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714663633003-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add your meat-free bacon lardons to the pan and cook for 4-5 min or until golden
 
 Once the meat-free bacon is starting to crisp, transfer to a plate and set aside until later, reserving the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714663636410-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the sliced leek to the pan with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714663639788-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the chopped garlic to a bowl with your soft cheese, oregano and 1 tbsp <span
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your soft cheese mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714663643341-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the pastry to the tray[s] and score a 1cm border around the edge of the past
 
 Tip: The pastry border will puff up to give you a nice crust!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714663646609-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the softened leeks and top with the crispy meat-free bacon
 
 Put the tray[s] in the oven for 18-20 min or until the pastry is cooked through and puffed up – this is your crispy meat-free bacon & leek tart
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714663649600-x200.jpg)
 
 ### Step 7
 

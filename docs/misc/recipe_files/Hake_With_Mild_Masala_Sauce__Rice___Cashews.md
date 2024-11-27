@@ -20,6 +20,7 @@ Enjoy the flavours of India with this simple yet classy fish dish. You'll pan fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1823.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Season with a pinch of salt
 
 Once boiling, reduce the heat to very low and cook, covered, for an initial 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1823.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Once hot, add the crushed cashews and cook for 3-4 min or until browned all ove
 
 Transfer the cashews to a plate and reserve the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1823.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, pat the hake dry with kitchen roll and season both sides with a pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1823.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once the rice has been cooking for 10 min, add the green beans to the pot and c
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1823.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Flip the fish so that it's skin-side up and cook for 1-2 <span class="text-high
 
 Tip: your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1823.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Tip: the pan will be hot enough to cook out the spices!
 
 Add the curry powder and <span class="text-highlight">ground</span> turmeric to the pan and cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1823.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Say adios to tortillas, and get ready for a bowl-based Mexican smokeshow. You’
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1661183939461-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661183894226-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and roughly slice your shallot[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661183905760-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the sliced shallot and chopped pepper with a pinch of salt and coo
 
 Once slightly softened, add your roasted garlic paste, ground smoked paprika and ground cumin and cook for a further 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661183903619-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once fragrant, add the drained black beans and sweetcorn to the pan with your ch
 
 Once boiling, reduce the heat to medium-high and cook for 2-3 min further or until the sauce has begun to thicken – this is your Mexican-style tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661183909834-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661183913109-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ While everything is cooking, grate your cheddar cheese
 
 Chop your chives finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661183916246-x200.jpg)
 
 ### Step 7
 

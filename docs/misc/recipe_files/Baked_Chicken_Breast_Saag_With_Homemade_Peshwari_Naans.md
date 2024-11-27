@@ -30,6 +30,7 @@ Home-style takeaway, the Indian way. You’ll stew tender spinach and juicy chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1705424878628-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid,
 
 Once hot, add your diced chicken breast to the dish and cook for 2-3 min or until lightly browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1705424884648-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once browned, add the onion wedges to the dish with your ginger & garlic paste, 
 
 Add the tomato stock and bring to the boil over a high heat, once boiling put the dish in the oven and cook, covered, for an initial 35 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1705424892209-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
 Take some butter out of the fridge and set aside to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1705424898595-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once golden, add half the toasted coconut (you’ll use the rest later!) to a pe
 
 Mix the crushed coconut with your sultanas and nigella seeds – this is your peshwari filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1705424917569-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Tip the dough out onto a lightly oiled work surface and cut into 2<span class="t
 
 Press each dough ball out into an oval disc with your fingers – these are your naans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1705424923731-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ After 35 min, remove the dish from the oven, and add the spinach
 
 Give everything a good mix up and return the dish to the oven, uncovered, for a final 10 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1705424929174-x200.jpg)
 
 ### Step 7
 

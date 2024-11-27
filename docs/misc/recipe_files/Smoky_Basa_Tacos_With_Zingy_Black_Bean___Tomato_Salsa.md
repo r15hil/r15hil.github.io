@@ -26,6 +26,7 @@ Taco walk on the wild side with these basa-filled tortillas. You’ll coat your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1666707480081-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666707517533-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add your ground smoked paprika and ground coriander to a plate with a generous p
 
 Add your basa fillet[s] to the spice blend and turn several times until fully coated in all the spices
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1683103525332-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Zest half your lime[s] (try to grate lightly with a micro-plane or sharp box gra
 
 Drain and rinse your black beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683103593173-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683103596413-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Meanwhile, add the drained black beans to a bowl with the chopped tomato, sliced
 
 Season with a generous pinch of salt and pepper and give everything a good mix up – this is your zingy black bean & tomato salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683103600168-x200.jpg)
 
 ### Step 6
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683103605605-x200.jpg)
 
 ### Step 7
 

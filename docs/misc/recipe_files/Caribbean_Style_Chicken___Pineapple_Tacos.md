@@ -26,6 +26,7 @@ These quick and easy chicken tacos are inspired by the sunshine of the Caribbean
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724923105815-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add your ground allspice, ground smoked paprika and cayenne pepper (can't handle
 
 Add the chicken thighs to the plate and turn them several times until they're fully coated in all the spices – this is your coated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724923112016-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated chicken to the pan and cook for 9 min on each side or until charred and cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724923118163-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Peel and finely dice your shallot[s] and chop your coriander finely, including t
 
 Wash, then shred your lettuce[s] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724923124002-x200.jpg)
 
 ### Step 4
 
 Combine the chopped pineapple, diced shallot and chopped coriander in a bowl with a pinch of salt – this is your pineapple salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724923128719-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine your mayo and reserved pineapple juice in a separate bowl with a pinch of salt and pepper – this is your pineapple mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724923133100-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once the chicken is cooked, transfer it to a clean board and shred it apart, usi
 
 Return the pulled chicken to the pan with the chopped garlic and cook over a medium-high heat for 1-2 min or until fragrant – this is your Caribbean-style chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724923137418-x200.jpg)
 
 ### Step 7
 

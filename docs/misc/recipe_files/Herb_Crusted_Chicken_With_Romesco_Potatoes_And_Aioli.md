@@ -28,6 +28,7 @@ Winner winner, Catalonian chicken dinner. You’ll coat succulent chicken breast
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721201907730-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Deseed your red pepper[s] (scrape the seeds and pith out with a teaspoon) and ro
 
 Crush half your garlic clove[s] (you'll use the rest later!) open by squashing with the side of a knife and remove the skin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721201921037-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the chopped pepper to the middle with the crushed garlic, a drizzle of olive
 
 Scrunch the edges of the foil around the pepper to form a sealed parcel[s] and add to one side of a baking tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721201934624-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chopped potatoes to other side of the baking tray (or two!) with a drizz
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721201941122-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine your panko breadcrumbs in a bowl with half the chopped parsley, half you
 
 Combine the chopped garlic and mayo in a bowl with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> cold water – this is your aioli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721201948502-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Spread a dollop of the aioli on each chicken breast and sprinkle the herby bread
 
 Put the tray in the oven for 15-18 min or until the chicken is cooked through (no pink meat!) and the crust is golden – this is your herb-crusted chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721201994701-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Return the tray to the oven and cook your potatoes for a further 5-10 min or unt
 
 Meanwhile, add the softened pepper, garlic, remaining smoked paprika, flaked almonds and the juice of half your lemon[s] (save the rest for later!) to a food processor with a pinch of salt and pepper, then blitz until you have a coarse paste – this is your romesco sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721202001138-x200.jpg)
 
 ### Step 7
 

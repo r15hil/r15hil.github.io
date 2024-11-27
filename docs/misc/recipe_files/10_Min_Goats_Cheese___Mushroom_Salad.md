@@ -20,6 +20,7 @@ A flavour-packed salad that you can make in a flash! You'll top the mixed baby l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1625.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Rip the focaccia into rough bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1625.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add the ripped focaccia to a baking tray with a drizzle of olive oil and a pinch
 
 Put the tray in the oven for 5-6 min or until lightly crisp – these are your focaccia croutons
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1625.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,11 +74,13 @@ Season with a pinch of salt and pepper and cook for 5 min or until golden and so
 
 Tip: Try not to stir the mushrooms too often, as this will stop them from caramelising!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1625.-step-5-x200.jpg)
 
 ### Step 5
 
 While the chestnut mushrooms soften, chop the basil finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1625.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Combine the chopped basil with the Dijon mustard, white wine vinegar, 3 tbsp<spa
 
 Season with a pinch of salt, pepper and sugar and stir it all together – this is your basil dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1625.-step-7-x200.jpg)
 
 ### Step 7
 

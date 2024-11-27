@@ -29,6 +29,7 @@ First, you'll blitz your sauce with charred pepper and ras el hanout. Then, toss
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-2-1709225331926-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return to the pot and add your diced apricots and sultanas and stir it all together, then keep covered until serving – this is your fruity rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1709225336327-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and cut your brown onion[s] into quarters, then separate the wedges so you 
 
 Take your chicken out of the fridge, open the packet and let it air, then boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1709225341847-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the chopped pepper (skin side down) to the pan with the onion peta
 
 Cook, covered, for 6-7 min or until slightly softened and charred
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1709225346224-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once cool, squeeze as much water out of the spinach as you can and chop roughly
 
 Chop your tomato[es] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1709225355816-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add your ras el hanout to the blitzed vegetables with your tomato paste, chicken
 
 Whizz until smooth – this is your spiced pepper sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1709225363653-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Return the reserved pan to a high heat with a drizzle of vegetable oil
 
 Once hot, add your diced chicken thigh and cook for an initial 7-8 min or until the chicken is almost cooked and browned all over
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-8-1709225371314-x200.jpg)
 
 ### Step 7
 

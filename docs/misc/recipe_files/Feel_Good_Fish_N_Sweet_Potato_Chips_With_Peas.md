@@ -23,6 +23,7 @@ Do away with grease-soaked newspaper and coat your fish in chive crumbs instead.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1590578287723-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Cut your sweet potato[es] (skin on) into thin chips, then add them to a baking 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1590578292407-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Combine the chopped chives with your panko breadcrumbs and a generous pinch of s
 
 Add a generous drizzle of olive oil and stir it together until all of the breadcrumbs are coated in the oil – this is your chive crumb
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1590578298178-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Put the tray[s] in the oven for 12-15 min or until golden and cooked through –
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1590578303278-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Season with a pinch of salt and pepper – this is your lemony mayo
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1590578307876-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the carrot batons to a pot with a lid, with plenty of boiling water over a h
 
 Once boiling, cook for 3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1590578312744-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once done, drain the vegetables and return them to the pot with a knob of butter
 
 Keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1590578318083-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ Our fakeover of peri-peri chicken is mother-cluckin’ delicious. You’ll marin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681817558778-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Combine the chicken thighs with half the peri-peri spice mix (can't handle the heat? Go easy!), 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil, 1 tsp <span class="text-danger">[2 tsp]</span> sugar, half the red wine vinegar (you'll use the rest later!) and a very generous pinch of salt and pepper in a large bowl and set aside – this is your marinated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681817563394-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a pot with a lid on a medium heat with a drizzle of olive oil
 
 Once hot, add half the grated garlic (save the rest for later!), ground smoked paprika, ground turmeric and a generous pinch of salt and cook for 30 secs or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681817571447-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681817579043-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Transfer the browned chicken to a tin foil-lined baking tray (reserve the pan!)
 
 Put the tray in the oven for 12-14 min further or until the chicken is cooked through (no pink meat!) – this is your peri-peri chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681817584956-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once hot, add the remaining grated garlic, remaining peri-peri spice mix (not a 
 
 Once fragrant, add the peri-peri tomato mix to a small bowl with the remaining red wine vinegar, mayo and a pinch of sugar and mix until fully combined – this is your perinaise
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681817592357-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Strip the mint leaves from their stems and chop them roughly, discard the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681817598033-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ A bit of a show off one this one! You'll stuff the chicken skin with chorizo, wh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/844.step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop the chorizo as small as you can
 
 Deseed the peppers (scrape the seeds and pith out with a teaspoon) and cut into bite-size pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/844.step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once cooked, drain and return to the pot
 
 Tip: black rice has got a bite to it, so don't worry if you think it's not cooked after 30 min, it will be!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/844.step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Tip: soaking saffron in hot water infuses the water, bringing out its colour and
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/844.step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Divide the chopped&nbsp;chorizo between the chicken thighs and sandwich it betwe
 
 Season the stuffed chicken with salt and pepper&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/844.step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add the romano&nbsp;pepper&nbsp;to a baking tray, drizzle with olive oil and sit
 
 Put the tray in the oven for 25 min or until the pepper has softened and the chicken is cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/844.step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Add the mayonnaise to the bowl with the saffron and water&nbsp;and mix well
 
 Add the&nbsp;garlic and season with salt and pepper - this is your saffron aioli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/844.step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ For this easy traybake, you'll smother chicken breast in a harissa marinade befo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1679993956479-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop your tomato[es] into wedges
 
 Top, tail and chop your courgette[s] in half lengthways, then slice into half moons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1679993969522-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Add the sliced courgette, onion wedges, tomato wedges, peeled garlic, chicken br
 
 Give everything a really good mix up (clean hands is the best way!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1679993977320-x200.jpg)
 
 ### Step 3
 
 Put the tray[s] in the oven for an initial 20 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1679993981342-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Cook for 5-7 min or until tender with a slight bite, then drain and rinse briefl
 
 Set aside for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1679993984862-x200.jpg)
 
 ### Step 5
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml] </span>boiled water and mix to combine
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1679993989000-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the chicken has had an initial 20 min, remove the tray[s] from the oven and
 
 Pour the chicken stock over the top and return the tray[s] to the oven for 5 min further or until the chicken is cooked through (no pink meat!) and the sauce has slightly thickened – this is your honey-harissa chicken breast & courgette tray bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1679993993220-x200.jpg)
 
 ### Step 7
 

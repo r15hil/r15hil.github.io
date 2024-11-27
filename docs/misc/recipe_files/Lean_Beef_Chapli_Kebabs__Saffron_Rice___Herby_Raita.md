@@ -26,6 +26,7 @@ This recipe is inspired by the famous Chapli kebabs from Peshawar, one of Pakist
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683215950969-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Strip the mint leaves from their stems and discard the stems
 
 Add the mint leaves, coriander (including the stalks) and a pinch of salt to the food processor with a splash of water and blitz again for 10-15 secs or until paste-like
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683215956834-x200.jpg)
 
 ### Step 2
 
 Add the coriander & mint paste to a bowl with the natural yogurt and give everything a good mix up – this is your herby raita
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683215962742-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Tip: Cooking for 4? You may need to do this in 2 batches!
 
 Add the lean beef and onion mix to the garlic & ginger bowl
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683215968904-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add the patties to a baking tray lined with non-stick baking paper and drizzle w
 
 Put into the oven for 15 min or until cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683215973566-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add 300ml<span class="text-danger"> [600ml]</span> water and bring to the boil o
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1683633178849-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Peel and finely slice the remaining onion
 
 Add the chopped tomatoes and sliced onion to a bowl with a drizzle of olive oil and a generous pinch of salt and pepper – this is your red onion & tomato salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1683633182638-x200.jpg)
 
 ### Step 7
 

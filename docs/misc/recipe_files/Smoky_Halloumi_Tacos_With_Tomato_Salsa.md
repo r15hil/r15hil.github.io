@@ -22,6 +22,7 @@ For this speedy supper, you'll grill halloumi, zap tortillas in the microwave, a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1617036353949-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1541.-step-1-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Preheat the grill to a high heat
 
 Slice the halloumi into 12 <span class="text-danger">[24]</span> slices
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1541.-step-2-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Drizzle with vegetable oil and sprinkle over the smoked paprika
 
 Put the tray directly under the grill for 4-5 min or until warmed through and softened – this is your smoky halloumi
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1541.-step-3-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop the cherry tomatoes roughly
 
 Chop the coriander leaves and cherry tomatoes together until combined
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1541.-step-4-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Transfer the chopped tomato & coriander to a bowl
 
 Add the juice of 1/2<span class="text-danger"> [1] </span>lime and season with a pinch of salt and pepper – this is your tomato salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1541.-step-5-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Combine the chipotle paste (can't handle the heat? Go easy!) and natural yoghur
 
 Add the tortillas to a plate and microwave for 1-2 min, or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1541.-step-7-x200.jpg)
 
 ### Step 7
 

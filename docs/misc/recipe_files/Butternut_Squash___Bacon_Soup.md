@@ -24,6 +24,7 @@ For this warm and cosy bowl, you'll blitz sweet and tender butternut squash into
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2322Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Scoop out the seeds with a spoon and discard
 
 Chop the butternut squash into small, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2322Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chopped butternut squash to a baking tray with a generous drizzle of veg
 
 Give everything a good mix up and put the tray in the oven for 25 min or until softened and starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2322Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the chopped bacon and cook for 4-5 min, stirring occasionally, unt
 
 Once crisp, transfer the bacon to kitchen paper and reserve the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2322Step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Peel and finely slice (don't chop!) the garlic
 
 Dissolve the chicken stock mix in 650ml <span class="text-danger">[1.3L]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2322Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Meanwhile, peel the potato<span class="text-danger">[es]</span> and chop into sm
 
 Once the onion has softened, add the chicken stock and chopped potato and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2322Step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Tear the ciabattas into rough, bite-sized pieces and add them to the tray
 
 Sprinkle over the grated Italian hard cheese, pumpkin seeds and chilli flakes (can't handle the heat? Go easy!) and put the tray in the oven for 4-5 min or until golden – these are your chilli-cheese croutons
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2322Step-7-x200.jpg)
 
 ### Step 7
 

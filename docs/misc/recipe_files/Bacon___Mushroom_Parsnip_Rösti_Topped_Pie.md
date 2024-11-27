@@ -25,6 +25,7 @@ This mid-week dinner is easy as pie. You’ll whip up a deliciously creamy sage,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669727379563-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the bacon lardons and cook for 3-4 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669727387090-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop the chestnut mushrooms into quarters
 
 Top, tail, peel and dice the carrot<span class="text-danger">[s]</span> finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669727390714-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the bacon lardons are crisp, add the sliced onion, chestnut quarters and di
 
 Once the onion has softened, add the cornflour and stir it all together and cook for 1 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669727394771-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ After 1 min, add the creamy sage stock to the pan and give everything a good mix
 
 Season with a generous grind of black pepper and cook for 2-3 min or until starting to thicken – this is your pie filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669727400244-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Grate the potatoes (skins on)
 
 Top, tail, peel and grate the parsnip<span class="text-danger">[s]</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669727405704-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Season with a grind of black pepper and put the dish in the oven for 20-25 min o
 
 Trim the green beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669727420283-x200.jpg)
 
 ### Step 7
 

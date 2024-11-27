@@ -24,6 +24,7 @@ Aubergines are the star of this Greek classic; their meaty flesh is transformed 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/356.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut the aubergine<span style="color: #e86754;">[s]</span>&nbsp;and potatoes (ski
 
 Heat 1 tbsp <span style="color: #e86754;">[2 tbsp]&nbsp;</span>olive oil in a large, wide-based pan (non-stick) over a high heat and cook the aubergine for 5 min on each side
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/356.step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the sliced potatoes
 
 Cover with a lid and cook&nbsp;for 10 min or until nearly tender, then drain (keep the drained stock) and leave to&nbsp;steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/356.step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Meanwhile, peel and finely dice the red onion<span style="color: #e86754;">[s]</
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/356.step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Add the garlic and cook for 1 min
 
 Add the tinned tomatoes and the reserved potato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/356.step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,6 +93,7 @@ Meanwhile, grate the cheddar
 
 Chop the parsley finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/356.step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Beat the egg<span style="color: #e86754;">[s]</span>&nbsp;in a mixing bowl as if
 
 Stir in the Greek yoghurt and grated cheddar - this is your yoghurt topping
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/356.step-7-x200.jpg)
 
 ### Step 7
 

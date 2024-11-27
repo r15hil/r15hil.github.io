@@ -24,6 +24,7 @@ From artisan British pancetta to a zesty lemon dressing, this impressive dish is
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1591.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the potatoes to a pot of boiling water with a pinch of salt, bring to the bo
 
 Once done, drain and set aside for later.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1591.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>.
 
 Slice the sugar snap peas in half on a diagonal.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1591.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,6 +75,7 @@ Once crispy, transfer the pancetta to a plate and return the pan to a medium hea
 
 Add the chopped shallot and garlic and cook for 2-3 minutes or until softened.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1591.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -89,6 +93,7 @@ Cut 4 <span class="text-danger">[8]</span> thin slices from the lemon<span clas
 
 Combine the juice of the remaining lemon in a bowl with the Dijon mustard, 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt – this is your lemon vinaigrette.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1591.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -103,6 +108,7 @@ Add the sugar snap peas with a pinch of salt and pepper and cook for 3-4 minute
 
 Once tender, remove the pan from the heat and set aside for later.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1591.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -117,6 +123,7 @@ Lay the lemon slices over the fish and put the tray in the oven for 8-10 minutes
 
 Tip: Your fish is cooked once it turns opaque and flakes easily.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1591.-step-7-x200.jpg)
 
 ### Step 7
 

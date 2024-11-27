@@ -31,6 +31,7 @@ A plant-based plate full of delicious spiced lentil koftas, oven-roasted vegetab
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657292244841-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Top, tail and chop your courgette[s] in half lengthways, then slice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657292255240-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Give everything a good mix up and put the tray[s] in the oven for 20-25 min or u
 
 Chop your coriander finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657292258285-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once fragrant, transfer the garlic to a food processor and set aside, reserve th
 
 Meanwhile, drain and rinse your green lentils and chickpeas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657292270098-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add the juice of half your lemon[s], a drizzle of olive oil and a generous pinch
 
 Tip: If the mixture is a little dry, try adding a small splash of water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657292276191-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Add the spiced koftas to the baking tray[s] and drizzle them with olive oil
 
 Put the tray[s] in the over for 15 min or until beginning to brown and crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657292287435-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Add the remaining chickpeas, the juice of the remaining lemon and remaining grou
 
 Tip: Add a splash more cold water if your hummus is looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657292307551-x200.jpg)
 
 ### Step 7
 

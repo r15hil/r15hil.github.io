@@ -29,6 +29,7 @@ This hot and sour-inspired stir-fry packs a zingy, mouthwatering punch. You'll c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648545821591-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648545823820-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the carrot matchsticks and quartered mushrooms with a pinch of salt and cook for 4-5<span class="text-danger"> </span>min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648545827103-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate)your ginger
 
 Combine your cornflour, soy sauce, sriracha, chilli flakes (can't handle the heat? Go easy!) and rice vinegar in a bowl with a pinch of sugar – this is your hot & sour stir-fry sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648545829281-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Boil a kettle
 
 Once the veg is beginning to soften, add the chopped garlic and chopped ginger to the pan and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648545832323-x200.jpg)
 
 ### Step 5
 
 Once fragrant, drain your king prawns, then add them to the pan with a pinch of salt and cook for 4-5 min further or until the prawns are cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648545834934-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Rinse the wilted spinach under cold running water until it’s cool
 
 Once cool, squeeze as much water out of the cooled spinach as you can, then chop it roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648545837712-x200.jpg)
 
 ### Step 7
 

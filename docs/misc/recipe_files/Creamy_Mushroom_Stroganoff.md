@@ -25,6 +25,7 @@ In this silky Russian-inspired stroganoff, you'll smother smoky caramelised mush
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/176_step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the sliced onion with a pinch of salt and cook for 10 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/176_step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut your chestnut mushrooms into quarters
 
 Strip your thyme leaves from their stems and chop them finely, discard the stems
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/176_step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Season with salt and a generous amount of pepper
 
 Spread the mushrooms out as much as possible and allow to cook, without stirring, for 5-10 min or until caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/176_step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618485831688-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ While the pasta is cooking, combine the remaining chopped thyme, crème fraîche
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml] </span>boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/176_step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once caramelised, add half of your vegetable stock (you'll use the rest later!) 
 
 Add the remaining ground smoked paprika and stir well
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/176_step-7-x200.jpg)
 
 ### Step 7
 

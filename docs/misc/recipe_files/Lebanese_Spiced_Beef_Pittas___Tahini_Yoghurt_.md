@@ -25,6 +25,7 @@ These Lebanese beef 'arayes' filled pittas are an easy yet adventurous treat the
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1209.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ These Lebanese beef 'arayes' filled pittas are an easy yet adventurous treat the
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1209.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cut the pitta bread in half and carefully peel the pockets open
 
 Tip: don't worry if you tear the bread a little
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1209.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Close the pitta pocket and press down firmly <span class="text-highlight">&ndash
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1209.-step-4a-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add a heavy weight (e.g an oven-proof dish) and put the trays in the oven for 15
 
 Tip: the heavy weight flattens the arayes to help them stay together
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1209.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Season with a pinch of salt and pepper and give it a good mix up <span class="te
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1209.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Chop the cucumber roughly
 
 Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1209.-step-7-x200.jpg)
 
 ### Step 7
 

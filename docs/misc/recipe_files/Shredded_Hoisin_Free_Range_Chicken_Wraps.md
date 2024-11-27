@@ -25,6 +25,7 @@ This speedy twist on crispy Chinese pancakes is perfect when you're craving take
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1706628158160-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) over a medium-high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706628162285-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Once hot, add your free range chicken breast portion[s] and cook for 3 min on 
 
 Add a couple of splashes of water to the pan and cover with a lid, then cook for a further 12-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1706628167473-x200.jpg)
 
 ### Step 3
 
@@ -46,21 +49,25 @@ Whilst the chicken is cooking, slice your cucumber into discs
 
 Slice each individual cucumber disc into matchsticks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1706628171390-x200.jpg)
 
 ### Step 4
 
 Trim, then slice your spring onion[s] lengthways into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706628175767-x200.jpg)
 
 ### Step 5
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1706628191204-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked, transfer it to a clean board and shred it apart, using two forks – this technique is known as 'pulling' – this is your shredded chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1706628200142-x200.jpg)
 
 ### Step 7
 

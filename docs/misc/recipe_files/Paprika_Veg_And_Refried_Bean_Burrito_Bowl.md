@@ -32,6 +32,7 @@ Fibre-packed homemade refried beans, a refreshing cherry tomato salsa, paprika-r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1664.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Deseed your peppers (scrape the seeds and pith out with a teaspoon) and cut into
 
 Cut your red onion[s] into wedges, leaving the skins on (this helps them cook quicker)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1664.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Put the tray[s] in the oven for 20-25 min or until the veg has softened and is c
 
 Once done, carefully cut off the onion root and remove the skins – this is your paprika veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1664.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1664.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add the chopped cherry tomatoes and sliced spring onion to a bowl with a drizzle
 
 Give everything a good mix up – this is your cherry tomato salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1664.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Combine your natural yoghurt, lime zest and juice of half your lime[s] in a smal
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1646407735095-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your tomato paste, drained black beans and your chipotle paste and stir for 1 min or until the beans are coated in the paste
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1646407738469-x200.jpg)
 
 ### Step 7
 

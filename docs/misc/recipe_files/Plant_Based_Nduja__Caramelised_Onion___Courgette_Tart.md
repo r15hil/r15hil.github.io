@@ -25,6 +25,7 @@ Plant lovers rejoice, meat-free ‘nduja is on the menu. Dollop your caramelised
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683627542618-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion with a pinch of salt, then reduce the heat to low and cook for 8-10 min or until the onion has softened and caramelised
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683627546005-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Put the tray[s] in the oven for 25-30 min or until golden
 
 Top, tail and slice half your courgette[s] (you'll use the rest later!) into discs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683627551238-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Line a baking tray (or two!) with non-stick baking paper
 
 Add the pastry square[s] to the tray[s] and score a 1cm border around the edge of the pastry with a knife
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683627554763-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Top the pastry square evenly with the caramelised onion and courgette discs and 
 
 Put the tray[s] in the oven for an initial 10 min or until the pastry is golden and the edges have started to puff up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683627561218-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once cooked through and golden, remove the tray[s] from the oven and drizzle over the agave – this is your plant-based 'Nduja, caramelised onion & courgette tart
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683627564763-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Combine your cider vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span>
 
 Wash your salad and pat it dry with kitchen paper, then add it to the dressing with the courgette ribbons and give everything a gentle mix up – this is your courgette salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683627568722-x200.jpg)
 
 ### Step 7
 

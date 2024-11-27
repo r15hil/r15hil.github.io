@@ -30,6 +30,7 @@ These veggie burgers taste just as good as the real thing! You'll blend chestnut
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1715.-step-1.new-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the chips to a large baking tray with a drizzle of vegetable oil and a pin
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1715.-step-2.new-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Tip: Don't undercook the mushrooms or they will retain too much water, making yo
 
 Meanwhile, combine your red wine vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar with a pinch of salt in a bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1715.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Once the mushrooms are crisp, add your soy sauce and a large knob of butter to t
 
 Once done, remove the mushrooms from the pan and set aside, reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1715.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add your brioche buns to a baking tray and put them in the oven for 5-6 min or u
 
 Once warmed through, remove the buns from the oven and slice them in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1715.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Shape the cheesy mushroom mixture into a patty[ies] for per person
 
 Tip: Use flour on your hands if it's too sticky to handle and aim for the patties to be flat and wide (a little wider than the brioche buns if possible!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1715.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Tip: Remember to handle gently as the patties may be fragile!
 
 While the cheesy mushroom patties are cooking, roughly chop your dill
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1715.-step-7-x200.jpg)
 
 ### Step 7
 

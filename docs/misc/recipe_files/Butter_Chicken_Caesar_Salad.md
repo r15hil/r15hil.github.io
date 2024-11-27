@@ -28,6 +28,7 @@ Dive fork-first into the deliciously unexpected, as you blend Caesar chicken wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661865928872-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a large knob of butter 
 
 Once melted, add your curry powder, ground cumin and tomato paste to the pan and cook for 1-2 min or until fragrant – this is your butter curry paste
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661865935055-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Add the remaining butter curry paste to a large bowl with the chicken breast por
 
 Give everything a good mix up – this is your marinated butter chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661865942701-x200.jpg)
 
 ### Step 3
 
 Transfer the marinated butter chicken to one side of a baking paper-lined tray and put the tray in the oven for an initial 12 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661865957264-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Return the tray to the oven for 7-8 min further or until the croutons are crispy and the chicken is cooked through (no pink meat!) – this is your butter chicken and naan croutons
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661866004262-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Remove the outer lettuce leaves and shred the inner core
 
 Peel and grate (don't chop!) your garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661866010442-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your white wine vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span
 
 Give everything a good mix up – this is your spiced Caesar dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661866018720-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ This speedy Spanish-style bowl is ready in a flash. You’ll pan fry pork loin i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1725535568601-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Peel and slice your red onion[s] into thin wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1725535572869-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Pat your pork loin steak[s] dry with kitchen paper
 
 Season both sides with salt and sprinkle with half your ground smoked paprika (you'll use the rest later!) – this is your coated steak[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1725535580160-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Tip: Cooking for 4 or more? Use 2 pans!
 
 Once cooked, transfer the cooked steak[s] to a clean chopping board, cover with a clean tea towel and leave to rest for 2 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1725535585637-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Whilst the steak[s] are cooking, heat a pot with a lid with a small drizzle of o
 
 Once hot, add the chopped pepper and onion wedges with a very generous pinch of salt and cook for an initial 2-3 min or until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1725535590162-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once starting to brown, add your tomato paste to the pot with the remaining grou
 
 Cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1725535594744-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add 225ml<span class="text-purple"> [300ml]</span><span class="text-danger"> [45
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the bulgur wheat has cooked – this is your tomatoey bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1725535599697-x200.jpg)
 
 ### Step 7
 

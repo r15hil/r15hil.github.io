@@ -26,6 +26,7 @@ Make pizza night spud-tacular! You'll bake fries with melty mozzarella, tomato s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1613744043700-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the fries to a large baking tray (or two!) with a drizzle of vegetable oil a
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for 25-30 min or until the fries are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1613744056178-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Scrunch the foil around the corn until tightly sealed and add to another baking 
 
 Put the tray in the oven for 20-25 min or until the corn is tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1613744068732-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your tomato paste to a bowl with half of the chopped garlic (save the res
 
 Add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-danger">[6 tbsp]</span> cold water and give everything a good mix up – this is your tomato sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1613744097210-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Grate your cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1613744107164-x200.jpg)
 
 ### Step 5
 
 Add your mayo to a small bowl with the remaining chopped garlic, half of your dried oregano (you'll use the rest later!), a pinch of salt and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water – this is your garlic & herb dip
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1613744121999-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Return the tray[s] to the oven for 6-8 min or until the cheese has melted and th
 
 Once done, set aside for a few min to cool slightly – these are your cheesy pepperoni pizza loaded fries
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1613744151908-x200.jpg)
 
 ### Step 7
 

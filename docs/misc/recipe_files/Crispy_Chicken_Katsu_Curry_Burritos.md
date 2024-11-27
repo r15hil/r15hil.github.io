@@ -28,6 +28,7 @@ Wrap up your night with this umami-packed twist on chicken katsu. You’ll load 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-2-1688138875659-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop your brown onion[s]
 
 Top, tail, peel and grate your carrot[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-2-1688138879362-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Wash your lettuce, then pat dry with kitchen paper and shred finely
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-3-1688138886339-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add a handful of flour to a plate, a splash of milk to a shallow bowl and your p
 
 Coat your chicken breast strips in the flour, tap off any excess, then add to the milk and firmly press into the breadcrumbs to evenly coat all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1688138890593-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once hot, add the chopped onion and half the grated carrot (save the rest for la
 
 Once softened, add your curry powder with your ginger & garlic paste and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1688138895223-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Give everything a good mix up and cook over a low heat for 5-7 min or until the 
 
 Once thickened, blitz until smooth with a (stick) blender, then add a small pinch of salt, cover with a lid and set aside for later – this is your katsu curry sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1688138899421-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once hot, add the breaded chicken strips and cook for 5-6 min on each side, unt
 
 Tip: Cooking for 4 or more? You may need to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1-1688138905202-x200.jpg)
 
 ### Step 7
 

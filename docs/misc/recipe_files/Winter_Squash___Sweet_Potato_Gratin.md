@@ -25,6 +25,7 @@ In this comforting gratin, butternut squash and sweet potato are coated in a ric
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1898Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the butternut squash cubes and chopped sweet potato to a baking tray with a 
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until tender and golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1898Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely slice the garlic 
 
 Strip the sage leaves from their stalks and chop them finely, discard the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1898Step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once softened, add the chopped sage and half the sliced garlic and cook for 2-3 
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1898Step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once fragrant, add 30g <span class="text-danger">[60g] </span>butter with 30g
 
 Gradually whisk 250ml <span class="text-danger">[450ml]</span> milk into the roux, a little at a time and cook for 5 min or until a smooth, thick sauce remains
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1898Step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Season with a pinch of salt and pepper and give everything a good mix up – 
 
 Transfer the gratin to an oven-proof dish (or individual ones)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1898Step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Mix the panko breadcrumbs, grated Italian hard cheese and crushed hazelnuts
 
 Top the gratin with the hazelnut crumb and put the dish<span class="text-danger">[es]</span> into the oven for 12–15 min or until golden and bubbling - this is your winter squash &amp; sweet potato gratin
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1898Step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ For this punchy plant-based salad, you’ll toss shredded mooli slaw with brown 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690216008308-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690216015174-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the cauliflower florets to a baking tray with a drizzle of vegetable oil and
 
 Give everything a good mix up and put the tray in the oven for 10-15 min or until beginning to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690216020212-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Chop your creamed coconut roughly (if required!) and combine with 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml] </span>boiled water – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690216026053-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Heat a separate pot over a medium heat with your toasted sesame oil
 
 Once hot, add the chopped garlic, chopped ginger and chilli flakes (can't handle the heat? Go easy!) with a pinch of salt and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690216032983-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cook for a further 6-8 min or until the sauce thickens, stirring occasionally
 
 Once thickened, remove the pot from the heat, add the juice of half your lime[s], then stir it all together and set aside to cool – this is your peanut dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690216039774-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Roughly chop your roasted peanuts
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690216047616-x200.jpg)
 
 ### Step 7
 

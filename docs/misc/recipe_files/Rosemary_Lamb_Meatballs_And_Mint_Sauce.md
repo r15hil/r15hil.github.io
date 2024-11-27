@@ -27,6 +27,7 @@ For this speedy twist on roast lamb, you’ll flavour lamb mince with garlic and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/370_step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Strip your rosemary leaves from the stalks and chop them finely, discard the sta
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/370_step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Season with salt and pepper and half of the chopped rosemary (save the rest for
 
 Put the tray[s] in the oven for 20-25 min or until the potatoes are starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/370_step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the potatoes are cooking, combine your lamb mince, chopped garlic, panko 
 
 Sprinkle in your beef stock mix and season with plenty of pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/370_step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Refrigerate the meatballs until later
 
 Tip: Chilling the meatballs helps them keep their shape when cooking
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1728901682377-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the carrot batons and chopped spring greens to a small pot with 50ml <span c
 
 Bring to the boil over a high heat, then reduce the heat to low and cook, covered for 10 min or until the carrot batons are tender – this is your honey veg
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/370_step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once hot, add the rosemary lamb meatballs and cook for 4 min, moving them about 
 
 Reduce the heat to medium-high and cook, covered for 6-8 min or until cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/370_step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Tabbouleh, pronounced 'tab-boo-lay', is a bulgur wheat salad, traditionally serv
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1633444749626-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your bulgur wheat to a pot with plenty of boiled water and a pinch of salt (
 
 Once tender, drain and set aside in a sieve to cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627035061119-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <sp
 
 Once hot, add your meat-free mince (remove the paper if required!) and cook for 3-4 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633444765203-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Sprinkle in your vegetable stock mix and add a splash of cold water, then give e
 
 Reduce the heat to medium-low and cook for a further 3-4 min or until the meat-free mince is cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633444780868-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Chop your parsley finely, including the stalks
 
 Cut your lemon[s] in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1627035098261-x200.jpg)
 
 ### Step 5
 
 Add your honey to the cooked meat-free mince and continue to cook for 1 min further before removing the pan from the heat to cool slightly – this is your spiced meat-free mince
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633444814942-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add the cooled bulgur to a mixing bowl with the diced cucumber and halved cherry
 
 Add a drizzle of olive oil and squeeze in the juice of half your lemon[s] then gently mix it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633444831685-x200.jpg)
 
 ### Step 7
 

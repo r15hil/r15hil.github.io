@@ -24,6 +24,7 @@ For this Persian-inspired recipe, you'll coat slices of halloumi in ras el hanou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25_step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Chop the tomatoes into wedges and deseed the pepper<span class="text-danger">[s]
 
 Add a generous drizzle of olive oil and a pinch of salt and pepper to the tomato wedges and chopped pepper on a baking tray, then place it in the oven for 20-25 min or until soft
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25_step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the bulgur wheat to a pot with plenty of boiled water, bring to the boil ove
 
 Once cooked, drain and return to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25_step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Chop the coriander finely, including the stalks
 
 Cut the halloumi into thick slices
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25_step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Combine half the ras el hanout (save the rest for later!) in a bowl with the gro
 
 Add the sliced halloumi and give it a good mix up to coat evenly– this is your spiced halloumi
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25_step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the sliced red onion and cook for 6-7 min or until soft and lightly caramelised – these are your caramelised onions
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25_step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add the pomegranate molasses, roasted veg, caramelised onions (reserve the pan!)
 
 Combine the chopped mint and chopped coriander in a small bowl with the natural yoghurt – this is your herby yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25_step-7-x200.jpg)
 
 ### Step 7
 

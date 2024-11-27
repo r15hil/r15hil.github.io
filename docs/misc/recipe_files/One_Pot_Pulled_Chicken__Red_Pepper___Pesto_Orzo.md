@@ -27,6 +27,7 @@ For this easy one-pot pasta, you'll sauté British chicken with red pepper and o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1675.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and chop your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597394729625-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the pepper strips and onion wedges with a pinch of salt
 
 Add your chicken breast portion[s] and cook for 3-5 min on each side or until golden, stirring the vegetables occasionally
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1675.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add your sun-dried tomato pesto and tomato paste – this is your pesto stock
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597394754550-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 10-12 min or 
 
 Tip: Stir the orzo occasionally to prevent it from sticking!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1675.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Meanwhile, grate your cheddar cheese
 
 Once cooked, remove the cooked chicken from the pan (keep the orzo cooking!) and transfer it to a clean board, then shred it apart using two forks – this technique is known as ‘pulling’
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1675.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Season with salt and pepper – this is your red pepper & pesto orzo
 
 Tip: Add a splash more water if your pan is looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1675.-step-7-x200.jpg)
 
 ### Step 7
 

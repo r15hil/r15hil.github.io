@@ -30,6 +30,7 @@ For this Filipino-inspired comfort food, you'll simmer chicken in soy sauce, cid
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1711639082919-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Combine your cornflour, soy sauce, cider vinegar, ginger paste and bay leaf[ves]
 
 Add your chicken thighs and set aside for 5 min to marinate
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1711639089711-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Meanwhile, peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1711639096562-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add your marinated chicken (reserve the marinade liquid!) and cook for
 
 Once browned, transfer the chicken to a plate and reserve the pan (and any remaining oil!) for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1711639104664-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ When the rice is boiling, add your Tenderstem broccoli and reduce the heat to v
 
 Once cooked, remove from the heat and keep covered until serving – this is your rice & tenderstem
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1711639112726-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once hot, add the diced onion with a pinch of salt and cook for 2-3 min or until
 
 Once softened, add the chopped garlic and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1711639119320-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once fragrant, add the browned chicken thighs with the reserved marinade liquid 
 
 Turn the heat down to medium and cook, covered, for 10 min or until the sauce has reduced slightly and the chicken is cooked through (no pink meat!) – this is your Filipino-style chicken adobo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1711639126507-x200.jpg)
 
 ### Step 7
 

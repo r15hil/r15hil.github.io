@@ -23,6 +23,7 @@ For this comforting pasta, you'll cook peppery sausages and peas in a creamy lem
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580294863620-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cook for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580294873730-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once hot, squeeze your sausage meat from the skins into the pan (clean hands is 
 
 Break the sausage meat up into bite-sized pieces with a wooden spoon and cook for 5-7 min or until crispy and cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580294878104-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 125ml <span class="text-purple">[190ml]</span><span class="text-danger"> [250ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580294882098-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once the sausage meat is crispy, add the chopped garlic to the pan and cook for 
 
 Add the chicken stock and soft cheese and give everything a good mix up until combined – this is your creamy sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580294886573-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add your blanched peas to the creamy sauce with the juice of half your lemon[s] 
 
 Season with a pinch of salt and cook for a further 2 min or until the peas are almost tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580294891268-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Add the drained farfalle to the creamy sauce with a splash of the starchy pasta 
 
 Add half your grated Italian hard cheese (save the rest for garnish!) and cook for 1-2 min further or until the sauce begins to stick to the pasta – this is your creamy sausage & pea farfalle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580294896052-x200.jpg)
 
 ### Step 7
 

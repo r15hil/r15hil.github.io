@@ -28,6 +28,7 @@ This hearty pie is a cosy, comforting delight! You'll simmer your lean beef minc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1612439909959-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Top, tail and slice your carrot[s] into thin discs
 
 Strip your rosemary leaves from their stems, discard the stems
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1612439917743-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the halved potatoes to a pot of plenty of boiled water with a pinch of salt 
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1612439953066-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Tip: If your carrots are still a bit crunchy don't worry, these will be baked in
 
 Reboil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1612439973711-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[38
 
 Bring to the boil and cook for 4-5 min or until slightly thickened and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1612440011000-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Lightly crush the potatoes with a masher or fork and then give everything a good
 
 Tip: Don't press too hard, you only want to crush them!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1612440020895-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Top the lean beef mixture with the rosemary potatoes and sprinkle over the reser
 
 Put the dish in the oven for 20 min or until golden and bubbling – this is your hearty lean beef, carrot & mustard pie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1612440029880-x200.jpg)
 
 ### Step 7
 

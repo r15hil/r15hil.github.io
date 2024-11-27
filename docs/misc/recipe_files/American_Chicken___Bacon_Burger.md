@@ -26,6 +26,7 @@ This burger’s smoky, spicy and a little bit saucy. You'll be cooking tender ca
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1175.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the chips to a large baking tray with a drizzle of vegetable oil and a gener
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1175.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,11 +56,13 @@ Add the sliced spring onion, chopped garlic (Don't like raw garlic? Go easy!), n
 
 Give everything a good old mix up &ndash; this is your ranch sauce&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1175.-step-3-x200.jpg)
 
 ### Step 3
 
 Separate 2 <span class="text-danger">[4]</span> outer little gem lettuce leaves and slice the remaining inner core&nbsp;into 4 <span class="text-danger">[8] </span>wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1175.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Cut the brioche rolls in half
 
 Once hot, add the brioche, cut-side down, and cook for 3 min or until toasted and charred, then set them aside until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1175.-step-5.2-x200.jpg)
 
 ### Step 5
 
@@ -87,6 +92,7 @@ Keep the pan and any oil in it until step 7!
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1175.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,6 +107,7 @@ Combine the smoked paprika, cayenne pepper&nbsp;(Can't handle the heat? Go easy!
 
 Add the&nbsp;sliced&nbsp;chicken and mix to evenly coat in the spices
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1175.-step-7-x200.jpg)
 
 ### Step 7
 

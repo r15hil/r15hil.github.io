@@ -27,6 +27,7 @@ Give chips and curry sauce a Gousto twist with this creamy chicken korma. You'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1709039906242-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into chips, then add them to a baking tray (or two!
 
 Mix everything together and put the tray[s] in the oven for 20-25 min or until golden – these are your nigella seed chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709039908632-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop your free range chicken breast portion[s] into small, bite-sized pieces
 
 Peel and finely chop your brown onion[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709039911760-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 2/3 of the chopped onion (save the rest for later!) with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1709039915844-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1709039919281-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once the onion is beginning to soften, increase the heat to high, then add the 
 
 Once the chicken has browned, reduce the heat to medium high, then add the chopped ginger, chopped garlic and your curry powder to the pan and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709039922392-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Chop your coriander finely, including the stalks
 
 Add the diced tomato, chopped coriander and remaining chopped onion to a bowl and mix to combine – this is your tomato & onion salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709039925747-x200.jpg)
 
 ### Step 7
 

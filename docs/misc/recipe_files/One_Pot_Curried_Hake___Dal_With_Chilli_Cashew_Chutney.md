@@ -31,6 +31,7 @@ Get dinner all dal-ed up with this one-pan wonder. You’ll simmer lentils in a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676307312788-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add the sliced onion to an oven-proof dish with a drizzle of olive oil and a pin
 
 Put the dish in the oven for an initial 7-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676307321374-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Dissolve your vegetable stock mix, chopped creamed coconut and tomato paste in 4
 
 Rinse your red lentils in a sieve under cold running water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676307334324-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the drained lentils and ground turmeric to the dish with the coconut stock a
 
 Put the dish back in the oven for 20-25 min further or until the lentils are tender – this is your dal
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676307343211-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Sprinkle your curry powder over the hake and rub it into both sides until evenly
 
 Season with a pinch of salt and pepper and set aside – this is your curried hake
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676307351705-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Chop your coriander and mint leaves roughly, including the coriander stalks
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676307358722-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Top the dal with the curried hake and return the dish to the oven for a final 12
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676307369036-x200.jpg)
 
 ### Step 7
 

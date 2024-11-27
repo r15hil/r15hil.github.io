@@ -24,6 +24,7 @@ This is gnot your usual gnocchi. For a festive mid-week dinner, you’ll pan-fry
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1696937593323-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696937597793-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add your gnocchi and cook for 8-9 min or until beginning to crisp
 
 Tip: Don’t stir too often as this will prevent the gnocchi from crisping!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696937602082-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of o
 
 Once hot, add your sausage meat (remove the paper if required!) to the pan and cook for 4-5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696937605705-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the squash is fork-tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696937610109-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696937613591-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once softened, reduce the heat to medium-high then add your soft cheese to the p
 
 Give everything a good mix up, then bring to the boil and cook for 30 secs or until slightly thickened and the sausage meat is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696937617057-x200.jpg)
 
 ### Step 7
 

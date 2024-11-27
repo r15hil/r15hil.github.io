@@ -23,6 +23,7 @@ Take 10 minutes out of your day and you’ll be on your way to juicy Caribbean-s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1718632047958-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1718632051163-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken strips and onion petals to the pan with your jerk paste and a pinch of salt and cook for 10-12 min or until cooked through (no pink meat!) – these are your jerk chicken strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1718632054803-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Meanwhile, zest half your lime[s] (try to grate lightly with a micro-plane or sh
 
 Roll the lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718632058974-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Trim, then slice your spring onion[s]
 
 Drain your sweetcorn
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1718632062234-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1718632068834-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add the drained sweetcorn to a bowl with the chopped tomato, sliced spring onion
 
 Add a drizzle of olive oil and a generous pinch of salt and pepper and stir it all together – this is your zingy sweetcorn salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1718632071998-x200.jpg)
 
 ### Step 7
 

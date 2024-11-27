@@ -29,6 +29,7 @@ Get a taste of golden basa en croûte with buttery potatoes to boot. Spicy haris
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684849460823-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop your potatoes (skins on) into large, bite-sized pieces, then add the choppe
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your turmeric potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684849464343-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Cut into 1 rectangle per person, add to a baking paper-lined baking tray (or two!) and prick the pastry all over with a fork (this will stop you getting a soggy bottom!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684849467635-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Top each pastry rectangle with a basa fillet, covering only one half
 
 Spoon the harissa mix evenly over the basa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684849470911-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Brush a little cold water around the edges of the pastry (this helps to seal the
 
 Fold the pastry over the filling and seal firmly together, using a fork to crimp along the join
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684849474365-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Use the tip of a sharp knife to lightly score diagonal lines across the top the 
 
 Put the tray[s] in the oven for 15-20 min or until the fish is cooked through and the pastry is golden, cooked through and the edges have puffed up – this is your golden harissa basa en croûte
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684849477562-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Combine the chopped mint and natural yoghurt in a bowl with a pinch of salt – this is your mint yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684849481557-x200.jpg)
 
 ### Step 7
 

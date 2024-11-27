@@ -31,6 +31,7 @@ Kick off the festivities with this pork, apple and sage stuffing burger. Load yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669137999791-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Top, tail, peel and grate your parsnip[s], then peel and slice your shallot[s] f
 
 Add the grated parsnip and sliced shallot to a pot with a lid with 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp] </span>sugar and 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> cold water and cook, covered, over a medium heat for an initial 25-30 min or until the parsnip has softened and the water has evaporated – this is your caramelised parsnip
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669138004626-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Season with a pinch of salt and pepper and sprinkle over half your dried sage (s
 
 Put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your sage chips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669138009072-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Grate your apple[s] (skin on) and discard the core[s]
 
 Add your dried cranberries to a small bowl and cover with boiled water, then set aside to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669138017159-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Season with salt and pepper and mix thoroughly until fully combined (clean hands
 
 Shape the pork & apple stuffing mixture into 1<span class="text-danger"> </span>burger patty per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669138023322-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once hot, add the patty[ies], press them down firmly with a spatula and cook fo
 
 Reduce the heat to medium-high, flip each patty and cook for a further 5 min or until browned and cooked through (no pink meat!) – these are your pork & apple stuffing patties
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669138031634-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the caramelised parsnip has softened, add a small knob of butter with half 
 
 Wash your lettuce and pat dry with kitchen paper, then separate 1 whole outer leaf per person and cut the remaining lettuce into quarters, lengthways
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669138047102-x200.jpg)
 
 ### Step 7
 

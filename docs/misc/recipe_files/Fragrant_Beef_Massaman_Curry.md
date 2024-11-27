@@ -25,6 +25,7 @@ This beef massaman curry gets its irresistible aroma from simmering cardamom, ci
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603465582655-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min, stirri
 
 Once done, set the fried onions aside on kitchen paper, reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603465624329-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: Try not to stir the beef too much as this will prevent it from browning!
 
 Once done, transfer the beef strips to a plate to rest
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603465638801-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Remove the coconut cream from the sachet<span class="text-danger">[s]</span> and chop it roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603465661661-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the chopped ginger to the pan with the ground cinnamon, Thai red curry paste
 
 Add 300ml<span class="text-danger"> [550ml]</span> boiled water and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603465701404-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Chop the potatoes (skins on) into small bite-sized pieces
 
 Crush the cardamom pods open by squashing them with the side of a knife
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603465711422-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Cook, covered, for 25-30 min or until the potatoes are tender and the curry is f
 
 Once done, remove the pan from the heat and stir through the rested beef strips – this is your beef massaman curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603465720930-x200.jpg)
 
 ### Step 7
 

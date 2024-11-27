@@ -29,6 +29,7 @@ To make this lighter version of a takeaway classic in your own kitchen, you'll f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669733071634-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add your lean pork mince (remove the paper if required!) to a large bowl with ha
 
 Divide the pork mixture into 5 per person and shape into small meatballs – these are your pork balls
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669733075009-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pork balls to the pan and cook for 2 min on each side, then turn down to medium-high and cook, covered, for 6 min, turning regularly, until your pork is cooked through and browned (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669733078663-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the pork balls are cooking, add your white long grain rice to a pot with a
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669733082720-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your cornflour to a bowl with the reserved pineapple juice
 
 Add your tomato ketchup, rice vinegar, red chilli relish and remaining soy sauce and mix until smooth – this is your sweet & sour sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669733086288-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Return the pan to a medium heat and add the remaining grated ginger, chopped gar
 
 Once softened, add the sweet & sour sauce and chopped pineapple and cook for 2-3 min further or until reduced to a syrup-like consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669733090363-x200.jpg)
 
 ### Step 6
 
 Return the cooked pork balls to the pan with the sweet & sour sauce and cook for 1 min or until the pork balls are coated in sauce – these are your sweet & sour lean pork balls
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669733093717-x200.jpg)
 
 ### Step 7
 

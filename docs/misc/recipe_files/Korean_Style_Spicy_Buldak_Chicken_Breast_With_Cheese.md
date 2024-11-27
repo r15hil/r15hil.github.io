@@ -29,6 +29,7 @@ You’ve heard of fried chicken, now try your hand at Korean fire chicken. A spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693810813516-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693810816570-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693810820185-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Add the onion petals, garlic and ginger to a large, wide-based pan (preferably n
 
 Tip: Keep the pan off the heat for now!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693810823732-x200.jpg)
 
 ### Step 4
 
 Add your diced chicken breast to the pan with your gochujang paste (can't handle the heat? Go easy!), chilli flakes (not a fan of spice? Just add a little!), soy sauce, a pinch of sugar and a drizzle of vegetable oil and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693810827687-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once browned, reduce the heat to medium-high, add 50ml <span class="text-purple"
 
 Tip: If the sauce is a little thin, remove the lid and cook over a high heat for 2-3 min further until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693810830969-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once hot, add your toasted sesame oil and halved green beans and cook for 6-7 mi
 
 Once done, sprinkle your toasted sesame seeds over and give everything a good mix up – these are your sesame green beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693810833969-x200.jpg)
 
 ### Step 7
 

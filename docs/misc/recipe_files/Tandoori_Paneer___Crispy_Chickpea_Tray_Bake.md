@@ -26,6 +26,7 @@ This Indian-inspired tray bake combines marinated paneer cheese cubes with roast
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1580.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1580.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Add the chopped garlic, chopped ginger, ground turmeric and curry powder to a la
 
 Combine with 1 tbsp <span class="text-danger">[2 tbsp]</span> of the natural yoghurt (you'll use the rest later!), a drizzle of vegetable oil and a generous pinch of salt – this is your marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1580.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the chopped paneer to the marinade and give everything a good old mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1580.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Chop the tomato<span class="text-danger">[es]</span> into wedges 
 
 Drain and rinse the chickpeas
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1580.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,11 +86,13 @@ Top with the marinated paneer
 
 Put the tray in the oven for 25-30 min or until everything is cooked through and starting to char
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1580.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the remaining yoghurt with the mango chutney, 1 tbsp <span class="text-danger">[2 tbsp]</span> water and a pinch of salt – this is your mango yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1580.-step-7-x200.jpg)
 
 ### Step 7
 

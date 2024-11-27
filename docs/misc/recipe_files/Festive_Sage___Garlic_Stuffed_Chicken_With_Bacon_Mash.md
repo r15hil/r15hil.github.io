@@ -28,6 +28,7 @@ Kickstart the festivities with a chicken kiev, oozing with garlic butter and coa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1728634345697-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, boil a full kettle and take som
 
 Take your chicken out of the fridge, open the packet and let it air, then heat a large pot with a small drizzle of vegetable oil over a high heat, once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp, then transfer the cooked bacon lardons to a plate and reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1728634350723-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Use a sharp knife to cut a deep pocket along the top of your chicken breast port
 
 Fill the pocket[s] with the sage & garlic butter – this is your stuffed chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1728634358800-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Combine your panko breadcrumbs with the remaining dried sage and a small drizzle
 
 Coat the stuffed chicken in the flour, tap off the excess, then add to the milk and then firmly press into the seasoned breadcrumbs to evenly coat all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1728634366125-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Put the tray in the oven for 20-25 min or until golden and cooked through (no pi
 
 Carefully wipe the reserved pot with some kitchen paper (it will be hot!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1728634370215-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1-1728634373923-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add a drizzle of vegetable oil and a pinch of salt and put the tray[s] in the ov
 
 Chop your orange[s] into wedges and add your dried cranberries to a pot with the juice of your orange[s] and your cranberry sauce, bring to a boil over a high heat, then reduce the heat to medium-low and cook for 3-4 min, stirring frequently, or until thickened to a jam-like consistency – this is your cranberry orange sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1-1728634378249-x200.jpg)
 
 ### Step 7
 

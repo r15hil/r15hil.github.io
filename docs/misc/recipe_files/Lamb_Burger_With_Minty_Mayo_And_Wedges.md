@@ -25,6 +25,7 @@ Ready to raise your burger game? You’ll rustle up patties spiced with smoked p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/749.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut your potatoes (skins on) lengthways, into wedges
 
 Add the wedges to a baking tray (or two!), drizzle with vegetable oil and season generously with salt, then put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/749.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Massage the meat with clean hands for 1 min (this will help the patty[ies] hold 
 
 Shape the lamb mince mix into 1 equal-sized thin patty per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/749.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Squeeze out the excess liquid from the cucumber ribbons (over the sink is the ea
 
 Tip: You want to get rid of the excess liquid so that the cucumber absorbs the pickling vinegar
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/749.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Add your white wine vinegar to a bowl with 1 tsp <span class="text-purple">[1 1
 
 Mix to combine and set aside to pickle until serving – this is your quick-pickled cucumber
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/749.-step-5.new-x200.jpg)
 
 ### Step 5
 
 Put your ciabatta[s] in the oven for 5 min to warm through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/749.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Combine your mayo and chopped mint in a small mixing bowl with a large drizzle o
 
 Slice your tomato[es] finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/749.-step-7-x200.jpg)
 
 ### Step 7
 

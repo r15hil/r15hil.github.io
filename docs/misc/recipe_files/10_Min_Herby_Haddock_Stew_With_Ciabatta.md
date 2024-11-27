@@ -22,6 +22,7 @@ This creamy bowl of comfort will be on the table in minutes! You'll make the ste
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1848.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Wash your fruit and veg
 
 Note: <span class="text-highlight">Equipment</span> and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1848.-step-2.new-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Boil a kettle
 
 Add the ciabatta rolls to a baking tray and put the tray in the oven for 6-7 min or until warmed through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1848.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,11 +67,13 @@ Chop the spring onions roughly
 
 Drain and rinse the cannellini beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1848.-step-4-x200.jpg)
 
 ### Step 4
 
 Once hot, add the chopped spring onion and cannellini beans to the pan and cook for 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1848.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once hot, add the chopped spring onion and cannellini beans to the pan and cook
 
 Add the soft cheese and the juice of 1/2<span class="text-danger"> [1]</span> lemon and give everything a good mix up until fully combined
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1848.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Cook, covered, for 1-2 min further or until the haddock is cooked through
 
 Note: <span class="text-highlight">Please</span> ensure you cook your fish thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1848.-step-7-x200.jpg)
 
 ### Step 7
 

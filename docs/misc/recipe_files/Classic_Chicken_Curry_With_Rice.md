@@ -28,6 +28,7 @@ It’s hard to beat this curry night favourite. You’ll bubble diced chicken in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674228441374-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674228450748-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely chop your brown onion[s]
 
 Chop your tomato[es] into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674228459717-x200.jpg)
 
 ### Step 3
 
@@ -55,21 +58,25 @@ Once hot, add the chopped onion with a knob of butter and a generous pinch of sa
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674228471082-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add your curry powder, ground turmeric and ginger & garlic paste and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674228482200-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add your diced chicken breast and cook for 3-4 min further or until the chicken is coated in all of the spices
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674228490785-x200.jpg)
 
 ### Step 6
 
 Meanwhile, dissolve your chicken stock mix, tomato paste and a pinch of sugar in 150ml <span class="text-purple">[225ml]</span><span class="text-danger"> [300ml]</span> boiled water – this is your tomato stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674228500260-x200.jpg)
 
 ### Step 7
 

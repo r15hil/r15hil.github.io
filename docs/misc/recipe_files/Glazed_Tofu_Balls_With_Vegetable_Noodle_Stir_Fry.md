@@ -26,6 +26,7 @@ An Asian-inspired noodle dish with a difference! You'll make deliciously succule
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1712.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped mushrooms and garlic and cook for 3 min or until the mushrooms have started to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1712.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the chopped tofu to a bowl with the softened mushrooms, chilli flakes (
 
 Blitz with a stick blender until a rough paste forms – this is your tofu mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1712.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Brush each tofu ball with vegetable oil and put the tray in the oven for 25 m
 
 Meanwhile, boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1712.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1712.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1712.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the soy sauce and agave with 50ml <span class="text-danger">[10
 
 Once thickened, transfer to a small bowl – this is your sticky soy sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1712.-step-7-x200.jpg)
 
 ### Step 7
 

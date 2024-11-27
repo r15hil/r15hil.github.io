@@ -30,6 +30,7 @@ This Greek-inspired pasta bake lies somewhere between a moussaka and a lasagne, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1628672415952-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a large wide-based pan (preferably non-stick) with a drizzle of olive oil o
 
 Once hot, add the diced aubergine to the pan and cook for 4-5 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1628672447888-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Dissolve your vegetable stock mix and tomato paste in 300ml <span class="text-pu
 
 Drain and rinse your green lentils
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1628672460924-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once softened, add your drained green lentils, ground cinnamon and dried oregano
 
 Once fragrant, add the tomato stock and cook for 4-5 min further or until thickened to a ragù-like consistency – this is your aubergine & lentil ragù
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1628672475387-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once done, drain and rinse under cold water and set aside for later
 
 Tip: This will get rid of the starch and will stop the pasta sticking together!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1628672488096-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once melted, add 20g <span class="text-purple">[30g]</span> <span class="text-da
 
 Gradually whisk 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> milk into the roux, a little at a time and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1628672601594-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Grate your cheddar cheese over the top and season with a generous grind of blac
 
 Put the dish in the oven for 20-25 min or until golden brown – this is your Greek-style aubergine pastitsio bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1628672682175-x200.jpg)
 
 ### Step 7
 

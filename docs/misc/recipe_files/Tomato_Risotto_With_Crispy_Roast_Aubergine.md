@@ -32,6 +32,7 @@ This comforting tomato risotto is rich and herby, with a chilli kick. Before ser
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-8-1730730084264-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580807492301-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water then stir in your dried basil and tomato paste – this is your tomato stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580807496515-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add your Chinese rice wine and cook for a further 30 secs
 
 Add the tomato stock a ladle at a time, stirring continuously, for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580807501007-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the sliced aubergine to a baking tray (or two!) with a generous drizzle of 
 
 Give everything a good mix up and put the tray[s]<span class="text-danger"> </span>in the oven for 20 min, turning once halfway, until golden and tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580807505360-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Combine your balsamic vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</sp
 
 Chop the basil finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580807509509-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Sprinkle over half your grated Italian hard cheese (you'll use the rest later!)
 
 Return the tray to the oven for 5 min or until the cheese has melted and the aubergine has crisped slightly – this is your crispy roast aubergine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580807514390-x200.jpg)
 
 ### Step 7
 

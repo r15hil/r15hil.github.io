@@ -31,6 +31,7 @@ For this plant-based recipe, discover how to make your own teriyaki sauce – a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634312715291-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634312720920-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2137-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped garlic and ginger and cook for 2-3 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2137-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once thickened, pour into a bowl and keep to one side – this is your teriyak
 
 Tip: The sauce will thicken more as it cools!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2137-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add your cornflour to a plate
 
 Press each tofu slice into the cornflour firmly, until evenly coated all over
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2137-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once the pan is hot, add the coated tofu and cook for 3-4 min on each side or u
 
 While the tofu is cooking, trim, then slice your spring onion[s]<span class="text-danger"> </span>finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2137-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ This mild chicken curry packs in flavours, no punches needed. Mild isn't a bywor
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1995.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Once hot, add your basmati rice with a pinch of ground turmeric (save the rest 
 
 Cook for 30 secs or until the grains are coated in the spices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1995.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add 300ml<span class="text-danger"> <span class="text-purple">[390ml]</span> [60
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your sultana rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1995.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686314840876-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your tomato[es] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1995.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once the onion is beginning to soften, turn the heat up to high and add the chop
 
 Add the chopped garlic, ginger paste, chopped tomato, remaining ground turmeric, tomato paste and garam masala to the pan and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1995.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Stir in your vegetable stock mix, then add 100ml <span class="text-purple">[130
 
 Once boiling, reduce the heat to medium-high and cook for 7-8 min further or until the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1995.-step-7-x200.jpg)
 
 ### Step 7
 

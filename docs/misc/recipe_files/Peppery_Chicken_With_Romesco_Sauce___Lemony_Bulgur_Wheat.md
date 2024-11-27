@@ -21,6 +21,7 @@ For a dinner packed with vitamins, you'll blitz up a romesco sauce with sweet ro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614002912948-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Crush the garlic clove<span class="text-danger">[s]</span> open by squashing with the side of a knife and remove the skin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1614002927370-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Scrunch the edges of the foil around the pepper to form 1 <span class="text-dang
 
 Put the tray in the oven for 15 min or until the pepper has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614002952577-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once cooked, drain and return to the pot
 
 Season the chicken breast portions with a pinch of salt and a very generous grind of black pepper – this is your peppery chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1614002986990-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Tip: Watch them like a hawk so they don't burn!
 
 Transfer the toasted almonds to a bowl and return the pan to a high heat with a drizzle of vegetable oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614003001696-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Remove the softened pepper parcel from the oven and add the browned chicken (use
 
 Return the tray to the oven for 12-15 min or until the chicken is cooked through (no pink meat!), once cooked, transfer the chicken to a clean board and leave to rest for a couple of min before slicing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1614003045929-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the softened pepper & garlic, ground smoked paprika, most of the toasted alm
 
 Add 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and season with a pinch of salt and pepper, then blitz until you have a coarse paste – this is your romesco sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1614003214475-x200.jpg)
 
 ### Step 7
 

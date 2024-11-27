@@ -25,6 +25,7 @@ Who can resist a taco! While your beef sizzles in smoky spices, you'll make a zi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2395-2395-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,16 +35,19 @@ Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2395-2395-v2-Step-2-x200.jpg)
 
 ### Step 2
 
 Chop the coriander finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2395-2395-v2-Step-3-x200.jpg)
 
 ### Step 3
 
 Combine the chopped shallot, garlic and coriander in a bowl with the chilli flakes (can't handle the heat? Go easy!), red wine vinegar, 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil, a pinch of salt and sugar and give everything a good mix up – this is your chimichurri
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2395-2395-v2-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -51,11 +55,13 @@ Wash then shred the little gem lettuce finely
 
 Chop the tomatoes finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2395-2395-v2-Step-5-x200.jpg)
 
 ### Step 5
 
 Add the shredded little gem lettuce to a bowl with the chopped tomatoes and a pinch of salt and stir it all together – this is your salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2395-2395-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -63,6 +69,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the beef mince, ground cumin, smoked paprika and a pinch of salt and cook for 5-6 min or until brown and cooked through (no pink meat!), breaking it up with a wooden spoon as you go
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2395-2395-v2-Step-7-x200.jpg)
 
 ### Step 7
 

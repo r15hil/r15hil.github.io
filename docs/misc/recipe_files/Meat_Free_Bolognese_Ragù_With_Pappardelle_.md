@@ -24,6 +24,7 @@ Enhance this rich meat-free ragù with cherry tomatoes, fresh basil and – in t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1634037279015-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely dice the brown onion<span class="text-danger">[s]</span>
 
 Top, tail and finely dice the carrot<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634037282219-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and carrot with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634037287706-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ While the onion and carrots are softening, peel and finely slice (don't chop!) 
 
 Chop the cherry tomatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634037294062-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Add the sliced garlic, halved cherry tomatoes and dried oregano and cook for 4-5
 
 Tip: Crush the tomatoes with a wooden spoon as you stir
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634037296997-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Dissolve the vegetable stock mix and tomato paste in 250ml<span class="text-dan
 
 Once the tomatoes have started to break down, add the stock to the pan and cook for 5-10 min or until the sauce has thickened to a rich, bolognese-like consistency – this is your ragù
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634037306125-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Cook for 10-12 min or until tender with a slight bite
 
 Once done, drain the pappardelle, reserving a cup of the starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634037306117-x200.jpg)
 
 ### Step 7
 

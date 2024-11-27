@@ -30,6 +30,7 @@ Italy meets Mexico for this fusion twist on a classic. You'll flavour your meatb
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648551039349-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Separate your coriander leaves from their stems, then finely chop the stems (sav
 
 Chop your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648551041870-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add your pork mince (remove the paper if required!), chipotle paste (can’t han
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium-high heat and once hot, add the meatballs and cook for 2 min on each side or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648551045547-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ While the meatballs are browning, add the chopped onion, carrot and red pepper t
 
 Boil a full kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648551049327-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Return the pan and any remaining oil to a medium-high heat
 
 Once hot, add the blitzed vegetables, halved cherry tomatoes, ground smoked paprika and a pinch of salt and cook for 6-8 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648551051493-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648551055956-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once the vegetables have softened, add the tomato stock to the pan
 
 Return the meatballs to the pan, cover with a lid and cook for 12-15 min or until the sauce has thickened and the meatballs are cooked through (no pink meat!) – these are your smoky chipotle pork meatballs
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648551056720-x200.jpg)
 
 ### Step 7
 

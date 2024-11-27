@@ -25,6 +25,7 @@ Nothing tops a roast, except when you hit it with fiery buffalo hot sauce. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1663095472826-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Sprinkle the smoked paprika and ground coriander all over with a drizzle of vege
 
 Once hot, add the spiced halloumi, scored-side down and cook for 5 min or until slightly charred
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663095479701-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop the leek<span class="text-danger">[s]</span> in half lengthways, wash thoro
 
 Add the chopped potatoes to one side of a baking paper-lined tray (or two!) with a drizzle of vegetable oil and a pinch of pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663095489300-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Scrunch the edges of the foil around the leek to form a sealed parcel and add to
 
 Once the halloumi is slightly charred, transfer it to the baking tray, reserving the pan and put the tray<span class="text-danger">[s]</span> in the oven for 25-30 min or until the potatoes are golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663095504260-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Tip: No muffin tray? Fill a small oven-proof dish with a generous drizzle of veg
 
 Meanwhile, combine the egg<span class="text-danger">[s]</span> with 35g <span class="text-danger">[70g]</span> flour and 50ml <span class="text-danger">[100ml]</span> milk in a jug, then whisk in the dried oregano and remaining chopped garlic with a pinch of pepper – this is your batter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663095516327-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ After 8 min, remove the muffin tray from the oven and evenly drizzle the batter 
 
 Return the tray to the oven for 15-18 min or until puffed up and golden – these are your ranch Yorkshires
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663095528569-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Chop the chives finely
 
 Combine 150ml <span class="text-danger">[275ml]</span> boiled water with the sriracha (can't handle the heat? Go easy!) and Henderson's Relish – this is your buffalo stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663095539075-x200.jpg)
 
 ### Step 7
 

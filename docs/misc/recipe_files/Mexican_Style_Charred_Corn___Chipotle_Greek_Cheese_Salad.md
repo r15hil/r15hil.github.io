@@ -26,6 +26,7 @@ We've transformed the Mexican street food snack, esquites, into a vibrant salad 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655977248266-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once hot, add your sweetcorn cobette[s] and cook for 15 min, turning throughout,
 
 Tip: Use tongs to move the corn around for even charring
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655977392869-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Lightly oil a baking tray with a little vegetable oil
 
 Brush some of the chipotle marinade (save the remaining marinade for later) over your Greek cheese, until evenly coated on all sides then add to one side of the lightly-oiled baking tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655977396870-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chipotle black beans to the other side of the tray with the Greek cheese
 
 Put the tray in the oven for 10-15 min or until the beans are crispy and the Greek cheese is soft
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655977401339-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ While everything's cooking, chop your coriander finely, including the stalks
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655977405221-x200.jpg)
 
 ### Step 5
 
 Add the chopped coriander and chilli (not a fan of spice? Just add a little!) to a bowl with the juice of the lime[s], your mayo, a drizzle of olive oil and a pinch of salt and pepper – this is your zingy lime dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655977409892-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Top, tail, and grate your carrot[s]
 
 Trim, then finely slice your spring onion[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655977416088-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Learn the secrets to Britain's most popular takeaway! You'll sear basa fillets w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625510041188-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625510045985-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the grated onion, chopped garlic and chopped ginger with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625510054963-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625510073903-x200.jpg)
 
 ### Step 4
 
 While the rice is cooking, dissolve your tomato paste, vegetable stock mix and honey in 250ml <span class="text-purple">[325ml]</span><span class="text-danger"> [450ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625510080636-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once the onion has softened, add your curry powder and ground paprika and cook 
 
 Once fragrant, add the tomato stock to the pan and cook for 3-4 min or until the sauce is beginning to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625510088210-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the sauce has started to thicken, add the chopped basa to the pan and cook 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1625510093798-x200.jpg)
 
 ### Step 7
 

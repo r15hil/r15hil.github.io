@@ -25,6 +25,7 @@ Top flaky pastry with cheese and colourful roasted root veg for your own firewor
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634049033468-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and cut your red onion[s] into wedges
 
 Strip your thyme leaves from their stems and chop them roughly, discard the stems
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634049095005-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Put the tray[s] in the oven for 10-12 min or until beginning to soften – this 
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634049106465-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the vegetables are cooking, dissolve your vegetable stock mix and Henderso
 
 Grate your cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634049114253-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the stock with your Dijon mustard and onion marmalade and bring to the boil 
 
 Turn down the heat and cook for 4-5 min or until thickened – this is your onion gravy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634049149739-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Add the pastry rectangle[s] to the tray and score a 1cm border around the edge of the pastry with a knife
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634049184730-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the grated cheese to the centre of the pastry rectangle
 
 Top the pastry rectangle[s] with the roasted veg, spreading it out evenly and put the tray[s] in the oven for 12-15 min or until puffed up and golden – this is your cheesy firework root veg tart
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634049193417-x200.jpg)
 
 ### Step 7
 

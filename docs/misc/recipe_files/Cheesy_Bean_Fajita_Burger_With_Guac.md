@@ -28,6 +28,7 @@ Create a delicious, crispy-on-the-outside veggie burger with hearty black beans,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1595258711453-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Put the tray in the oven for 25-30 min or until golden and crispy
 
 Meanwhile, drain and rinse your black beans
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1595258715615-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the drained black beans to a bowl with your panko breadcrumbs, egg[s], groun
 
 Mash it all together until you have a chunky, wet mixture and all of the breadcrumbs are incorporated (clean hands is the best way!) – this is your cheesy bean burger mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1595258750806-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Divide the cheesy bean burger mixture and shape into 1 flat patty per person
 
 Line a tray with non-stick baking paper, add the cheesy bean patty[ies] to the tray and put in the oven for an initial 20 min until starting to crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1595258771179-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ While the burger is cooking, deseed your pepper[s] (scrape the seeds and pith ou
 
 Peel and finely slice your red onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1595258782277-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the sliced pepper and half the sliced onion (save the rest for lat
 
 Once softened, remove from the heat and set aside – this is your fried onion & pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1595258808062-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Meanwhile, add the remaining ground smoked paprika to a bowl with your mayo and 
 
 Slice the remaining lime into 1 wedge per person and set aside until later
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595258820674-x200.jpg)
 
 ### Step 7
 

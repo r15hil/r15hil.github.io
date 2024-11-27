@@ -27,6 +27,7 @@ Fill these tacos with the flavours of Mexico! You'll fry coconut breaded jumbo p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1594128082721-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add a pinch of salt and sugar to a bowl with a splash of boiled water and stir e
 
 Once dissolved, add the cider vinegar and sliced green chilli and set aside to pickle – this is your pickled chilli
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1594128201580-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Add the avocado to a bowl and mash it with a fork
 
 Season with a pinch of salt, add 2 tbsp <span class="text-danger">[4 tbsp] </span>cold water and squeeze in the juice of 1/2 <span class="text-danger">[1] </span>lime – this is your guacamole
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1594128230393-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Chop the coconut flakes finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1594128241664-x200.jpg)
 
 ### Step 4
 
@@ -73,11 +77,13 @@ Crack the egg<span class="text-danger">[s]</span> into a separate bowl and beat 
 
 Combine the panko breadcrumbs and chopped coconut flakes in another bowl – these are your coconut breadcrumbs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1594128248786-x200.jpg)
 
 ### Step 5
 
 Coat the jumbo prawns in the flour, tap off any excess, then add into the beaten egg and finally press into the coconut breadcrumbs firmly to evenly coat all over – these are your breaded jumbo prawns
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1594128263934-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once hot, add the breaded jumbo prawns and cook for 3-4 min on each side or unti
 
 Tip: Do the prawns in batches if you need to so you don't overcrowd the pan!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1594128289668-x200.jpg)
 
 ### Step 7
 

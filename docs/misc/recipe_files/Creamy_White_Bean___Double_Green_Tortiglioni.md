@@ -26,6 +26,7 @@ Pack your pasta with double the greens. You'll cook cannellini beans in a creamy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634640399141-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, transfer them to a small bowl, reserving the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634640402450-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely slice (don't chop!) your garlic
 
 Drain and rinse your cannellini beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634640404941-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the drained cannellini beans and sliced garlic
 
 Season with a generous pinch of salt and a crack of black pepper and cook for 1-2 min or until the garlic has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634640407707-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Dissolve your vegetable stock mix with your soft cheese in 180ml<span class="tex
 
 Add the sliced courgette to the pan with 1 tsp <span class="text-purple">[1 1/2 tsp]<span class="text-danger"> </span>[2 tsp]</span> flour and cook for 2-3 min or until beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634640410385-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Tip: It doesn't need to be fully cooked, as it will finish cooking in the sauce 
 
 Wash your spinach, then pat dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634640413161-x200.jpg)
 
 ### Step 6
 
 Once the courgette has started to brown, add the creamy stock, spinach and Tenderstem broccoli to the pan and cook, covered, for 3-4 min further or until the spinach has wilted and the sauce has begun to thicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634640415874-x200.jpg)
 
 ### Step 7
 

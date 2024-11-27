@@ -24,6 +24,7 @@ Puttanesca is a quick pasta packed with bold flavours. You'll make a simple, pun
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/416-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large pot (big enough to fit all your ingredients inside and with a match
 
 Once hot, add the sliced red onion, 1 tsp <span class="text-danger">[2 tsp]</span> of sugar and a pinch of salt and cook for 3-5 min or until softened but not coloured
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/416__.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Grate the Italian hard cheese
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/416-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add 500ml <span class="text-danger">[1L]</span> boiled water to the softened oni
 
 Increase the heat to high and bring to the boil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/416-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the chopped tomatoes, chopped garlic, capers, sliced olives and chilli fla
 
 Tip: Push the pasta into the liquid fully, so it cooks!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/416-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Cover with a lid and cook for 5-8 min or until the linguine is cooked
 
 Tip: Keep checking that the linguine has not stuck to the base of the pot and stir if needed
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/416-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the linguine is cooked, remove the lid and stir continuously for 3-5 min or
 
 Tip: Stirring the sauce releases the starch from the pasta making it naturally creamier
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/416-7-x200.jpg)
 
 ### Step 7
 

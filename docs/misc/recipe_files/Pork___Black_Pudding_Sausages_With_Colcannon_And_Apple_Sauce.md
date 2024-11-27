@@ -21,6 +21,7 @@ This decadent twist on bangers and mash features succulent black pudding and app
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1646736943892-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Peel, core and roughly chop your apple[s]
 
 Add your pork & black pudding sausages to a baking paper-lined baking tray and put them in the oven for 20-25 min or until the sausages are cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1646736957217-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Cook, covered, over a medium heat for 10-12 min or until the apple has softened
 
 Once done, transfer the softened apple to a bowl with a knob of butter (reserve the pan) and mash until smooth – this is your apple sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1646736965397-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and set aside, reserve the pot for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1646736975672-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Trim, then slice your spring onion[s]
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into small pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1646736984946-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once hot, add the sliced onion with a knob of butter and cook for 3-4 min or unt
 
 Add 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml]</span> boiled water with your Henderson's Relish, beef stock mix and a generous grind of black pepper and cook for 4-5 min or until thickened – this is your onion gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1646736996984-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Return the reserved pot to a medium heat and add a large knob of butter
 
 Once melted, add the sliced spring onions, sliced spring greens and a small splash of cold water and cook for 3-4 min or until tender with a bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1646737007584-x200.jpg)
 
 ### Step 7
 

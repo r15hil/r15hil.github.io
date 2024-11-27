@@ -23,6 +23,7 @@ Put a twist on classic pizza, open sandwich-style. You’ll top ciabattas with h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674487253845-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chips to a baking tray (or two!) with a drizzle of olive oil and a pinch
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 12-15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674487258518-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Put the tray[s] in the oven for 5-6 min or until toasted and lightly golden
 
 Once toasted, remove the tray[s] from the oven
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674487263702-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add your tomato paste to a bowl with your dried oregano, chopped garlic (not a b
 
 Add 4 tbsp <span class="text-purple">[6 tbsp] </span><span class="text-danger">[8 tbsp] </span>cold water and stir it all together – this is your tomato base
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674487269619-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674487278042-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Spread your tomato base equally over the toasted ciabatta[s]
 
 Top with the torn mozzarella, sliced pepperoni and a pinch of salt – these are your pepperoni pizza-style open sandwiches
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674487283975-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the chips have had an initial 12-15 min, put the pepperoni pizza-style open
 
 Cook everything for a final 10-12 min or until the chips are crisp and golden and the mozzarella has melted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674487289715-x200.jpg)
 
 ### Step 7
 

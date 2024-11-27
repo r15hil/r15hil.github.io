@@ -27,6 +27,7 @@ This South-East Asian dish is packed with flavour and texture. The tamarind comp
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1509.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low, cover and cook for 10-12 min or until
 
 Once cooked, remove from the heat and k<span class="text-highlight">eep covered</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1509.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and finely chop (or grate) the garlic
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1509.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or unti
 
 Once softened, reduce the heat to medium-low and add the&nbsp;chopped garlic, ground cumin, turmeric and korma curry powder and cook for a further 1-2 min&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1509.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,11 +78,13 @@ Dissolve 1/2 <span class="text-danger">[1]</span> vegetable stock cube in 250ml 
 
 Add the chopped coconut cream, tamarind paste and tomato paste and give everything a good mix up &ndash; this is your tamarind stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1509.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add the tamarind stock and cook for an initial 3-4 min&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1509.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Meanwhile, top, tail and dice the courgette<span class="text-danger">[s] </span>
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1509.-step-7-x200.jpg)
 
 ### Step 7
 

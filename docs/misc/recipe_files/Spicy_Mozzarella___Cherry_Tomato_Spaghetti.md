@@ -24,6 +24,7 @@ For this quick, punchy pasta, you'll toss spaghetti with chilli, garlic and pars
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1668184504083-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686323022109-1690277203687-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the halved cherry tomatoes and remaining whole cherry tomatoes to a baking t
 
 Give everything a good mix up and put the tray under the grill until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686323012758-1690277208821-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1633433368667-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Heat a large, wide-based pan (preferably non-stick) with 4 tbsp<span class="text
 
 Once hot, add your chilli flakes (can't handle the heat? Go easy!) and cook for 30 secs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633433398618-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Tip: Be careful when adding the water to the pan, it may splash!
 
 Return the pan to the heat, sprinkle in your vegetable stock mix and tear your parsley into the pan and stir it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633433449865-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the drained spaghetti to the pan with the juice of half your lemon[s] and gi
 
 Tip: Add a splash more starchy pasta water if your sauce is looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1633433475064-x200.jpg)
 
 ### Step 7
 

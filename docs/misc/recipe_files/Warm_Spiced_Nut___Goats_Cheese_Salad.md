@@ -19,6 +19,7 @@ Goats' cheese rolled in fruity spiced nuts and black pepper sits atop a roast re
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/563.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Chop the sweet potato<span class="text-danger">[es]</span>&nbsp;(skins on) into 
 
 Cut the onion<span class="text-danger">[s]</span>&nbsp;into wedges, leaving the skins on (this stops them drying out)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/563.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Drizzle with olive oil and season generously with salt and pepper
 
 Put the tray in the oven for 20-30 min or until the onion is tender and sweet potatoes are cooked through and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/563.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once dry, add to a large mixing bowl&nbsp;
 
 Tip: you can dry your salad by placing it in a clean tea towel and gently massaging it dry&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/563.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Put them in the oven for 10 min or until they have darkened slightly in colour
 
 Wait until the nuts have cooled then chop half of them roughly and reserve the rest for step 7
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/563.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine the vinegar in a small bowl with 3 tbsp <span class="text-danger">[6 tbsp]</span>&nbsp;olive oil and season with salt and pepper<br /><br />This is your dressing&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/563.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Tip: apply a good amount of pressure so that the nuts stick to the cheese
 
 Reserve the nuts that didn't make it for garnish!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/563.-step-7-x200.jpg)
 
 ### Step 7
 

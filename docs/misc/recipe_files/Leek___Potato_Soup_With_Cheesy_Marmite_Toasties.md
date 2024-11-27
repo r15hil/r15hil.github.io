@@ -22,6 +22,7 @@ Amp up the cheesiness with a hefty dollop of Marmite. You'll serve it with cream
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2007.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Set some butter near a warm place to get to room temperature and reserve for eas
 
 Chop the leeks in half lengthways, wash thoroughly to remove any grit then top, tail and slice finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2007.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Heat a large pot with a drizzle of olive oil over a medium heat
 
 Once hot, add the sliced leeks with a pinch of salt and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2007.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the vegetable stock mix in 750ml <span class="text-danger">[1.3L]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2007.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Add the chopped potatoes, chopped garlic and vegetable stock and cook over a med
 
 Grate the cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-archive-1620750625657-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Spread the reserved butter over the tops and bottoms of the ciabattas, then spre
 
 Sandwich the grated cheese between the ciabattas – these are your cheesy Marmite sandwiches
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-archive-1620750629788-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once hot, add the cheesy Marmite sandwiches and cover with a smaller pan
 
 Add a heavy weight (e.g. several cans) to the top pan and cook for 2-3 min per side, checking occasionally – these are your cheesy Marmite toasties
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2007.-step-7-x200.jpg)
 
 ### Step 7
 

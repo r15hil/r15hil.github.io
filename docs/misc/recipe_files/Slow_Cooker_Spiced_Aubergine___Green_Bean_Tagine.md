@@ -29,6 +29,7 @@ Seasonings steal the show in this smoky spiced tagine. You’ll toss aubergine a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1685091078797-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your slow cooker and all your ingredients ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1685091081500-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Boil half a kettle
 
 Turn on your slow cooker to high
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1685091084287-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Crush your garlic open by squashing with the side of a knife and remove the skin
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685091086714-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your chopped tomatoes to the dish with your sultanas, tahini, the juice of h
 
 Sprinkle in your vegetable stock mix with 80ml <span class="text-purple">[120ml]</span> <span class="text-danger">[160ml] </span>boiled water, give everything a good mix up and cook for an initial 2 hours
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685091089159-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Chop your parsley roughly, including the stalks
 
 Bash your hazelnuts in the bag with a rolling pin
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685091091537-x200.jpg)
 
 ### Step 6
 
 After the initial 2 hours, add the chopped green beans to the dish and cook for a final 1.5 hours – this is your slow cooker spiced aubergine & green bean tagine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1685091093996-x200.jpg)
 
 ### Step 7
 

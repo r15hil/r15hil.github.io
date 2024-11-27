@@ -22,6 +22,7 @@ Take the flavours of yakitori, and make it a stir-fry. You'll sizzle tender chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1645551043600-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1645551051841-x200.jpg)
 
 ### Step 2
 
@@ -46,16 +48,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chicken thigh with half the soy sauce (you'll use the rest later!) and cook for an initial 3-4 min or until golden and slightly charred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1645551057907-x200.jpg)
 
 ### Step 3
 
 While the chicken is cooking, deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1645551074151-x200.jpg)
 
 ### Step 4
 
 Combine the remaining soy sauce, honey and mirin with 80ml <span class="text-danger">[120ml]</span> boiled water – this is your honey mirin sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1645551084223-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Once the chicken is golden, turn the heat down to medium-high and add the sliced
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1645551104114-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once the pepper has slightly softened, add the spinach, sugar snap peas and hone
 
 Cook for 3-4 min further or until the spinach has wilted and the chicken is cooked through (no pink meat!) – this is your Japanese-style chicken & sugar snap stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1645551115964-x200.jpg)
 
 ### Step 7
 

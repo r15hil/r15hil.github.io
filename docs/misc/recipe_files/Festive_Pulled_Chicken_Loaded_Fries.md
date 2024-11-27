@@ -28,6 +28,7 @@ Ding dong merrily on fries. If you like cheesy chips, these loaded fries are a f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1605701145303-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your carrot[s]<span class="text-danger"> </span>and potatoes (skins on) into
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crispy – these are your root veg fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1605701159207-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cut a piece of tin foil, then trim and add your green beans to the middle with 1
 
 Tip: Cooking for 3 or more? Make 2 separate parcels!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1605701185407-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add the stuffing mix to one side of a baking paper-lined tray and push it out un
 
 Add the green bean parcel[s] to the other side of the tray
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1605701201156-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick with a matching li
 
 Once melted, add your chicken breast strips and cook for 3-4 min or until golden
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1605701212087-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Reduce the heat to low and add the chicken stock
 
 Cook, covered, for 12-15 min or until the chicken is cooked through (no pink meat!) and the sauce has started to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1605701243352-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once the root veg fries are golden and crispy, push them into 1 pile per person 
 
 Return the tray to the oven for 5-6 min or until the cheese has melted – these are your festive fries
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1605701255337-x200.jpg)
 
 ### Step 7
 

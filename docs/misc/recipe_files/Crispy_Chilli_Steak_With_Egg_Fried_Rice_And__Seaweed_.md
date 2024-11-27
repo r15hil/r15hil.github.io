@@ -28,6 +28,7 @@ Upstairs meets downstairs in this gourmet-style takeaway fave. You’ll coat rum
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687507564131-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Preheat the oven to 140°C/ 120°C (fan)/ gas 1
 
 Add your shredded kale to a large baking tray (or two!) with a pinch of salt, 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> sugar and a drizzle of vegetable oil, give everything a good mix up, then put the tray[s] in the oven for 25-30 min or until crispy – this is your crispy ‘seaweed’
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687507567714-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the cooked rice to a plate and spread it out flat to help it cool down, reserve the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687507572361-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Slice your red chilli[es] finely
 
 Pat your rump steak[s] dry with kitchen paper, then slice into strips and add to a large bowl with the grated garlic, half your soy sauce (you’ll use the rest later!), cornflour and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>flour and mix it all together – this is your coated steak
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687507575869-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the coated steak to the pan and cook for 3-4 min on each side or u
 
 Once crisp, transfer to a clean plate and set aside, reserving the pan – this is your crispy steak
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687507580167-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Return the reserved pan to a medium heat
 
 Once hot, add the onion petals and sliced chilli (can't handle the heat? Go easy!) and cook for 3-4 min or until beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687507584921-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, crack your egg[s] into the pot and stir with a wooden spoon to break t
 
 Once scrambled, add the cooled rice and half the remaining soy sauce (save the rest for later!), mix it all together and cook for 2-3 min or until everything is combined and warmed through – this is your egg fried rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687507588878-x200.jpg)
 
 ### Step 7
 

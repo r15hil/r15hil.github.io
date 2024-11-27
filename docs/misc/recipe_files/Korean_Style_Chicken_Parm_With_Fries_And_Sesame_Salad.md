@@ -28,6 +28,7 @@ This Korean-style chicken parm is a classic with a kick. You’ll smother crispy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690476950913-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the fries to a baking paper-lined baking tray with a drizzle of vegetable oi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690476954798-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely slice (don't chop!) your garlic
 
 Dissolve your chicken stock mix, tomato paste and gochujang paste (can't handle the heat? Go easy!) in 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[175ml]</span> boiled water – this is your gochujang stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690476958671-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once fragrant, add the gochujang stock with a pinch of sugar and bring to the bo
 
 Once boiling, reduce the heat to medium and cook for a further 4-5 min or until thickened – this is your gochujang sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690476963126-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add a handful of flour to a plate, a splash of milk to a shallow bowl and your p
 
 Coat the flattened chicken in the flour, tap off any excess, then add it into the milk and finally press it into the breadcrumbs firmly to evenly coat all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690476967006-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the breaded chicken and cook for 5-6 min on each side or until golden and cooked through (no pink meat!) – this is your crispy chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690476970709-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Combine your rice vinegar in a bowl with 2 tbsp <span class="text-purple">[3 tbs
 
 Add the salad to the dressing with your toasted sesame seeds and give everything a good mix up – this is your sesame salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690476973673-x200.jpg)
 
 ### Step 7
 

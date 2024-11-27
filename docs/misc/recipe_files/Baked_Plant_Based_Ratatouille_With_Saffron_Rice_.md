@@ -29,6 +29,7 @@ This bowl is full of soul and comes together in a snap. Slow-cook mushrooms, squ
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1631550416809-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632393419521-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil half a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632393625522-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and chop your red onion[s] into wedges
 
 Add the chopped aubergine and red onion wedges to the dish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632393631044-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the chopped mushrooms and your butternut squash cubes to the dish and season
 
 Cook for 2-3 min or until very lightly browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632393636358-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add your chopped tomatoes, dried basil and dried oregano to the dish
 
 Cover with a lid and put the dish in the oven for 45 min or until the veg is tender and the sauce has thickened – this is your baked plant-based ratatouille
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632393641188-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add your white long grain rice to an oven-proof dish with your saffron, a genero
 
 Cover very tightly with tin foil and put the dish in the oven for 25-30 min or until all the water is absorbed and the rice is cooked – this is your saffron rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632393645760-x200.jpg)
 
 ### Step 7
 

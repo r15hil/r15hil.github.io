@@ -27,6 +27,7 @@ Wake up your tastebuds with this sticky chilli sensation. You'll smother crispy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1600441448713-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into chips and add them to a baking tray (or two!) 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600441470130-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add your meat-free chick'n to a bowl with your cornflour and give it a good mix
 
 Tap off any excess cornflour
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600441480761-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the pan is very hot, add the coated meat-free chick'n and cook for 4-5 min 
 
 Once crispy, transfer to a plate and set aside, reserving the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600441494940-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Finely slice your red chilli[es]<span class="text-danger"> </span>into rounds
 
 Trim, then finely slice your spring onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1600441501386-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add the chopped pepper, chopped ginger and half the chopped garlic (save the r
 
 Meanwhile, add your soy sauce to a bowl with your honey, red chilli relish and Chinese rice wine – this is your sticky chilli sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600441525095-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the sticky chilli sauce to the pan and cook for 3 min or until the sauce be
 
 Once thickened, add the crispy meat-free chick'n to the pan and cook for 1 min further until the meat-free chick'n is coated in the sauce – this is your sticky meat-free chick'n
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600441534828-x200.jpg)
 
 ### Step 7
 

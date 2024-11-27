@@ -25,6 +25,7 @@ This perfect butternut squash risotto combines sweet butternut squash with chees
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1719913069361-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and finely chop your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1719913078958-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add your butternut squash cubes to a baking tray with a generous drizzle of vege
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until the squash is almost cooked through and beginning to turn golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1719913089589-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1719913098850-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once softened, add your arborio rice to the onion with the chopped garlic and Ch
 
 Add the stock a ladle at a time, stirring continuously, for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1719913108194-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Heat a separate, large, wide-based pan (preferably non-stick) with a generous dr
 
 Once hot, add your sage leaves and cook for 1 min or until crispy, then transfer to kitchen paper and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1719913116960-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once done, remove the roasted squash cubes and mash most of them up with a fork (save some for garnish!) to form a purée – this is your squash purée
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1719913125497-x200.jpg)
 
 ### Step 7
 

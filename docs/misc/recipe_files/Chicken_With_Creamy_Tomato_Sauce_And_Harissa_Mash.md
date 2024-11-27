@@ -24,6 +24,7 @@ Spice up a classic mash with Moroccan-style harissa paste, and serve with succul
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1631029498486-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil a kettle
 
 Chop your potato[es] and carrot[s] (no need to peel!) into rough bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1631029501404-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the chopped potato and carrot to a pot of boiled water, bring to the boil
 
 Once done, drain and return to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1631029505615-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken breast portion[s] and cook for 3 min on each side or until golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1631029511325-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Chop your cherry tomatoes in half
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water, then add your soft cheese and mix well – this is your creamy chicken stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1631029513968-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once the chicken is golden, add the halved cherry tomatoes and the sliced garlic
 
 Add the creamy chicken stock to the pan, reduce the heat to medium-low, and cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1631029517473-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Mash until smooth – this is your harissa mash
 
 Tip: Don't worry if your carrot doesn't get completely smooth, it will add some texture to your mash!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1631029521627-x200.jpg)
 
 ### Step 7
 

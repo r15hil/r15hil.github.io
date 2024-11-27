@@ -27,6 +27,7 @@ For this open-faced tikka sandwich, you’ll marinate chicken in spices, before 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611671612614-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Lemon-quarters-1676385865272-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Cut your lemon[s] into wedges (set aside one wedge per person for garnish!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602247824474-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine 1/2 tbsp per person of your natural yoghurt (save the rest for later!) i
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil, a pinch of salt and a squeeze of<span class="text-danger"> </span>lemon juice (you'll use the rest later!) – this is your tikka marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1602247841821-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Meanwhile, add your diced chicken breast to the tikka marinade and give everything a good mix up until fully coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1602247862190-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if 
 
 Add your naan[s] to a toaster for 1-2 min or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602247960415-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the diced cucumber and grated carrot to a bowl with your nigella seeds, a pi
 
 Give everything a good mix up – this is your Indian-style salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mayo-1611671262985-x200.jpg)
 
 ### Step 7
 

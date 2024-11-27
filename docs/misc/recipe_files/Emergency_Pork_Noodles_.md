@@ -23,6 +23,7 @@ We've called these noodles 'emergency' because they fulfill two needs: they are 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/613.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil&nbsp;a kettle
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/613.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the pork mince with a pinch of salt, sugar and pepper and cook for 3 min or until starting to brown, breaking it up as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/613.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Bring to the boil over a high heat and cook for 5-7min until tender with a sligh
 
 Once cooked, drain, return to the pot and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/613.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Cook for 1-2 min
 
 Meanwhile, add the Dijon to a measuring jug with 200ml <span class="text-danger">[400ml]</span> boiling water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/613.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour to the pan and stir t
 
 Add the Dijon/water mixture to the pan and continue to stir - this will create a sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/613.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Slice the spring onions finely, discarding the root ends
 
 Chop the parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/613.-step-7-x200.jpg)
 
 ### Step 7
 

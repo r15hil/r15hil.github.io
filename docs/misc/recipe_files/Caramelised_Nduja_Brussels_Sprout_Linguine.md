@@ -26,6 +26,7 @@ Sprouts are a British Christmas classic. You’ll caramelise yours in sweet hone
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669132239075-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Trim the ends from your Brussels sprouts, then slice half finely
 
 Cut the remaining Brussels sprouts in half, lengthways
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669132243612-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and sliced garlic with a pinch of salt and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vinaigrette-2-1731574437745-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once the onion and garlic has softened, add 2 tsp <span class="text-purple">[3 t
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669132261071-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the sliced Brussels sprouts and halved Brussels sprouts with a pinch of salt and cook for 3-4 min or until beginning to soften and char
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669132271694-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once done, drain the linguine, reserving a cup of the starchy pasta water
 
 Return the drained linguine to the pot and boil a little water in a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669132280425-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once evaporated, add your honey to the pan, give everything a good mix up and co
 
 Tip: Reduce the heat to medium if the sprouts look like they're burning!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669132296262-x200.jpg)
 
 ### Step 7
 

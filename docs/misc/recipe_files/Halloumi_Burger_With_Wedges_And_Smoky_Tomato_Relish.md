@@ -22,6 +22,7 @@ Packed with flavour, halloumi makes a brilliantly satisfying filling for a yummy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/865.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Cut your potatoes (skins on) into wedges and add them to a baking tray (or two!)
 
 Season with a pinch of salt and pepper and sprinkle over your dried oregano, then put the tray[s] in the oven for 20-25 min or until the wedges are golden and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/865.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add 500ml <span class="text-purple">[750ml]</span> <span class="text-danger">[1L
 
 Once boiling, reduce the heat to medium, add the halloumi half[ves] and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/865.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Chop (or grate) half of the garlic finely (you'll use the rest later!)
 
 Heat a pot with a generous drizzle of olive oil over a medium heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/865.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Cook for 5-8 min or until thickened to a chutney-like consistency – this is your smoky tomato relish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/865.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once softened, drain and pat the halloumi half[ves] dry with kitchen paper (save
 
 Using a rolling pin, flatten the halloumi half[ves] into a similar size as the ciabatta – this is your halloumi steak[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/865.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Combine the remaining red wine vinegar with 2 tbsp <span class="text-purple">[3 
 
 Once cooled, rub the remaining garlic into the crispy ciabatta
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/865.-step-7-x200.jpg)
 
 ### Step 7
 

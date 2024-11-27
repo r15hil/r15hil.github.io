@@ -24,6 +24,7 @@ This one pot masterpiece is a real crowd pleaser. You’ll bake gnocchi in a spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1791.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil half a kettle
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1791.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid out
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1791.-step-3-x200.jpg)
 
 ### Step 3
 
 Combine your chopped tomatoes, tomato paste, chopped garlic and a pinch of salt and sugar with 50ml <span class="text-purple">[75ml]</span><span class="text-danger"> [100ml] </span>boiled water in an oven-proof dish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1791.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Wash and add your spinach, cherry tomatoes and half of your gnocchi to the dish
 
 Add the remaining gnocchi on top
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1791.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -61,11 +66,13 @@ Top with the grated cheddar and torn mozzarella
 
 Season with a generous grind of black pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1791.-step-6-x200.jpg)
 
 ### Step 6
 
 Put the dish into the oven and cook for 25-30 min or until golden and crisp – this is your cheesy tomato gnocchi bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1791.-step-7-x200.jpg)
 
 ### Step 7
 

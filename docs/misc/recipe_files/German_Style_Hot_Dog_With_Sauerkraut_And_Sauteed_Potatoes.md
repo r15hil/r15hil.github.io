@@ -28,6 +28,7 @@ Big, bavarian flavours are the dish of the day with this German-style dog. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1693824303059-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your chives finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693824305120-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add your yellow mustard seeds and cook for 30 secs or until sizzling
 
 Once sizzling, add the sliced red onion and your shredded red cabbage and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693824307840-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to medium-high and cook for 10-12 min or until for
 
 Once done, drain and return to the pot to steam dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693824310809-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the onion and cabbage have softened, add half your cider vinegar (you'll us
 
 Combine your mayo and Dijon mustard in a separate bowl – this is your mustard mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693824314023-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add your pork sausage[s] to one side of a baking tray (use tin foil to avoid mes
 
 Put the tray in the oven for 15-20 min or until the sausage[s] is cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693824316267-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, add the drained potatoes with a pinch of salt and cook for 5-6 min, st
 
 Once golden, add the chopped garlic and cook for a further 30 secs or until fragrant – these are your sauteed potatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693824319059-x200.jpg)
 
 ### Step 7
 

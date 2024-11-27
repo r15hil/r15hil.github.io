@@ -23,6 +23,7 @@ Transform Proper Porker sausages into juicy, succulent burgers. You'll serve the
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/682.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of
 
 Put the tray in the oven for 25-30 min or until crisp and browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/682.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Meanwhile, combine your onion marmalade, Dijon mustard and mayo in a small bowl 
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/682.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once browned, transfer them to a plate (save the pan for later!)
 
 Tip: Cooking for 4? You might need to do this in batches!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/682.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Open the cut side then press down with your hand to flatten them out to form sa
 
 Peel the skins away from the back of the patties and discard
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/682.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Once hot, add the sausage patties, cover with a lid and cook for 4 min on each s
 
 Tip: Press the patties down with a spatula to keep them nice and flat throughout cooking
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/682.-step-6-x200.jpg)
 
 ### Step 6
 
 Combine your red wine vinegar, dried oregano and chopped garlic (don't like raw garlic? Go easy!) with a pinch of sugar, salt and pepper and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil in a bowl – this is your vinaigrette
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/682.-step-7-x200.jpg)
 
 ### Step 7
 

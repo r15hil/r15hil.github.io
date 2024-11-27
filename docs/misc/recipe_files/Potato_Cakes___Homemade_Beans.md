@@ -24,6 +24,7 @@ The Gousto version of beans and potato waffles plates up homemade comfort food a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/316.step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add them to a pot with plenty of water and a pinch of salt
 
 Bring to the boil over a high heat and cook for 15 min or until fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/316.step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely chop (or grate) the garlic
 
 Drain and rinse the cannellini beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/316.step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook for 3 min or until softened
 
 Meanwhile, chop the chives finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/316.step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Reduce the heat to medium-low, cook for 10 min, then add the drained cannellini 
 
 Keep on a low heat until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/316.step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Return to the pot and mash until smooth
 
 Add half of the chopped chives (save the rest for later!), 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, season generously and mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/316.step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Divide the dough into 6 <span class="text-danger">[12]</span> pieces and shape e
 
 Flatten each ball slightly and sprinkle with a little extra flour – these are your potato cakes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/316.step-7-x200.jpg)
 
 ### Step 7
 

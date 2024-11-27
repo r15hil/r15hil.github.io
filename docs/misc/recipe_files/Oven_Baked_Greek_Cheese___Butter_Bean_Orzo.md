@@ -28,6 +28,7 @@ Our take on manestra or Greek-style orzo is an oven-baked treat. Try it with cre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1716278672799-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716278681328-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Trim the green stalk[s] off your aubergine[s] and discard, then chop into small 
 
 Combine half your ground paprika (save the rest for later!) with 1 tbsp<span class="text-purple"> [1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> olive oil and a pinch of pepper in a small bowl and set aside to infuse – this is your paprika oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716278685355-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chopped aubergine to a baking tray with a generous drizzle of olive oil,
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – this is your crispy aubergine
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716278689247-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Cook for 1 min or until fragrant
 
 Drain and rinse your butter beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716278696231-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Crumble half your Greek cheese (you'll use the rest later!) into the dish, and s
 
 Bring to the boil over a high heat, cover with a lid, then put the dish in the oven for 20-25 min, stirring halfway, or until the orzo is tender and the liquid has been absorbed – this is your Greek cheese & butter bean orzo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716278700945-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716278705403-x200.jpg)
 
 ### Step 7
 

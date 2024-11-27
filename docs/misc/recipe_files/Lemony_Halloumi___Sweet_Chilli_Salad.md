@@ -20,6 +20,7 @@ We love halloumi - it's a big, mighty cheesy steak, especially when you cook it 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/715.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Boil a kettle
 
 Add the bulgur to a pot with plenty of boiled water (the same as you would for pasta) and cook over a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/715.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add 500ml <span class="text-danger">[800ml]&nbsp;</span>boiled water to&nbsp;a p
 
 Once boiling, carefully add the halloumi slices and boil for 5-8 min or until they've softened&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/715.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the juice of half the lemon and 3 tbsp <span class="text-danger">[6 tbsp]</s
 
 Top and tail and cut the courgette<span class="text-danger">[s]</span>&nbsp;into bite-size pieces&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/715.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once softened, drain and pat the halloumi slices dry with a clean tea towel or k
 
 Using&nbsp;a rolling pin, flatten and roll out each piece until they are a little larger than a post-it note&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/715.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once hot, add the courgette with a pinch of salt and cook for 4-6 min or until g
 
 Once golden, transfer the courgette to a small plate and keep the pan for step 7
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/715.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Top, tail and peel&nbsp;the carrot<span class="text-danger">[s]</span>, then con
 
 Chop&nbsp;the pea shoots roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/715.-step--7-x200.jpg)
 
 ### Step 7
 

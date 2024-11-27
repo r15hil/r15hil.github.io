@@ -29,6 +29,7 @@ This luscious lamb stew needs next to no prep. You'll brown the mince in a casse
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1612952082922-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604418959191-x200.jpg)
 
 ### Step 2
 
@@ -51,11 +53,13 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of v
 
 Peel and chop your red onion[s] into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604418968369-x200.jpg)
 
 ### Step 3
 
 Add your lamb mince to the dish and break it up into rough, large chunks and cook for 1-2 min or until very lightly browned all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604418975841-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Crush your garlic cloves open by squashing them with the side of a knife and rem
 
 Chop your potato[es] into small, rough pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604418982245-x200.jpg)
 
 ### Step 5
 
 Add the crushed garlic, chopped potato, red onion wedges, Chantenay carrots and bay leaf[ves]<span class="text-danger"> </span>to the dish and stir everything together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604418995715-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add your beef stock mix, tomato paste and 200ml<span class="text-purple"> [260ml
 
 Bring to the boil over a high heat and stir in your Marmite and Henderson's Relish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1604943455630-x200.jpg)
 
 ### Step 7
 

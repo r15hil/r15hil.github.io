@@ -26,6 +26,7 @@ Up your sarnie game with a South American twist. You’ll coat courgette ribbons
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682590660400-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chopped potatoes to a baking paper-lined baking tray (or two!) with a dr
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682590663890-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel lengths off your courgette[s] with a peeler until you end up with a pile of
 
 Roughly chop the remaining courgette
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682590667359-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Chop your parsley finely, including the stalks
 
 Peel and finely dice your shallot[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682590670862-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the potatoes have had an initial 10 min, remove the tray[s] from the oven a
 
 Give everything a good mix up, then return the tray[s] to the oven and cook for 15-20 min further or until the potatoes and courgette are crisp and golden – these are your smokey potatoes & courgette
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682590675477-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
 Combine the courgette ribbons and the chimichurri in a large bowl and give everything a good mix up – this is your chimichurri courgette
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682590678663-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Combine your mayo and remaining chopped garlic (not a fan of raw garlic? Just ad
 
 Slice your halloumi in half, lengthways (like you're slicing a burger bun!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682590682194-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ You may have heard of stuffed marrow, a classic old English vegetarian dish. The
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/680.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with 1 tbsp
 
 Once hot, add the onion and cook for 2-3 min or until soft and just beginning to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/680.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Meanwhile, chop the tomatoes finely and add them to the onion with the baharat a
 
 Chop the parsley finely, including the&nbsp;stalks and add the chopped stalks to the pan (save the chopped leaves for later)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/680.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop the seedy innards roughly and add them to the pan&nbsp;
 
 Cook for a further 3-4 min or until everything is cooked down and there is no liquid in the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/680.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Fill the courgette boats with the onion and tomato mixture&nbsp;
 
 Boil half a <span class="text-danger">[full]</span> kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/680.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Add the chopped parsley, a small pinch of&nbsp;pepper and 1 tsp <span class="tex
 
 Mix thoroughly and top the stuffed courgettes evenly with the feta mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/680.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Meanwhile, dissolve the remaining stock cube in 200ml <span class="text-danger">
 
 Add the couscous to a mixing bowl, add the stock, cover and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/680.-step-7-x200.jpg)
 
 ### Step 7
 

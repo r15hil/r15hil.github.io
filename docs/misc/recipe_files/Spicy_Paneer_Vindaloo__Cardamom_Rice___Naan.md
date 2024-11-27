@@ -27,6 +27,7 @@ This dish is a fusion of East and West, with the influence of Portugal shining t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1622126972686-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the sliced onion and cook for 7-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1622126979584-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Tip: Only add half the cayenne pepper now, then taste later and add the rest if 
 
 Give everything a good mix up – this is your coated paneer
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1622127000643-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Peel and finely slice the garlic
 
 Dissolve the veg stock mix and tamarind paste in 150ml<span class="text-danger"> [250ml] </span>boiled water – this is your tamarind stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1622127012845-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the onions have softened, add a small knob of butter with the halved toma
 
 Crush the cardamom pods open by squashing them with the side of a knife
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1622127036011-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1622127058436-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the tomatoes have started to break down, add the coated paneer (scrape out 
 
 Add the tamarind stock and cook for 5-6 min further or until the sauce has thickened – this is your spicy paneer vindaloo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1622127082537-x200.jpg)
 
 ### Step 7
 

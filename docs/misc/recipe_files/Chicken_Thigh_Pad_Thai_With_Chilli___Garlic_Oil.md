@@ -23,6 +23,7 @@ Pan-fried pad Thai, oh my. You’ll sizzle chicken, egg and red pepper before fl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663690999437-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Set aside for 12-15 min to soften
 
 Once softened, drain the noodles and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663691003278-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Trim, then slice your spring onion[s]
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663691006911-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add half the chopped garlic (save the rest for later!) and chilli flak
 
 Once slightly browned, transfer the chilli & garlic oil to a small bowl and set aside for later, reserving the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663691010489-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Return the reserved pan to a high heat with a drizzle of vegetable oil
 
 Once hot, add your diced chicken thigh and cook for 10-12 min or until golden and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663691014137-x200.jpg)
 
 ### Step 5
 
 Once golden, add the chopped pepper and remaining garlic to the pan and cook for 2-3 min or until the pepper is starting to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Balsamic-Vinegar-1665734666727-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Tip: If you don’t have a rolling pin, just chop them roughly!
 
 Combine your gluten free soy sauce and tamarind paste in a small bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and mix it all together – this is your tamarind sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663691021677-x200.jpg)
 
 ### Step 7
 

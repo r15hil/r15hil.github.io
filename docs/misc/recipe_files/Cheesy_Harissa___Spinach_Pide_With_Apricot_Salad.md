@@ -27,6 +27,7 @@ You’ve had pizza, now try its boat-shaped cousin, pide. You’ll load your dou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1664348975518-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1664348980226-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add your dried yeast to a large bowl with 100ml <span class="text-purple">[150ml
 
 Mix it all together and set aside for 5-10 min for the yeast to develop
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1664348983950-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel and finely chop (or grate) your garlic
 
 Grate your cheddar cheese finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1664348988239-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Combine the chopped spinach and grated cheddar in a bowl with the chopped garlic
 
 Add your harissa paste (not a fan of spice? Just add a little!), soft cheese, half the quick-pickled onion (save the rest for later!) and a pinch of salt and pepper and give everything a good mix up – this is your spicy filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1664348993020-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Tip the dough ball out onto a floured work surface and cut into 1 piece per per
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go and knead it for 20 secs with floured hands
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1664348998319-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Pinch and twist the ends of each oval to form a boat-shape – this is your pide
 
 Remove the baking tray[s] from the oven and add the pide base[s] (be careful- the tray[s] will be hot!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1664349003817-x200.jpg)
 
 ### Step 7
 

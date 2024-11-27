@@ -27,6 +27,7 @@ Bring the night market to your dinner table with this spicy, sweet and sticky Ca
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1630932530093-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Combine the grated garlic, 5 spice mix, ground paprika, hoisin sauce, honey, Chi
 
 Add half the toasted sesame oil (save the rest for later!) and mix everything together – this is your char siu sauce
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630932533092-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Transfer the pulled pork joint to an oven-proof dish draining away half of the j
 
 Cover with tin foil and put the dish in the oven for an initial 20 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1630932536453-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the rice to a plate (reserve the pot) and spread it out flat to help it cool down
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630932541035-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the halved pak choi to a baking tray lined with tin foil
 
 Add a drizzle of vegetable oil and season with a pinch of salt, then set aside for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1630932544888-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Spoon the char siu sauce all over the joint and return it to the oven for 10-12 
 
 Add the pak choi to the oven for 10 min or until the leaves have begun to crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1630932548493-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Return the reserved pot to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the cooled rice, blanched peas, remaining toasted sesame oil and cook for 2-3 min until everything is combined
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1630932552634-x200.jpg)
 
 ### Step 7
 

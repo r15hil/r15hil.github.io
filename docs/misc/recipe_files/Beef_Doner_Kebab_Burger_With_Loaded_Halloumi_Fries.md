@@ -31,6 +31,7 @@ Here’s a takeaway twist you won’t be able to resist. You’ll stuff strips o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664895105027-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Combine the sliced onion and red wine vinegar in a small bowl with a pinch of sa
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp]</span> boiled water – this is your quick-pickled onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664895107858-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the grated onion and beef mince to a bowl with your ground cumin and half 
 
 Add a pinch of salt and mix thoroughly until fully combined (clean hands is the best way!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664895111220-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Tip: Cooking for 4 or more? You may need to do this in 2 batches!
 
 Peel off the top baking sheet and transfer the rolled beef to a large baking tray (or two!) then add the tray[s] to the oven for 18-20 min or until cooked through and browned (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664895114443-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Remove 1<span class="text-danger"> </span>outer leaf per person from the lettuce
 
 Chop your coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664895117195-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Add the halloumi chips to the plate and turn several times until fully coated i
 
 Combine your roasted garlic paste, natural yoghurt and chopped coriander in a small bowl – this is your garlic sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664895120194-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Tip: Cooking for 4? You may need to do this in 2 batches!
 
 Once golden, transfer the halloumi fries to kitchen paper to drain off any excess oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1664895146886-x200.jpg)
 
 ### Step 7
 

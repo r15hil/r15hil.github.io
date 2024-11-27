@@ -26,6 +26,7 @@ This Chinese-style dish is all about umami. You'll pair pan-fried fish with spin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614615020552-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel (scrape the skin off with a teaspoon) and finely slice your ginger, then ch
 
 Combine your black bean paste with 25ml <span class="text-purple">[35ml]</span> <span class="text-danger">[45ml]</span> cold water and 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp] </span>sugar – this is your black bean sauce
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1614615033130-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once done, remove from the heat and set aside (lid on) to steam until serving
 
 Wash your spinach, then pat dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614615045373-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Sprinkle your cornflour all over and rub it into both sides of the fish until fu
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1614615069298-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Lay the spinach, Tenderstem broccoli and half of the sliced ginger and garlic (y
 
 Scrunch the edges of the foil around the vegetables to form a<span class="text-danger"> </span>sealed parcel[s], then put the tray in the oven for 12-15 min or until tender – these are your black bean greens
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614615140927-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once crispy, transfer to a bowl and set aside – this is your crispy ginger & garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1614615176255-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once hot, add the coated basa and cook for 8-9 min, turning once halfway until g
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1614615190676-x200.jpg)
 
 ### Step 7
 

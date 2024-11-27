@@ -30,6 +30,7 @@ This Georgian-style aubergine is an absolute dream. For your take on nigvziani b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688117263925-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Boil a kettle
 
 Trim the green stalk[s] off your aubergine[s] and slice, lengthways into approx. 1cm thick slices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688117267828-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Put the tray[s] in the oven for 15 min or until the aubergine is tender
 
 Once cooked, remove from the oven and set aside to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688117271148-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Combine half the chopped shallot (save the rest for later!) with your white wine
 
 Give everything a good mix up – this is your quick-pickled shallot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688117274940-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once hot, add your walnuts and cook for 2-3 min or until toasted and lightly gol
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688117278932-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Tip: No food processor? Bash the walnuts in a pestle & mortar until very fine!
 
 Combine the ground walnuts and ground paprika in a small bowl with your roasted garlic paste, a pinch of salt and pepper and 2 1/2 tbsp <span class="text-purple">[3 3/4 tbsp]</span> <span class="text-danger">[5 tbsp] </span>cold water – this is your walnut filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688117281943-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add your vegetable stock mix with 400ml <span class="text-purple">[520ml] </span
 
 Once boiling, reduce the heat to low and cook, covered, for 15 min or until tender – this is your spicy bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688117285225-x200.jpg)
 
 ### Step 7
 

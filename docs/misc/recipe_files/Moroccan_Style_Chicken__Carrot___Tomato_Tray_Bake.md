@@ -28,6 +28,7 @@ Prep this Moroccan-spiced chicken tray bake in 15 minutes! Then just bake until 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1690.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Preheat the oven to 180°C/ 160°C (fan)/ gas 4, then take your chicken out of t
 
 Combine your baharat, cumin seeds and ground cinnamon with 2 tbsp [3 tbsp] [4 tbsp] olive oil and a generous pinch of salt and pepper in a small bowl – this is your spice rub
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1690.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Top, tail, peel and cut your carrot[s] into batons
 
 Peel and cut your red onion[s] into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1690.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Pour over the spice rub and give everything a good mix up (clean hands are the b
 
 Make sure the chicken thighs are skin-side up on top of the other ingredients and season with a pinch of salt and pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1690.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Put the tray[s] in the oven for 50-60 min or until the chicken is golden and co
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1690.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once the chicken and vegetables have been in the oven for 45 min, boil a kettle
 
 Add your couscous, sun-dried tomatoes and sultanas to a heatproof bowl with 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiling water, cover and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1690.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Combine the chopped dill with your natural yoghurt in a small bowl and give it a
 
 Chop your parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1690.-step-7-x200.jpg)
 
 ### Step 7
 

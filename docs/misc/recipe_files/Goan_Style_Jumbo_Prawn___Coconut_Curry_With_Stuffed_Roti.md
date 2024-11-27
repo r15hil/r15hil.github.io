@@ -30,6 +30,7 @@ It’s all about the roti in this melty takeaway twist. You’ll cook juicy jumb
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679398734497-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679398820677-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Grate your cheddar cheese finely
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679398829281-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Place the remaining rotis on top so you end up with 1 roti sandwich per person, 
 
 Once done, top the roti[s] with a small knob of butter – this is your chilli cheese roti
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679398839111-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Drain your jumbo prawns
 
 Once hot, add the drained prawns and cook for 3-4 min or until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679398848075-x200.jpg)
 
 ### Step 5
 
@@ -79,11 +84,13 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of v
 
 Once hot, add the trimmed green beans with a pinch of salt and cook for 5-6 min or until tender and slightly charred – these are your charred green beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679398855647-x200.jpg)
 
 ### Step 6
 
 Dissolve your creamed coconut in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml]</span> boiled water with your tamarind paste and mango chutney – this is your coconut stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679398862348-x200.jpg)
 
 ### Step 7
 

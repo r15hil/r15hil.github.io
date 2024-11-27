@@ -19,6 +19,7 @@ Sweet and delicate, our British-caught hake is a fabulously delicious fish, espe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1771.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once done, drain and set aside to steam dry
 
 Re-boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1771.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, cut the lemon<span class="text-danger">[s]</span> into quarters
 
 Chop the parsley finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1771.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Flip the fish and cook for 1-2 min further or until cooked through
 
 Tip: your fish is cooked when it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1771.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Return the pan to a very low heat and add the soft cheese and 100ml <span class=
 
 Cook for 5-6 min or until thickened to a double cream-like consistency
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1771.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Tip: alternatively, to save on washing up, add these to the potato pot when they
 
 Once done, drain the cooked beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1771.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Return the drained potatoes to a low heat with a large knob of butter
 
 Mash until smooth, then season generously with salt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1771.-step-7-x200.jpg)
 
 ### Step 7
 

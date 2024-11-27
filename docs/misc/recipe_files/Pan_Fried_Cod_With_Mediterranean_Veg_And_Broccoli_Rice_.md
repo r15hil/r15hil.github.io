@@ -19,6 +19,7 @@ Enjoy the flavours of the Med in minutes. You'll top a flavoursome courgette and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627987890281-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the Mediterranean veg mix and cook, covered, for an initial 3-4 min or until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627987897926-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Once hot, add the cod fillets to the pan and cook for 2 min on each side or unti
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627987914464-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Whilst the fish is cooking, dissolve the vegetable stock mix, tomato paste, drie
 
 Add the broccoli brown rice to a large, heatproof bowl and put the bowl in the microwave for 2-3 min or until piping hot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627987920049-x200.jpg)
 
 ### Step 4
 

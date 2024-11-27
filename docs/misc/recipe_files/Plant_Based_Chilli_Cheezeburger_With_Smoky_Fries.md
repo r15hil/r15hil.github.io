@@ -26,6 +26,7 @@ This chilli cheese supreme isn't just any plant-based burger. You'll top our Ult
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597163692513-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil, a pinch of salt 
 
 Put the tray in the oven and cook for an initial 20-25 min or until golden and crispy – these are your smoky fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597163708882-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger"
 
 Once dissolved, add your red wine vinegar and sliced red chilli and set aside – this is your quick-pickled chilli
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597163739222-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ While the chilli is pickling, drain and rinse<span class="text-danger"> </span>y
 
 Dissolve your tomato paste in 75ml <span class="text-purple">[110ml]</span> <span class="text-danger">[150ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597163755422-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the drained black beans, ground cumin and remaining smoked paprika
 
 Once fragrant, add the tomato stock and a pinch of salt and pepper and cook for 3-4 min or until thickened – this is your black bean chilli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597163770211-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add your ultimate vegan burger patties to one side of a non-stick baking pape
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597163787990-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Whilst the patties are in the oven, wash then remove a leaf per person from your
 
 Cut the remaining lettuce into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597163797022-x200.jpg)
 
 ### Step 7
 

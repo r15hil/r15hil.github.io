@@ -26,6 +26,7 @@ This retro classic is still popular with very good reason! You'll pan-fry juicy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2172.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the cubed potatoes to a baking tray (or two!) with a generous drizzle of veg
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-04-22_11h19m42s-APIC-1653322446876-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, drain your jumbo king prawns then add them to the pan and cook for 6-7
 
 Once done, remove the pan from the heat and set aside to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2172.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add a squeeze of lemon juice, a generous pinch of salt and half your cayenne pep
 
 Stir it all together – this is your Marie Rose-style sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2172.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Wash your lettuce, then pat dry with kitchen paper and remove 4 outer leaves per
 
 Shred the inner core[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2172.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine the shredded lettuce with half the Marie Rose-style sauce (save the rest for later!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2172.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely lengthways
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2172.-step-7-x200.jpg)
 
 ### Step 7
 

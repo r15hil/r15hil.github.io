@@ -28,6 +28,7 @@ A comforting jacket potato that tastes like a pepperoni pizza, what’s not to l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651580965394-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Put the potatoes in the microwave for 6 min
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651580967117-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Season with a pinch of salt and pepper – this is your tomato base
 
 Once the potatoes are done, transfer them to one side of a baking paper-lined baking tray (reserve the the bowl) with a drizzle of olive oil, then put the potatoes in the oven for an initial 20 min or until golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651580971342-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the ciabatta pieces to a bowl with a drizzle of olive oil and a pinch of sal
 
 Drain your mozzarella, then pat and squeeze as much liquid out as you can with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Torn-mozarella-on-board-1723548666861-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Add your cider vinegar to the reserved bowl with your mayo, Dijon mustard, most of your grated Italian hard cheese (save some for garnish!), 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil and a pinch of pepper and whisk everything together – this is your cheat's Caesar dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651581021128-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the potatoes have had an initial 20 min, remove the baking tray from the ov
 
 Fluff the insides with a fork and add a little butter with a large pinch of salt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651581061453-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the croutons to the other side of the baking tray and return the tray to the
 
 Tip: Cooking for 3? Use 2 trays!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651581086097-x200.jpg)
 
 ### Step 7
 

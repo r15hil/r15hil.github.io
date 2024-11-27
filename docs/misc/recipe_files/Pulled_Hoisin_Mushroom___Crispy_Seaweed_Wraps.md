@@ -28,6 +28,7 @@ For our plant-based twist on hoisin duck, you'll smother smoky pulled mushrooms 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2439Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Using clean hands, tear your chestnut mushrooms into small pieces and add to a b
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for an initial 10-15 min, until starting to brown and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2439Step-2-1-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Wash your spring greens then pat dry with kitchen paper
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2439Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the sliced spring greens to a large baking tray (or two) and sprinkle with a
 
 Give everything a good mix up, then put the tray[s] in the oven for 8-10 min or until crispy – this is your crispy 'seaweed'
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2439Step-4-1-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the mushrooms are starting to brown, remove the tray[s] from the oven and 
 
 Mix it all together and return the tray[s] to the oven for 8-10 min further or until caramelised
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2439Step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ While the mushrooms are caramelising, slice your cucumber in half lengthways a
 
 Trim, then slice your spring onion[s] lengthways into batons
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2439Step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add your tortillas to a tray and put the tray in the oven for 2-3 min or until w
 
 Add your hoisin sauce to a bowl along with your onion marmalade and mix it all together – this is your sticky hoisin sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2439Step-7-x200.jpg)
 
 ### Step 7
 

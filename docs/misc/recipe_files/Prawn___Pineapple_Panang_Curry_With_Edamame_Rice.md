@@ -24,6 +24,7 @@ Whip up a Malaysian-style feast in minutes, with pre-chopped pepper and pineappl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1616584782387-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once hot, add the chopped pepper & pineapple (including any excess pineapple jui
 
 Cook for 2 min until the pepper has started to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616584809498-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ Meanwhile, add the edamame & jasmine rice to a large, heatproof bowl and put the
 
 Dissolve the coconut cream in 150ml <span class="text-danger">[200ml]</span> boiled water – this is your coconut stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616584821059-x200.jpg)
 
 ### Step 3
 
 Once the pepper has softened slightly, add the king prawns and curry powder and cook for 2 min until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616584850587-x200.jpg)
 
 ### Step 4
 

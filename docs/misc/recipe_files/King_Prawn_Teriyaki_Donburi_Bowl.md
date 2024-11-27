@@ -29,6 +29,7 @@ Donburi is a Japanese rice bowl with an array of umami-rich toppings. To make ou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688399220695-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688399223698-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Whilst the rice is cooking, peel your ginger (scrape the skin off with a teaspoo
 
 Slice your cucumber[s] finely (as finely as you can)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688399227769-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-da
 
 Add your red wine vinegar, ginger matchsticks and set aside to pickle until serving – this is your quick-pickled ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688399231324-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Slice your mangetout in half lengthways
 
 Add the sliced mangetout to a bowl, cover with boiled water and set aside to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688399235366-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Trim, then slice your spring onion[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688399239976-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, drain then add your king prawns with the chopped garlic, tamari soy sa
 
 Cook for 4-5 min or until the prawns are cooked through and the sauce is thickened and sticky in consistency – these are your teriyaki prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688399250962-x200.jpg)
 
 ### Step 7
 

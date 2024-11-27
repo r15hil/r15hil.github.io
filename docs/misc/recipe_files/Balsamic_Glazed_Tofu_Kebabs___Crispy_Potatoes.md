@@ -24,6 +24,7 @@ These plant-based skewers are tofu-riffic! You'll smother tofu and vegetable keb
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2201.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
 Chop the potatoes (skins on) into rough bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2201.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Chop the tofu into 18 <span class="text-danger">[36]</span> cubes
 
 Peel and roughly chop the red onions
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2201.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Drizzle with vegetable oil, season with a pinch of salt and give everything a
 
 Thread the chopped veg and tofu cubes onto the soaked skewers, alternating as you go – these are your tofu kebabs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2201.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Put the tray in the oven for 20-25 min or until golden and crispy
 
 Add the tofu kebabs to a separate lightly oiled baking tray and put the tray in the oven for an initial 15-20 min, or until everything has softened and beginning to turn golden
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2201.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the pot to a medium-high heat and bring to the boil
 
 Once boiling, reduce the heat to medium and cook for 3-5 min or until reduced – this is your balsamic glaze
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2201.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Tip: Brush the glaze onto the kebabs with a pastry brush if you have one!
 
 Return the tray to the oven for 3-5 min or until golden and sticky
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2201.-step-7-x200.jpg)
 
 ### Step 7
 

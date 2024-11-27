@@ -23,6 +23,7 @@ Minestrone is a thick soup packed with veg, enjoyed all over Italy. In this verd
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2086.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Wash the leek<span class="text-danger">[s]</span> carefully to remove any grit f
 
 Once the pan is hot, add the sliced leeks with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2086.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Rip the leaves off the cavolo nero, discard the tough inner stalks, then layer t
 
 Dissolve 1/2<span class="text-danger"> [1] </span>Knorr vegetable stock cube<span style="color:#e86754;"> </span>and the green tomato chutney in 700ml <span class="text-danger">[1.3L]</span> boiled water – this is your soup base
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2086.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once fragrant, add the sliced cavolo nero and give everything a good mix up
 
 Add the soup base and macaroni and cook, covered, for 6-8 min or until the cavolo nero has wilted and the macaroni is cooked with a slight bite – this is your Tuscan minestrone
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2086.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,11 +77,13 @@ Add the ciabatta slices to a baking tray with a drizzle of olive oil and a pi
 
 Put the tray in the oven for 4-5 min or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2086.-step-5-x200.jpg)
 
 ### Step 5
 
 While the ciabatta slices are cooking, strip the basil leaves from their stalks and chop them roughly, discarding the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2086.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add the juice of the lemon<span class="text-danger">[s]</span> (use half if yo
 
 Tip: If you don't have a pestle and mortar, blitz in a food processor!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2086.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ For this elegant take on steak and chips, you'll sear prime grass-fed sirloin to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1551.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Boil a kettle
 
 Peel your red potatoes and cut them into chunky chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1551.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once done, drain and lay the chunky chips flat on a baking tray (or two!) to st
 
 Tip: For extra crispy chips, carefully shake them around in a colander to fluff up the edges a little before baking
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1551.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel and finely slice your shallot[s]
 
 Deseed your red chilli[es] (scrape the seeds out with a teaspoon) and slice into rounds
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1551.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add a drizzle of vegetable oil to the chunky chips, season with a generous pin
 
 Put the tray[s] in the oven and cook for 25-30 min or until golden and crispy, turning once halfway through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1551.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Pat your sirloin steak[s] dry with kitchen paper, rub them with vegetable oil a
 
 Reboil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1551.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min o
 
 Once the steak is cooked, transfer to a plate to rest
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1551.-step-7-x200.jpg)
 
 ### Step 7
 

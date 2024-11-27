@@ -26,6 +26,7 @@ This 2-in-1 classic is the crowning glory. You’ll simmer chicken breast in cre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681316486405-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely dice your brown onion[s]
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a medium-high heat, then once hot, add the diced onion with a pinch of salt and cook for 5-6 min or until softened and lightly browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681316490694-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Add the trimmed green beans and carrot discs to a large piece of tin foil with 1
 
 Scrunch the foil around the vegetables to form a tightly sealed parcel (or two!) and add it to a baking tray, then set aside for later – this is your vegetable parcel
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681316494183-x200.jpg)
 
 ### Step 3
 
 Once the onion has softened, add the diced chicken breast to the pan and cook for 3-4 min or until lightly browned all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681316498017-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Meanwhile, dissolve your chicken stock mix in 150ml<span class="text-danger"> <s
 
 Add your sultanas and stir it all together – this is your sultana stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681316502012-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Transfer the pastry to a non-stick baking paper-lined baking tray (or two!), the
 
 Put the tray[s] in the oven for 15 min or until puffed up and golden – these are your pie lids
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681316505357-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Cook for 1 min or until fragrant, then add the sultana stock and mix it all toge
 
 Cook for 5-6 min or until the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681316510420-x200.jpg)
 
 ### Step 7
 

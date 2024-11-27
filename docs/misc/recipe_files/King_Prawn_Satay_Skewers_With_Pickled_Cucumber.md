@@ -29,6 +29,7 @@ Recreate the irresistible satay flavours found across Southeast Asia. You'll mar
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626443575156-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
 Chop your creamed coconut roughly (if required!) and combine with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water – this is your coconut stock
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626443584283-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Combine your curry powder and a drizzle of coconut stock with a pinch of salt in
 
 Drain your king prawns, then add them to the bowl, mix well and set aside – these are your curried prawns
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720620495995-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720620499518-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Meanwhile, add your smooth peanut butter, soy sauce, chilli flakes (can't han
 
 Cook for approx. 15-20 min or until it has reduced to the consistency of a thick custard, stirring occasionally – this is your satay sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626443600215-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Slice the cucumber halves finely
 
 Trim, then slice your spring onion[s] finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626443604566-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add a large pinch of salt and your rice vinegar
 
 Mix well and set aside to marinate – this is your quick-pickled cucumber
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626443609182-x200.jpg)
 
 ### Step 7
 

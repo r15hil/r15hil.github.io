@@ -26,6 +26,7 @@ For BBQ flavour with minimal fuss, you'll let the oven do most of the work! Roas
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1717666055899-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a 
 
 Season with a very generous pinch of salt and rub it deep into the criss-cross pattern
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1717666093881-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the pork belly, fat side down and cook for 3-4 min or until colou
 
 Once done, transfer the browned pork belly to a tin foil-lined baking tray and put the tray in the oven for 40-45 min or until cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1717666413110-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Add the sweet potato chips to a baking tray (or two!) and drizzle with vegetable
 
 Put the tray[s] in the oven for 30-35 min or until the chips are cooked through and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1717666462752-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your tomato ketchup, Henderson's Relish, cider vinegar with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar in a bowl – this is your BBQ sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1717666468798-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Top, tail (no need to peel) and grate your carrot[s]
 
 Cut your apple[s] (skin on) into matchsticks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1717666475064-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add your mayonnaise, white wine vinegar and a generous pinch of salt
 
 Give everything a good mix up – this is your apple slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1717666484766-x200.jpg)
 
 ### Step 7
 

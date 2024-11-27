@@ -22,6 +22,7 @@ Want quick and delicious? Try our twist on Irish colcannon with crushed potatoes
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1640105140824-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Add the whites of the sliced leek (save the greens for later!) with the sliced garlic and a pinch of a salt and cook for 4-5 min until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640105185038-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 8-10 min or until fork-tender, then drain in a sieve and set aside, reserving the pot for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1640105194493-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Return the pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the chicken breast portions and cook for 3 min on each side or until golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1640105213259-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the chicken is golden, return the leek & garlic mix to the pan and add the 
 
 Reduce the heat to low and cook, covered, for 12-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1640105226280-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Wash the shredded spring greens, then pat them dry with kitchen paper
 
 Chop the green beans into small pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1640105233033-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once tender, add the cooked potatoes with a large splash of milk
 
 Season with a generous pinch of salt and pepper and crush the potatoes gently with a potato masher – this is your crushed potato colcannon
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1640105280579-x200.jpg)
 
 ### Step 7
 

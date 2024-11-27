@@ -26,6 +26,7 @@ This French-inspired dish will have you dreaming of the Alps. You'll top your sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609258621320-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the halved cherry tomatoes to one side of a baking tray (or two!) with a dri
 
 Put the tray[s] in the oven for an initial 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Cracked-freekeh-1641370156450-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, drain, return it to the pot until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609258653798-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile, add your honey to a bowl with your Dijon mustard (not a mustard fan? 
 
 Add a pinch of salt and pepper and mix until combined – this is your honey mustard dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609258661641-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the tomatoes have had 10 min, remove the tray[s] from the oven
 
 Add the ciabatta slices to the other side of the tray[s] and top with the chopped sun-dried tomatoes, then crumble over your goats' cheese and sprinkle over your flaked almonds and dried oregano
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609258677627-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 <span class="text-danger">Ordered extra halloumi? Slice and cook in a pan with a little oil for 4-6 min or until golden all over</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609258730619-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Wash your baby leaf salad, then pat it dry with kitchen paper
 
 Add the carrot ribbons to a large bowl with the baby leaf salad and the cooked quinoa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1609258736935-x200.jpg)
 
 ### Step 7
 

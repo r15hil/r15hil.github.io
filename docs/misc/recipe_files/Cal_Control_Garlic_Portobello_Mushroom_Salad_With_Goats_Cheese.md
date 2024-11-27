@@ -25,6 +25,7 @@ Love a warm roasted veg salad topped with creamy goats’ cheese? You’re going
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-6-1724080682979-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-7-1724080687969-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Combine the chopped garlic in a bowl with a knob of butter and a pinch of salt a
 
 Spread the garlic butter evenly over your portobello mushroom[s] and add to one side of a baking paper-lined baking tray (or two!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-8-1724080698320-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Drizzle with olive oil and sprinkle with your dried oregano and a generous pinch
 
 Put the tray[s] in the oven for 20-25 min or until everything is cooked through and tender – these are your roasted pepper & potatoes and garlic portobello mushroom
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-8-1724080704318-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once golden, transfer the toasted pumpkin seeds to a plate and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-8-1724080709088-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Return the reserved pan to a medium heat with a drizzle of olive oil
 
 Once hot, add the sliced onion and a pinch of salt and cook for an initial 8-10 min or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-7-1724080716647-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Combine half your balsamic vinegar (you’ll use the rest later!) and pomegranat
 
 Add the salad and shredded lettuce to the bowl and toss – these are your dressed leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-6-1724080730181-x200.jpg)
 
 ### Step 7
 

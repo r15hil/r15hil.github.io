@@ -26,6 +26,7 @@ If you’re a curry lover, you’ll love this twist on a masala, you'll make a d
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657611262008-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657611267850-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion with a pinch of sugar and cook for 2-3 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657611272420-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Tip: Don’t stir too often as this will prevent the gnocchi from crisping!
 
 Once browned and crispy set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657611277571-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cook for 1-2 min or until fragrant
 
 Once fragrant, add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> cold water – this is your masala sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657611282946-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once boiling, reduce the heat to medium and cook for 4-5 min further or until co
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657611287735-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657611293107-x200.jpg)
 
 ### Step 7
 

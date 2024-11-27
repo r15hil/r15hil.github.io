@@ -28,6 +28,7 @@ Spicy umami noodles, coming right up! You'll simmer edamame and udon in a rich b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623406896364-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1613742394808-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620750240083-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop the base off the pak choi and discard, then slice in half lengthways
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614080988285-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Once the beef has browned, add the chopped garlic and half your chilli flakes (
 
 Add your honey and half your soy sauce (save the rest for later!) and cook for 4-5 min or until the beef becomes crispy, sticky and cooked through (no pink meat!) – this is your crispy chilli beef
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1613742468425-x200.jpg)
 
 ### Step 5
 
 While the beef is cooking, dissolve your beef stock mix, sriracha (not a fan of spice? Just add a little!) and remaining soy sauce in 600ml <span class="text-purple">[800ml] </span><span class="text-danger">[1L] </span>boiled water – this is your spicy stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1613742486008-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Stir through your udon noodles and cook for 1 min further – this is your udon 
 
 Tip: You may need to gently break apart the noodles with a fork!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1613742549542-x200.jpg)
 
 ### Step 7
 

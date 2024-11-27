@@ -21,6 +21,7 @@ This dish evokes memories of Thailand for us. Gentle, soothing and a little bit 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/555.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Remove the coconut cream from the sachet<span class="text-danger">[s]</span> and
 
 Add the chopped coconut cream, lime leaves and a generous pinch of salt in a large pan, stir in 500ml<span class="text-danger"> [1L]</span> boiled water and bring to the boil over a high heat - this is your poaching liquid
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/555.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Meanwhile, add the rice, 400ml <span class="text-danger">[800ml]</span> boiled w
 
 Cover and cook for 10 min, or until almost all the water is absorbed
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/555.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ Meanwhile, peel the ginger (scrape the skin off with a teaspoon) and finely chop
 
 Add the ginger to the poaching liquid
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/555.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Pick the leaves off the coriander stalks and set them aside for garnish
 
 Chop the stems finely and add them to the poaching liquid
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/555.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Carefully add each piece of fish to the pan of poaching liquid, trying not to ov
 
 Cook for 8 min, carefully flipping the fish halfway through for even cooking
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/555.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Meanwhile, slice the mushrooms finely
 
 Add the mushrooms and fish sauce to the pan (while the fish poaches)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/555.-step-7-x200.jpg)
 
 ### Step 7
 

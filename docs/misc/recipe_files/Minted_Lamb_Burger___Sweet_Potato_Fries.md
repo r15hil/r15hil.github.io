@@ -23,6 +23,7 @@ This healthy burger has the perfect combination of charred meat, fresh mint, coo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/329.step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Spread them onto a baking tray and drizzle with vegetable oil, salt and the drie
 
 Put them in the oven for 35 min or until they're crispy and coloured
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/329.step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Strip the mint leaves from the stems and chop finely
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/329.step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add the sliced onion with a pinch of salt and a pinch of sugar, then t
 
 Place the ciabattas in the oven to warm through for 5 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/329.step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Season generously with salt and pepper
 
 Mix together (clean hands works best) and form 2 <span class="text-danger">[4]</span> patties, then refrigerate them until later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/329.step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Cut the cucumber in half, lengthways and scrape out the inner seeds with a teasp
 
 Add the remaining chopped mint, garlic and natural yoghurt and season lightly with salt and pepper, mix together and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/329.step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Toast the rolls for 4 min or until slightly charred
 
 Set the toasted ciabatta aside (keep the pan for the next step!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/329.step-7-x200.jpg)
 
 ### Step 7
 

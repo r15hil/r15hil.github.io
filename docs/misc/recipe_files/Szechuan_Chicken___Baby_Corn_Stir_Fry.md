@@ -26,6 +26,7 @@ With this quick Szechuan chicken stir-fry, you can experience bold flavours – 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1039.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Slice the baby corn in half lengthways
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1039.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Boil a kettle 
 
 Chop the chicken breast<span class="text-danger">[s]</span> into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1039.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the wholewheat noodles to a pot with a generous pinch of salt and cover with
 
 Bring to the boil over a high heat and cook for 5-7 min until tender with a slight bite, then drain and return them to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1039.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,11 +74,13 @@ Once hot, add the chopped chicken and cook for 3 min or until it's lightly brow
 
 <span style="font-family:Lato;font-size:15px;white-space:pre-wrap;"> </span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1039.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the sliced baby corn and mange tout to the pan, reduce the heat to medium and cook for 1-2 min or until the vegetables are starting to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1039.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the soy sauce, tomato paste, apple cider vinegar and honey and cook for a f
 
 Season generously with pepper – this is your Schezuan Chicken &amp; Baby Corn Stir-Fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1039.-step-7-x200.jpg)
 
 ### Step 7
 

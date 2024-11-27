@@ -22,6 +22,7 @@ This chicken dinner is dancing with Greek flavour. You'll stuff your chicken wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/811.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Place your hand flat onto the chicken breast<span class="text-danger">[s] </span
 
 Lay a sheet of cling film or greaseproof paper over the opened&nbsp;chicken breast<span class="text-danger">[s] </span>and bash the&nbsp;chicken with a rolling pin to an even thickness throughout&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/811.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Arrange the crumbled&nbsp;feta over one side of the open&nbsp;chicken breast<spa
 
 Secure&nbsp;the chicken breast<span class="text-danger">[s]</span> together by threading the skewer<span class="text-danger">[s]</span> through the opening (think sewing!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/811.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Cover with a lid and cook for 12-16 min or until the chicken is cooked and the j
 
 Once cooked, transfer to a chopping board to rest
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/811.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Cover the potatoes&nbsp;with boiled water and cook over a medium heat for 10-15 
 
 Once cooked, drain and leave&nbsp;to steam dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/811.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,6 +100,7 @@ Grind to a coarse paste - this is your tapenade&nbsp;
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/811.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Trim and finely slice the&nbsp;spring onion<span class="text-danger">[s]&nbsp;</
 
 Carefully slice the rested chicken&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/811.-step-7-x200.jpg)
 
 ### Step 7
 

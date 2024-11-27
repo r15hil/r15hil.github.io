@@ -25,6 +25,7 @@ Try your own version of Argentine street food favourite choripán with a meat-fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716475809424-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chips to a baking tray (or two) with a drizzle of vegetable oil, your dr
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your oregano fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716475812231-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Peel and finely slice half your red onion[s]
 
 Dice your remaining red onion finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716475815187-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add a small drizzle of vegetable oil and a pinch of sugar to the onion and give 
 
 Arrange the onion in a pile next to the sausage[s] (this prevents them from burning whilst cooking) and put the tray in the oven for an initial 17-18 min or until the sausage[s] are golden and cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716475819051-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Dice your tomato[es] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716475822365-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add a pinch of salt and pepper, a drizzle of olive oil and a generous pinch of s
 
 Stir it all together – this is your salsa criolla
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716475827014-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-dange
 
 Give everything a good mix up – this is your chimichurri
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716475831172-x200.jpg)
 
 ### Step 7
 

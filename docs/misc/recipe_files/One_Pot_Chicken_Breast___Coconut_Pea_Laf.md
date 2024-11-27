@@ -29,6 +29,7 @@ Our pea-studded pilaf couldn't be simpler. You'll pan-fry diced chicken breast b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679393989899-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679394001462-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil half a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679394014536-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add your diced chicken breast to the dish along with a very generous p
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679394024398-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Peel (scrape the skin off with a teaspoon) your ginger, then chop it in half
 
 Peel and chop your shallot[s]<span class="text-danger"> </span>into wedges, then chop your creamed coconut roughly (if required!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679394032320-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add your spinach to the dish along with your basmati rice, ground turmeric, chic
 
 Give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679394043799-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Bring to the boil over a high heat, cover with a lid, then put the dish in the o
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679394053478-x200.jpg)
 
 ### Step 7
 

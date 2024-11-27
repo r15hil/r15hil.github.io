@@ -24,6 +24,7 @@ This dishy dinner is inspired by the Mediterranean sun. While the hake and potat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714473650884-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add to a tray with a drizzle of olive oil and season with salt and pepper and g
 
 Put the tray in the oven for 20-25 min or until the potatoes are crisp – these are your roast potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714473656752-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop your cherry tomatoes in half
 
 Dissolve your vegetable stock mix in 50ml<span class="text-danger"> </span><span class="text-purple">[75ml] </span><span class="text-danger">[100ml] </span>boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714473673432-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Grate your cheddar cheese into a bowl, add your panko breadcrumbs and season w
 
 Add a drizzle of vegetable oil and give everything a good mix up – this is your cheesy breadcrumb mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714473677998-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Put the tray[s] in the oven for 12-15 min, or until the breadcrumb mixture is s
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714473791550-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once hot, add the chopped red onion, chopped courgette<span class="text-danger"
 
 Add the halved cherry tomatoes and cook for 4-5 min further or until all the veg has fully softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1714473796041-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once the veg has fully softened, add the vegetable stock and cook for 1-2 min fu
 
 Season generously with salt and pepper – this is your Mediterranean-style veg
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714473801684-x200.jpg)
 
 ### Step 7
 

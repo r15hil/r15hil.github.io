@@ -23,6 +23,7 @@ This Cypriot-style chicken is the stuff of dreams. You’ll pack your chicken br
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707219435326-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Chop your potatoes (skins on) into bite-sized pieces, then add to a baking tray 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your oregano potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707219445054-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Crumble your feta into small bite-sized pieces
 
 Chop your parsley finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707219720511-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Combine the chopped garlic, crumbled feta and chopped parsley with your balsamic
 
 Season with a pinch of salt and pepper – this is your sun-dried tomato stuffing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707219729448-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Use a sharp knife to cut a deep pocket along the side of your chicken breast por
 
 Open the chicken out like a book and fill the pocket[s] with the sun-dried tomato stuffing, then press firmly to seal the chicken – this is your stuffed chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707219776141-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the stuffed chicken with a pinch of salt and pepper and cook for 3 min on each side or until lightly browned
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707219766682-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Transfer the browned chicken to a baking paper-lined baking tray
 
 Put the tray in the oven for 15 min or until the chicken is cooked through (no pink meat!) and the juices run clear – this is your Cypriot-style stuffed chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707219782841-x200.jpg)
 
 ### Step 7
 

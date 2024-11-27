@@ -26,6 +26,7 @@ Halle-loumi, this dinnertime fakeover of peri-peri is delicious. You’ll marina
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681818024224-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the sliced halloumi to a large bowl with half the peri-peri spice mix (can't
 
 Give everything a good mix up then set aside for later – this is your marinated halloumi
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681818028973-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a pot with a lid on a medium heat with a drizzle of olive oil
 
 Once hot, add half the grated garlic (save the rest for later!) with the ground smoked paprika, ground turmeric and a pinch of salt and cook for 30 secs or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681818032917-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your spiced rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681818037353-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the remaining grated garlic, remaining peri-peri spice mix (not a fan of spice? Just add a little!) and tomato paste and cook for 1 min or until fragrant – this is your peri-peri tomato mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681818041642-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the peri-peri tomato mix to a small bowl with the remaining red wine vinegar, mayo and a pinch of sugar and mix until fully combined (reserve the pan!) – this is your perinaise
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681818045356-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Meanwhile, strip the mint leaves from their stems and chop them roughly, discard
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681818049134-x200.jpg)
 
 ### Step 7
 

@@ -25,11 +25,13 @@ This spiced curry is a hearty delight. You’ll spice beef meatballs with garam 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694597824087-x200.jpg)
 
 ### Step 1
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694597843793-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide and shape into 6 meatballs per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694597876914-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694597881289-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once hot, add the meatballs to the pan and cook for 2 min on each side or until 
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694597899131-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Once the meatballs are browned, add your curry powder and tomato paste to the pa
 
 Cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694597903656-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Give everything a good mix up
 
 Cook, covered, for 12-15 min or until cooked through (no pink meat!), stirring occasionally – this is your beef meatball curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694597907465-x200.jpg)
 
 ### Step 7
 

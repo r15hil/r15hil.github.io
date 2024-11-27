@@ -25,6 +25,7 @@ These crispy fish cakes are full of omega-3-rich salmon and vitamin C from the s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1610453856852-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Bring to the boil over a high heat, then reduce the heat to low and cook, covere
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610453880592-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 4-5 min or until the sweet potato is fork tender, once done, transfer the sweet potato to a plate and mash it out flat to help it cool down, reserve the bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1610453915271-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the broccoli florets and chopped stem to a baking tray (use baking paper to 
 
 Give everything a good mix up and put the tray in the oven for an initial 10 min or until tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1610453930668-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Chop the coriander roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610453957591-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Stir everything together until the fish cake mix is fully combined
 
 Divide the mix into 2 <span class="text-danger">[4]</span>, then shape into patties – these are your herby sweet potato & salmon fish cakes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610454442048-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Drizzle over the remaining soy sauce and sprinkle over the sliced garlic, choppe
 
 Return the tray to the oven for 5 min or until the broccoli is lightly charred
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1610454447582-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Switch up your chicken dinner with this Southeast Asian twist. You’ll coat jui
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-39-1716191577276-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-38-1716191581996-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Strip a few coriander leaves from their stalks and save for garnish
 
 Chop the remaining coriander roughly, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-44-1716191586140-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Add your carrot, mooli & pink cabbage slaw and chopped coriander (reserve the le
 
 Give everything a good mix up – this is your ginger salad
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-39-1716191592800-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add 4 tbsp <span class="text-purple">[6 tbsp]</span><span class="text-danger"> [
 
 Mix until fully combined
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-40-1716191596854-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add your chicken thighs to the bowl with 4 tsp<span class="text-purple"> [6 tsp]
 
 Give everything a good mix up and, using your hands, scrunch the flour onto the chicken so that it is well coated – this is your coated chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-39-1716191601042-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add your coated chicken to the pan and cook for 9-10 min on each side or until golden and cooked through (no pink meat!) – this is your Burmese-style fried chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-39-1716191605926-x200.jpg)
 
 ### Step 7
 

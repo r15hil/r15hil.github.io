@@ -27,6 +27,7 @@ Enjoy the bursts of sunny flavours in this vegetarian salad. You'll toss crunchy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2070.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Tear your bread roll[s] into bite-sized pieces and add them to a baking tray, th
 
 Drizzle with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil, mix it up and put the tray in the oven for 12-15 min or until the bread is golden and crunchy – these are your croutons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2070.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, add your honey, toasted sesame oil, soy sauce, red wine vinegar and 1
 
 Mix well until combined – this is your sesame dressing
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2070.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2070.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,11 +61,13 @@ Chop your cherry tomatoes in half
 
 Trim, then finely slice your spring onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2070.-step-5-x200.jpg)
 
 ### Step 5
 
 Wash and chop your lettuce roughly, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2070.-step-6--x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop the avocado flesh and slice finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2070.-step-7-x200.jpg)
 
 ### Step 7
 

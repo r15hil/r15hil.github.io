@@ -24,6 +24,7 @@ Marmite is the star ingredient in these beef meatballs! You’ll stuff each meat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603106667677-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Using clean hands, give everything a very good mix up until fully combined
 
 Divide the beef mixture into 8 <span class="text-danger">[16]</span> and roll into meatballs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603106828148-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Cut the cheddar into 8 <span class="text-danger">[16]</span> pieces
 
 Press a piece of cheddar into the middle of each meatball and seal it in with the beef (make sure there are no gaps) – these are your cheese-stuffed Marmite meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1603106845226-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once hot, add the meatballs and cook for 3-4 min, turning occasionally, until br
 
 Once browned, transfer the meatballs to a plate and set aside (you'll finish cooking them later!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603106856682-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the meatballs are done, return the pan to a medium-high heat with any remai
 
 Once hot, add the chopped red onion with a pinch of salt and cook for 5-6 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603106876019-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once done, drain the spaghetti, reserving a cup of starchy pasta water and drizz
 
 Tip: The olive oil stops the pasta from sticking together!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603106888728-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once the onion has softened, add the chopped garlic and cook for 30 secs
 
 Add the chopped tomatoes, tomato paste, dried oregano, beef stock, a pinch of sugar and a generous grind of black pepper and cook for 2-3 min further until the sauce has started to thicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603106908405-x200.jpg)
 
 ### Step 7
 

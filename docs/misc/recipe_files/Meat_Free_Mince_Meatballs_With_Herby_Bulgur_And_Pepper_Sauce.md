@@ -29,6 +29,7 @@ In this Middle Eastern-inspired dish, you'll make your own meat-free meatballs w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1634572052554-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop your chopped dates roughly, then add them to a bowl and cover with boiled w
 
 Set aside to soak
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1710751749614-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Drain the soaked chopped dates, then add them to the bowl and give everything a 
 
 Divide and shape the mixture into 5 meatballs per person, then refrigerate – these are your meat-free mince meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634572059524-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Once hot, add the chopped pepper with a pinch of salt and cook for 8-10 min or u
 
 Reboil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1710751757984-x200.jpg)
 
 ### Step 4
 
 Lightly cover a baking tray (or two!) with olive oil (use kitchen paper to help you spread the oil out evenly!), then add the meat-free mince meatballs and put the tray[s] in the oven for 14-15 min or until they're cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634572067450-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ While the meatballs are cooking, add your bulgur wheat to a pot with plenty of b
 
 Once tender, drain and return to the pot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634572071272-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Cook for 2 min or until fragrant, then add 150ml <span class="text-purple">[225m
 
 Give everything a good mix up and cook, covered, for 6 min or until most of the liquid has been absorbed and a sauce has formed – this is your pepper sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634572075563-x200.jpg)
 
 ### Step 7
 

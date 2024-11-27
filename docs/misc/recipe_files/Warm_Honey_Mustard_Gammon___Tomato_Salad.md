@@ -20,6 +20,7 @@ This simple, satisfying salad is the perfect blend of flavours. The sweet and ta
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Chop the waxy potatoes into bite-sized pieces
 
 Cut the red onion<span class="text-danger">[s]</span> into wedges, leaving the skins on (this helps them cook quicker)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the onion wedges and chopped potatoes to a baking tray and add a drizzle of 
 
 Give everything a good mix up and push to one side of the tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Add the gammon to the other side of the tray
 
 Put the tray in the oven for 15-20 min or until the potatoes are starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine the wholegrain mustard and honey in a bowl – this is your honey mustard glaze
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Once the potatoes are starting to brown, spoon the honey mustard glaze over the 
 
 Tip: keep the gammon cooking juices as these will make your dressing!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Meanwhile, slice the cherry tomatoes in half
 
 Add a drizzle of olive oil to the gammon cooking juices so that it resembles a dressing-like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1729.-step-7-x200.jpg)
 
 ### Step 7
 

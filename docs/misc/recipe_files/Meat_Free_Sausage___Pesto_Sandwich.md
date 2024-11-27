@@ -23,6 +23,7 @@ We love a sausage sarnie. You'll make this one with meat-free sausages and a hom
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1578321204286-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Chop your potatoes (skins on) into wedges
 
 Add the wedges to one side of a baking tray (or two!) with a drizzle of olive oil and a pinch of salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1578321209400-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add your meat-free sausages to the other side of the tray[s]
 
 Put the tray[s] in the oven for 20-25 min or until everything is cooked through and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1578321214973-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Chop your cheddar cheese into small pieces
 
 Chop your basil roughly, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1578321219737-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Add half of your red wine vinegar (save the rest for later!) with a pinch of 
 
 Blitz together to form a coarse paste – this is your cheddar pesto
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1578321224064-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Slice your tomato[es] finely
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1578321230027-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once everything is almost cooked, add your ciabatta[s] to a separate baking tray
 
 Meanwhile, combine the remaining red wine vinegar with drizzle of olive oil – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1578321234962-x200.jpg)
 
 ### Step 7
 

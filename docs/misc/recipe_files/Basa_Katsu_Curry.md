@@ -30,6 +30,7 @@ Take a walk on the mild side with our crispy katsu curry. You'll serve this Japa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637061442607-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1637061448260-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and chop your shallot[s]
 
 Wash your lettuce, then pat it dry with kitchen paper and shred roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637061452280-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Crack your egg[s] into a shallow bowl and beat lightly with a fork
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> flour to a plate and season with salt and pepper, then add your panko breadcrumbs to another plate
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637061455783-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Coat the basa fillet in the flour, tap off the excess, then add to the beaten eg
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637061459281-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add your curry powder and cook for a further 2 min
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 1 min, stirring to coat the vegetables evenly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637061462659-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Season with a generous pinch of salt, cover with a lid and set aside for later 
 
 Heat a separate, large, wide-based pan with 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-danger">[6 tbsp]</span> vegetable oil (enough to cover the base of the pan) over a medium-high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637061466147-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ This delicious dinner will win over the whole family. You’ll marinate free ran
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1730304108569-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Bash your cucumber with a rolling pin and chop it into large, bite-sized pieces 
 
 <span class="text-danger">Tip: Cooking for kids? Chop half your cucumber and sweet pointed pepper into batons</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688730261064-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Chop your free range chicken breast portion[s] into bite-sized pieces
 
 Add your soy sauce to a large bowl with your maple syrup, half your mayo and half your toasted sesame seeds (you'll use the rest later!) – this is your sesame marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688730271692-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Transfer half your sesame marinade to a separate small bowl and set aside
 
 Add the chopped chicken to the large bowl of sesame marinade and give everything a good mix up until fully coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688730275371-x200.jpg)
 
 ### Step 4
 
 Thread the marinated chicken onto the soaked skewers – these are your chicken skewers
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688730279602-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Add the chicken skewers to a tin foil-lined baking tray (or two!) and pull up th
 
 Pour the remaining marinade all over and put the tray[s] under the grill for 16-18 min, turning once halfway, until golden and cooked through (no pink meat!) – these are your maple sesame free range chicken skewers
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688730286021-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1729591929368-x200.jpg)
 
 ### Step 7
 

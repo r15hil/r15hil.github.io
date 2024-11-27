@@ -28,6 +28,7 @@ We've spiced up brunch with a punchy Calabrian twist. To add sizzle to your sauc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643201855356-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chopped potato to one side of a baking tray (or two!) with a drizzle of 
 
 Put the baking tray[s] in the oven for an initial 20 min or until beginning to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643201863326-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely dice your brown onion[s], then peel and finely chop (or grate) y
 
 Chop your basil finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1643201866817-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Grate your cheddar cheese
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643201870885-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once hot, add the diced onion and cook for 3-4 min or until beginning to soften
 
 Once softened, add the chopped garlic, tomato and pepper to the pan with your 'Nduja (can't handle the heat? Go easy!) and cook for 3-4 min or until the pepper is beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643201874534-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the pepper has begun to soften, add the stock to the pan with the spinach, 
 
 Season with a grind of pepper and cook for 7-8 min or until the spinach has wilted and the sauce has thickened – this is your 'Nduja pepper sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643201879664-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the chopped potato is slightly brown, remove from the oven, then add the ci
 
 Put the tray[s] in the oven for a further 4-5 min or until the cheese is melted and golden – these are your cheesy ciabatta slices
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643201883281-x200.jpg)
 
 ### Step 7
 

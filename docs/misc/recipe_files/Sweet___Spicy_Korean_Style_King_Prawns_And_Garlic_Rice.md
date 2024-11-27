@@ -27,11 +27,13 @@ In a hurry? Try sweet and spicy Korean-style prawns, ready in 20. You’ll simme
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684425153928-x200.jpg)
 
 ### Step 1
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684425170922-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add a small drizzle of vegetable oil to a pot with a lid over a medium heat
 
 Once hot, add half the chopped garlic (you'll use the rest later!) with a pinch of salt and cook for 1 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684425176368-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your garlic rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684425192848-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Meanwhile, add your gochujang paste (can't handle the heat? Go easy!) to a small
 
 Give everything a good mix up, then add 50ml <span class="text-purple">[65ml]</span><span class="text-danger"> [85ml] </span>warm water and stir it all together until smooth – this is your gochujang stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684425195159-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Add your carrot & cabbage slaw mix to a large bowl with your mayo and a generous
 
 Give everything a good mix up – this is your creamy slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684425198827-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Once the rice is almost cooked, heat a large, wide-based pan (preferably non-sti
 
 Once hot, drain, then add your king prawns and cook for 4-5 min or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684425210496-x200.jpg)
 
 ### Step 7
 

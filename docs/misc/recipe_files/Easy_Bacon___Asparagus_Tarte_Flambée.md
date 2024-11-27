@@ -24,6 +24,7 @@ This quick spring supper is inspired by an Alsatian classic. Tarte Flambée is t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1545.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,11 +42,13 @@ Once crisp, remove the pan from the heat and set aside&nbsp;
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1545.-step-2.2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add the naan breads to a baking tray and put them in the oven for 5 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1545.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and chop (or grate) the garlic
 
 Peel and slice the shallot<span class="text-danger">[s]&nbsp;</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1545.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the natural yoghurt, soft cheese, dried&nbsp;oregano, chopped garlic&nbsp;(D
 
 Give everything a good old mix up &ndash; this is your creamy base&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1545.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the chopped asparagus and shallot to the bacon pan and give everything a goo
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1545.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Remove the baking tray from the oven and spread the&nbsp;creamy&nbsp;base over t
 
 Top with the asparagus &amp; bacon mixture&nbsp;and put the tray in the oven for a further 10-12 min or until crispy &ndash; this is your&nbsp;bacon &amp; asparagus tarte flamb&eacute;e
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1545.-step-7-x200.jpg)
 
 ### Step 7
 

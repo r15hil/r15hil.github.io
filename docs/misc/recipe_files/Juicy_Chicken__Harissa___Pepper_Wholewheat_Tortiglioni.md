@@ -25,6 +25,7 @@ This chicken dinner is a protein-fuelled winner. You’ll pan fry chicken breast
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1719408249609-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your wholewheat tortiglioni to a pot of boiled water and bring to the boil o
 
 Cook the wholewheat tortiglioni for 10-12 min or until cooked with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1719408252612-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: Cooking for 3 or more? Use 2 pans!
 
 Reboil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1719408255919-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Whilst the chicken is cooking, chop your cherry tomatoes roughly
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1719408260112-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Cook for 5-6 min or until softened, stirring occasionally to stop the tomatoes b
 
 Tip: Squash the cherry tomatoes with the back of a spoon to release their juices!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1719408262893-x200.jpg)
 
 ### Step 5
 
@@ -74,11 +79,13 @@ Add a pinch of sugar and a generous pinch of salt and give everything a good mix
 
 Add 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water, stir it all together and cook for a final 3-4 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your creamy chicken & harissa sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1719408265514-x200.jpg)
 
 ### Step 6
 
 Once done, drain the wholewheat tortiglioni, reserving a cup of the starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1719408270454-x200.jpg)
 
 ### Step 7
 

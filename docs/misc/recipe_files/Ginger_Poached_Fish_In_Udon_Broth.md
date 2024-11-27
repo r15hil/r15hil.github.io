@@ -24,6 +24,7 @@ For this delightful bowlful, you’ll poach flaky basa fish in umami-rich miso s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2149-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel (scrape the skin off with a teaspoon) the ginger and slice into thin matc
 
 Peel and finely slice the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2149-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Trim, then finely slice the spring onions
 
 Separate the whites of the spring onions from the green ends (save the green ends for garnish!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2149-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a wide-based pan (preferably non-stick with a matching lid) with a drizzle 
 
 Once the pan is hot, add the <span class="text-highlight">sliced ginger</span>, sliced garlic and sliced spring onion whites with a pinch of salt and cook for 2-3 min or until softened and fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2149-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Meanwhile, chop the sugar snap peas in half diagonally 
 
 <span class="text-highlight">Once the ginger and garlic is fragrant,</span> add the halved sugar snap peas to the pan and cook for a further 30 secs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2149-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the miso paste, soy sauce, rice vinegar and mirin to the pan with 400ml<sp
 
 Stir to dissolve then bring to the boil over a high heat<span class="text-highlight"> - this is your ginger broth</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2149-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once boiling, reduce the heat to medium-low and add the udon noodles
 
 Tip: Separate the noodles with your hands before adding to the pan!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2149-Step-7-x200.jpg)
 
 ### Step 7
 

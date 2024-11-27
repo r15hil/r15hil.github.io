@@ -25,6 +25,7 @@ In Elvis’s hometown, more is always more. So whip up your spiced vinegar, mop 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650985448127-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650985454626-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Combine 1/2 tsp<span class="text-danger"> [1 tsp]</span> cayenne pepper (can't h
 
 Tip: In Southern BBQ a mop sauce is used to baste barbecued meats to infuse the meat with flavour while it cooks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650985458951-x200.jpg)
 
 ### Step 3
 
@@ -54,11 +57,13 @@ Add the cobettes to the other side of the baking tray with a drizzle of olive oi
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650985463010-x200.jpg)
 
 ### Step 4
 
 While the ribs and cobettes are in the oven, add the honey and smoked sea salt to the remaining vinegar mop and stir it together – this is your smoky glaze
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650985482836-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Combine the remaining cider vinegar, mustard ketchup and mayo in a large bowl wi
 
 Add the remaining smoked paprika and a pinch of salt to the warmed butter and mix everything together – this is your smoky butter
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650985488326-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ After an initial 20 min, remove the ribs from the oven and pour the smoky glaze 
 
 Add half the smoky butter (you'll use the rest later!) to the cobettes and return the tray to the oven for a final 5-6 min or until the ribs are sticky and the cobettes are slightly charred
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650985497279-x200.jpg)
 
 ### Step 7
 

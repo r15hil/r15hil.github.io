@@ -23,6 +23,7 @@ Dangerously delicious duck ragu, oven-ready in 5. You’ll shred tenderly roaste
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1662461022233-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1662461026071-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the duck legs (including the duck fat and duck jelly!) to a baking paper-lin
 
 Put the tray in the oven for 30 min or until the duck legs are golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662461032410-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Crush the garlic open by squashing them with the side of a knife and discard the
 
 Cut the tomato<span class="text-danger">[es]</span> into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662461049117-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the chopped onion to the dish with the tomato wedges and crushed garlic
 
 Season with a pinch of salt and stir everything together
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662461053317-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Stir in the red wine stock, beef stock mix and tortiglioni and give everything a
 
 Nestle the pasta into the water as much as you can, then stir everything together and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662461056967-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Tip: Give everything a stir halfway through for evenly cooked pasta!
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662461060789-x200.jpg)
 
 ### Step 7
 

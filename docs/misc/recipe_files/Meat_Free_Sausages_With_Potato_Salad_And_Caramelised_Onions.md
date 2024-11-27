@@ -24,6 +24,7 @@ We’ve given bangers and mash a summery spin. You'll bake (or BBQ if the weathe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626094980736-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put them in the oven for 25-30 min or until they are browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626094987321-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the sliced onion with a pinch of salt
 
 Cook for 5 min, or until the onion has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626094991606-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add them to a pot, cover with plenty of cold water and a pinch of salt
 
 Bring to a boil over a high heat and cook for 20 min or until fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626094999413-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Once the onion is soft, add 1 tsp <span class="text-danger">[2 tsp]</span> suga
 
 Reduce the heat to its lowest setting and cook the onions for a further 20 min, or until they're sticky and sweet – these are your caramelised onions
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626095004300-x200.jpg)
 
 ### Step 5
 
 While the onions are cooking, combine the mayo, wholegrain mustard and white wine vinegar with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and pepper in a bowl – this is your dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626095014609-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Wash the salad, then pat it dry with kitchen paper
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626095018820-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Our homemade fish fingers are coated in crispy panko-parsley breadcrumbs, and gu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/987.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 20-25 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/987.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Combine the mayo, chopped garlic (not a raw garlic fan? Try using less) and the 
 
 Season with both salt and pepper, add a drizzle of olive oil and whisk to combine – this is your aioli
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/987.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Chop the parsley finely, including the stalks
 
 Add the chopped parsley and panko breadcrumbs to a large bowl with a generous pinch of salt and mix it up – these are your herby breadcrumbs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/987.-step-4-x200.jpg)
 
 ### Step 4
 
 Slice the basa fillets in half lengthways, then slice each half into 3 until you end up with 12 <span class="text-danger">[24]</span> fish fingers
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/987.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add half of the fish fingers to the flour (tap off any excess), add them to the 
 
 Repeat this process with the rest of the fish – these are your herby fish fingers
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/987.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add the blanched peas to a pot, cover them with boiling water (just enough to co
 
 Once tender, drain the peas and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/987.-step-7-x200.jpg)
 
 ### Step 7
 

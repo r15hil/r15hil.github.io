@@ -25,6 +25,7 @@ Celebrate spring early with this twist on a family classic. You'll bake minty la
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1584954946147-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Strip the rosemary and mint leaves from their stems, discard the stems, then cho
 
 Peel and grate 1/2<span class="text-danger"> [1]</span> red onion and finely dice the remaining onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1584954951963-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ In a separate bowl, dissolve half of the beef stock mix (you'll use the rest lat
 
 Season with a pinch of salt and pepper and knead thoroughly with clean hands until fully combined – this is your lamb mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1584954959565-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Give everything a good mix up – these are your rosemary roast potatoes
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1584954968006-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the carrot batons to a separate baking tray with a drizzle of olive oil and 
 
 Once the meatloaf<span class="text-danger">[ves]</span> have been in oven for 10 min, put the carrot batons in the oven and cook for an initial 10 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1584954987648-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Wash, then rip the leaves off the spring greens, discard the tough stalks, then 
 
 Cut 2<span class="text-danger"> [4]</span> pieces of tin foil approx. the size of an A3 sheet of paper and layer them over each other
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1584954995570-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Scrunch the edges of the foil around the greens to form 1 <span class="text-dang
 
 Once the carrot batons have had 10 min, add the parcel<span class="text-danger">[s]</span> to the tray and return it to the oven for a further 10-15 min or until tender – these are your garlicky spring greens
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1584955014726-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ This colourful dish is rich, tangy, and served up in no time. Simply toss gnocch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1634025256556-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634025266262-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634025276931-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Chop your basil roughly, including the stalks
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634025283996-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634025295165-x200.jpg)
 
 ### Step 5
 
 Once the bacon is crisp, add the halved cherry tomatoes to the pan and cook for 30 secs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634025343551-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add your roasted garlic paste, tomato paste and your chilli flakes (can't handle
 
 Add your Chinese rice wine with a generous pinch of sugar to the pan and cook for 1 min further
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634025360056-x200.jpg)
 
 ### Step 7
 

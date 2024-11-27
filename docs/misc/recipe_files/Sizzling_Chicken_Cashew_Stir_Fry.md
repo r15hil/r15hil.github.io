@@ -24,6 +24,7 @@ This is a sizzling, sweet, hot, sensation! You'll use a Chinese cooking techniqu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/122.step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the rice and 350ml <span class="text-danger">[700ml]</span> water to a pot w
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/122.step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Top, tail and slice the&nbsp;spring onions finely
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/122.step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the&nbsp;chicken to a mixing bowl
 
 Dissolve half the <span class="text-danger">[whole]</span>&nbsp;stock cube in 50ml <span style="color: #e86754;">[100ml]</span>&nbsp;boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/122.step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add the cornflour and a pinch of salt and pepper
 
 Mix well
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/122.step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once&nbsp;hot, add the cashews and cook for 3 min or until they are starting to 
 
 Once toasted, transfer them to a plate and reserve the pan for the next step
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/122.step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Allow the egg to settle for 1 min then turn the chicken and cook for 2 min or un
 
 Once cooked, transfer the chicken to a plate and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/122.step-7-x200.jpg)
 
 ### Step 7
 

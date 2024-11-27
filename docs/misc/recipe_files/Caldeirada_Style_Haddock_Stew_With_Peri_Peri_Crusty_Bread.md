@@ -29,6 +29,7 @@ Capture the flavours of a Portuguese-inspired stew with delicate haddock bites, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641303433161-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Boil a full kettle
 
 Remove 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> butter from the fridge to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641303436522-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel your potato[es] and chop them into small, bite-sized pieces
 
 Top, tail, peel and cut your carrot[s] in half lengthways, then slice finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641303441220-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once softened, add the chopped potato, sliced carrot and half the chopped garlic
 
 Season with a generous pinch of salt and pepper and cook for 1 min or until the garlic has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641303447492-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add the tomato stock to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook, covered, for 20-25 min or until the potato is tender and the sauce has slightly thickened – this is your caldeirada-style stew
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641303451426-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box gr
 
 Slice your bread roll[s] in half and score the cut sides in a criss-cross pattern, taking care not to cut all the way through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641303454411-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Spread the peri-peri butter over the scored bread roll halves and add it to a ba
 
 Once the stew is almost ready, put the tray in the oven for 5-7 min or until warmed through and crusty – this is your peri-peri crusty bread
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641303457807-x200.jpg)
 
 ### Step 7
 

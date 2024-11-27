@@ -24,6 +24,7 @@ This colourful salad is full of sweet, tangy spice. You'll toss golden paneer ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1593428821494-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the drained chickpeas to a baking tray with your ground coriander, 1 tbsp <s
 
 Put the tray in the oven for 20-25 min or until golden and crispy – these are your crispy chickpeas
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1593428829393-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Chop your coriander finely, including the stalks
 
 Combine the chopped chilli (can't handle the heat? Go easy!), ginger and coriander with your rice vinegar, 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt – this is your chilli dressing
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1593428843559-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel and chop your red onion[s] into wedges, then separate the wedges into 'pet
 
 Chop your paneer into bite-sized cubes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1593428852567-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Slice the mango flesh finely, discarding the stone[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1593428870171-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the chopped paneer, onion petals and a pinch of salt, and cook for 5-6 min until the paneer is golden, turning occasionally for even colouring
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1593428887003-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the paneer is golden, add your tamarind paste to the pan with a small splas
 
 Remove the pan from the heat and stir it all together until everything's coated in the tamarind sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1593428898607-x200.jpg)
 
 ### Step 7
 

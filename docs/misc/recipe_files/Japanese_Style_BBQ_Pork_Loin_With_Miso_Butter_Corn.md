@@ -24,6 +24,7 @@ Try your hand at teppanyaki with this umami-packed Japanese-style feast. You’l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1685116632158-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop the potatoes (skins on) into wedges
 
 Add the potato wedges to one side of a baking tray with a drizzle of vegetable oil and a pinch of salt and give everything a good mix up
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1685116635059-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Put the tray in the oven for 20-25 min or until the corn is tender and the wedge
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1685116638852-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Meanwhile, peel and chop (or grate) the garlic
 
 Trim, then slice the spring onions finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685116643239-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the soy sauce and mirin to a small bowl with the chopped garlic, the remaini
 
 Give everything a good mix up – this is your Japanese-style BBQ sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685116647709-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the seasoned steaks and cook for 3 min on each side or until they're browned
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685116651866-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once browned, add the Japanese-style BBQ sauce to the pan and cook for 2-3 min f
 
 Once done, transfer the cooked steaks to a clean chopping board and leave them to rest for 2 min, reserving the sauce in the pan – this is your Japanese-style BBQ pork loin
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1685116655993-x200.jpg)
 
 ### Step 7
 

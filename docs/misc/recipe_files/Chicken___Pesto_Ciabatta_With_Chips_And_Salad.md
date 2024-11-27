@@ -22,6 +22,7 @@ Pesto mayonnaise brings zing to this picnic-perfect sandwich. You'll smear it ov
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599054533737-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599054553149-x200.jpg)
 
 ### Step 2
 
 Meanwhile, sprinkle your chicken breast portion[s] with your dried oregano and a pinch of salt – this is your seasoned chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599054563076-x200.jpg)
 
 ### Step 3
 
@@ -49,11 +52,13 @@ Once golden, add the chicken to a tin foil-lined baking tray
 
 Put the tray in the oven for 15 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599054685919-x200.jpg)
 
 ### Step 4
 
 Combine half of your pesto (you’ll use the rest later!) with your mayo in a small bowl – this is your pesto mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599054596119-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Combine the remaining pesto with a generous drizzle of olive oil in a large bow
 
 Chop your tomato[es] into wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1639411751626-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Place your ciabatta[s] in the oven for 3 min or until they're hot and crusty
 
 Carefully slice them in half before serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1599054629474-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This spaghetti's gentle on the planet, and pure plant-based indulgence. You'll i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1661183665633-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1661183668402-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Crush your walnuts lightly in their bag with a rolling pin (keep them in the bag
 
 Tip: If you don’t have a rolling pin, just chop them roughly!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1661183670994-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, crumble your portobello mushroom[s] roughly into the pan with your han
 
 Add the chopped garlic and the crushed walnuts to the pan with a pinch of salt and cook for<span class="text-danger"> </span>2-3 min or until the mushroom has started to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1661183687026-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Whilst the mushroom is cooking, dissolve your vegetable stock mix with your Hend
 
 Once the mushroom has softened, add the Henderson's stock to the pan and cook for 1-2 min or until the stock has slightly reduced
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661183679113-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1661183681893-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Whilst the spaghetti is cooking, grate your mature cheddar-style block
 
 Chop most of your basil roughly (save a few leaves for garnish!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661183691612-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ These herby lamb meatballs only take 30 minutes to make, and 20 of those minutes
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1966.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop the remaining red onion[s] into wedges
 
 Slice your potatoes (skins on) into discs, approx. 1cm thick
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1966.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Massage thoroughly, with clean hands, until fully combined
 
 Tip: Massage the meat longer for more tender meatballs!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1966.-step-3-x200.jpg)
 
 ### Step 3
 
 Divide the lamb mixture and roll into 5 meatballs per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1966.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Sprinkle over your dried oregano and drizzle with olive oil
 
 Season with a pinch of salt and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1966.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the lamb meatballs to the tray[s]
 
 Put the tray[s] in the oven for 20-25 min or until the vegetables are tender and the lamb is cooked through (no pink meat!) – this is your Greek-style lamb meatball tray bake
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1678865787457-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Meanwhile, strip your mint leaves from their stems and chop them finely, discard
 
 Peel and finely chop (or grate) your garlic
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1678865795647-x200.jpg)
 
 ### Step 7
 

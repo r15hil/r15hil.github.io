@@ -22,6 +22,7 @@ For a super speedy dinner, try this hot and sticky cauliflower on a bed of fluff
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1628761525546-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped pepper & onion and cook for 2-3 min or until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1628761533527-x200.jpg)
 
 ### Step 2
 
@@ -36,11 +38,13 @@ Meanwhile, combine the agave, tamari soy sauce, cayenne pepper (can't handle the
 
 Add the cornflour and give everything a good mix up – this is your firecracker sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1628761537040-x200.jpg)
 
 ### Step 3
 
 Add the edamame & jasmine rice to a large, heatproof bowl and put the bowl in the microwave for 2-3 min or until piping hot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1628761540968-x200.jpg)
 
 ### Step 4
 
@@ -48,6 +52,7 @@ Once the pepper and onion has softened, add the chopped cauliflower and cook for
 
 Add the firecracker sauce and cook for 1-2 min further or until thick and sticky – this is your firecracker cauliflower stir-fry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1628761546709-x200.jpg)
 
 ### Step 5
 

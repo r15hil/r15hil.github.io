@@ -22,6 +22,7 @@ Lamb meatballs studded with garlic, pistachios, cumin and sultanas. Served over 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/490.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop (or grate) the garlic
 
 Combine the lamb mince, garlic, sultanas, cumin and pistachios in a mixing bowl
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/490.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Divide and roll into 6 <span class="text-danger">(12)</span> even balls, then re
 
 Tip: Chilling the meat helps it hold its shape when cooking
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/490.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the potatoes to a pot (with a matching lid) of salted boiling water
 
 Boil on a high heat, covered, for 10-15 min or until you can pierce them easily with a fork
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/490.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Place the ribbons in a bowl of cold water &nbsp;
 
 Chop the coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/490.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Cover, reduce the heat to medium-low and cook for a further 8-10 min&nbsp;
 
 Shake them about a bit for even cooking!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/490.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Meanwhile, combine the pomegranate molasses in a large mixing bowl with 2 tbsp <
 
 This is your pomegranate dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/490.-step-7-x200.jpg)
 
 ### Step 7
 

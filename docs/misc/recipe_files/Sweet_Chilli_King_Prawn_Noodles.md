@@ -25,6 +25,7 @@ Stir-fries don’t get much better than this. In 10 minutes, you'll serve up swe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1634032059020-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634032064194-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add your medium egg noodles to a pot and cover them with boiled water until full
 
 Bring to the boil over a high heat and cook for 5-6 min or until cooked with a slight bite
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634032069140-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the noodles are cooking, heat a large, wide-based pan (preferably non-st
 
 Once the pan is hot, drain, then add your king prawns with your ginger & garlic paste and cook for 4-5 min until cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634032076198-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Once the noodles are almost cooked, add the halved mangetout and cook for 1 min 
 
 Once cooked, drain the noodles & mangetout and reserve a cup of the starchy noodle water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634032084796-x200.jpg)
 
 ### Step 5
 
 Trim, then chop your spring onion[s] roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634032088856-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once the prawns have cooked through add your soy sauce, red chilli relish and th
 
 Cook for 30 secs further, or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634032098771-x200.jpg)
 
 ### Step 7
 

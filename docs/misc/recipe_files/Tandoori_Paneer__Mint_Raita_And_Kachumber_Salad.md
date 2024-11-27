@@ -25,6 +25,7 @@ For a quick tandoori-style dish, you'll char marinated paneer under the grill to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1651599086055-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your basmati rice, nigella seeds, a pinch of salt and 300ml<span class="tex
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your nigella rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1651599108338-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once cooked, remove the rice from the heat and keep covered until serving
 
 Cut your paneer into bite-sized cubes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1651599118638-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Combine half of your natural yoghurt (you'll use the rest later!) with your curr
 
 Add the paneer cubes and mix well until they're completely coated – this is your coated paneer
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1651599124766-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Add the coated paneer to the baking tray and put it under the grill for<span cla
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1651599135052-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Peel and chop your shallot[s]
 
 Dice your tomato[es]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1651599243227-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Combine the diced cucumber, chopped shallot and diced tomato with 1 tbsp <span 
 
 Season with a pinch of salt – this is your kachumber salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1651599251815-x200.jpg)
 
 ### Step 7
 

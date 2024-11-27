@@ -24,6 +24,7 @@ Spice up your week with this island-inspired sweet-savoury traybake. You’ll ov
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663755148763-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Top, tail and peel the mango<span class="text-danger">[es]</span>, then stand th
 
 Tip: If you feel resistance against your knife, it means you are hitting the stone
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663754480921-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chicken thighs with a very generous pinch of salt and cook for 3 min on each side or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663754484551-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Peel and slice the shallot<span class="text-danger">[s]</span> finely
 
 Trim, then chop the green beans into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663754488805-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Chop the creamed coconut roughly (if required!)
 
 Dissolve the chicken stock mix and chopped creamed coconut in 300ml <span class="text-danger">[600ml]</span> boiled water with the smoked paprika, ground cumin and 1 tsp <span class="text-danger">[2tsp]</span> sugar – this is your spiced stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663754492653-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the rinsed rice to an oven-proof dish with the spiced stock and a very gener
 
 Add the sliced shallot, chopped garlic, chopped beans and chopped mango and give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663754498125-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Top with the browned chicken thighs
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water has absorbed, the rice is tender and the chicken is cooked through (no pink meat!) – this is your baked mango & chicken coconut rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663754503584-x200.jpg)
 
 ### Step 7
 

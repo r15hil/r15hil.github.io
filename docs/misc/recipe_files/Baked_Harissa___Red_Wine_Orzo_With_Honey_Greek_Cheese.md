@@ -27,6 +27,7 @@ It’s all about the oven with this tangy harissa-baked orzo, packed with cherry
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681919201406-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Peel and finely slice your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681919207519-x200.jpg)
 
 ### Step 2
 
@@ -45,16 +47,19 @@ Add the cherry tomatoes, chopped pepper and sliced onion to an oven-proof dish w
 
 Put the dish in the oven for an initial 10 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681919211097-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681919215245-x200.jpg)
 
 ### Step 4
 
 Dissolve your red wine paste, harissa paste (can’t handle the heat? Go easy!) and tomato paste in 350ml <span class="text-purple">[455ml] </span><span class="text-danger">[595ml] </span>boiled water – this is your harissa & red wine stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681919219125-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ After the initial 10 min, remove the dish from the oven
 
 Add the chopped garlic, orzo and harissa & red wine stock to the dish with a pinch of salt and gently stir it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681919229548-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Season with a generous crack of black pepper
 
 Return the dish to the oven for 18-20 min further or until the stock has been absorbed and the orzo is cooked with a slight bite – this is your baked harissa & red wine orzo with honey Greek cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681919233313-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ In this Middle Eastern-inspired dish, you'll make your own lamb meatballs with c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641287962937-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Chop your chopped dates roughly, then add them to a small bowl and cover them wi
 
 Set aside to soak
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641287967024-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Drain the soaked chopped dates, then add them to the bowl and give everything a 
 
 Divide and shape into meatballs (5 per person!) and refrigerate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641287970159-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped pepper with a pinch of salt and cook for 8-10 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641287973555-x200.jpg)
 
 ### Step 4
 
 Lightly cover a baking tray with olive oil (use kitchen paper to help you spread it evenly!), then add the lamb meatballs and put the tray in the oven for 15 min or until they're cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641287975986-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ While the lamb meatballs are cooking, add your bulgur wheat to a pot with plenty
 
 Once tender, drain and return to the pot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641287980049-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Cook for 2 min or until fragrant, then add 150ml <span class="text-purple">[225m
 
 Give everything a good mix up and cook, covered, for 6 min or until most of the liquid has been absorbed and a sauce has formed – this is your red pepper sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641287982840-x200.jpg)
 
 ### Step 7
 

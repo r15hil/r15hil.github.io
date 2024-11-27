@@ -31,6 +31,7 @@ If you've had Korean food before, you know the stone bowl of bibimbap is near im
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1614700054889-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614700066466-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657786577049-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the rice is cooking, combine your gochujang paste (can't handle the heat? 
 
 Give everything a good mix up – this is your bibimbap sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657786581685-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Top, tail and slice your courgette[s] into discs, then slice into half moons and
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657786586825-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add the grated carrot and sliced cucumber to a bowl with the remaining rice vine
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium heat, once hot, add the chopped garlic and spinach with a pinch of salt and cook for 2-3 min or until the spinach has wilted, then transfer to a bowl and reserve the pan – this is your garlic spinach
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657786589554-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Meanwhile, combine your soy sauce and remaining toasted sesame oil in a bowl
 
 Once golden, transfer the cooked veg to the bowl and give everything a good mix up – this is your marinated veg
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657786592195-x200.jpg)
 
 ### Step 7
 

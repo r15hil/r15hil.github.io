@@ -24,6 +24,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1928.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1928.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Top, tail and slice the radishes as finely as you can
 
 Add the carrot ribbons, cucumber ribbons and sliced radishes to a large bowl – this is your salad
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1928.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, des
 
 Cut the lime<span class="text-danger">[s]</span> in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1928.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine the soy sauce, toasted sesame oil, lime juice and chopped chilli with 1 tsp <span class="text-danger">[2 tsp]</span> sugar in a small bowl – this is your Asian dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1928.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Once hot, add the basa fillets and cook for 2-3 min on each side or until cooked
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1928.-step-6-x200.jpg)
 
 ### Step 6
 
 While the basa fillets are cooking, chop the coriander roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1928.-step-7-x200.jpg)
 
 ### Step 7
 

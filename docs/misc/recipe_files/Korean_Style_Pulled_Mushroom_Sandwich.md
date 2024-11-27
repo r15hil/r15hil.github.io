@@ -26,6 +26,7 @@ This Seoul-ful sandwich is a spice lover's dream. You’ll load fiery gochujang-
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1688128489269-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop your potatoes (skins on) into bite-sized pieces and add to a baking tray (o
 
 Give everything a good mix up, then put the tray[s] in the oven for 25-30 min or until the potatoes are crisp and cooked through, then sprinkle over your black sesame seeds – these are your sesame potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688128493647-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ While the potatoes are cooking, add your Fable pulled mushrooms to an oven-proof
 
 Put the dish in the oven for an initial 20 min or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688128496529-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Meanwhile, combine your carrot & cabbage slaw mix and soy sauce in a large bowl 
 
 Give everything a good mix up – this is your quick-pickled salad
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688128501442-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Combine the sliced spring onion and half your ginger & garlic paste (you'll use 
 
 Add the remaining rice vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and a grind of black pepper and give everything a good mix up – this is your spring onion & ginger mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688128505075-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Combine your gochujang paste (can't handle the heat? Go easy!) and the remaining
 
 Mix until fully combined – this is your gochujang glaze
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688128508255-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add the gochujang glaze to the dish and give everything a good mix up
 
 Return the dish to the oven for 5-6 min further or until the pulled mushrooms are crisp and glazed – these are your Korean-style mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1-1688128512056-x200.jpg)
 
 ### Step 7
 

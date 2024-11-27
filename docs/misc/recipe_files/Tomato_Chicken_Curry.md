@@ -26,6 +26,7 @@ Ultimate comfort food: tomato chicken curry, simmered slowly and served over hot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/440_step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably nonstick) with a matching lid on a medi
 
 When hot, add the onion with a pinch of salt and cook for 8 min or until softened and brown at the edges, stirring occasionally
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/440_step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the ginger, garlic and chilli flakes to a pestle and mortar with 1 tsp of sa
 
 Bash to a coarse paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/440_step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Tip: add a drizzle of oil if the spices look too dry
 
 Add the tomato paste and cook for a further 1 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/440_step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Tip: for a smoother sauce, strain and mash as much of the chopped tomatoes throu
 
 Stir well and cook for 1-2 min, or until a thick sauce is achieved, then lower the heat to medium-low
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/440_step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Stir the yoghurt&nbsp;into the pan until evenly distributed
 
 Add the chicken to the pan and stir well, then add a lid and cook for 20 min on a medium-low heat (the sauce should be gently boiling) or until the chicken is tender and nearly cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/440_step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Once boiling, reduce to a simmer and cover for 15-20 min or until the water is a
 
 Check to prevent over-cooking and once done, fluff with a fork and set aside covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/440_step-7-x200.jpg)
 
 ### Step 7
 

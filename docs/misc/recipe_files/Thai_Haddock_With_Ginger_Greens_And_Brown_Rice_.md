@@ -26,6 +26,7 @@ Think making healthy choices means being hungry? Think again. This Thai-style di
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1621864535765-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once cooked, drain, return it to the pot and keep covered until serving
 
 Boil half a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621864540332-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Chop the lime<span class="text-danger">[s]</span> in half
 
 Chop the coriander finely, including the stalks, keeping the leaves and stalks separate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621864545812-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add a pinch of salt and grind to a paste – this is your Thai paste
 
 Dissolve the creamed coconut in 150ml <span class="text-danger">[250ml]</span> boiled water and add the soy sauce – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1621864550155-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Slice the sugar snap peas in half lengthways
 
 Peel (scrape the skin off with a teaspoon) and finely chop the ginger
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621864554518-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once hot, add the sliced spring greens and pepper strips with a pinch of salt an
 
 Add the chopped ginger and sugar snaps, then cook for a further 2 min or until everything is cooked with a slight bite – these are your ginger greens
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621864558555-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once hot, add the Thai paste and cook for 2-3 min or until fragrant
 
 Once fragrant, reduce the heat to medium, add the coconut stock and cook  for 3 min or until the sauce has started to thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621864562902-x200.jpg)
 
 ### Step 7
 

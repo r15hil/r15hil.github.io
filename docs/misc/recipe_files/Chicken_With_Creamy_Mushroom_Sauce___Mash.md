@@ -19,6 +19,7 @@ Creamy mushroom sauce is a classic. For this comforting supper, you'll serve it 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599120491710-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Boil a kettle
 
 Add the chicken breasts to one side of a baking tray with a drizzle of olive oil and a pinch of salt and pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599120496376-x200.jpg)
 
 ### Step 2
 
@@ -35,6 +37,7 @@ Add the Chantenay carrots to the other side of the tray with a drizzle of oliv
 
 Put the tray in the oven for 25-30 min or until the chicken is cooked through (no pink meat!) and the carrots are tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/729.-step-3.new-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ Add them to a pot of boiled water with a pinch of salt and bring to the boi
 
 Once done, drain and return to the pot to steam dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/729.-step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -51,6 +55,7 @@ While the potatoes are cooking, chop the chestnut mushrooms roughly
 
 Reboil a half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/729.-step-5.new-x200.jpg)
 
 ### Step 5
 
@@ -58,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped mushrooms and cook for 4-5 min or until starting to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/729.-step-6.new-x200.jpg)
 
 ### Step 6
 
@@ -65,6 +71,7 @@ Meanwhile, dissolve the soft cheese in 50ml <span class="text-danger">[100ml]</s
 
 Once softened, add the soy sauce and creamy stock to the mushrooms and cook for 3-4 min further or until thickened to a double cream-like consistency – this is your creamy mushroom sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/729.-step-7.-new-x200.jpg)
 
 ### Step 7
 

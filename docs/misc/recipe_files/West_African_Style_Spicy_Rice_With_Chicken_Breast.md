@@ -33,6 +33,7 @@ Taste the flavours of Nigeria with our West African-style fried rice. You'll sim
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1689672777079-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Peel and finely dice your brown onion[s], then peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1689672781073-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Add your chicken breast portion[s] to a bowl with your ground smoked paprika and
 
 Season with a pinch of salt and pepper and give everything a good mix up – these are your smoky chicken breast[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1689672785902-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once hot, add the smoky chicken breast[s] and cook for 3 min on each side or unt
 
 Transfer the charred chicken to a tin foil-lined baking tray and put the tray in the oven for 18-20 min or until cooked through (no pink meat!), reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689672789051-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Whilst the onion is softening, slice half your<span class="text-danger"> </span>
 
 Finely chop the remaining green chilli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689672793548-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Dissolve your chicken stock mix in 300ml <span class="text-purple">[390ml]</span
 
 Once the onion has slightly softened, add the chopped garlic and chopped chilli (can't handle the heat? Go easy!) with your ground turmeric and curry powder to the pan and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689672797622-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add the diced pepper, basmati rice and bay leaf[ves]<span class="text-danger"> <
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689672801713-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Our secret to healthy noodles, fast? The super-simple addition of fragrant curry
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1638273041937-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the cornflour and give everything a good mix up until the chicken is fully c
 
 Set the bowl aside for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638273060480-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638273073491-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped garlic, chopped ginger and half the dried chilli flakes (can't handle the heat? Go easy!) and cook for 2-3 min or until slightly softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1638273095468-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the coconut stock with 1 tsp <span class="text-danger">[2 tsp]</span> sugar 
 
 Once boiling, turn the heat down to very low and cook for 7-8 min – this is your curry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1638273112609-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ While the sauce is cooking, heat a separate pan with a generous drizzle of veget
 
 Once hot, add the coated chicken to the pan and cook for 6-7 min on each side or until golden and cooked through (no pink meat!) – this is your crispy chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638273202876-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surfa
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638273212708-x200.jpg)
 
 ### Step 7
 

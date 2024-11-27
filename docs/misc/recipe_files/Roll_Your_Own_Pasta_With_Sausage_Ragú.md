@@ -25,6 +25,7 @@ Learn how to craft delicious, hand-rolled pici from scratch. You'll make a dough
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1611672470158-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Tip the dough onto a clean, dry work surface and knead for 8-10 min, or until it
 
 Once done, wrap your dough in cling film and set aside to rest for 30 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1611672624705-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Roll the dough into a rough rectangle, approx. 2 cm thick using a rolling pin
 
 Lightly dust a chopping board with plain flour (but not your work surface!) and set it next to your clean work surface
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1611672914001-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once rolled, add it to the floured chopping board, then continue to cut and roll
 
 Tip: Try to aim for a consistent shape so that they cook evenly!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1611672919296-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Tip: Cooking this for someone special? Get them involved in the fun too!
 
 Once done, set the pici nests aside to dry out slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1611672996115-x200.jpg)
 
 ### Step 5
 
@@ -92,6 +97,7 @@ Once the onion has softened, increase the heat to medium-high and squeeze the sa
 
 Break the sausage meat up into small pieces with a wooden spoon and cook for 3-4 min or until starting to brown all over
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1611673065783-x200.jpg)
 
 ### Step 6
 
@@ -107,6 +113,7 @@ Peel the Italian hard cheese until you end up with a pile of cheese shavings
 
 Grate the remaining Italian hard cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611673081365-x200.jpg)
 
 ### Step 7
 

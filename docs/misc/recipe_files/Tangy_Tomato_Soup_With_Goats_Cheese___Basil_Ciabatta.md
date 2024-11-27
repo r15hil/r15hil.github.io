@@ -26,6 +26,7 @@ To make this tangy twist on a classic, you'll blitz oven-roasted cherry tomatoes
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1585753996717-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop your cherry tomatoes in half
 
 Cut your red onion[s] into wedges, leaving the skin on (this helps them cook quicker)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1585754000817-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add your dried oregano with a large drizzle of olive oil and a pinch of salt and
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 5 min or until the tomatoes are beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1585754004205-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the torn basil and a pinch of salt to a pestle & mortar and bash for 1-2 min
 
 Add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-danger">[6 tbsp]</span> olive oil and half your balsamic vinegar (you'll use the rest later!) then stir to combine – this is your balsamic basil purée
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1585754008288-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Remove the tray[s] from the oven and drizzle the remaining balsamic vinegar over
 
 Return the tray[s] to the oven for a further 10-12 min or until the tomatoes are beginning to caramelise
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1585754012395-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the tomatoes have caramelised, remove the tray[s] from the oven and careful
 
 Carefully remove the skins from the onion and garlic and discard (beware, they will be hot!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1585754016002-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Meanwhile, slice your ciabatta[s] in half and add to a baking tray, cut side up
 
 Put the tray in the oven for 4-5 min or until they're hot and crusty
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1585754019874-x200.jpg)
 
 ### Step 7
 

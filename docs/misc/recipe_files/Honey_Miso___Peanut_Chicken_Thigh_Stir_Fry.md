@@ -25,6 +25,7 @@ This Japanese inspired stir-fry is super speedy. You'll pan-fry chicken and crun
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623400707537-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2043-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh and cook for 7 min or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2043-v2-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Set aside the green tops, then cut the white base into rough, large pieces
 
 Discard the tough stalk
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2043-v2-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Add your fine egg noodle nest[s] to a large bowl, cover with boiled water an
 
 Set aside to soak for 4 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2043-v2-Step-5-x200.jpg)
 
 ### Step 5
 
 Add most of the spring onion (save the rest for garnish!), the chopped pak choi white base and your ginger & garlic paste to the chicken and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2043-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add your roasted peanuts, miso paste, honey, soy sauce and a splash of boiled w
 
 Meanwhile, drain the noodles and stir through your toasted sesame oil – these are your sesame noodles
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2043-v2-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Tuck into festive flavour in minutes with this speedy stew. Simmer chicken with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1701171836217-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1701171841712-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh with a generous pinch of salt and cook for 4 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1701171853510-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, cook for 3-4 min or until the carrots are tender with a slight bit
 
 Once done, drain the carrots and return to the pot with a small knob of butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1701171867761-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Meanwhile, dissolve your chicken stock mix in 175ml <span class="text-purple">[2
 
 Wash your spinach and pat dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1701171882947-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
 Once fork-tender, add a knob of butter and a generous pinch of salt and pepper, then crush lightly with a fork – these are your crushed potatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1701171906810-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once fragrant, add the chicken stock and bring to the boil over a high heat
 
 Once boiling, raise the heat to medium-high and cook for 6-8 min or until the sauce has thickened and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1701171979762-x200.jpg)
 
 ### Step 7
 

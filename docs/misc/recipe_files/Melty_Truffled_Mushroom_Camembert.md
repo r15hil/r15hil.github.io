@@ -21,6 +21,7 @@ Nothing says festive feast like an oozy melted camembert. If you love a cheesy C
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2428Step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,11 +33,13 @@ Score the camemberts with a knife in a criss-cross pattern
 
 Add the camemberts to the tray and put the tray in the oven for 10-12 min or until melty in the middle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2428Step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, combine the balsamic vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your balsamic dressing
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2428Step-3-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ Chop the chestnut mushrooms into quarters
 
 Chop the oyster mushrooms into thirds
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2428Step-4-x200.jpg)
 
 ### Step 4
 
@@ -55,11 +59,13 @@ Cook for 3-4 min or until tender and golden – these are your truffled mushroom
 
 Tip: Don't stir the mushrooms too often as this will stop them from caramelising!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2428Step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, slice the ciabatta rolls finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2428Step-6v2-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Add the ciabatta slices to one side of a baking tray and drizzle them with olive
 
 Add the walnuts to the other side and put the tray in the oven for 4-5 min or until everything's lightly toasted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2428Step-7-x200.jpg)
 
 ### Step 7
 

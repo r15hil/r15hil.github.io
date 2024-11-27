@@ -29,6 +29,7 @@ A Tex-Mex classic, free range chicken enchiladas are a guaranteed crowd-pleaser!
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693819724648-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your free range chicken thighs with a pinch of salt and pepper and cook for 3 min on each side or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693819727417-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and finely chop (or grate) your garlic
 
 Once the chicken is cooked through, transfer to a clean board and shred it apart, using two forks (reserve the pan)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693819730420-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once the butter has melted, add the sliced onion and chopped garlic and cook fo
 
 Once softened, add 15g <span class="text-purple">[20g]</span><span class="text-danger"> [30g]</span> flour and your cayenne pepper (can't handle the heat? Go easy!) and stir with a wooden spoon for 3-4 min or until a paste forms – this is your roux
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693819769709-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Gradually whisk in 400ml <span class="text-purple">[520ml]</span><span class="t
 
 Meanwhile, drain and rinse your black beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693819772687-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Remove 1/3 of the chipotle sauce to a small pot – this is your enchilada topp
 
 Add the drained black beans and pulled chicken to the remaining chipotle sauce in the pan and give it a good mix up – this is your chicken & black bean filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693819775497-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Trim and slice your spring onion[s]<span class="text-danger"> </span>finely
 
 Grease an oven-proof dish (or two!) with a little vegetable oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693819779361-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ This veggie lasagne takes on the classic with the aid of veggie mince! Veggie mi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/517.step1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely dice the red&nbsp;onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/517.step2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add the diced&nbsp;onion with a pinch of salt (to draw out the moistur
 
 Meanwhile, dissolve the vegetable&nbsp;stock cube<span class="text-danger">[s]</span>&nbsp;in 350ml<span class="text-danger">&nbsp;[700ml]</span>&nbsp;boiled water, stir in the meat free mince, then set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/517.step3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add 30g <span class="text-danger">[60g]</span>&nbsp;butter to a pot over a mediu
 
 Once melted, add 30g <span class="text-danger">[60g]</span>&nbsp;flour and stir for 2-3 min or until a sandy&nbsp;paste has formed - this is your roux
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/517.step4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Whisk&nbsp;constantly for 5 min or until a smooth, thick sauce remains, then rem
 
 Grate in the&nbsp;cheddar cheese, return the pot to a low heat and stir until melted and smooth, then remove from the heat and set aside - this is your b&eacute;chamel sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/517.step5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Add the soaked meat free&nbsp;mince (including the stock), Henderson's relish, t
 
 Remove from the heat and stir in 50ml <span class="text-danger">[100ml]</span>&nbsp;water - the mince mixture should be quite wet
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/517.step6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Wash then add&nbsp;1/4 of the baby&nbsp;spinach&nbsp;(you'll use the rest later)
 
 Repeat until all of the lasagne verdi sheets and mince mixture have been used - make sure you cover the sheets completely so that they cook properly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/517.step7-x200.jpg)
 
 ### Step 7
 

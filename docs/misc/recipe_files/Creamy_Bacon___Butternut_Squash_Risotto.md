@@ -23,6 +23,7 @@ This creamy risotto is a comforting fan favourite. You’ll infuse arborio rice 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1673365928866-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped bacon and cook for 4-5 min or until starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1673365932488-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once the bacon is starting to crisp, reduce the heat to medium and add the diced
 
 Cook for 3 min further or until the shallot has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1673365935278-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the shallot has softened, add your arborio rice and chopped garlic to the p
 
 Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1673365938190-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your butternut squash cubes to one side of the baking tray[s] with a drizzle
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 10 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1673365941314-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ After an initial 10 min, remove the butternut squash from the oven and add the r
 
 Return the tray[s] to the oven for a further 12-15 min or until the bacon is crispy and the butternut squash is tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1673365944279-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once the butternut squash is tender, remove the tray[s] from the oven and transf
 
 Transfer the crispy bacon to a clean chopping board and chop roughly – these are your crispy bacon bits
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1673365947530-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Simplicity at its best. You'll fold tortiglioni, crispy sausage, red onion and k
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1331.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1331.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, squeeze your sausage meat from the skins into the pan (clean hands is 
 
 Break the sausage meat up into large, bite-sized pieces with a wooden spoon and cook for 6-7 min or until crispy and cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1331.new.step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Dissolve your chicken stock mix and your wholegrain mustard in 150ml<span class
 
 Grate your Italian hard cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1331.new.step-4-x200.jpg)
 
 ### Step 4
 
 Wash your shredded kale, then add to a colander over the sink and pour boiled water all over until it's bright green and wilted
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1331.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Add the sliced garlic and your chilli flakes (can't handle the heat? Go easy!) 
 
 Add the chicken stock and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1331.-step-6-x200.jpg)
 
 ### Step 6
 
 Add your soft cheese and the juice of half your lemon[s] with a generous pinch of pepper and stir it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1331.-step-7-x200.jpg)
 
 ### Step 7
 

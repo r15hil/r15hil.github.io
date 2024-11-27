@@ -25,6 +25,7 @@ Donburi in Japanese means ‘rice bowl,’ and you’ll top yours with crispy ju
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2140Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once hot, add the sliced brown onions with a pinch of salt and 1 tbsp<span class
 
 Once the onions are caramelised, add to a bowl with the soy sauce and mirin and set aside (save the pan!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2140Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Trim the spring onion<span class="text-danger">[s]</span> then slice widthways i
 
 Chop each quarter into 4 lengthways – these are your shredded spring onions
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2140Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2140Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get perfectly fluffy rice!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2140Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Crack the egg<span class="text-danger">[s]</span> into a shallow bowl and beat
 
 Add the panko breadcrumbs to a plate
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2140Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Coat the jumbo prawns in the flour, tap off the excess, then dip into the beat
 
 Wipe the reserved pan clean and return it to a high heat with a very generous drizzle of vegetable oil (enough to fully coat the bottom of the pan)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2140Step-7-x200.jpg)
 
 ### Step 7
 

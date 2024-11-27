@@ -30,6 +30,7 @@ For this twist on a popular Hungarian stew, you'll simmer tender chicken breast 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603721661519-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a very large, wide-based pan (preferably non-stick) with a matching lid, wi
 
 Once hot, add your chicken breasts strips and cook for 3 min on each side or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603721566676-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Meanwhile, peel and slice your brown onion[s] finely
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603721591792-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Push the chicken to one side of the pan and reduce the heat to medium-high
 
 Add the sliced onion and pepper strips with a generous pinch of salt and cook, covered, for 4-5 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1608.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Meanwhile, chop your chestnut mushrooms into quarters
 
 Dissolve your chicken stock mix, tomato paste and 1 tsp<span class="text-purple"> [1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar in 350ml <span class="text-purple">[455ml]</span><span class="text-danger"> [650ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1593449181466-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603721623251-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the tomato stock, bring to the boil over a high heat and cook, covered, fo
 
 Meanwhile, chop your parsley roughly, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1608.-step-7-x200.jpg)
 
 ### Step 7
 

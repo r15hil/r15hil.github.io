@@ -21,6 +21,7 @@ Get this creamy veggie gnocchi on the table in a flash! Cook the gnocchi and Ten
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1604.-step-2.n-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Boil a kettle
 
 Cut the Tenderstem broccoli in half (chop them<span class="text-highlight"> in</span> one bunch for speed!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1604.-step-3.n-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the wholegrain mustard, soft cheese and baby kale and give everything a 
 
 Cook for 1-2 min or until the baby kale is starting to wilt – this is your creamy sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1604.-step-4.n-x200.jpg)
 
 ### Step 4
 
@@ -71,11 +75,13 @@ Cook for 3 min or until the gnocchi begins to rise to the top of the pot
 
 Once done, drain, reserving a cup of the starchy cooking water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1604.-step-5.n-x200.jpg)
 
 ### Step 5
 
 Meanwhile, cut the lemon into 2 <span class="text-danger">[4]</span> wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1604.-step-6.n-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the drained gnocchi and Tenderstem to the creamy sauce, give everything a go
 
 Tip: add a small splash of the starchy cooking water if your sauce is looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1604.-step-7.n-x200.jpg)
 
 ### Step 7
 

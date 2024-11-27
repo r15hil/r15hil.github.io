@@ -20,6 +20,7 @@ Create a classic Sicilian pasta with chilli, garlic, parsley and juicy king praw
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/928.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Trim, then chop the spring onions roughly
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/928.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,11 +40,13 @@ Cook the pasta for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/928.-step-3-x200.jpg)
 
 ### Step 3
 
 Mix the chopped chilli (can't handle the heat? Go easy!) and spring onion together and chop them until you're left with a finely chopped mixture – this is your chilli & spring onion mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/928.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Once hot, add the chilli & spring onion mixture to the pan and cook for 2 min 
 
 Add the king prawns and chopped garlic and cook for 4-5 min or until the prawns are cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/928.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ While the prawns are cooking, cut the lemon<span class="text-danger">[s]</span> 
 
 Chop the parsley finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/928.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Once the prawns are cooked, add the cooked linguine to the pan with a couple of
 
 Squeeze in the juice of 1/2<span class="text-danger"> [1]</span> lemon and stir until the sauce sticks to the linguine – this is your king prawn, garlic & chilli linguine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/928.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ For two classic comfort foods in one, you'll pack lean beef ragù full of mushro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1615218096618-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cook the macaroni for 8-10 min or until cooked with a slight bite
 
 Once cooked, drain the macaroni and reserve the pot for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1615218102245-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Tear the chestnut mushrooms into rough, bite-sized pieces
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1615218106805-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once hot, add the chopped onion and cook for 4-5 min or until beginning to softe
 
 Dissolve the beef stock mix in 200ml [300ml] boiled water and stir in the tomato paste, dried oregano and half of the balsamic vinegar – this is your beef stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1615218111348-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon
 
 Add the torn mushrooms and chopped garlic and cook for 2 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1615218116094-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once browned, add the beef stock, grated carrot and 1 tsp <span class="text-dang
 
 Meanwhile, grate the cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1615218119933-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Gradually add 250ml <span class="text-danger">[400ml]</span> milk into the roux 
 
 Remove from the heat and season with salt and pepper – this is your béchamel
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1615218125821-x200.jpg)
 
 ### Step 7
 

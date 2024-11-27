@@ -23,6 +23,7 @@ Settle in for a Valentine’s fired-up by TABASCO® Sauce. You’ll sandwich cri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673977410438-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the waxy potatoes to a heatproof bowl, then cover the bowl with cling film a
 
 Put the bowl in the microwave for 4-5 min <span class="text-danger">[6-8 min] </span>or until the potatoes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673977417221-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the halved brioche to the pan, cut-side down, and cook for 2-3 min or until 
 
 Set aside until serving and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673977428392-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the cornflour, ground paprika and a generous pinch of salt to a plate and mi
 
 Place the soy coated chicken thighs onto the floured plate, pressing firmly to coat the chicken evenly on all sides, then set aside – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673977440893-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add a generous drizzle of olive oil and a generous pinch of salt to the tray and
 
 Put the tray in the oven and cook for 18-22 min or until the potatoes are crisp and golden – these are your smashed potatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673977450538-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Return the pan to a medium-high heat with a very generous drizzle of vegetable o
 
 Once hot, add the coated chicken and cook for 7-8 min on each side, or until the outside is crisp and golden and the chicken is cooked through (no pink meat!) – this is your crispy fried chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673977470865-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ While the chicken is cooking, wash the gem lettuce, then pat dry with kitchen pa
 
 Remove 2<span class="text-danger"> [4] </span>leaves from the gem lettuce and set aside, then cut the inner core<span class="text-danger">[s]</span> into 4 <span class="text-danger">[8]</span> wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673977482770-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Pack in your fruit and veg with a side of island flavour. Pan-fry basa fillets w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716474767831-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to medium and cook for an initial 20-25 min or unt
 
 Once almost cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716474771970-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Dice the mango flesh finely, discarding the stone[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716474775200-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Zest half your lime[s] (try to grate lightly with a micro-plane or sharp box gra
 
 Trim, then slice your spring onion[s] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716474778558-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Chop your creamed coconut finely
 
 Drain and rinse your black beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716474915302-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Cut the remaining lime into wedges
 
 Combine the softened butter with your jerk paste – this is your jerk butter
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716474918346-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the rice is cooked, add the chopped creamed coconut and drained black beans
 
 Cover with a lid and cook over a low heat, stirring occasionally, for 7-8 min or until the coconut has melted and the water has absorbed – this is your coconut rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716474922463-x200.jpg)
 
 ### Step 7
 

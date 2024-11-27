@@ -28,6 +28,7 @@ This one-pot wonder is a cheesy twist on a classic family favourite. You’ll ru
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683027717784-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine your beef mince and grated onion with half of the chopped garlic (you'll use the rest later!) and a generous pinch of salt and pepper and using clean hands, give everything a good mix up until fully combined
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683027726399-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Once hot, add the beef meatballs and cook for 6-7 min, turning occasionally, un
 
 Once browned, transfer to a plate and set aside, these will finish cooking in the sauce later (reserve the pot!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-01-24_09h30m46s-APIC-1704383682573-x200.jpg)
 
 ### Step 3
 
 While the meatballs are browning, chop your basil roughly, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683027743104-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the meatballs are browned, wipe the reserved pot clean and return it to a m
 
 Once hot, add the diced onion and remaining grated garlic with a pinch of salt and cook for 5-6 min or until softened and slightly caramelised
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683027752967-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add half the chopped basil (save the rest for garnish!) with a pinch of salt and
 
 Once boiling, roughly break your spaghetti in half, add it to the pot and mix it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683027760724-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Cook for an initial 8-10 min, stirring occasionally to prevent the spaghetti fro
 
 While the spaghetti is cooking, grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683027769193-x200.jpg)
 
 ### Step 7
 

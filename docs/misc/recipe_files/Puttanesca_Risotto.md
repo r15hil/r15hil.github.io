@@ -24,11 +24,13 @@ Anchovies, olives, capers, garlic and chilli pack a real punch in our puttanesca
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/253_step-1-x200.jpg)
 
 ### Step 1
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/253_step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Peel and finely chop (or grate) the garlic
 
 Drain the oil from the anchovy tin<span class="text-danger">[s]</span>&nbsp;and chop the anchovies finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/253_step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add the onion and cook for 3-4 min
 
 Add the arborio rice, coat well and cook for 1-2 min&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/253_step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Stir continuously over a medium heat, let the stock absorb fully, then add anoth
 
 Repeat until all of the stock has been absorbed (approx. 25-30 min)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/253_step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the chopped anchovies and cook for 3 min, stirring until they break down
 
 Add the garlic and&nbsp;chilli flakes (can't handle the heat? Go easy!) and cook for a further min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/253_step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the black olives, chopped tomatoes and caper buds to the pan
 
 Cook for a further 10 min, stirring occasionally to prevent the bottom from sticking
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/253_step-7-x200.jpg)
 
 ### Step 7
 

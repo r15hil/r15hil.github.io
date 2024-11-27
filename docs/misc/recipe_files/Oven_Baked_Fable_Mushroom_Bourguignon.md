@@ -31,6 +31,7 @@ Fancy French flavours in half the time? Oui, merci. Stir your aromatics and hear
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1663755770912-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663755774661-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, hob-safe oven-proof casserole dish with a generous drizzle of vege
 
 Once hot, add your Fable pulled mushrooms and cook for 2-3 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663755778780-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Crush your garlic clove open with the side of a knife, remove the skins and chop
 
 Chop your waxy potatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663755782433-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Reduce the heat to medium and add the chopped shallot, carrot and garlic to the 
 
 Add your tomato paste with your chopped tomatoes, Chinese rice wine, Henderson's Relish and soy sauce and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663755785982-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add 350ml <span class="text-purple">[450ml]</span> <span class="text-danger">[60
 
 Bring to the boil over a high heat and season with a generous grind of pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663755789826-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the chopped potatoes to a baking paper-lined baking tray with a drizzle of v
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until the potatoes are golden – these are your rosemary roast potatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663755793589-x200.jpg)
 
 ### Step 7
 

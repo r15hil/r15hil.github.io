@@ -25,6 +25,7 @@ We're taking the Great Sandwich on tour. Tortas are simply Mexican sandwiches, f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1703081601888-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut your potatoes (skins on) into fries, then add to a baking paper-lined baking
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your paprika fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1703081580199-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Meanwhile, add the remaining ground smoked paprika and ground coriander to a bow
 
 Add your free range chicken breast portion[s] to the bowl and turn several times until fully coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1703081597745-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once golden, add a couple of splashes of cold water to the pan then cook, covere
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1703081594968-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Chop the remaining tomato finely
 
 Wash your lettuce and pat dry with kitchen paper, then remove 1 outer leaf per person and set aside, then shred the inner core
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1703081591149-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Combine your cider vinegar with a drizzle of olive oil and a pinch of salt in a 
 
 Give everything a good mix up – this is your dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1703081588670-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the chicken is cooked, transfer the cooked chicken to a clean board and shr
 
 Return the pulled chicken to the pan and add your chipotle paste (can't handle the heat? Go easy!) and give everything a good mix up until fully coated – this is your free range Mexican-style chilli chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1703081609146-x200.jpg)
 
 ### Step 7
 

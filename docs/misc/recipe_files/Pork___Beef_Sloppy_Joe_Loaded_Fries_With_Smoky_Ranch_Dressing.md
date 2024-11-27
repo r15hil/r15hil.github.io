@@ -30,6 +30,7 @@ Cheat night treats don’t get better than this. Load up crispy homemade fries w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695729782126-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695729784802-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ While the fries are cooking, peel and finely dice your brown onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695729787805-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion to the pan with a pinch of salt and pepper, 2/3 of your ground smoked paprika and half your dried basil (you'll use the rest later!) and cook for 5-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695729791515-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Trim, then slice your spring onion[s]
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695729793343-x200.jpg)
 
 ### Step 5
 
 Combine your mayo with the remaining dried basil, remaining ground smoked paprika, grated garlic and 1/3 of your white wine vinegar (save the rest for later!) – this is your smoky ranch dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695729796368-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once fragrant, add your pork & beef mince and cook for 3-4 min or until beginnin
 
 Once cooked through, add the remaining white wine vinegar to the pan and cook for 30 secs or until evaporated
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695729799563-x200.jpg)
 
 ### Step 7
 

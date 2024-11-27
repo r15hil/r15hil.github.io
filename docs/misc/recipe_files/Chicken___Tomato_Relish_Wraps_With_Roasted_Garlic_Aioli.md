@@ -24,6 +24,7 @@ Wrap up your night with these speedy chicken tortillas. You’ll pan-fry chicken
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1689846837763-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-06-23_12h27m07s-APIC-1689846867560-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chicken breast and the onion wedges to the pan with a generous pinch of salt and cook for 6 min or until the onion is slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-06-23_12h25m08s-APIC-1689849631491-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ While the chicken is cooking, chop your tomato[es] roughly
 
 Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-06-23_12h28m40s-APIC-1689849654520-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Add your mayo and roasted garlic paste in a bowl with half your white wine vineg
 
 Give everything a good mix up – this is your roasted garlic aioli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-06-23_12h31m28s-APIC-1689849711146-x200.jpg)
 
 ### Step 5
 
 Once the onion is slightly softened, add your ground smoked paprika to the pan and cook for a further 2-3 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-06-23_12h34m18s-APIC-1689849747259-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once fragrant, add 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span clas
 
 Cook for a further 2-3 min or until the tomato is slightly softened and the chicken is cooked through (no pink meat!) – this is your chicken & tomato relish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-06-23_12h35m53s-APIC-1689849764953-x200.jpg)
 
 ### Step 7
 

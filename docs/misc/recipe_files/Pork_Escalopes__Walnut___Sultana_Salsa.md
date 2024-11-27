@@ -25,6 +25,7 @@ This dish transforms pork tenderloin into delicious sage coated escalopes, serve
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1080.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boi
 
 Once tender, drain and return to the pot to keep warm&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1080.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Wrap the&nbsp;pork tenderloin&nbsp;halves in cling film and bash them with a rol
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1080.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Coat the pork escalopes in the flour, tap off the excess, then put them into the
 
 Cover and refrigerate until later&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1080.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -87,6 +91,7 @@ Chop the sultanas finely
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1080.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,6 +103,7 @@ Add the apple&nbsp;cider vinegar, 3 tbsp<span class="text-danger"> [6 tbsp]</spa
 
 Give everything a good old mix up &ndash;&nbsp;this is your walnut salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1080.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -109,6 +115,7 @@ Once hot, add the pork escalopes and cook on each side for 2 min or until browne
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1080.-step-7-x200.jpg)
 
 ### Step 7
 

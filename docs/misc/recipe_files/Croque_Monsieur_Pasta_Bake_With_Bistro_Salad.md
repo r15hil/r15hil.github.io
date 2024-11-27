@@ -26,6 +26,7 @@ Give pasta the French treatment with this twist on a bistro classic. You’ll to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696845224144-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite then drain
 
 Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696845227703-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop half your prosciutto finely (you'll use the rest later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696845231659-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chopped garlic and 250ml <span class="text-purple">[375ml]</span> <span 
 
 Cook over a medium heat for 4-6 min, stirring frequently, or until the cheese has melted and the sauce has thickened slightly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696845235908-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add half your Dijon mustard to the sauce with half your grated Italian hard chee
 
 Season with a generous pinch of pepper and give everything a good mix up – this is your croque monsieur sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696845239635-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the drained tortiglioni to the sauce
 
 Stir it all together and add to an oven-proof dish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696845244646-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Top with the remaining grated Italian hard cheese and reserved prosciutto slices
 
 Put the dish in the oven for 10-12 min or until golden and bubbling – this is your croque monsieur pasta bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696845249123-x200.jpg)
 
 ### Step 7
 

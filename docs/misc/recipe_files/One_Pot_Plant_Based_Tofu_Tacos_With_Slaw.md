@@ -27,6 +27,7 @@ Take your taste buds to Tijuana with these plant-based tacos. You’ll simmer to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674044980210-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674044989360-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and chop the brown onion<span class="text-danger">[s]</span> into wedges
 
 Drain the tofu and pat it dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674045014713-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, hob-safe oven-proof casserole dish with a matching lid with a driz
 
 Once hot, add onion wedges and crushed garlic to the dish and cook for 2-3 min or until the vegetables are starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674045021102-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Combine the cabbage & carrot slaw mix with the vegan mayo and the juice of the l
 
 Once the vegetables have softened, crumble the drained tofu roughly into the dish with your hands and cook for a further 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674045030797-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Add 400ml <span class="text-danger">[750ml]</span> boiled water, give everything
 
 Once boiling, cover with a lid and put the dish in the oven for 15-20 min or until the sauce has thickened – this is your plant-based tofu taco mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674045037279-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674045045549-x200.jpg)
 
 ### Step 7
 

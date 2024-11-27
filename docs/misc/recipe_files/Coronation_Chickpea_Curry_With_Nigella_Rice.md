@@ -33,6 +33,7 @@ To recreate this classic, you'll simmer chickpeas, green beans, mango chutney an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624351637020-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a pot with a lid with a drizzle of vegetable oil and a knob of butter over 
 
 Once the butter has melted, add your nigella seeds and basmati rice and stir to fully coat the grains
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624351645627-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your nigella rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624351709115-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced onion with a pinch of salt and cook for 10 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624351736340-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then chop your green beans in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624351743811-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Dissolve your vegetable stock mix in 250ml <span class="text-purple">[375ml]</sp
 
 Add your sultanas and mango chutney to the stock and stir to combine – this is your mango stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624351751679-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once the onion has softened, add the chopped garlic, then increase the heat to 
 
 Add your ground turmeric, curry powder, a good grind of pepper and the drained chickpeas to the pan and cook for a further 2-3 min or until everything is coated in the spices
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624351799256-x200.jpg)
 
 ### Step 7
 

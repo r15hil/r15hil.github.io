@@ -28,6 +28,7 @@ Welcome to flavour town. We’re serving soft tortillas piled with crispy, meat-
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-7-1647970283530-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely slice your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-7-1647970288542-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the pepper strips and sliced onion to the pan and cook for 4-5 min or until the vegetables begin to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-7-1647970293876-x200.jpg)
 
 ### Step 3
 
 Once the vegetables begin to soften, add your meat-free chick'n to the pan and cook for a further 4-5 min, or until warmed through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-5-1647970327708-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Stir it all together – this is your salsa
 
 Peel and grate your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-7-1647970340307-x200.jpg)
 
 ### Step 5
 
@@ -65,11 +70,13 @@ Combine your ground smoked paprika, ground coriander and ground cumin in a bowl 
 
 Once the meat-free chick'n has warmed through, add the BBQ spice mix and the grated garlic (not a big garlic fan? Try using less!) to the pan and cook out for 2-3 min or until fragrant – this is your sweet 'n' smoky BBQ meat-free chick'n fajita filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1667991153307-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-7-1647970354190-x200.jpg)
 
 ### Step 7
 

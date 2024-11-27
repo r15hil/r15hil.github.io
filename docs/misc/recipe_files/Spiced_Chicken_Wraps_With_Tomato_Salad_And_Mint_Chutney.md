@@ -28,6 +28,7 @@ For an Indian twist on a weeknight wrap, stuff soft tortillas with fiery curried
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1126.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop your chicken breast portion[s] into bite-sized pieces
 
 Add the chopped chicken to a bowl with your curry powder, ground turmeric, cayenne pepper (can't handle the heat? Go easy!) and a generous pinch of salt then give everything a good mix up so that the chicken is fully coated in the spices – this is your coated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1126.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 3/4 of the sliced onion (save the rest for later!) with a pinch of salt and cook for 10-12 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1126.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ While the onion is cooking, chop your coriander finely, including the stalks
 
 Strip your mint leaves from their stalks and chop them finely, discard the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1126.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Grind to a fine paste, then add your mayo and a drizzle of olive oil – this is
 
 Tip: If you don't have a pestle and mortar, chop everything very finely!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1126.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the diced tomato to a bowl with your nigella seeds, remaining sliced onion a
 
 Season with a pinch of salt and give everything a good mix up – this is your tomato salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1126.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Squeeze in the juice of the remaining lemon and mix to combine – this is your 
 
 While the chicken is cooking, add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1126.-step-7-x200.jpg)
 
 ### Step 7
 

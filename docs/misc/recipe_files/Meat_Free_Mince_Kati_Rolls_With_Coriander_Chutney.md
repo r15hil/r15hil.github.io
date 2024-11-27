@@ -28,6 +28,7 @@ Kati rolls are a sensational Indian street food. You'll make yours with richly s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624292998156-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Dice the remaining onion and tomato[es] finely
 
 Add you diced tomato to the bowl with the sliced onion with 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> olive oil and a pinch of salt and pepper – this is your tomato salad
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624293012254-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624293027338-x200.jpg)
 
 ### Step 3
 
@@ -59,11 +62,13 @@ Tip: Try not to stir too often so the mince gets nice and brown!
 
 Meanwhile, chop your coriander finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624293037626-x200.jpg)
 
 ### Step 4
 
 Once the meat-free mince is browned, add the chopped ginger, chopped garlic and curry powder and cook for 3-4 min further or until cooked through and fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624293048792-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Grind to a fine paste, then add your mayo with a squeeze of<span class="text-dan
 
 Add half your chilli flakes (can't handle the heat? Go easy!) and stir it all together – this is your coriander chutney
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1662566778127-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and microwave for 1-2 min, or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624293071903-x200.jpg)
 
 ### Step 7
 

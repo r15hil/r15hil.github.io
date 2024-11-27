@@ -22,6 +22,7 @@ This tasty rice stir-fry is packed with crunchy veg, diced chicken and edamame. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1630489100040-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced chicken breast and cook for 6 min or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1630489206186-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Once hot, add the rainbow veg mix and cook for 3 min or until the veg has slight
 
 Once the veg has slightly softened, add the ginger & garlic paste and the edamame & jasmine rice and cook for a further 2-3 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1630489216549-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Once the chicken is golden, transfer it to the rice pan and add the spicy sauce 
 
 Give everything a good mix up and cook for 3 min further or until the chicken is cooked through (no pink meat!) and everything is piping hot – this is your chicken nasi-goreng
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1630489261362-x200.jpg)
 
 ### Step 4
 

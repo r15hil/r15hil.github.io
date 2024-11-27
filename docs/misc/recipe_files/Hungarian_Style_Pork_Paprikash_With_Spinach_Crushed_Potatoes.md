@@ -26,6 +26,7 @@ This Hungarian-style dinner packs a paprika-laced punch. You’ll whip up a toma
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702991909393-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop your potatoes (skins on) into bite-sized pieces, then add to a pot with ple
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702991913853-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the seasoned steak[s] and cook for 5-6 min on each side or until t
 
 Reboil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702991917273-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Wash your spinach, then add to a colander and pour boiled water all over it so t
 
 Rinse the wilted spinach under cold running water until it’s cool, then squeeze as much water out of the spinach as you can
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688740312197-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once done, transfer the cooked steak to a clean chopping board and reserve the p
 
 Cover the steak with a clean tea towel and leave to rest while you make the sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688740315920-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once softened, add the chopped garlic, ground paprika and tomato paste
 
 Give everything a good mix up and cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688740320379-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Cook for 30 secs or until slightly thickened, then reduce the heat to very low a
 
 Stir it all together and cook for 1-2 min or until warmed through (don't let it boil!) – this is your paprikash sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688740324254-x200.jpg)
 
 ### Step 7
 

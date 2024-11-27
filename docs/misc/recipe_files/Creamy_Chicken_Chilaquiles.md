@@ -26,6 +26,7 @@ Chilaquiles (pronounced chil-ey-qill-les) is a Mexican staple which traditionall
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1595957343583-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your chicken breast portion[s] to a baking tray
 
 Drizzle the chicken breast portion[s] with olive oil and sprinkle over your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!) and a pinch of salt and pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1595957347892-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Whilst the chicken is cooking, peel and finely dice your red onion[s]
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1595957354758-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add most of the diced onion (save some for garnish!) with a pinch of salt and cook for 5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1595957359680-x200.jpg)
 
 ### Step 4
 
 Slice your radishes roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1595957364398-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once the onion has softened, add your tomato paste, chipotle paste, soy sauce an
 
 Once thickened, stir through your soured cream and cook for 1-2 min further – this is your creamy chipotle salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1595957413473-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Tip: Stack them for speed!
 
 Add the tortilla strips to a baking tray (or two!), drizzle them with vegetable oil and put the tray[s] in the oven for 8-10 min or until golden and crispy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595957418758-x200.jpg)
 
 ### Step 7
 

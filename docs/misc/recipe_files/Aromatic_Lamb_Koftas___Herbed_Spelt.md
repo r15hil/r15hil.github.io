@@ -27,6 +27,7 @@ These Middle Eastern-inspired meatballs are flavoured with sumac, a citrus flavo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/591.-step-2-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop the dried cranberries finely
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/591.-step-4-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cook for 15-20 min or until cooked through but with a slight bite
 
 Once cooked, drain and return it to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/591.-step3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, combine the lamb mince, chopped garlic, chopped cranberries, ground c
 
 Crumble in the beef stock cube<span class="text-danger">[s] </span>and mix very thoroughly until everything is combined (clean hands is the best way!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/591.-step-3-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Divide the mixture into 6 <span class="text-danger">[12]</span> and roll into ba
 
 Add the koftas to a baking tray (use tin foil to avoid a mess!) and put them in the oven for 12-15 min or until cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/591.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Trim and finely slice the spring onion<span class="text-danger">[s]</span>
 
 Dice the tomato<span class="text-danger">[es]</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/591.-step-6-x200.jpg)
 
 ### Step 6
 
 Mix the Greek-style yoghurt with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/591.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Try homemade meatballs with a Middle Eastern twist. You’ll pan-fry juicy lamb 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680105118858-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Finely slice the remaining onion
 
 Add the sliced onion to a small bowl with your red wine vinegar and a pinch of salt and sugar and set aside to pickle – this is your quick-pickled onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680105127872-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the carrot batons, onion wedges and cumin seeds to a baking tray (or two!) w
 
 Give everything a good mix up and put the tray[s] in the oven for 15-18 min or until the carrot is fork-tender – this is your cumin roasted carrot & onion
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680105136259-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Bring to the boil over a high heat and cook for 8-10 min or until the giant cous
 
 Once cooked, drain the couscous, reserving the pot for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680105144219-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide them and shape into 5 meatballs per person – these are your lamb meatballs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680105154455-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the lamb meatballs and cook for 2 min on each side, then turn down the heat to medium-high and cook, covered, for a further 6 min until your lamb is cooked through and browned (no pink meat!)– these are your browned lamb meatballs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680105161036-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Tear the lettuce leaves into rough, bite-sized pieces
 
 Combine your natural yoghurt and remaining chopped garlic in a small bowl with a pinch of salt and pepper – this is your garlic yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680105167927-x200.jpg)
 
 ### Step 7
 

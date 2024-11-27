@@ -24,6 +24,7 @@ You’ll have this veg-packed soup on repeat. First, blitz leek, peas, garlic an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1711453848190-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel your potato[es] and chop them into small, bite-sized pieces
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1711453855790-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add half the sliced garlic (save the rest for later!) and cook for 1-2
 
 Once golden, add a little chilli relish (you'll use the rest later!), mix to combine then transfer to a bowl and set aside, reserve the pot – this is your garlic & chilli oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1711453862181-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the sliced leek with a pinch of salt and cook for 4-5 min or until
 
 Meanwhile, dissolve your vegetable stock mix in 600ml <span class="text-purple">[900ml]</span> <span class="text-danger">[1.2L] </span>boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1711453868720-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once fragrant, add the chopped potato with the vegetable stock and a pinch of sa
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-18 min or until the potato is fork-tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1711453874324-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Crumble your goats' cheese into rough bite-sized pieces
 
 Grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1711453881163-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once browned, remove the tray from the grill and top with the remaining chilli r
 
 Return the tray to the grill for a further 3-4 min or until the cheese has melted – these are your chilli jam & goats' cheese toasts
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1711453886898-x200.jpg)
 
 ### Step 7
 

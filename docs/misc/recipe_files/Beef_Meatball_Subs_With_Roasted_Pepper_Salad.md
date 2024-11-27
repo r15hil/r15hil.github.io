@@ -27,6 +27,7 @@ These air fried subs are jam-packed with succulent beef meatballs and a rich mar
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675253167840-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the pepper strips to the air fryer basket with a spray of olive oil and a pi
 
 Give everything a good mix up and cook for 5 min or until softened and beginning to colour, then set aside – this is your roasted pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675253171561-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide and shape them into 6 meatballs per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675253175209-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Boil half a kettle
 
 Tip: Air fryers work best when the food is spaced out in a single layer. You may need to do this in batches!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675253179561-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add your tomato paste to a large bowl with the chopped garlic, remaining dried o
 
 Add the remaining beef stock mix with 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp] </span>boiled water and give everything a good mix up – this is your marinara sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675253191273-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Cut a slit into each ciabatta half being careful not to cut all the way through 
 
 Grate your lighter cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675253187760-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Put the buns into the air fryer basket for a further 1-2 min or until the cheese
 
 Tip: Air fryers work best when the food is spaced out in a single layer. You may need to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675253196772-x200.jpg)
 
 ### Step 7
 

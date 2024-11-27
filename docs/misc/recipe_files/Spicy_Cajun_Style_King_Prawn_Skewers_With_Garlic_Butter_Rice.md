@@ -28,6 +28,7 @@ Fire up the oven and kick it Cajun-style. You’ll bake cayenne and paprika-coat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1678272325798-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Peel and finely grate your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1678272331515-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once done, transfer the basmati rice to a plate and spread it out flat to help it cool down (reserve the pot!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1678272338099-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Transfer half of the Cajun-style seasoning to a separate bowl and set aside (you
 
 Drain your king prawns
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1678272343350-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine the chopped pepper and king prawns in the large bowl of Cajun-style seas
 
 Add the Cajun-style king prawn skewers to a baking paper-lined baking tray and put the tray in the oven for 12-15 min or until the prawns are cooked through and the peppers are tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1678272347307-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Chop your coriander finely, including the stalks
 
 Add the chopped tomato and white wine vinegar to a small bowl with the chopped coriander and a pinch of salt and mix to combine – this is your tomato salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1678272356992-x200.jpg)
 
 ### Step 6
 
 Add your tomato paste, mayo and a pinch of salt to the bowl of reserved Cajun-style seasoning with a drizzle of olive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and mix to combine – this is your Cajun-style sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1678272361957-x200.jpg)
 
 ### Step 7
 

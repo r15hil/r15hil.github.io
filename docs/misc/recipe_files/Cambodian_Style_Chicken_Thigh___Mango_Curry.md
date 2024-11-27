@@ -26,6 +26,7 @@ For this sweet and fiery Cambodian-inspired curry, you'll simmer chicken in fres
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2450Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your green chilli[es]<span class="text-danger"> </span>in half lengthways an
 
 Peel your ginger (scrape the skin off with a teaspoon) and roughly chop, then peel and roughly chop your shallot[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2450Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove the pot from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2450Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add your diced chicken thigh with a pinch of salt and cook for 2-3 mi
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2450Step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add in the chopped creamed coconut, add a squeeze of lime juice and blitz unti
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2450Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Once the chicken is lightly browned, add your curry paste to the pan with your
 
 Meanwhile, dissolve your chicken stock mix in 150ml<span class="text-purple"> [225ml]</span> <span class="text-danger">[300ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2450Step-6-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add the chicken stock to the pan and cook, covered, for 6-8 min until the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2450Step-7-x200.jpg)
 
 ### Step 7
 

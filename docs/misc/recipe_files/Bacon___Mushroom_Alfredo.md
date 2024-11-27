@@ -24,6 +24,7 @@ This dish is super speedy, thanks to quick-cook pasta! The creamy sauce is packe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1695033209938-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1622.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1622.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1622.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the lardons are golden, reduce the heat to medium-high and crumble your ch
 
 Add your roasted garlic paste and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1622.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Once fragrant, add your Chinese rice wine, soft cheese and a generous pinch of
 
 Give everything a good mix up and cook for a further 2 min or until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1622.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop your parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1622.-step-7-x200.jpg)
 
 ### Step 7
 

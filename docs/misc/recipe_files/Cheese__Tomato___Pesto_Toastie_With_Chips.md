@@ -20,6 +20,7 @@ This tasty toastie is the perfect easy dinner. You’ll layer toasted ciabatta r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670928550395-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Add the chips to a baking tray (or two!) with a drizzle of olive oil and a pinch
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670928568872-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Add the ciabatta base[s], cut-side up, to a baking tray (or two!) (set aside the
 
 Put the tray[s] in the oven for 3-4 min or until lightly toasted, then remove from the oven and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670928579003-x200.jpg)
 
 ### Step 3
 
 While the ciabatta is toasting, slice your tomato[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670928587508-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces then pat dry again with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670928601021-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Top with the sliced tomato and torn mozzarella
 
 Season with a pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670928617025-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once the cheese is slightly melted, add the ciabatta lid[s], cut-side down, to t
 
 Return the tray[s] to the oven for a final 5-6 min or until the mozzarella is melted and lightly golden – this is your cheese, tomato & pesto base[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670928625461-x200.jpg)
 
 ### Step 7
 

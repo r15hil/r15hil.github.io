@@ -24,6 +24,7 @@ Is this one festive step too far? Never. Take Yorkshire puddings to Italy with a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635847380805-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add 70g <span class="text-danger">[140g]</span> flour, the dried sage and a pinc
 
 Put the batter in the fridge to rest
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635847404621-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add 2 tbsp vegetable oil to the tray<span class="text-danger">[s]</span> and put
 
 Once the oil is hot, carefully pour the batter onto the tray<span class="text-danger">[s]</span>, covering the whole base in a thin layer, then put the tray<span class="text-danger">[s]</span> in the oven for an initial 7-9 min until the batter is lightly golden and puffed up – this is your pizza base
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635847429707-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Meanwhile, add the tomato paste to a bowl with the onion marmalade and a gener
 
 Give everything a good mix up – this is your pizza sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635847466019-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Grate the cheddar cheese
 
 Add the grated cheese and grated parsnip to a bowl with the honey, a drizzle of vegetable oil and a pinch of salt and pepper – this is your cheesy parsnip
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635847481128-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once lightly golden and puffed up, remove the pizza base<span class="text-danger
 
 Spread the pizza sauce all over
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1635847496510-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Pick the basil leaves from their stems, discard the stems
 
 Scatter the basil leaves over the pizza sauce, then layer the cheesy parsnip over the top
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635847624657-x200.jpg)
 
 ### Step 7
 

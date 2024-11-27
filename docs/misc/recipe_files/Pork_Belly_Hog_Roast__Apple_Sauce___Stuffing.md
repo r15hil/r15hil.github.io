@@ -25,6 +25,7 @@ For a hearty hog roast, you'll fill crisp bread rolls to the brim with melt-in-y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2447Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a sha
 
 Season with a very generous pinch of salt and rub it deep into the criss-cross pattern
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2447Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Line a baking tray with tin foil
 
 Once the pork is done, transfer to the tray and put the tray in the oven for 40-45 min or until cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2447Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once the butter has melted, add the chopped shallot, panko breadcrumbs and d
 
 Season with a generous pinch of salt and pepper, give everything a good mix up and set aside to absorb – this is your stuffing mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2447Step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Put the tray in the oven for 20-25 min or until everything is golden and crisp
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2447Step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Cook, covered, over a medium heat for 10-12 min or until the apple has softened
 
 Once cooked, add a knob of butter and mash until smooth – this is your apple sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2447Step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Trim, then finely slice your spring onion[s]
 
 Add the grated carrot and sliced spring onion to a bowl along with your white wine vinegar and give it all a good mix up – this is your carrot slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2447Step-7-x200.jpg)
 
 ### Step 7
 

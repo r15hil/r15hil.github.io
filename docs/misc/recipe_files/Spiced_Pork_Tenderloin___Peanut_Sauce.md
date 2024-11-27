@@ -25,6 +25,7 @@ This coconut peanut sauce is sweet, salty and nutty. It goes beautifully with po
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/836.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Once cooked, drain the rice, return to the pot and cover until serving
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/836.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,6 +58,7 @@ Drizzle with vegetable oil and season with a generous pinch of salt and pepper
 
 Put the tray directly under the grill for 12-15 min or until softened and nicely charred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/836.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Remove the coconut cream from the sachet<span class="text-danger">[s]</span> and
 
 Cut the lime<span class="text-danger">[s]</span> in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/836.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -84,6 +88,7 @@ Add the pork tenderloins&nbsp;and coat them all over in the spice&nbsp;
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/836.-step-6-x200.jpg)
 
 ### Step 5
 
@@ -98,6 +103,7 @@ Cook, covered, for another 8-10 min, turning once half way, then transfer to a c
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/836.-step-7-x200.jpg)
 
 ### Step 6
 
@@ -109,6 +115,7 @@ Once hot, add the garlic,&nbsp;ginger&nbsp;&amp;&nbsp;chilli flakes&nbsp;(can't 
 
 Cook for 3-4 min until thickened, then remove from the heat &ndash; this is your peanut sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/836_step-7-x200.jpg)
 
 ### Step 7
 

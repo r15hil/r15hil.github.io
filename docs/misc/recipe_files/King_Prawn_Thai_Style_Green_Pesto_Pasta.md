@@ -26,11 +26,13 @@ Wait, is that pesto? Think again. Mind-bending, mouthwatering and inspired by Th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1660736571818-x200.jpg)
 
 ### Step 1
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1660736576098-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Peel your garlic
 
 Chop your green chilli[es] in half lengthways and deseed (scrape the seeds out with a teaspoon)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1660736580070-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Blitz until smooth – this is your Thai green curry pesto
 
 Tip: Don't have a food processor? Finely chop the ingredients and grind in a pestle & mortar instead!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1660736588147-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1660736594460-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Chop your cherry tomatoes in half
 
 Chop the remaining roasted peanuts roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1660736598742-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, drain then add your king prawns and cook for 4-5 min or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1660736604248-x200.jpg)
 
 ### Step 7
 

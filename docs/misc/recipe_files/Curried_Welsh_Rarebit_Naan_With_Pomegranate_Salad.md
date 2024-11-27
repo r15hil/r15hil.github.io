@@ -24,6 +24,7 @@ Cardiff meets Kolkata with this aromatic twist on the classic Welsh rarebit. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683041036023-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683041038562-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Tip: This helps prevent mess and makes separating the pith easier!
 
 Separate the pomegranate seeds from the white pith and discard the pith, then drain the pomegranate seeds in a fine sieve and return most of them to the large bowl (set some aside for a garnish!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683041042683-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chopped cucumber and tomato to the bowl with the pomegranate seeds and a
 
 Slice the green chilli<span class="text-danger">[es] </span>finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683041046717-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine the grated cheese with the cornflour and a generous pinch of salt in a p
 
 Add the curry powder and soft cheese to the pot with 100ml <span class="text-danger">[200ml]</span> milk – this is your rarebit base
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683041049899-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cook for 1-2 min, stirring frequently, or until the cheese has melted and thicke
 
 Set the curried rarebit sauce aside for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683041055483-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Preheat the grill to high
 
 Add the naans to a baking tray then put the tray under the grill and cook for an initial 1-2 min or until the naans are toasted on one side
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683041057197-x200.jpg)
 
 ### Step 7
 

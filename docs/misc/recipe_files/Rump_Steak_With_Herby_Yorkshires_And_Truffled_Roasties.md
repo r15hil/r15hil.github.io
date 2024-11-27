@@ -27,6 +27,7 @@ Recreate the ultimate roast at home. You'll serve perfectly seared rump steak, o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1611674811325-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel your potatoes and chop them into quarters, then add to a pot with plenty of
 
 Once boiling, reduce the heat to medium and cook for 10-12 min, then drain (save the pot!) and shake them around the colander to fluff up the edges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1611674847915-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Put the batter in the fridge to rest
 
 Strip your thyme leaves from their stalks (discard the stalks), then finely chop the thyme leaves and parsley
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1611674865608-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the drained potatoes to one side of a baking tray (or two!) with a generous 
 
 Put the tray[s] in the oven for an initial 15 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1611674876842-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once the potatoes have had 15 min, add the carrot batons and garlic to the other
 
 Return the tray[s] to the oven for 30 min further or until everything is golden and tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1611674890077-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ After 8 min, remove the muffin tray from the oven and carefully drizzle the rest
 
 Return the tray to the oven for 20 min until puffed up and golden – these are your herby Yorkshires
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1611674912461-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 While the steak is cooking, dissolve your beef stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611674921219-x200.jpg)
 
 ### Step 7
 

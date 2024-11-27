@@ -29,6 +29,7 @@ For this easy curry house classic, you'll flavour rich tomato sauce with free ra
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1694421959272-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add your basmati rice and 250ml <span class="text-purple">[320ml]</span> <span c
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694421962545-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cut your cherry tomatoes in half, then peel and finely chop (or grate) your garl
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694421965796-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the sliced onion with a generous pinch of salt and cook for 3-4 mi
 
 Once softened, add the halved cherry tomatoes to the pan and cook for 3-4 min further or until starting to break up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1694421970551-x200.jpg)
 
 ### Step 4
 
@@ -63,16 +67,19 @@ Meanwhile, chop your free range chicken breast portion[s] into large bite-sized
 
 Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694421981867-x200.jpg)
 
 ### Step 5
 
 Once the tomatoes have broken up, add the chopped garlic to the pan with your garam masala, ground fenugreek and ground paprika and cook for 1 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694421985708-x200.jpg)
 
 ### Step 6
 
 Once fragrant, increase the heat to medium-high, then add the chicken pieces to the pan with the tomato stock and cook for 12-15 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened – this is your warming free range chicken bhuna
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694421991421-x200.jpg)
 
 ### Step 7
 

@@ -32,6 +32,7 @@ Bite into a juicy caramelised lean pork burger this week, infused with fresh, zi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1677598234505-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1677598246554-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Strip your mint leaves from their stems, discard the stems
 
 Add the garlic, shallot halves, lemongrass, half the mint leaves and half your coriander (save the rest for later!) to a food processor and blitz until finely chopped – this is your lemongrass paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1677598255731-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once blitzed, combine the lemongrass paste, lean pork mince (remove the paper if
 
 Divide and shape the lemongrass lean pork mince into one burger patty per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1677598263505-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once hot, add the lemongrass patty[ies], press down firmly with a spatula and c
 
 Reduce the heat to medium-high, flip the patty[ies] and cook for a further 5 min or until charred and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1677598271428-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add the carrot ribbons to a bowl with your rice vinegar and give everything a go
 
 Trim, then chop your spring onion[s]<span class="text-danger"> </span>roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1677598275779-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Slice your ciabatta[s] in half
 
 Add the halved ciabatta[s] to a baking tray (cut side up) and put the tray in the oven for 5 min or until hot and crusty
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1677598280051-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ These Indian-style fritters are sure to spice up your brunch. Fold peas and swee
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1650533198297-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650533190115-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Drain your sweetcorn
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650533203840-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine your cornflour, ground coriander, ground cumin, ground turmeric and ging
 
 Add the drained sweetcorn and your blanched peas with a very generous pinch of salt and give everything a good mix up until fully combined – this is your fritter mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650533208459-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once the pan is hot, spoon the fritter mixture into the pan, roughly divided int
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650533212195-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once hot, add half your nigella seeds, then crack the reserved egg[s] into the p
 
 Cover with a lid and cook for 2-3 min or until done to your liking – this is your nigella egg[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650533216425-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Loosen your chilli relish with a squeeze of lemon juice
 
 Wash your salad, then pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650533223751-x200.jpg)
 
 ### Step 7
 

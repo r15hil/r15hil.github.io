@@ -27,6 +27,7 @@ If you like piña coladas, you're bound to enjoy this fiery twist on a Caribbean
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-3-1684248622744-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1684248626451-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick with a matching li
 
 Once hot, add your chicken breast portion[s] with a pinch of salt and cook for 3 min on each side or until golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-3-1684248629743-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!
 
 Add your soy sauce and a couple of splashes of water and cook, covered, for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1684248632766-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Season with a pinch of salt and pepper – this is your pineapple mayo
 
 Tip: Keep the remaining pineapple juice for your smoothies, cakes or marinades!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1684248637508-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Chop the inner core[s]<span class="text-danger"> </span>into quarters lengthways
 
 Grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1684248640630-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Top the pineapple slices with the grated cheddar cheese
 
 Add your ciabatta[s] to the tray[s] and put in the oven for 5 min or until they're hot and crusty and the cheese is melted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-3-1684248643549-x200.jpg)
 
 ### Step 7
 

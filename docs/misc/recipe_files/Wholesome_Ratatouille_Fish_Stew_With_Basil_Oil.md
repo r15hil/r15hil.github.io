@@ -25,6 +25,7 @@ Inspired by a classic ratatouille, this Boost & Balance recipe is wonderfully wh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1445.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely slice the red onion<span class="text-danger">[s] </span>
 
 Peel and finely slice (don't chop!) the&nbsp;garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1445.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Once hot, add the sliced red onion and yellow&nbsp;pepper with a pinch of salt&n
 
 Once softened, add the courgette chunks and garlic slices and cook for a further 5 min until beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1445.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Dissolve the vegetable stock cube<span class="text-danger">[s]</span><span class
 
 Once the vegetables&nbsp;have softened, add the dried&nbsp;oregano and tomato paste&nbsp;and cook for 1 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1445.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add the&nbsp;vegetable stock and&nbsp;balsamic vinegar&nbsp;to the pan and reduc
 
 Cook for 10-15 min or until the sauce has thickened slightly and the liquid has reduced by half&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1445.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Add the&nbsp;chopped&nbsp;basil to a&nbsp;pestle &amp; mortar with 2 tbsp<span c
 
 Grind to a paste, then add 1 tbsp&nbsp;<span class="text-danger">[2 tbsp]&nbsp;</span>olive oil&nbsp;and mix to combine &ndash; this is your&nbsp;basil oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1445.-step-6-x200.jpg)
 
 ### Step 6
 

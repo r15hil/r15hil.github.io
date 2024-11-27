@@ -29,6 +29,7 @@ Katsu, is that you? Your favourite Japanese dish is getting sarnie’d in this e
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661244126994-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661244131591-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ While the chips are cooking, heat a pot with a lid with a generous drizzle of ve
 
 Once hot, add half your curry powder (you'll use the rest later!) and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>flour and cook for 30 secs or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661244135998-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once fragrant, add your soy sauce, half your ginger paste (save the rest for lat
 
 Cook for 3-4 min or until the sauce has reduced to a thick curry-like consistency, then cover with a lid and set aside for later – this is your katsu sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661244139555-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Peel and finely dice your shallot[s]
 
 Combine the diced shallot with your mayo in a small bowl along with the lime zest (not sure about citrus? Try using less!) and a squeeze of lime juice and give everything a good mix up – this is your lime tartare sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661244143623-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the basa strips and the remaining ginger paste to a large bowl with 1 tbsp <
 
 Add your cornflour to a separate bowl with your panko breadcrumbs and the remaining curry powder – these are your curried breadcrumbs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661244147469-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Heat a large, wide-based pan (preferably non-stick) with 3 tbsp<span class="text
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661244151432-x200.jpg)
 
 ### Step 7
 

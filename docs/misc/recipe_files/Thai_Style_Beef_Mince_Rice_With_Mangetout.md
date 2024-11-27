@@ -26,6 +26,7 @@ This Thai-inspired stir-fry is ready in a flash. You'll sizzle quick-cook rice w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610620015249-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2345Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,21 +50,25 @@ Once hot, add your beef mince and sprinkle in your beef stock mix
 
 Cook for 3-4 min or until the beef has browned all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2345Step-3-x200.jpg)
 
 ### Step 3
 
 Add your mangetout to the pan and cook for 1 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2345Step-4-x200.jpg)
 
 ### Step 4
 
 Add your red Thai curry paste, ginger paste and half of your chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728487192580-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your basil finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2345Step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Squeeze the pouch[es] of cooked white long grain rice to separate the grains
 
 Add your cooked white long grain rice to the pan, breaking it up with a wooden spoon as you go and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2345Step-7-x200.jpg)
 
 ### Step 7
 

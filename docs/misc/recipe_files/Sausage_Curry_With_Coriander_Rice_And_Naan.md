@@ -32,6 +32,7 @@ This spicy curry is inspired by a specialty Goan dish. Ours uses Cumberland saus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1600693854524-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Boil half a kettle
 
 Squeeze your sausage meat out of their skins and discard the skins
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600693859951-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Cook for 5 min or until the sausage meat has browned, then transfer to a bowl an
 
 Tip: You'll finish cooking these in the sauce later!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1600693869805-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Chop your cherry tomatoes in half
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600693878972-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1600693884744-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once softened, add the chopped ginger and garlic with your ground cumin and chil
 
 Stir and cook for 20 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1600693913858-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Give everything a good mix up then cook, covered, for 5-6 min or until the sausa
 
 Once done, add your curry powder and cook for a further 1-2 min or until thickened – this is your sausage curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600693924580-x200.jpg)
 
 ### Step 7
 

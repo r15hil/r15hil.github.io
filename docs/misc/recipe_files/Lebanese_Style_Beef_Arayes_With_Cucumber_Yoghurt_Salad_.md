@@ -26,6 +26,7 @@ These Lebanese-style pitta pockets are a street food classic. You’ll spice bee
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681487547059-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the wedges to a baking paper-lined baking tray (or two!) with a very generou
 
 Put the tray[s] in the oven for an initial 15-16 min or until the wedges are slightly golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681487548916-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Slice the pitta halves open carefully with a knife, so you create a pocket – t
 
 Tip: Don't worry if you tear the bread a little!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681487568691-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Dice the remaining shallot finely
 
 Chop your parsley roughly, including the stems (save a few leaves for garnish)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681487560197-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Divide the arayes mixture equally between the pitta pockets
 
 Close the pitta pockets and press down firmly – these are your beef arayes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681487573795-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once hot, add the beef arayes, cut side down to the pan and cook for 2 min or un
 
 Once lightly browned, cook the arayes on each side for 1 min or until golden
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681487576906-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once lightly browned, remove the tray[s] from the oven and push the wedges to on
 
 Add the browned arayes to the other side and return the tray[s] to the oven for 12-14 min or until cooked through (no pink meat!) – these are your Lebanese-style beef arayes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681487648883-x200.jpg)
 
 ### Step 7
 

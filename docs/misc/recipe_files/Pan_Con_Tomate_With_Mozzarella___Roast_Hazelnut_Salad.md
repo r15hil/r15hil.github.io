@@ -26,6 +26,7 @@ Catalonia here you come with this summery riff on the classic pan con tomate. Ru
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684496337148-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and chop your garlic in half
 
 Chop your hazelnuts roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684496343070-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the ciabatta triangles to a baking tray (or two!) with a generous drizzle of
 
 Put the tray[s] in the oven for an initial 7-10 min or until the ciabatta is starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684496346220-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Discard the tomato skin
 
 Set a fine sieve over a large bowl and drain the tomato pulp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684496350024-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Set aside the bowl with the tomato juice for later
 
 Once the ciabatta is starting to brown, remove the tray[s] from the oven and add the chopped hazelnuts to the side, then return the tray[s] to the oven for 3-4 min or until toasted (watch them like a hawk to make sure they don’t burn!) – this is your toasted ciabatta and toasted hazelnuts
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684496354808-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Wash your lettuce, then pat it dry with kitchen paper and roughly shred and wash
 
 Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid out as you can!), then tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684496358659-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add your honey and Dijon mustard with a pinch of salt, then whisk together – t
 
 Add the courgette ribbons, shredded lettuce and salad to the vinaigrette and toss – this is your tomato vinaigrette salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684496362459-x200.jpg)
 
 ### Step 7
 

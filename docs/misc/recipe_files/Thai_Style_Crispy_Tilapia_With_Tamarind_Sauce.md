@@ -25,6 +25,7 @@ Thai chefs will deep fry a whole tilapia until golden and crisp to make 'Pla Rad
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649837158642-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Sprinkle the cornflour all over and rub it into both sides of the fish until ful
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649837162399-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Peel and finely chop (or grate) the garlic
 
 Chop 1/2 <span class="text-danger">[1]</span> red chilli into rounds, then chop the remaining chilli finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649837165815-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the white long grain rice and 400ml <span class="text-danger">[800ml] </span
 
 Once boiling, reduce the heat to very low and cook, covered, for an initial 12 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649837168893-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Once hot, add the coated tilapia and cook for 8-9 min, turning once halfway unti
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649837178021-x200.jpg)
 
 ### Step 5
 
 While the fish is cooking, combine the tamarind paste, fish sauce, 2 tsp <span class="text-danger">[4 tsp]</span> sugar and 150ml <span class="text-danger">[275ml]</span> boiled water – this is your tamarind stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649837182073-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once done, remove the pot from the heat and keep covered until serving
 
 Heat a separate pot with a drizzle of vegetable oil over a medium heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649837185641-x200.jpg)
 
 ### Step 7
 

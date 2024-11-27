@@ -28,6 +28,7 @@ This rich chilli is packed with lean beef mince, spices and black beans. To serv
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677606261072-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Transfer the softened sweet potato to a baking tray (or two!) with a drizzle of�
 
 Put the tray[s] in the oven and cook for 12-15 min or until the skin is crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677606264760-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Chop your coriander finely (including the stalks)
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677606268652-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the chopped onion and cook for 3-4 min or until starting to soften
 
 Once the onion is starting to soften, add your lean beef mince to the pan with the chopped garlic and cook for 4 min further, or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677606282390-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Meanwhile, drain and rinse your black beans
 
 Dissolve your beef stock mix in 200ml <span class="text-purple">[250ml] </span><span class="text-danger">[300ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677606307592-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Add the drained black beans, beef stock and chopped tomatoes and cook over a l
 
 Mix the juice of half your lime[s] with your smashed avocado
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677606323002-x200.jpg)
 
 ### Step 6
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677606326753-x200.jpg)
 
 ### Step 7
 

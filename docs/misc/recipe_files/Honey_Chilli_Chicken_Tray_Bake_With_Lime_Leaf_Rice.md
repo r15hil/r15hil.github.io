@@ -27,6 +27,7 @@ Try this Vietnamese take on tray bake with a sweet-spicy chilli and honey sauce.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688741675058-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Take your chicken out of the fridge, open the packet and let it air
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688741677399-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add your white long grain rice to an oven-proof dish with 300ml <span class="tex
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked lime leaf rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688741684034-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and chop your brown onion[s] into wedges
 
 Trim your green beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688741686491-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your pho broth paste to a bowl with your ginger & garlic paste, honey, soy s
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and give everything a good mix up – this is your honey chilli sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688741689481-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Pour the honey chilli sauce over the top
 
 Put the tray[s]<span class="text-danger"> </span>in the oven and cook for an initial 15-17 min or until the vegetables have softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688741692725-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688741695915-x200.jpg)
 
 ### Step 7
 

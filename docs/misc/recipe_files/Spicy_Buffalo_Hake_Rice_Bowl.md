@@ -29,6 +29,7 @@ You’ll be bowled over by this Western take on an Eastern favourite. Load your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1689677109107-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1689677113526-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Pat your hake fillet[s] dry with kitchen paper
 
 Press the hake fillet[s] firmly into the seasoned flour, coating evenly on both sides – this your coated hake
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1689677117856-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and grate your garlic
 
 Drain your sweetcorn
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1689677122813-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add the coated hake and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1689677126848-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Put the buffalo sauce mix in the microwave for 1 min or until the butter has mel
 
 Add 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> cold water and stir it all together – this is your buffalo sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1689677130716-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add your mayo to a small bowl with the grated garlic (not a big garlic fan? Try 
 
 Give everything a good mix up – this is your ranch-style mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1689677134724-x200.jpg)
 
 ### Step 7
 

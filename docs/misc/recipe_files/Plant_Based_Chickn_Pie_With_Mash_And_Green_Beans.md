@@ -23,6 +23,7 @@ Turn your classic pie into a meat-free masterpiece. You’ll whip up a creamy pi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1710239741957-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1710239746121-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1710239749302-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add the diced onion and diced carrot and cook for 3-4 min or until beg
 
 Combine 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> milk and 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water in a measuring jug with your Marmite and vegetable stock mix – this is your Marmite stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1710239752500-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once fragrant, add the Marmite stock with a generous grind of pepper and cook fo
 
 Meanwhile, dust your work surface with a generous sprinkling of flour, then unwrap your puff pastry and roll it out with a rolling pin until it is large enough to cover an oven-proof dish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1710239757291-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Top the pie mix with the rolled pastry and crimp round the edge with a fork
 
 Score a cross in the middle of the pastry and put it in the oven for 15-18 min or until puffed up, golden and cooked through – this is your plant-based chick’n pie
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1710239762522-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Return the potatoes to a low heat with a knob of butter and a splash of milk
 
 Season with a pinch of salt and mash until smooth – this is your mash
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710239766045-x200.jpg)
 
 ### Step 7
 

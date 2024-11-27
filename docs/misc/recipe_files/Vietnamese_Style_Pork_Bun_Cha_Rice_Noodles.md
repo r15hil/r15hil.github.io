@@ -25,6 +25,7 @@ Slurp down a soul-warming bowl of bun cha that’ll take you to the heart of Han
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723639191958-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and finely chop (or grate) your garlic
 
 Slice half your red chilli[es] into rounds and finely chop the remaining
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723639194880-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add your pork mince (remove the paper if required!) to a bowl with the chopped g
 
 Mix the pork mixture thoroughly until fully combined, then shape into 3 patties per person (they don’t have to look perfect)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723639198708-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the patties and cook for 4-5 min on each side or until browned on both sides and cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723639202023-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Add your fish sauce, the remaining chopped chilli (not a fan of spice? Just add 
 
 Stir it all together until the sugar has dissolved – this is your nuoc cham
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723639205174-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add your mooli slaw mix to a bowl with half the chopped coriander, half the nuoc
 
 Give everything a good mix up and set aside – this is your quick-pickled nuoc cham mooli slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723639208328-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Bring to the boil over a high heat and cook for 4-5 min or until cooked with a s
 
 Once cooked with a slight bite, drain the rice noodles and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723639211097-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Get ready try jokbal, thin slices of fiery pork and rice in lettuce cups from Ko
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1592845203652-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1592845210775-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Pat the pork belly dry with kitchen paper
 
 Chop the pork belly in half lengthways, then slice into 8 <span class="text-danger">[16]</span> slices and season generously with salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1592845221277-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Once hot, add the pork belly slices and cook for 15-18 min, turning every couple
 
 Tip: Reduce the heat to medium after approx. 5 min, once the pan gets very hot!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1592845236709-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1592845241344-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Add 2 tbsp<span class="text-danger"> [4 tbsp] </span>vegetable oil with the srir
 
 Stir it all together – this is your spicy sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1592845260794-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Slice the cucumber into thin batons
 
 Slice the green chilli<span class="text-danger">[es]</span> into rounds
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1592845269811-x200.jpg)
 
 ### Step 7
 

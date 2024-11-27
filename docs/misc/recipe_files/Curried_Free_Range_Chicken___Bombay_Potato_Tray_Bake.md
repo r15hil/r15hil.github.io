@@ -31,6 +31,7 @@ This traybake's inspired by India, and the perfect aromatic twist for roast dinn
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-8-1699437420058-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Peel and chop half your brown onion[s] into wedges, then finely slice the remaining brown onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-9-1699437425359-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Sprinkle over your ground turmeric, black mustard seeds and half of your curry p
 
 Put the tray[s] in the oven for an initial 10-12 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-8-1699437430150-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add half your garam masala (save the rest for later!) to a plate with a pinch of
 
 Add your free range chicken breast portion[s] to the plate and turn several times until fully coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-8-1699437435538-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ After the Bombay potatoes have had an initial 10-12 min, add the coated free ran
 
 Return the tray[s] to the oven for a further 18-20 min, or until the potatoes are crispy and the chicken is cooked through (no pink meat!) – this is your curried free range chicken & Bombay potato tray bake
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-8-1699437441574-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add the sliced spring greens to the middle of the foil with a pinch of salt, a k
 
 Scrunch the edges of the foil to form a sealed parcel and put the tray in the oven for 10-12 min or until the greens are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-8-1699437445922-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Once hot, add the sliced onion to the pan with a pinch of salt and cook for 2-3 
 
 Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your tomato stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-8-1699437451024-x200.jpg)
 
 ### Step 7
 

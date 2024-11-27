@@ -26,6 +26,7 @@ Golden brown chestnut mushrooms add immense flavour to this creamy mushroom sauc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696843725720-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Slice your chestnut mushrooms finely, then peel and finely chop your shallot[s]<
 
 Add your fennel seeds to a pestle & mortar and grind (or chop if you don't have a pestle and mortar) to a rough powder
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696843728954-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once the pork has started to brown, add the sliced chestnut mushrooms and cook 
 
 Tip: Try not to move the mushrooms too much as this will stop them from caramelising!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1696843733470-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain, reserving a cup of the starchy pasta water and return to the pot with a drizzle of olive oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696843737950-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the pork and mushrooms have browned, add the chopped shallot, garlic and 
 
 Dissolve your chicken stock mix in 50ml<span class="text-purple"> [75ml]</span> <span class="text-danger">[100ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696843742369-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Meanwhile, roughly strip your thyme leaves from their stems, discard the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696843746652-x200.jpg)
 
 ### Step 6
 
 Once the pork is cooked through, remove from the pan and slice into thin strips on a clean board
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696843750581-x200.jpg)
 
 ### Step 7
 

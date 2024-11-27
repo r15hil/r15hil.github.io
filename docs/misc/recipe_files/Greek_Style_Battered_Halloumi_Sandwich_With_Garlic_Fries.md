@@ -29,6 +29,7 @@ Halloumi gets a crispy makeover in this irresistible pitta. You’ll stuff it wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1653319921545-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut your potatoes (skins on) into fries
 
 Peel and grate your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1653319926747-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add a pinch of salt and pepper and give everything a good mix up until well coat
 
 Put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your garlic fries
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653319933969-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the sliced shallot to a large bowl with half your red wine vinegar (save the
 
 Give it a good mix up and set aside – this is your quick-pickled shallot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1653319942527-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Remove 1 outer leaf per person from your lettuce and set aside, shred the inner 
 
 Slice your tomato[es] into rounds
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1653319953656-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add 50ml<span class="text-purple"> [75ml] </span><span class="text-danger">[100m
 
 Slice your halloumi into 3 strips per person and sprinkle both sides with flour until fully coated, then tap off any excess
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1653319961278-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the pan is hot, dip the sliced halloumi into the batter and turn it several
 
 Cook for 4-5 min on each side or until golden and crispy – this is your battered halloumi
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653319978413-x200.jpg)
 
 ### Step 7
 

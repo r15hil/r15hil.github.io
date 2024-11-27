@@ -28,6 +28,7 @@ Time for a big night in with this spicy burrito bowl. You’ll load brown rice w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679397110441-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679397114433-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Chop the tomatoes finely
 
 Chop the coriander finely, including the stalks (reserve some leaves for a garnish!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679397118255-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Combine the diced shallot and chopped tomato in a small bowl with the chopped co
 
 Give everything a good mix up – this is your tomato salsa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679397122260-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the carrot & cabbage slaw and white wine vinegar to a large bowl with a pinc
 
 Combine the chipotle paste (can't handle the heat? Go easy!) and mayo in a separate bowl and mix it all together – this is your chipotle mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679397128116-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Combine the cornflour and ground smoked paprika on a plate with a generous pinch
 
 Firmly press the basa fillets into the cornflour mixture, making sure to evenly coat them on both sides – this is your coated basa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679397131247-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once hot, add the coated basa to the pan and cook for 3-4 min on each side or un
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679397134747-x200.jpg)
 
 ### Step 7
 

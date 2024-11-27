@@ -23,6 +23,7 @@ This creamy one pot's so tasty the whole table will worship you. You'll carameli
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1659369969895-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and cut your shallot[s] into wedges
 
 Once hot, add the shallot wedges to the pan and cook for 3-4 min or until slightly softened and beginning to caramelise
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1659369972357-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Whilst the shallots are cooking, cut your sausages into thirds
 
 Once slightly softened, add the sausages pieces to the pan and cook for 3-4 min or until beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1659369975103-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Chop your waxy potatoes into quarters
 
 Dissolve your chicken stock mix and Dijon mustard in 250ml<span class="text-danger"> <span class="text-purple">[325ml] </span>[425ml] </span>boiled water – this is your mustardy stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1659369978134-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Once fragrant, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span cl
 
 Reduce the heat to medium and add the chopped potatoes and mustardy stock with a generous grind of black pepper and cook, covered, for 20-22 min or until the potatoes are fork tender and sausages are cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1659369980547-x200.jpg)
 
 ### Step 5
 
 Whilst the potatoes are cooking, slice your courgette[s] lengthways, then slice on a diagonal into 1cm thick slices
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1659369984141-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once the potatoes are fork tender, add the sliced courgette to the pan
 
 Give everything a good mix up and cook, covered, for a further 4-5 min or until the courgette is tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1659369988040-x200.jpg)
 
 ### Step 7
 

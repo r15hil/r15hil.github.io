@@ -21,6 +21,7 @@ Reinvent your wraps with our baked Thai-style free range chicken tortillas. You'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661875073412-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your free range chicken thighs and cook for 3 min on each side or until browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661875078862-x200.jpg)
 
 ### Step 2
 
@@ -39,11 +41,13 @@ Meanwhile, top, tail, peel and grate your carrot[s]
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661875082281-x200.jpg)
 
 ### Step 3
 
 Add your chilli relish to a small bowl with half your soy sauce (save the rest for later!) and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> water – this is your chilli dipping sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661875086641-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Return the reserved pan to a medium heat and add your ginger & garlic paste, pea
 
 Give everything a good mix up and cook for 1-2 min or until the peanut butter has loosened – this is your peanut sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661875091502-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Season with a pinch of salt and cook, covered, for a further 2-3 min or until th
 
 Meanwhile, add your tortillas to a plate and pop them in the microwave for 20 secs on high or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661875096081-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Fold the sides of each tortilla in and wrap the bottom of the tortilla over the 
 
 Roll the tortilla until you’re left with a tight wrap (like a burrito!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661875100097-x200.jpg)
 
 ### Step 7
 

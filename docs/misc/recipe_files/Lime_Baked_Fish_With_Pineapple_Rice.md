@@ -20,6 +20,7 @@ You'll bake these basa fillets with a coriander-lime crust and serve it with spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/580.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Bring to the boil and cook for 25-30 min or until tender with a slight bite
 
 Drain and return to the pot, covered, until&nbsp;later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/580.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel the ginger (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Chop the bottom half of the coriander (mainly stalks)&nbsp;finely, saving the leaves for a later step
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/580.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Grind the lime zest, ginger, half the coriander,&nbsp;a pinch of salt and pepper
 
 Tip: If you don't have a pestle and mortar, chop everything&nbsp;very finely and mix with vegetable oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/580.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Top each fillet with 2&nbsp;lime slices
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/580.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Cook the fish on the top rack for 8-10 min or until the lime slices are beginnin
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/580.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Meanwhile, chop&nbsp;the pineapple finely
 
 Chop the remaining coriander (mainly leaves) roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/580.-step-7-x200.jpg)
 
 ### Step 7
 

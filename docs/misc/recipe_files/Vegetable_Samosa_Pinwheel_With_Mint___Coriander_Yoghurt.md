@@ -27,6 +27,7 @@ For this Catherine wheel-inspired samosa you'll stuff buttery pastry with a curr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690206398500-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add the chopped sweet potato to the pan with a pinch of salt and cook for 6-8 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690206401993-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once fragrant, add your vegetable stock mix and 100ml <span class="text-purple">
 
 Once tender, add your garden veg mix and give everything a good mix up – this is your samosa filling
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690206405196-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the wedges to a baking tray with your nigella seeds, a drizzle of vegetable 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your nigella wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690206408414-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Spoon the samosa filling down the middle of each pastry rectangle and brush a little cold water around the edges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690206412647-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Roll the sealed pastries, starting at one end, into a spiral
 
 Transfer the pastry spirals to the lined baking tray[s] and put the tray[s] in the oven for 22-25 min or until golden and crisp – these are your vegetable samosa pinwheels
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690206415492-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Grind your chopped herbs in a pestle & mortar with a pinch of salt until you're
 
 Add half the cider vinegar, a pinch of sugar and a drizzle of olive oil to the paste and mix to combine – this is your chutney
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690206419416-x200.jpg)
 
 ### Step 7
 

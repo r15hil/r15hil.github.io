@@ -33,6 +33,7 @@ Ready the table for an easy, coconutty Malabar-style curry. You'll spice up crea
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624270849609-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2--1624273725252-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Peel and finely slice your shallot[s]
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624270860962-x200.jpg)
 
 ### Step 3
 
@@ -62,11 +65,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your ground turmeric, ground coriander, ground paprika and ground fenugreek to the pan and cook for 30 secs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624270868202-x200.jpg)
 
 ### Step 4
 
 Add the sliced shallot, chopped garlic, chopped ginger and half the chopped green chilli (can't handle the heat? Go easy!) to the pan with a pinch of salt and cook for 2-3 min or until softened and fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624270876364-x200.jpg)
 
 ### Step 5
 
@@ -74,11 +79,13 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix, chopped creamed coconut and tomato paste in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[340ml]</span> boiled water – this is your creamy tomato stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624270882336-x200.jpg)
 
 ### Step 6
 
 Drain your king prawns, then add to the pan with the creamy tomato stock and cook for an initial 4 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624270907593-x200.jpg)
 
 ### Step 7
 

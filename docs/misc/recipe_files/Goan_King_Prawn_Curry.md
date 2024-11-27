@@ -23,6 +23,7 @@ This prawn curry is typical to Goa, south India. It has a caramelised red onion,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/510_step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a pot with a matching lid with a drizzle of vegetable oil and a large knob 
 
 Once hot, add the ground&nbsp;cinnamon and basmati rice with a pinch of salt and stir for 1 min or until the rice is coated in oil and spice&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/510_step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Meanwhile, place the coconut cream sachet<span class="text-danger">[s]</span>&nb
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/510_step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the onion with a big pinch of salt and sugar and cook for 3-5 min 
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/510_step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,11 +74,13 @@ Meanwhile, drain the king prawns and pat them dry with kitchen paper
 
 Combine&nbsp;the softened coconut cream and 150ml<span class="text-danger"> [250ml]</span>&nbsp;boiled water - this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/510_step-5-x200.jpg)
 
 ### Step 5
 
 Add the king prawns to the caramelised onions, increase the heat to medium and cook for 1 min or until the prawns are pink and opaque
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/510_step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the coconut stock and fish sauce and cook for 3-4 min or until reduced to a 
 
 Meanwhile, finely chop the coriander, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/510_step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Once your pan is hot, this easy stir-fry comes together in no time. You'll sear 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-4-1710853294776-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add your white long grain rice and 225ml<span class="text-danger"> <span class="
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-4-1710853298561-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Peel and finely slice (don't chop!) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into large bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-4-1710853301883-x200.jpg)
 
 ### Step 3
 
 Cut the free range chicken breast portion[s] into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-4-1710853308032-x200.jpg)
 
 ### Step 4
 
@@ -52,11 +56,13 @@ Heat a large, wide-based pan or wok (preferably non-stick) with a drizzle of veg
 
 Once hot, add the chicken strips with a pinch of salt and pepper and cook for 4-5 min or until browned all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-4-1710853312004-x200.jpg)
 
 ### Step 5
 
 Once browned, add the sliced garlic, chopped pepper and mangetout and cook for 2-3 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-4-1710853315799-x200.jpg)
 
 ### Step 6
 
@@ -64,6 +70,7 @@ Meanwhile, combine your cornflour with 150ml <span class="text-purple">[225ml]</
 
 Add your chilli relish, soy sauce and cornflour mix to the pan and cook for 4-5 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) – this is your sweet chilli free range chicken stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-4-1710853319115-x200.jpg)
 
 ### Step 7
 

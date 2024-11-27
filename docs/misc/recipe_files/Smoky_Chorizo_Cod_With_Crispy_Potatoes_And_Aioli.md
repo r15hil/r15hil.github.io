@@ -26,6 +26,7 @@ We give you smoky cod with chorizo, and raise you crispy patatas, creamy aioli a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1727949454921-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a baking tray (or two!) with half of your cayenne pe
 
 Drizzle everything with vegetable oil and put the tray[s] in the oven for an initial 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727949376228-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once the potatoes have been cooking for an initial 10 min, add the onion wedges 
 
 Give everything a good mix up and return the tray[s] to the oven for 15 min further or until everything has softened and the potatoes are crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1578932685439-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the cod to a bowl with the remaining cayenne pepper (not a fan of spice? Jus
 
 Give everything a good mix up and set aside to marinate – this is your smoky cod
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Garlic-1-1578934657393-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Peel and finely chop (or grate) your garlic
 
 Wash your shredded kale, then pat it dry with kitchen paper thoroughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1578932783561-x200.jpg)
 
 ### Step 5
 
 Add the chopped garlic (not a big garlic fan? Try using less!) to a bowl with your mayo and the juice of half your lemon[s] and give everything a good mix up – this is your aioli
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1578932907115-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Cook the fish for 4-5 min on each side until the fish is cooked through and the 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Kale-in-frying-pan-1608119834353-x200.jpg)
 
 ### Step 7
 

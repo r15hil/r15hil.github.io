@@ -25,6 +25,7 @@ For this hearty Moroccan-style dish, chickpeas are the star of the show paired w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1631545151745-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Peel and roughly chop your brown onion[s]
 
 Chop your sweet potato[es] (skin on) into small, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631545181219-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once hot, add the chopped onion and chopped sweet potato with a pinch of salt an
 
 Meanwhile, boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631545184583-x200.jpg)
 
 ### Step 3
 
@@ -48,11 +51,13 @@ Drain and rinse your chickpeas
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631545187687-x200.jpg)
 
 ### Step 4
 
 Once the veg is beginning to brown, add the drained chickpeas, chopped garlic, ras el hanout and a generous pinch of salt and pepper to the pan and cook for 2-3 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631545190727-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Meanwhile, add your couscous and a pinch of salt and pepper to a heatproof bowl 
 
 Cover with a tea towel and set aside until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631545194013-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Add the vegetable stock to the pan and stir to combine everything
 
 Reduce the heat to medium and cook, covered, for a further 5 min or until the sweet potato is cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631545198174-x200.jpg)
 
 ### Step 7
 

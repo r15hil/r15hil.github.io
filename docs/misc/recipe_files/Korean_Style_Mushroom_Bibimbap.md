@@ -30,6 +30,7 @@ Bibimbap (literally "mixed rice"), is a Korean classic. You'll top this irresist
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679399303344-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Top, tail, peel and grate your carrot[s]
 
 Combine the smashed cucumber and grated carrot in a bowl with a pinch of salt and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679399306015-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679399308695-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Grate your chestnut mushrooms
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679399311314-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the grated mushrooms, chopped garlic and ginger and cook for 7-8 min or unti
 
 Add your soy sauce and honey and cook for 1 min further – these are your sweet & salty mushrooms
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679399313804-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Return the drained veg to the bowl and add your rice vinegar
 
 Give everything a good mix up and set aside – this is your quick-pickled veg
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679399316174-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Boil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679399319018-x200.jpg)
 
 ### Step 7
 

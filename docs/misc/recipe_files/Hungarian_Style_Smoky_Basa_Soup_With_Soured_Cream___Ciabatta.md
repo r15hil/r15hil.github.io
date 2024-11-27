@@ -28,6 +28,7 @@ This Hungarian-style ‘fisherman’s soup’ is a real smokeshow. First, blitz 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1704802926700-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel your potato[es], then chop into small bite-sized cubes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1704802930171-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add the sliced onion and pepper strips with a pinch of salt and cook f
 
 Once softened, transfer the softened pepper to a bowl with half the softened onion and set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1704802934270-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Return the pot with the remaining softened onion to a medium heat and add the ch
 
 Once fragrant, add your vegetable stock mix and 700ml<span class="text-purple"> [910ml] </span><span class="text-danger">[1.2L]</span> boiled water and cook, covered, for 18-20 min or until the potato is fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1704802937677-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Meanwhile, chop your parsley finely, including the stalks
 
 Pat your basa fillet[s] dry with kitchen paper, then chop into large, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1704802940996-x200.jpg)
 
 ### Step 5
 
 Once the potato is tender, remove the pot from the heat and blitz until smooth with a (stick) blender – this is your Hungarian-style smoky soup base
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1704802944186-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the chopped basa, the reserved onion & pepper to the pot with a pinch of sal
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1704802948026-x200.jpg)
 
 ### Step 7
 

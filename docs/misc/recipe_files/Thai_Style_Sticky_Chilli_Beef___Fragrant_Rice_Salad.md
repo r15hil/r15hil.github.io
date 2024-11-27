@@ -28,6 +28,7 @@ Add a kick to dinner with this sticky stir-fry. You’ll cook beef with ginger a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1673867319168-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1673867323172-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1673867326964-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Slice half your red chilli[es] into rounds and finely chop the rest
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1673867331103-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cook for a further 2 min or until fragrant, then add 1 tbsp <span class="text-pu
 
 Cook for 2 min or until the beef is sticky and cooked through (no pink meat!) – this is your Thai-style sticky chilli beef
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1673867335927-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ While the beef is cooking, combine the remaining soy sauce in a bowl with the ju
 
 Add your mooli slaw mix to your Thai-style dressing and give everything a good mix up – this is your Thai-style slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1673867340118-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Meanwhile, strip your mint leaves from their stems, discard the stems
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1673867344477-x200.jpg)
 
 ### Step 7
 

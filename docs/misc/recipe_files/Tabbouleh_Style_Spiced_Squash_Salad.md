@@ -26,6 +26,7 @@ Tabbouleh, pronounced 'tab-boo-lay', is a bulgur wheat salad, traditionally serv
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1633444257846-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Add your bulgur wheat and the vegetable stock mix to a pot with plenty of boiled
 
 Once tender, drain and set aside in a sieve to cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1633444276443-x200.jpg)
 
 ### Step 2
 
 Add your butternut squash cubes to a baking tray with a generous drizzle of vegetable oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1633444283136-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add your ras el hanout and a pinch of salt to the butternut squash
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1633444291168-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Cut your cherry tomatoes in half
 
 Chop your parsley finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1633444305415-x200.jpg)
 
 ### Step 5
 
@@ -65,11 +70,13 @@ Add the cooled bulgur to a mixing bowl with the diced cucumber and halved cherry
 
 Add a drizzle of olive oil and add in the juice of half your lemon[s] (save some for garnish!) then gently mix it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1633444338682-x200.jpg)
 
 ### Step 6
 
 Once the butternut squash is tender, add your honey and cook for 2-3 min further or until caramelised – this is your spiced butternut squash
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1633444358506-x200.jpg)
 
 ### Step 7
 

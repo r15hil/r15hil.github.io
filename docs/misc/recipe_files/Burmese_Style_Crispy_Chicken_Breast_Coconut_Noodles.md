@@ -29,6 +29,7 @@ Let the heat of these fragrant coconut noodles transport you to the streets of Y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701775894632-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Combine your diced chicken breast with 1/3 of your soy sauce (save the rest for later!) in a large bowl and mix it all together – this is your marinated chicken breast
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701775898230-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Combine your gram flour and ground smoked paprika in a separate bowl with your g
 
 Add most of the gram flour mix (you'll use the rest later!) with the marinated chicken breast and give everything a good mix up – this is your coated chicken breast
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701775902923-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated chicken breast to the pan and cook for 5-6 min on each side or until the chicken is crispy and cooked through (no pink meat!) – this is your crispy chicken breast
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701775907931-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ While the chicken is cooking, chop your creamed coconut roughly (if required!)
 
 Roughly chop your coriander, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701775912539-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once hot, add your ginger & garlic paste and the reserved gram flour mix and coo
 
 Meanwhile, dissolve your chicken stock mix and the chopped creamed coconut in 600ml <span class="text-purple">[900ml]</span> <span class="text-danger">[1.2L]</span> boiled water – this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701775917224-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once fragrant, add the coconut stock and the remaining soy sauce to the pot with
 
 Whisk everything together until there are no lumps – this is your coconut broth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701775924090-x200.jpg)
 
 ### Step 7
 

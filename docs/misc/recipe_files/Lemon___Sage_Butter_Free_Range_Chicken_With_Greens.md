@@ -23,6 +23,7 @@ Make it a satisfying mouthful with our zingy free range lemon chicken, infused w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632227346034-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632227354732-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Whilst the rice is cooking, add your free range chicken breast portion[s] to a c
 
 Bash the chicken with a rolling pin until evenly flattened – this is your chicken escalope
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632227359320-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Season the chicken escalope[s] with pepper
 
 Once hot, add the seasoned chicken escalope[s] and cook for 5 min on each side or until golden and cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632227370661-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ While the chicken is cooking, dissolve your chicken stock mix in 150ml <span cla
 
 Cut your lemon[s] in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632227378457-x200.jpg)
 
 ### Step 5
 
@@ -68,11 +73,13 @@ Trim, then add your green beans to a pot, cover them with boiled water (just eno
 
 Bring to the boil over a high heat and cook for an initial 2-3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632227384804-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked through, add 30g <span class="text-purple">[45g] </span><span class="text-danger">[60g]</span> butter to the pan along with your sage leaves and sliced garlic and cook for 2 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632227397964-x200.jpg)
 
 ### Step 7
 

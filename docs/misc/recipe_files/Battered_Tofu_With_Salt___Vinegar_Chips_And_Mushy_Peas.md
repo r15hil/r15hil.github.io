@@ -24,6 +24,7 @@ Our secret to a crisp, flavourful "beer" battered tofu isn't beer at all... it's
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629284755307-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel your potatoes and chop them into chunky chips, then add them to a pot with 
 
 Once boiling, reduce the heat to medium and cook for 10-12 min or until slightly softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629284758658-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Peel and finely chop your shallot[s]
 
 Combine the chopped shallot with your mayo, the juice of half your lemon[s] and a pinch of salt in a  bowl, then give everything a good stir – this is your lemon mayo
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629284762413-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Season them with salt and turn them a few times until they're fully coated in th
 
 Put the tray[s] in the oven for 30 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629284765858-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add 60g <span class="text-purple">[90g]</span> <span class="text-danger">[120g]<
 
 Stir everything together thoroughly until there are no lumps, then set aside for later – this is your batter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629284768779-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Pat the tofu pieces dry with kitchen paper
 
 Season the tofu pieces with a pinch of salt and sprinkle both sides with flour until fully coated, then tap off any excess
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629284772818-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the coated tofu to the pan and cook for 3-4 min on each side until golden an
 
 Reboil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629284776364-x200.jpg)
 
 ### Step 7
 

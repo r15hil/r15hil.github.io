@@ -26,6 +26,7 @@ For a bright and flavourful dinner, go for gold with our crispy butterflied chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681900671389-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely slice your shallot[s]
 
 Chop your basil finely, including the stalks (reserve a few leaves for garnish)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681900677116-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681900681097-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Reboil half a kettle and add a drizzle of vegetable oil to a pot over a medium-h
 
 Once hot, add the sliced shallot, chopped garlic and cherry tomatoes with a pinch of salt and pepper and cook for 2-3 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681900688146-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add your balsamic vinegar and dried oregano and cook for 2-3 min or until the sa
 
 Once the sauce has thickened, press down on your cherry tomatoes to release the juice (this can be quickly reheated before serving) – this is your balsamic tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681900692613-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Cover with cling film and bash with a rolling pin until you have an even thickne
 
 Add 3 tbsp<span class="text-purple"> [4 1/2 tbsp]</span><span class="text-danger"> [6 tbsp]</span> flour to a plate and season with a generous pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681900696546-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once very hot, add the coated chicken and cook for 4 min on each side or until golden, then turn the heat down to medium and add a knob of butter and cook for a further 3-4 min or until cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681900701034-x200.jpg)
 
 ### Step 7
 

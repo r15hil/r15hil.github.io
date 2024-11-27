@@ -24,6 +24,7 @@ This homage to Turkish lamb flatbread (pronounced Lah-ma-joon) has rich, fragran
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2408Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Dice 1 <span class="text-danger">[2]</span> tomato<span class="text-danger">[
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2408Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large wide-based pan (preferably non-stick with a matching <span class="t
 
 Once hot, add the chopped red onion, tomato and garlic to the pan and cook for 5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2408Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once softened, add the lamb mince, chilli flakes (can't handle the heat? Go 
 
 Cook for 10-12 min, breaking it up with a wooden spoon as you go, until the lamb is cooked through and is starting to crisp – this is your spiced lamb
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2408Step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Whilst everything is cooking, add the plain naans to a baking tray
 
 Put the tray in the oven for 8-10 min or until the naans are crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2408Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Meanwhile, peel and slice the <span class="text-highlight">remaining</span> red
 
 Chop the remaining tomato roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2408Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the sliced red onion and chopped tomato to a bowl with the baby leaf sp
 
 Add the balsamic vinegar to the bowl and give everything a good mix up – this is your spinach salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2408Step-7-x200.jpg)
 
 ### Step 7
 

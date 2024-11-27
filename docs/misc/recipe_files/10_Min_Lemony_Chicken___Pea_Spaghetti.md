@@ -22,6 +22,7 @@ Loaded with chicken breast, peas and bold citrus flavour, this creamy spaghetti 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580805800196-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580805803906-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced chicken with a pinch of salt and the juice of 1/2 <span class="text-danger">[1]</span> lemon and cook for 2-3 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580805808428-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cook the spaghetti for 3-4 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water and return to the pot with a drizzle of olive oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580805812713-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel and finely slice (don't chop!) the garlic
 
 Once the chicken has browned, add the sliced garlic to the pan and cook for 1-2 min until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580805817439-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Meanwhile, dissolve 1/2 <span class="text-danger">[1]</span> Knorr chicken stock
 
 Add the chicken stock to the pan and cook for 2-3 min further until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580805822883-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Slice the remaining 1/2 <span class="text-danger">[1]</span> lemon into 2 <spa
 
 Finely chop the parsley (including the stalks)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580805827314-x200.jpg)
 
 ### Step 7
 

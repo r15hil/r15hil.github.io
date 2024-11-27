@@ -24,6 +24,7 @@ This meat-free twist on the Lancashire classic won't need hours in the oven than
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1630422171366-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and carrot and cook for 4-5 min or until softened and starting to caramelise
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630422174670-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the sliced potatoes to a pot of boiled water with a pinch of salt, bring to 
 
 Once done, drain the sliced potatoes and leave them to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1630422179887-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Reboil half a kettle
 
 Strip your thyme leaves from their stalks and chop them finely, discard the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630422183057-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Cook for 1 min and stir it all together to combine
 
 Meanwhile, dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1630422185960-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Season with a pinch of salt and pepper – this is your lentil mixture
 
 Add the lentil mixture to an oven-proof dish (save the pan for later!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1630422189522-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Put the dish on a baking tray in the oven and cook for 25-30 min or until the po
 
 Once the Lancashire-style lentil hotpot is done, remove it from the oven and set aside to cool a little (this helps the flavours to develop and makes it easier to serve!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1630422192586-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Transform your kitchen into a Brazilian street food party with this spicy dish. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629105797716-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the halved potatoes to a tin foil-lined baking tray (or two!) with a drizzle
 
 Put the tray[s] in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629105802145-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Crush your garlic open by squashing with the side of a knife and remove the skin
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629105807026-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the chopped chilli, crushed garlic, your dried oregano, chilli flakes (can't
 
 Add a squeeze of lemon juice with a pinch of salt and blitz until you have a coarse paste – this is your malagueta-style marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629105811916-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine your king prawns with the malagueta-style marinade in a bowl, give every
 
 Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629105817188-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once the potatoes have had an initial 15 min, remove them from the oven and add 
 
 Mix everything together and return the tray to the oven for a final 12-15 min or until the sweetcorn has lightly charred and the potatoes are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629105821340-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the prawn skewers to the pan with any remaining malagueta-style ma
 
 Cook for 2-3 min on each side or until cooked through – these are your spicy malagueta-style king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629105826347-x200.jpg)
 
 ### Step 7
 

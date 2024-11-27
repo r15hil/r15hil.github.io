@@ -27,6 +27,7 @@ This dish is a twist on the culinary traditions of the USA and Germany. You'll s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629303266397-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into thin chips, then add them to a baking tray (or
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629303269753-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ While the chips are in the oven, peel and finely dice your shallot[s]
 
 Add the diced shallot to a large bowl with a pinch of salt and your white wine vinegar and set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629303274379-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Chop your dill finely
 
 Add the grated carrot, apple matchsticks and chopped dill to the bowl of diced shallot along with your mayo, a pinch of salt and a generous grind of pepper – this is your apple & dill slaw
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629303279408-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add your chicken breast portion[s] to a chopping board and cover with a sheet of
 
 Bash the chicken with a rolling pin until evenly flattened – this is your chicken escalope[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629303283907-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Spread your Dijon mustard over both sides of the chicken escalopes using the bac
 
 Press the chicken escalope[s] into the breadcrumbs firmly to evenly coat all over – this is your breaded chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629303290468-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, add the breaded chicken and cook for 5-6 min on each side or until gol
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629303294947-x200.jpg)
 
 ### Step 7
 

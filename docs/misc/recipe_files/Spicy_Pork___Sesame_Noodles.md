@@ -27,6 +27,7 @@ Inspired by 'Dan Dan Noodles', these moreish pork noodles are coated in a delici
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1860.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,11 +42,13 @@ Slice the green chilli<span class="text-danger">[es]</span> finely
 
 Peel and finely chop<span class="text-highlight"> (or grate) t</span>he garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1860.-step-2-x200.jpg)
 
 ### Step 2
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up <span class="text-highlight">and</span> slice into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1860.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once crispy, transfer the crispy pork to a plate and set aside
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1860.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Once tender, drain the noodles, reserving a cup of the starchy noodle water
 
 Tip: drizzle over a little vegetable oil to stop the noodles from sticking <span class="text-highlight">together</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1860.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the sliced spring greens with a <span class="text-highlight">pinch of</span> salt and cook for 3-4 min or until wilted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1860.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Give everything a good mix up – this is your spicy sesame sauce
 
 Bash the peanuts with a <span class="text-highlight">rolling pin</span> until roughly crushed (keep them in the bag so you don't lose any!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1860.-step-7-x200.jpg)
 
 ### Step 7
 

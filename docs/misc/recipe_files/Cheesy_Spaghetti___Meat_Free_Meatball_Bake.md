@@ -25,6 +25,7 @@ We've taken a firm family favourite and given it an easy, cheesy twist. You'll a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633956295676-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Combine the meat-free mince with half of the grated garlic (you'll use the rest 
 
 Give everything a good mix up until fully combined
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633956299163-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the meat-free meatballs to the pan and cook for<span class="text-danger"> 
 
 Once browned, transfer to a plate and reserve the pan for later (these will finish cooking in the oven later)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1633956302966-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Return the reserved pan to a medium-high heat with a drizzle of olive oil and a 
 
 Once hot, add the diced red onion and remaining grated garlic and cook for 6-7 min or until softened and slightly caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1633956307420-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the onion has softened, add the dried oregano and tomato paste and cook for
 
 Add the chopped tomato, vegetable stock and half of the balsamic vinegar (you'll use the rest later!) and cook for 2-3 min or until the sauce has slightly thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633956311656-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once the sauce has slightly thickened, add half of the chopped basil (save the r
 
 Roughly break the spaghetti up into thirds, add it to the pan and mix everything together – this is your tomato & basil sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633956315753-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Place the meat-free meatballs on top and put the dish in the oven for an initial
 
 While the meatballs are cooking, grate the cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633956320398-x200.jpg)
 
 ### Step 7
 

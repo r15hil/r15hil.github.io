@@ -27,6 +27,7 @@ Celebrate the humble parsnip with a trio of tantalising twists. You’ll whip up
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666965729599-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel 1 <span class="text-danger">[2] </span>parsnip<span class="text-danger">[s]
 
 Slice the red chilli<span class="text-danger">[es]</span> finely then add to a small bowl (can't handle the heat? Go easy!) with the parsnip ribbons, cider vinegar, 2 tsp <span class="text-danger">[4 tsp]</span> sugar and 2 tbsp <span class="text-danger">[4 tbsp] </span>boiled water and set aside – this is your chilli parsnip quick-pickle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666965737146-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Massage the mixture for 20 secs, squeezing the parsnip together gently to keep s
 
 Tip: Squeezing the mix will release the natural moisture in the parsnip!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666965745612-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Drizzle the parsnip pakoras with a little vegetable oil
 
 Put the tray in the oven for 22-25 min or until the pakoras are golden, charred and crispy on the outside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666965751531-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Chop the creamed coconut roughly (if required!) and dissolve the vegetable stock
 
 Rinse the red lentils in a sieve under cold water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666965757943-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Heat a pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the chopped garlic, chopped ginger, curry powder and the remaining ground turmeric and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666965763455-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once fragrant, add the rinsed lentils and all the chopped parsnip to the pot and
 
 Once coated, add the coconut stock, bring to the boil over a high heat, and cook for 15-16 min or until the lentils are tender and starting to break down – this is your spiced parsnip dal
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666965772016-x200.jpg)
 
 ### Step 7
 

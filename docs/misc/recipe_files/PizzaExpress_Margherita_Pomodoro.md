@@ -20,6 +20,7 @@ Master the art of PizzaExpress at home with a classic Margherita. You’ll hand 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666190878518-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Cut the PizzaExpress pizza dough in half
 
 Shape the dough into 2 <span class="text-danger">[4]</span> balls and set aside for 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1666190886298-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Dice the mozzarella into small bite-sized pieces and add to some kitchen paper
 
 Press down on the diced mozzarella with another piece of kitchen paper to squeeze out as much liquid as you can
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666190888158-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Combine the chopped garlic with 2 tbsp <span class="text-danger">[4 tbsp]</span>
 
 Slice the baby plum tomatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666190900599-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Repeat with the other dough ball<span class="text-danger">[s] </span>– these a
 
 Transfer the pizza bases to a baking paper-lined baking tray
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666190907036-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Top with the halved tomatoes, diced mozzarella and dried oregano
 
 Drizzle over the garlic oil and season with a double pinch of black pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666190912918-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Put the tray in the oven and cook for 9-19 min or until the pizza bases are gold
 
 Tip: Cooking for 4? You may have to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666190918964-x200.jpg)
 
 ### Step 7
 

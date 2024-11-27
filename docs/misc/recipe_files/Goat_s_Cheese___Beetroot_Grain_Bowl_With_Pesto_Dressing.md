@@ -25,6 +25,7 @@ Get your protein in with this meat-free grain bowl. You'll toss quinoa, broccoli
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1724920850974-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your quinoa to a large pot with plenty of boiled water and bring to the boil
 
 Once boiling, reduce the heat to medium and cook for an initial 6-7 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1724920855211-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, chop your Tenderstem broccoli into thirds
 
 Drain and rinse your green lentils
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1724920858742-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Chop the drained beetroot into rough, bite-sized pieces
 
 Wash your salad and pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1724920862276-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ After the initial 6-7 min, add the chopped Tenderstem to the quinoa pot
 
 Cook for a final 3-4 min or until the broccoli is tender with a slight bite, and all the quinoa is tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1724920867485-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Combine your traditional Italian pesto with your white wine vinegar and 2 tbsp <
 
 Add a pinch of salt, pepper and sugar and give everything a good mix up – this is your pesto dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1724920871539-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Drain the cooked quinoa & broccoli and rinse under cold running water
 
 Drain and return to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1724920874843-x200.jpg)
 
 ### Step 7
 

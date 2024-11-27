@@ -21,6 +21,7 @@ Sit back in your gondola and venture through Venice with this rustic spinach and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1663091244366-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663091571273-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Peel and slice (don't chop!) your garlic
 
 Peel and finely slice your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663091574311-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Heat a large, wide-based pan (preferably non-stick) with 3 tbsp <span class="tex
 
 Once hot, add the sliced garlic and sliced shallot to the pan and cook for 2-3 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663091578785-x200.jpg)
 
 ### Step 4
 
 Meanwhile, zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663091582498-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Cook the ravioli for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked spinach & ricotta ravioli, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663091587105-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Give everything a good mix up and cook for 1-2 min or until the crab is warmed t
 
 Cut the remaining lemon into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663091598781-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ For this Thai flavoured butternut squash soup you'll cook butternut squash in a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666708508570-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666708513180-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large pot, with a lid, with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the sliced onion, chopped butternut squash and chopped pepper with a generous pinch of salt and pepper and cook for 6-8 min or until the vegetables are beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666708516844-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Bash the lemongrass with a rolling pin, then chop in half
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666708520139-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the halved lemongrass and half the sliced chilli (can't handle the heat? Go 
 
 Combine the creamed coconut and vegetable stock mix with 500ml <span class="text-danger">[950ml]</span> boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666708524050-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once boiling, reduce the heat to medium and cook, covered, for 10-12 min or unti
 
 Cut the remaining lime into wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666708527230-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once hot, add the rotis to the pan and cook for 1-2 min on each side or until wa
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666708530309-x200.jpg)
 
 ### Step 7
 

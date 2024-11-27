@@ -19,6 +19,7 @@ This foolproof breakfast mug-lette is the perfect speedy pick-me-up. Whisk your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073316401-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1728298750537-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can and roughly chop
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1730985835742-x200.jpg)
 
 ### Step 3
 
@@ -48,11 +51,13 @@ Chop your tomato[es] roughly
 
 Grate your cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1728298788826-x200.jpg)
 
 ### Step 4
 
 Add a little butter to each mug and pop in the microwave for 1 min or until melted
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1728298799926-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Add your chopped tomatoes, wilted spinach and half your grated cheese (save the 
 
 Divide your omelette mix evenly between the mugs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1728298809707-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Top with the remaining grated cheese and microwave for 1-2 min or until the egg 
 
 Allow to stand for 1 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1728298831437-x200.jpg)
 
 ### Step 7
 

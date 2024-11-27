@@ -23,6 +23,7 @@ The essential Japanese ingredient, miso paste, forms a savoury, umami-rich glaze
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/322.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the grill to a medium-high heat
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/322.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Spread the paste evenly over each fish fillet and set them aside
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/322.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Bash the lemongrass&nbsp;with a rolling pin, cut&nbsp;down the middle lengthways
 
 Slice the mangetout diagonally
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/322.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Heat a large pot with a drizzle of vegetable oil over a medium-high heat
 
 Once&nbsp;hot, add the ginger, chopped lemongrass, chilli flakes (can't handle the heat? Go easy!) and cook for 30 seconds, stirring constantly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/322.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Season with&nbsp;1/2 tsp <span class="text-danger">[1 tsp]</span>&nbsp;pepper an
 
 Once boiling, reduce the heat to medium-low and cook for 5-7 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/322.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Tip: your fish is cooked when it turns opaque and flakes easily
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/322.-step--7-x200.jpg)
 
 ### Step 7
 

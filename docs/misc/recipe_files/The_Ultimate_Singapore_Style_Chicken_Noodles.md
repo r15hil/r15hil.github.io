@@ -28,6 +28,7 @@ This golden Singapore noodle dish is a colourful crowdpleaser. You’ll stir-fry
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714659039757-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Top, tail, peel and chop your carrot[s] into matchsticks
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723732032308-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Trim, then slice your spring onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723732056349-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles, reserving a cup of starchy noodle water and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723732068574-x200.jpg)
 
 ### Step 4
 
@@ -64,16 +68,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast with a pinch of salt and cook for an initial 4 min or until lightly browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723732080964-x200.jpg)
 
 ### Step 5
 
 Once the chicken has started to brown, add your sliced onion, carrot matchsticks and pepper strips to the pan and cook for a further 5-6 min or until the vegetables are beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723732090188-x200.jpg)
 
 ### Step 6
 
 Once softened, add your curry powder, ginger paste and chopped garlic and cook for 1-2 min or until fragrant and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723732098176-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ In this delicious recipe, you'll be making your own kofte with succulent lean be
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-27-1712749498878-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Top, tail, peel and grate your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-27-1712749503474-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add your cider vinegar, 2 tsp <span class="text-purple">[3 tsp]</span> <span cla
 
 Add the grated carrot to the bowl and set aside to pickle – this is your quick-pickled carrot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-32-1712749516629-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add your lean beef mince, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><s
 
 Give everything a good mix up until thoroughly combined (clean hands is the best way!) – this is your kofte mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-27-1712749519842-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add the lean beef kofte and cook for 2 min on each side or until lightly browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-28-1712749523519-x200.jpg)
 
 ### Step 5
 
 Once browned, turn down to medium-high heat, then add the sliced onion with a splash of boiled water to the pan and cook, covered, for an initial 6 min or until the kofte are golden brown and cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-28-1712749527617-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Wash your lettuce, then pat dry with kitchen paper and shred finely
 
 Slice your tomato[es]<span class="text-danger"> </span>finely into rounds, then cut in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-27-1712749531224-x200.jpg)
 
 ### Step 7
 

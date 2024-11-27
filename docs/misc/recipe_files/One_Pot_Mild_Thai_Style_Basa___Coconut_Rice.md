@@ -24,6 +24,7 @@ This comforting Thai-infused rice and fish one-pot is a breeze to make. You'll f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1502_step_1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Trim, then slice your spring onion[s] finely
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into large bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1502_step_2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) and a dr
 
 Once hot, add the chopped pepper and most of the sliced spring onions (save the rest for garnish!) to the pan with your Thai green curry paste and cook for 2-3 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1502_step_3-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and fish sauce in 300ml <span class="text-purple">[390ml]</span><span class="text-danger"> [600ml]</span> boiled water – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1502_step_4-x200.jpg)
 
 ### Step 4
 
@@ -56,11 +60,13 @@ Reduce the heat to low then cook, covered, for 10 min or until most of the stock
 
 Tip: Add a little water if the rice is not cooked or the mixture is too dry!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1502_step_5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your basil finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1502_step_6-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Cook, covered, for 5 min or until the fish is cooked through and tender
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1502_step_7-x200.jpg)
 
 ### Step 7
 

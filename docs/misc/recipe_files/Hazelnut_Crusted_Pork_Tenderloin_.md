@@ -25,6 +25,7 @@ This is a classic roast, elevated into something special. You'll crumb your pork
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/768.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the potatoes to a baking tray, drizzle them with olive oil and season genero
 
 Place the tray in the oven until step 4 (approx. 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/768.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,6 +58,7 @@ Add the garlic, rosemary, ground hazelnuts and breadcrumbs to a mixing bowl with
 
 Melt 40g <span class="text-danger">[80g]</span>&nbsp;butter in a pan and once melted, add it to the nut mixture&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/768.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -73,6 +76,7 @@ Use your hands to firmly press the nut mixture onto the tenderloins so they're&n
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/768.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,6 +85,7 @@ Place the hazelnut crusted&nbsp;pork&nbsp;and any spare nut&nbsp;mixture&nbsp;ov
 
 Put the tray in the oven for 20 min or until the pork&nbsp;is cooked and the potatoes are crispy&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/768.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,6 +103,7 @@ Heat a large, wide-based pan (preferably non-stick) with a large knob of butter 
 
 Boil a&nbsp;kettle&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/768.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -109,6 +115,7 @@ Bring a large pot of salted boiled water to the boil over a high heat, and once 
 
 Transfer the cooked pork to a chopping board, cover with a tea towel &amp; leave to rest for 5 min, returning the potatoes to the oven until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/768.-step-7-x200.jpg)
 
 ### Step 7
 

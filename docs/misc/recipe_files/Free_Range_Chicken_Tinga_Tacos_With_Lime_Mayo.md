@@ -25,6 +25,7 @@ Chicken tinga is a spicy shredded chicken dish from Mexico. You'll serve our ver
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695029405099-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your free range chicken thighs to a bowl and sprinkle over your ground cumin
 
 Give everything a good mix up – this is your spiced chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695029408198-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the spiced chicken and cook for 3 min on each side, or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695029411445-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine your chipotle paste (can't handle the heat? Go easy!) and tomato paste in a bowl – this is your tinga paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695029414591-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
 Grate your cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695029418931-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add 150ml<span class="text-purple"> [225ml]</span> <span class="text-danger">[30
 
 Cover with a lid and cook for 12-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695029421810-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ While the chicken is cooking, combine your mayo with the juice of half your lim
 
 Tip: Roll the lime with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695029425867-x200.jpg)
 
 ### Step 7
 

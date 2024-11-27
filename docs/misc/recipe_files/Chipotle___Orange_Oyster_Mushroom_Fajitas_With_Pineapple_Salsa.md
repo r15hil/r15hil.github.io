@@ -25,6 +25,7 @@ Spice up your veg with these far-out fajitas. You’ll load warm tortillas with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684498099795-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the diced red onion to a medium bowl with the white wine vinegar, 1 tsp <spa
 
 Cut the remaining onion into quarters, then separate the wedges so you end up with a pile of onion petals
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684498103064-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Dice the pineapple finely
 
 Add the diced pineapple and a drizzle of olive oil to the bowl with the quick-pickled onion and give everything a good mix up – this is your quick-pickled pineapple salsa
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684498106797-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Tear the oyster mushrooms lengthways into strips
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684498125346-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cook for 6-7 min or until slightly charred
 
 Tip: Cooking for 4? You may need 2 pans!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684498125669-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once the veg is slightly charred, add the ground smoked paprika and cook for 1 m
 
 Chop the orange<span class="text-danger">[s]</span> in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684498126027-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once fragrant, add the juice of the orange<span class="text-danger">[s] </span>t
 
 Add a pinch of salt and cook for 1-2 min or until everything is well coated – this is your chipotle & orange oyster mushroom fajita mix
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684498127120-x200.jpg)
 
 ### Step 7
 

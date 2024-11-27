@@ -22,6 +22,7 @@ This is one banging sarnie! You'll layer Cumberland sausages, melty mozzarella-t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1603210564102-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add them to a baking tray with the dried oregano, a generous drizzle of vegetab
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until crisp – these are your herby wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603210567959-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Cut the pepper<span class="text-danger">[s]</span> in half lengthways (scrape t
 
 Cut in half again through the middle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603210572300-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Add the pepper pieces and Cumberland sausages to a baking tray
 
 Put the tray in the oven for an initial 20 min or until the sausages are starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603211164589-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Wash the baby leaf salad, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1603211176942-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Once the sausages have about 5 mins left, pile the torn mozzarella onto the pepp
 
 Place the ciabatta in the oven for 5 min or until they're hot and crusty
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603211180903-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once done, remove everything from the oven and leave to cool slightly
 
 Once cool enough to handle, slice the sausages down the middle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603211221801-x200.jpg)
 
 ### Step 7
 

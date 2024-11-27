@@ -26,6 +26,7 @@ If you haven't tried chutney chicken, you're in for a treat. You’ll marinate y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699372613361-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Boil a kettle
 
 Peel and chop your brown onion[s] into thin wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699372618318-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the onion wedges with a small pinch of salt and cook for 3-4 min o
 
 Once softened, remove the pan from the heat and set aside for later – this is your charred onion
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699372622969-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Meanwhile, add your free range chicken thighs and mango chutney to a bowl with m
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your marinated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699372627482-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Tip: Make sure all the rice is completely covered by liquid
 
 Top with the marinated chicken, then cover tightly with tin foil and put the dish in the oven for an initial 20 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699372632278-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ While the rice is cooking, peel your carrot[s], then continue to peel lengths un
 
 Wash your lettuce, pat it dry with kitchen paper and shred it finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699372637397-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ After the initial 20 min, remove the dish with the rice from the oven and discar
 
 Drizzle a little olive oil over the chicken and return the dish to the oven for a further 7-10 min or until the chicken is golden and cooked through (no pink meat!), all the water is absorbed and the rice is cooked – this is your smoky chutney free range chicken thigh & rice traybake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699372642484-x200.jpg)
 
 ### Step 7
 

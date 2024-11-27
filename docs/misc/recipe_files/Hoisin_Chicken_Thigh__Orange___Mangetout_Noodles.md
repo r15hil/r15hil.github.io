@@ -25,6 +25,7 @@ Sweet orange and umami-packed hoisin are the perfect match. You’ll simmer juic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-8-1726232967136-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your diced chicken thigh to a bowl with your cornflour and a pinch of salt a
 
 Mix it all together until fully coated – this is your coated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-8-1726232972284-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the coated chicken to the pan and cook for 5-6 min on each side until golden and crispy and the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-8-1726232977512-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside, reserving a cup of starchy noodle water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-8-1726232982304-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Cut your orange[s] in half
 
 Peel half the orange (you'll use the rest later!) removing all the white pith, then slice into segments
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-8-1726232988839-x200.jpg)
 
 ### Step 5
 
@@ -66,11 +71,13 @@ Combine your ginger & garlic paste and hoisin sauce in a bowl with your rice vin
 
 Give everything a good mix up – this is your hoisin & orange sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-8-1726232993843-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked through, add your mangetout to the pan and cook for 3 min or until slightly softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-8-1726232998670-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ This cashew curry is cracking. You’ll fry paneer and cashew nuts till golden b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623406373945-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1713540939029-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the chopped sweet potato to a heatproof bowl, cover the bowl with cling film
 
 Put the bowl in the microwave and cook for 4-5 min or until the potato is fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713540944286-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated paneer to the pan with your cashews and cook for 2-3 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1713540951857-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Peel and slice your shallot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713540960872-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add your curry powder and ground turmeric and stir it all together
 
 Cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713540972556-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Add a generous pinch of sugar and 150ml <span class="text-purple">[200ml]</span>
 
 Add the cooked sweet potato to the pan and cook for 2-3 min further or until the sauce has thickened slightly – this is your paneer, sweet potato & cashew curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713540978393-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ For this satisfying salad, you'll toss crunchy pittas with baby leaves, cucumber
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1630493308609-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1/2
 
 Once hot, add your chicken breast portion[s] with a pinch of salt and cook for 3 min on each side or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630493317436-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once the chicken has browned, add the harissa stock to the pan
 
 Cook, covered, for a further 12-15 min, turning the chicken halfway, until the chicken is cooked through (no pink meat!) and the stock has reduced
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1630493328564-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the pitta triangles to a baking tray with 1/2 tbsp <span class="text-purple"
 
 Give it a mix up and put the tray in the oven for 8-10 min or until golden and crispy – this is your crunchy pitta
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630493337368-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Chop your dill finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1630493351696-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Combine your mayo with the juice of half your<span class="text-danger"> </span>l
 
 Give it a good mix up until it's smooth – this is your lemony dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1630493367893-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once the chicken is cooked, transfer it to a clean board and shred it apart, usi
 
 Return the pulled chicken to the pan with a pinch of pepper and give everything a good mix up until fully coated in the sauce – this is your shredded harissa chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1630493368122-x200.jpg)
 
 ### Step 7
 

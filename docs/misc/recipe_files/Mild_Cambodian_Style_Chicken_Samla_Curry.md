@@ -28,6 +28,7 @@ This Cambodian-style curry may be mild, but it's packed with mouthwatering aroma
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602611414160-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1602611418223-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once cooked, remove from the heat and keep covered until serving – this is you
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Coconut-stock-1640000570939-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[500ml]</span> boiled water and add your lime leaves, fish sauce and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640099522354-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and ground turmeric and cook for 2-3 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1602611434214-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Once fragrant, add the sliced pepper, chopped garlic, chopped ginger and chopped lemongrass inner stem and cook for 4-5 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602611438263-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Trim, then chop your green beans in half
 
 Add the coconut stock, halved green beans and a pinch of salt and cook for 7-9 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened to a curry-like consistency – this is your mild Cambodian-style chicken samla curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602611447071-x200.jpg)
 
 ### Step 7
 

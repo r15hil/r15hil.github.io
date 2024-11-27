@@ -24,6 +24,7 @@ For the perfect bowl of rich, fragrant soup, you'll serve pan-fried beef strips,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602248243802-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once very hot, add the beef strips with a generous pinch of salt and cook for 1-
 
 Transfer the cooked beef strips to a plate and reserve the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602248261554-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Return the reserved pan to a medium heat and once hot, add the sliced onion with
 
 Cook for 6-7 min or until softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602248269826-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel and finely chop (or grate) the garlic
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602248278029-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the fine egg noodles to a large bowl, cover them with boiled water and stir 
 
 Set aside to soak for 4 min, then drain and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602248288308-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Once the onion has softened, add the chopped tomato and garlic to the pan and co
 
 Add half<span class="text-danger"> [all]</span> of the five-spice with the cracked black pepper and star anise and cook for 1 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602248301254-x200.jpg)
 
 ### Step 6
 
 Dissolve the Knorr beef stock cube<span class="text-danger">[s] </span>in 500ml <span class="text-danger">[1L]</span> boiled water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602248305945-x200.jpg)
 
 ### Step 7
 

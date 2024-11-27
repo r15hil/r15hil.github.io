@@ -31,6 +31,7 @@ This comforting lamb curry combines tangy tamarind, fragrant cardamom and creamy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1266.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1266.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the sliced onion and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1266.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Peel and finely chop (or grate) your garlic
 
 Crush your cardamom pods open by squashing them with the side of a knife, discarding the outer green pods
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1266.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the onion has started to soften, add your lamb mince to the pan and cook for 4 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1266.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Dissolve the chopped creamed coconut, vegetable stock mix, tamarind paste and 
 
 Trim, then chop your green beans in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1266.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once the lamb mince has browned, add the chopped garlic, chopped ginger and car
 
 Add your ground turmeric, ground coriander and ground cumin with a very generous grind of black pepper and cook for 1 min further
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1266.-step-7-x200.jpg)
 
 ### Step 7
 

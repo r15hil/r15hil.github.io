@@ -23,6 +23,7 @@ This lighter riff on a Swedish classic is pure comfort food. You'll serve juicy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1660037942661-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potato and sliced carrot to a pot of boiled water, bring to the 
 
 Once cooked, drain and return to the pot to steam-dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1660037946433-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Reboil half a kettle
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1660038004774-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the dried cranberries to a bowl and cover them with boiled water
 
 Transfer the browned meatballs to a plate
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1660038012232-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Whisk the stock into the flour
 
 Cook for 2-3 min until the stock has thickened slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1660038017455-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add most of the chopped dill (save the rest for garnish!) to the thickened sau
 
 Cook, covered, for 6 min further or until the meatballs are cooked through (no pink meat!) and the sauce has thickened to a gravy-like consistency – these are your Swedish-style turkey meatballs & gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1660038033959-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Return the pot of drained potatoes and carrots to a low heat and add a knob of b
 
 Mash until smooth, then season with a pinch of salt and pepper – this is your carrot mash
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1660038038161-x200.jpg)
 
 ### Step 7
 

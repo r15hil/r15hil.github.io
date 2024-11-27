@@ -30,6 +30,7 @@ Impress the table with a crowd-pleasing meal, filled with juicy spiced meatballs
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728370375996-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Combine your lean pork mince with your panko breadcrumbs, diced red onion, groun
 
 Divide the mix into 3 per person and shape into meatballs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1728370384048-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Top, tail, peel and chop your parsnip[s] into quarters lengthways, then into batons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728370393314-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add a generous drizzle of olive oil and a very generous pinch of salt and pepper
 
 Give everything a good mix up and boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1728370403483-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Put the tray[s] in the oven for an initial 10 min or until starting to soften
 
 After 10 min, add the lean pork meatballs to the baking tray[s], then return the tray[s] to the oven for 20-25 min further or until the meatballs are browned and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1728370411558-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 150ml<span class="text-danger"> <span class="text-purple">[200ml] </span>[250ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1728370422650-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced mushrooms and chopped garlic with a pinch of salt and pepper and cook for 3–4 min or until the mushrooms have slightly softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1728370429987-x200.jpg)
 
 ### Step 7
 

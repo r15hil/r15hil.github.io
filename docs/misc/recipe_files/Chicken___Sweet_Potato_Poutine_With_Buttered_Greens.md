@@ -23,6 +23,7 @@ Poutine, pronounced 'poot-een', is the ultimate Canadian comfort food. For our t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650366987150-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken breast portion[s] with a pinch of salt and cook for 3 min on each side or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650367085139-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once cooked through, transfer the chicken to a plate and reserve the pan
 
 Dissolve your chicken stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml] </span>boiled water – this is your chicken stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650367102738-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Give everything a good mix up
 
 Put the tray[s] in the oven for 20-25 min or until the fries are golden and crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650367118416-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Gradually whisk the chicken stock in a little at a time, and cook for 5 min or u
 
 Stir your Henderson's Relish through the sauce — this is your gravy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650367146388-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once hot, add the sliced spring greens and cook for 3-4 min or until tender with
 
 Season with a pinch of salt – these are your buttered greens
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650367167364-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once the sweet potato fries are cooked, push them apart to form into 1 pile per 
 
 Add the chopped mozzarella to each pile and return to the oven for 4-5 min or until the cheese has melted – these are your cheesy sweet potato fries
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650367222049-x200.jpg)
 
 ### Step 7
 

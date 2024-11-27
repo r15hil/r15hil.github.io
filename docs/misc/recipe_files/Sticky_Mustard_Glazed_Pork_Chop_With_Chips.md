@@ -23,6 +23,7 @@ Bring out the succulent flavour of these British pork loin steaks by browning th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1612879156960-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Cut your potatoes (skins on) into chips
 
 Top, tail, peel and chop your carrot[s] into quarters lengthways, then into batons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1612879161768-x200.jpg)
 
 ### Step 2
 
@@ -39,16 +41,19 @@ Add the chips and carrot batons to a baking tray (or two!) with a drizzle of veg
 
 Put the tray[s] in the oven for 25-30 min or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1799.-step-3-x200.jpg)
 
 ### Step 3
 
 While the chips are in the oven, combine your mustard ketchup and maple syrup in a small bowl – this is your maple mustard glaze
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1799.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine your cider vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and sugar in a large bowl and stir it all together – this is your dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1799.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -60,11 +65,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the seasoned steak[s] and cook for 5-6 min on each side or until they're browned and cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1799.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the steaks are cooked, add half the maple mustard glaze (save the rest for garnish!) and cook for 2-3 min further or until thick and sticky – these are your sticky mustard glazed pork chops
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1799.-step-7-x200.jpg)
 
 ### Step 7
 

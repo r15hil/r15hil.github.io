@@ -23,6 +23,7 @@ For this pasta dish you'll whip up a sauce full of smoky bacon lardons, cherry t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623406487611-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693393959045-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693393966657-x200.jpg)
 
 ### Step 3
 
@@ -52,11 +55,13 @@ Meanwhile, chop your cherry tomatoes in half
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693393970454-x200.jpg)
 
 ### Step 4
 
 Once the lardons are golden, add the halved cherry tomatoes and cook for 2 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693393976361-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693393980204-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the tomatoes have softened, reduce the heat to medium-high and add your sun
 
 Season with a generous grind of black pepper – this is your bacon & sun-dried tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693393984921-x200.jpg)
 
 ### Step 7
 

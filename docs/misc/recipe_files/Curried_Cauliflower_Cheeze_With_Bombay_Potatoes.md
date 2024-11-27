@@ -29,6 +29,7 @@ This plant-based dinner is the big cheese. You’ll smother cauliflower in a cre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674813120481-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Chop your waxy potatoes (skins on) in half
 
 Grate your cheddar flavour block[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674813125547-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the halved potatoes to a baking tray with your ground turmeric, half the gar
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your Bombay potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674813129376-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the diced onion and chopped garlic and cook for 4-5 min or until b
 
 Once softened, add your vegetable stock mix, remaining garam masala, 3/4 of your curry powder (save the rest for later!), creamy single soy and grated cheeze to the pot and cook for a further 4-5 min or until the sauce has thickened – this is your curried cheeze sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674813133629-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once boiling, cook for 4-5 min or until tender
 
 Once done, drain, return to the pot and keep covered
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674813138129-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, chop your coriander, including the stalks
 
 Combine the chopped coriander, panko breadcrumbs and remaining curry powder in a small bowl with a drizzle of olive oil and a pinch of salt – these are your coriander breadcrumbs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674813146707-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the cooked cauliflower to an oven-proof dish, pour over the curried cheeze s
 
 Put the dish in the oven for 15-18 min or until golden, bubbling and thickened – this is your plant-based curried cauliflower cheeze
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674813154314-x200.jpg)
 
 ### Step 7
 

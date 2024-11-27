@@ -28,6 +28,7 @@ Fuel up with this protein-packed veggie delight. You’ll simmer smoky cannellin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720094044564-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720094050814-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the onion petals and pepper strips with a pinch of black pepper and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720094054722-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Drain and rinse your cannellini beans
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720094058398-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once fragrant, add your chopped tomatoes and vegetable stock with 1 tsp <span cl
 
 Once boiling, reduce the heat to medium and cook for 5-6 min or until the vegetables are tender and the stock has thickened to a stew-like consistency
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720094062475-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Meanwhile, crumble your feta into small bite-sized pieces
 
 Add the crumbled feta to a bowl with your natural yoghurt and a grind of black pepper and stir it all together – this is your feta yoghurt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720094067760-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once thickened, make 1 well per person in the pan, then crack your egg[s] into t
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720094072031-x200.jpg)
 
 ### Step 7
 

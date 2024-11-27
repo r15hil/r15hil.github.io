@@ -26,6 +26,7 @@ Cacciatore, which directly translates as 'hunter's stew', is popular throughout 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2078.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chicken thighs, skin-side down, and cook for 10 min or until the skin is golden and crispy (you'll finish cooking them later!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2078.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Chop the chestnut mushrooms roughly
 
 Peel and finely chop the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2078.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,11 +65,13 @@ Add the chopped onion, carrot, garlic, mushrooms, rosemary &amp; thyme sprigs�
 
 Tip: Add a drizzle of olive oil if it's looking a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2078.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve the Knorr chicken stock cube<span class="text-danger">[s]</span> in 250ml <span class="text-danger">[450ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2078.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once the vegetables have softened, add the balsamic vinegar, tomato paste and 1/
 
 Tip: Keep the chicken skin above the sauce to keep them crispy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2078.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Cook the orzo for 6-8 min or until cooked with a slight bite
 
 Once done, drain the orzo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2078.-step-7-x200.jpg)
 
 ### Step 7
 

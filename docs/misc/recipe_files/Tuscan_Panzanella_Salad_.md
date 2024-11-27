@@ -22,6 +22,7 @@ This speedy traditional Tuscan salad is made using charred bread which may sound
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/267.-step1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a kettle
 
 Preheat the grill to high
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/267.-step2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Place them&nbsp;in a bowl and add the vinegar with 1 tsp <span class="text-dange
 
 Leave to soak- this mellows the flavour
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/267.-step3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Season generously with salt and pepper
 
 Place under the grill for 10 min or until crispy and browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/267.-step4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Chop the black olives coarsely
 
 Place the tomatoes, olives, capers and oregano in a salad bowl
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/267.-step5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Drain the mozzarella and tear it into bite-size pieces
 
 Add to the salad bowl
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/267.-step6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Drain the onion and discard the excess liquid
 
 Add&nbsp;the onion to the salad bowl
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/267.-step7-x200.jpg)
 
 ### Step 7
 

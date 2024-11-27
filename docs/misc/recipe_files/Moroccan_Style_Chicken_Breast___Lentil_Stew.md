@@ -30,6 +30,7 @@ For rich, Moroccan-inspired flavour, you'll infuse this stew with rich, warming 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678967450696-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely slice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678967455653-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678967462811-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Dissolve the chopped creamed coconut and chicken stock mix in 750ml <span class
 
 Add your sultanas to a small bowl, cover them with boiled water and set them aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678967467454-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Rinse your red lentils in a sieve under the cold tap and add them to the pan wit
 
 Reduce the heat to medium-low and cook for 25-30 min or until the lentils are cooked and the sauce has thickened – this is your Moroccan-style lentil stew
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695899701907-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Meanwhile, chop the chicken breast strips into smaller strips, then heat a separ
 
 Once hot, add the chicken breast strips to the pan with your ground sumac and a pinch of salt and cook for 8-10 min or until golden and cooked through (no pink meat!) – these are your sumac chicken breast strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678967476093-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Drain the soaked sultanas and chop them roughly
 
 Combine the halved tomatoes, chopped mint and chopped sultanas with the juice of half your lemon[s], a drizzle of olive oil and a pinch of salt – this is your tomato & sultana salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678967480717-x200.jpg)
 
 ### Step 7
 

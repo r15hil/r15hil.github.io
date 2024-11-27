@@ -20,6 +20,7 @@ This speedy pasta dish comprises of grated beetroot which turns it a pretty pink
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/518.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once toasted, transfer to a plate and reserve the pan
 
 Meanwhile, boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/518.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Tip: If the stalks are soft, don't bother stripping the leaves - just roughly ch
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/518.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Cook for 8-10 min or until cooked but with a slight bite
 
 Once cooked, drain and reserve a little of the starchy cooking water for later&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/518.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Cook for 5 min or until the leek has softened and started to brown, stirring occ
 
 Meanwhile, chop the walnuts finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/518.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Roll the goats' cheese in the toasted walnuts and divide it in half, making 2 <s
 
 Reserve the walnuts that didn't make it onto the cheese for garnish!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/518.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Season generously with salt and pepper
 
 Return the pan to a medium heat and cook for 3 min or until warmed through, then reduce the heat to low
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/518.-step-7-x200.jpg)
 
 ### Step 7
 

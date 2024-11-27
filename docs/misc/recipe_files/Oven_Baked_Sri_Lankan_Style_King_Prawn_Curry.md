@@ -30,6 +30,7 @@ Savour the flavours of Sri Lanka with this curry in a hurry. You’ll stir spina
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1663756826176-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663756830576-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Boil a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a generous drizzle of vegetable oil over a medium heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663756834879-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Chop your creamed coconut roughly (if required!)
 
 Slice your green chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663756839466-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add your curry powder, tamarind paste, ground turmeric, vegetable stock mix, cho
 
 Put the dish in the oven and cook, uncovered, for an initial 25 min or until thickened – this is your curry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663756843273-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add your white long grain rice to an oven-proof dish with a pinch of salt and 30
 
 Cover very tightly with tin foil and put the dish in the oven for 25-30 min or until all the water is absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663756847134-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663756851204-x200.jpg)
 
 ### Step 7
 

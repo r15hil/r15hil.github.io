@@ -21,6 +21,7 @@ This simple French flouring technique for cooking fish is somewhat brilliant, gi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/460__step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Cut the potatoes (skin on) into large bite-sized pieces
 
 Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 15-20 min or until fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/460__step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Tear the chestnut mushrooms into bite-sized pieces (this saves time and creates 
 
 Chop the dill
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/460__step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Pat the basa fillets dry with kitchen paper
 
 Transfer the basa fillets to the seasoned flour and pat until evenly coated, shaking off any excess
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/460__step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once cooked, remove the pan from the heat and set aside until serving
 
 Tip: your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/460__step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the potatoes are tender, add the sliced spring greens and cook for 2-3 min 
 
 Drain the potatoes & spring greens, drizzle with olive oil and season with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/460__step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a large knob
 
 Once hot, add the mushrooms and cook for 2-3 min or until starting to crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/460__step-7-x200.jpg)
 
 ### Step 7
 

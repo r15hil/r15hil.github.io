@@ -29,6 +29,7 @@ Creamy, one pot and effortlessly delicious – what more could you want? You'll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730994303838-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish, all your 
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1730994308861-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Crush your garlic open by squashing with the side of a knife and discard the skin
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1730994312591-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Once hot, add your cherry tomatoes to the dish with your sun-dried tomatoes, tom
 
 Stir it all together and cook for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1730994317468-x200.jpg)
 
 ### Step 4
 
 Chop your Tenderstem broccoli into thirds
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1730994321205-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Tip: Nestle the farfalle into the stock as much as you can for even cooking!
 
 Top the farfalle with your Greek cheese, bring to the boil over a high heat then cover with the lid and put the dish in the oven for an initial 15 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1730994324445-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1730994327987-x200.jpg)
 
 ### Step 7
 

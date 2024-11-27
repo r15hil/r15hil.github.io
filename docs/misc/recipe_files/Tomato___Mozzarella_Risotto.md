@@ -24,6 +24,7 @@ Tuck into a classic risotto, family style. You’ll simmer tomato, onion, garlic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680278264719-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680278268530-x200.jpg)
 
 ### Step 2
 
@@ -42,16 +44,19 @@ Once hot, add the chopped onion with a generous pinch of salt and cook for 2 min
 
 Chop your cherry tomatoes roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680278271834-x200.jpg)
 
 ### Step 3
 
 Once the onion is beginning to soften, add the chopped cherry tomatoes and cook for 2-3 min or until the tomatoes start to blister
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680278276357-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span><span class="text-danger"> [1.4L]</span> boiled water – this is your vegetable stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680278280663-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Once the tomato is starting to blister, add your tomato paste and chopped garlic
 
 Give everything a good mix up and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680278290700-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Once fragrant, add your arborio rice and cook for 1 min, stirring to coat the gr
 
 Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680278296562-x200.jpg)
 
 ### Step 7
 

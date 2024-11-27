@@ -24,6 +24,7 @@ This light, refreshing dish is inspired by delicate Japanese flavours. You'll gr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1635260357698-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635260363825-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add half of the chopped ginger to a large bowl with the miso paste, 1/3 of the t
 
 Mix until smooth – this is your miso marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635260366671-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add the haddock bites to the miso marinade and give them a gentle mix up until f
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635260370259-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Put the tray under the grill for 10-12 min or until the fish is cooked though an
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635260373272-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Add the blanched edamame beans to a colander and pour boiled water all over them
 
 Peel and slice the shallot<span class="text-danger">[s]</span> as finely as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635260375948-x200.jpg)
 
 ### Step 6
 
 Combine the remaining chopped ginger with the soy sauce, rice vinegar, remaining sesame oil and 1 tsp <span class="text-danger">[2 tsp] </span>sugar in a small bowl – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635260379239-x200.jpg)
 
 ### Step 7
 

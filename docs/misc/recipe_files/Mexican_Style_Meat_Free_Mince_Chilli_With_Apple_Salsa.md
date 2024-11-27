@@ -27,6 +27,7 @@ Where smoky meat-free mince meets cheeky chipotle chilli. For a truly comforting
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1635256997110-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 3/4 of the diced red onion (you'll use the rest later!) and a pinch of salt, then cook for 5 min or until softened and starting to caramelise
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635257001281-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, add the remaining diced red onion to a bowl with a pinch of salt and
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635257005920-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Stir your ground allspice into the softened onion and cook for 1 min
 
 Add your meat-free mince (remove the paper if required!) and cook for 5-6 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1635257038487-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Add your bulgur wheat to a pot with plenty of boiled water and cook over a high
 
 While the bulgur wheat is cooking, dissolve your vegetable stock mix in 350ml <span class="text-purple">[375ml] </span><span class="text-danger">[400ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635257043564-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add the vegetable stock and reduce the heat to medium-low
 
 Cook for 6-7 min or until thick and reduced to a chilli-like consistency – this is your Mexican-Style meat-free mince chilli
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635257052227-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ While the chilli thickens, dice your apple[s] (skin on) finely
 
 Grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635257056755-x200.jpg)
 
 ### Step 7
 

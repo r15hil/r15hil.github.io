@@ -27,6 +27,7 @@ Chicken goujons with a twist! You'll dip chicken strips in coconut cream before 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1647968935355-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your sweet potato[es] (skins on) into fries, then add the fries to a baking 
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1647968943513-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Chop your coconut flakes finely
 
 Add the chopped coconut flakes to a bowl with your panko breadcrumbs and a pinch of salt and give it a good mix up – these are your coconutty breadcrumbs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1647969073789-x200.jpg)
 
 ### Step 3
 
 Add your chicken breast strips to a bowl with the coconut paste and give it a good mix up until all the chicken is coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1647969082324-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Press the coated chicken into the coconutty breadcrumbs firmly to coat evenly
 
 Add the breaded chicken strips to a baking tray (or two!), drizzle them with vegetable oil and put the tray[s] in the oven for 15-18 min or until cooked through (no pink meat!) and golden – these are your coconutty chicken goujons
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1647969092790-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Chop your coriander roughly, including the stalks
 
 Cut your lime[s] in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1647969101525-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add the sliced radish to a bowl with half the chopped coriander (save the rest f
 
 Give it a good mix up – this is your radish salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1647969109145-x200.jpg)
 
 ### Step 7
 

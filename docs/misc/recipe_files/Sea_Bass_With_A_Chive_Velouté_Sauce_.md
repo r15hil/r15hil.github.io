@@ -21,6 +21,7 @@ This elegant sea bass dish is served with a velouté, pronounced 'vel-oo-tey' - 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/833.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Tip: rest the potatoes on to a wooden spoon when cutting, it will prevent you fr
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/833.step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the hasselback&nbsp;potatoes to an oven tray (use tin foil to avoid mess!), 
 
 Place in the oven for 30-35 min or until they're tender and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/833.step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add 15g <span class="text-danger">[30g]</span>&nbsp;butter to a pot over a mediu
 
 Once melted, add 15g <span class="text-danger">[30g]</span>&nbsp;flour and stir for 2-3 min until a sandy coloured paste is formed - this is your roux
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/833.step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Add the clotted cream, season with pepper and remove from the heat - this is you
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/833__step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Trim, then chop each spring onions in half&nbsp;
 
 Chop the chives finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/833__step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,6 +105,7 @@ Cook for 5 min or until the spring onions are starting to caramelise, then trans
 
 Put the foil package in the oven until serving&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/833.step-7-x200.jpg)
 
 ### Step 7
 

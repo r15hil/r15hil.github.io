@@ -24,6 +24,7 @@ We promise you won't miss the meat in this speedy vegetarian makeover of a Middl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/908.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 180&deg;C/ 160&deg;C (fan)/ 350&deg;F/ Gas 4
 
 Drain the tinned&nbsp;lentils
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/908.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the&nbsp;ras el hanout, chopped garlic, panko&nbsp;breadcrumbs,&nbsp;crack i
 
 Mix well until the breadcrumbs are fully combined &ndash; this is your kofta mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/908.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Divide the kofta mixture into 6 <span class="text-danger">[12]</span>&nbsp;and s
 
 Press each ball into a sausage shape, and then flatten&nbsp;into a rectangular patty &ndash; these are your koftas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/908.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick)&nbsp;with a drizzle of olive
 
 Once hot, add the koftas and cook for 2 min on each side, or until they're crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/908.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Meanwhile, shred the little gem&nbsp;lettuce
 
 Peel and slice the shallot<span class="text-danger">[s]</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/908.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Combine the mayonnaise&nbsp;and harissa paste&nbsp;(Can't handle the heat? Go ea
 
 Add a drizzle of&nbsp;olive oil and mix well &ndash; this is your harissa mayo&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/908.-step-7-x200.jpg)
 
 ### Step 7
 

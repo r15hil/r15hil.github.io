@@ -24,6 +24,7 @@ A dish topped with our 'Nduja-spiced jumbo prawns is sure to impress. You'll sti
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612275842664-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely chop (or grate) your garlic
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612275848247-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater 
 
 Cut the lemon[s] into 4 wedges per lemon
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612275858562-x200.jpg)
 
 ### Step 3
 
 Dissolve your vegetable stock mix in 450ml<span class="text-danger"> <span class="text-purple">[675ml]</span> [900ml] </span>boiled water and stir in your soft cheese – this is your creamy stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612275867336-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped garlic and lemon zest and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612275883882-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612275900772-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once hot, drain, then add your jumbo prawns and the spinach and cook for 4-5 min
 
 Tear in your 'Nduja (can't handle the heat? Go easy!) and the juice of 1/4 of the<span class="text-danger"> </span>lemon wedges and cook for 2-3 min further or until the prawns are cooked through and the ’Nduja has broken down – these are your 'Nduja jumbo prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612275927938-x200.jpg)
 
 ### Step 7
 

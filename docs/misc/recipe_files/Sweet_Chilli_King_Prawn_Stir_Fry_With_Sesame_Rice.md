@@ -25,6 +25,7 @@ Once your pan is hot, this easy stir-fry comes together in no time. You'll sear 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1631618735953-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644338571577-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Peel and finely slice (don't chop!) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into large bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631618742417-x200.jpg)
 
 ### Step 3
 
 Combine your cornflour with 100ml <span class="text-purple">[150ml]</span><span class="text-danger"> [200ml]</span> cold water in a small bowl
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644947037131-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Heat a large, wide-based pan or wok (preferably non-stick) with a drizzle of veg
 
 Once hot, add the sliced garlic, chopped pepper and mangetout and cook for 2-3 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644947041679-x200.jpg)
 
 ### Step 5
 
@@ -60,11 +65,13 @@ Meanwhile, drain your king prawns
 
 Once the veg is starting to soften, add the drained king prawns to the pan and cook for 1-2 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644947045625-x200.jpg)
 
 ### Step 6
 
 Add your chilli relish, soy sauce and cornflour mix to the pan and cook for 3-4 min or until the sauce has thickened and the prawns are cooked through – this is your sweet chilli king prawn stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631618753965-x200.jpg)
 
 ### Step 7
 

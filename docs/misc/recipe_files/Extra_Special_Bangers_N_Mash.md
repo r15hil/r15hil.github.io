@@ -21,6 +21,7 @@ Juicy sausages. Creamy mash. Onion marmalade? Not your regular trio, we know. It
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648029516979-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the sliced carrot[s] to a baking tray, drizzle them with vegetable oil and s
 
 Add your sausages to the tray (cooking for 3 or more? Use a separate tray!) and put everything in the oven for 20-25 min or until the sausages are cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648029519492-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 8 min or until softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648029521871-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender then drain and return to the pot to steam dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648029525493-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Reboil a kettle
 
 Dissolve your beef stock mix and onion marmalade in 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water and mix until fully combined – this is your onion gravy stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648029528965-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the onion has caramelised, add 1 tsp <span class="text-purple">[1 1/2 tsp]<
 
 Add your onion gravy stock, increase the heat to medium and cook for 7-8 min or until thickened to a gravy-like consistency – this is your red onion gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648029531744-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once cooked, drain and return to the pot and keep covered until serving
 
 Tip: For a speedy alternative, add your green beans to a small bowl with a splash of cold water and microwave, covered, for 1-2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648029533651-x200.jpg)
 
 ### Step 7
 

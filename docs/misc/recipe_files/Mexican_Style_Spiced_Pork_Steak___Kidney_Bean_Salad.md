@@ -29,6 +29,7 @@ Grab your chef hat, because this symphony of seasonings will make you feel like 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1620220600738-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Before you start cooking, take your steak out of the fridge, open the packet and
 
 Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!), dried oregano, half your ground cumin (you'll use the rest later!), a generous pinch of salt and a generous grind of black pepper to a plate and give everything a good mix up – this is your Mexican-style spice blend
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1620220612869-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Pat your pork loin steak[s] dry with kitchen paper
 
 Rub with a little vegetable oil, then add to the Mexican-style spice blend and turn several times until they're fully coated and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1620220621924-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the drained kidney beans and remaining ground cumin with a pinch of salt and cook for 2-3 min or until the skins have softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1620220650770-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Meanwhile, peel and finely slice your shallot[s]
 
 Chop your tomato[es]<span class="text-danger"> </span>roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1620220665197-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Return the pan to the heat on high with a generous drizzle of vegetable oil and 
 
 Once done, transfer the cooked steak to a clean chopping board, cover with a clean tea towel and leave to rest for 2 min – this is your Mexican-style spiced pork steak
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1620220684764-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Chop your coriander finely, including the stalks
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1620220713864-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Packed with goodness and flavour, our ginger beef is served over nutty tasting b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1333.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1333.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Slice the pak&nbsp;choi&nbsp;into wedges
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1333.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Transfer the cooked beef strips to a large plate and set them aside to rest
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1333.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Once hot, add the&nbsp;quartered mushrooms and cook for 4-5 min or until startin
 
 Once browned, transfer the mushrooms to the plate with the beef strips and return the pan to a low heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1333.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Add the chopped ginger to the pan and cook for 1-2 min or until fragrant&nbsp;
 
 Add the balsamic vinegar, soy sauce, honey,&nbsp;miso paste&nbsp;and a splash of water and cook for 4-5 min &ndash; this is your ginger sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1333.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Once done,&nbsp;remove the pak choi&nbsp;and set it aside
 
 Drain the&nbsp;brown rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1333.-step-7-x200.jpg)
 
 ### Step 7
 

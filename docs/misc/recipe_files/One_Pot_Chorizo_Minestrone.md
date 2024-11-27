@@ -32,6 +32,7 @@ Whip up a smoky one-pot soup in no time. You'll sizzle chorizo before adding mac
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623407211127-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583491282218-x200.jpg)
 
 ### Step 2
 
@@ -54,11 +56,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add your diced chorizo, roasted garlic paste, ground smoked paprika and a generous pinch of salt and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583491286567-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve your chicken stock mix and tomato paste in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L] </span>boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583491290210-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Cover with a lid and bring to the boil
 
 Once boiling, reduce the heat to medium and cook for an initial 3 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1583491298226-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Top, tail and grate your courgette[s]
 
 Drain and rinse your chickpeas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583491301688-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Wash your shredded kale, then pat it dry with kitchen paper
 
 Chop your basil finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583491305869-x200.jpg)
 
 ### Step 7
 

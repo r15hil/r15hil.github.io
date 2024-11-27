@@ -27,6 +27,7 @@ Originally brought to Phuket by the Hokkien people in the 1800s, this delicacy f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723208996535-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and heat a dry large, hob-safe o
 
 Once hot, add your coriander seeds, cook for 1-2 min or until fragrant (careful they don’t burn!), then set aside (reserve the pan!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723209000369-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Return the hob-safe oven-proof casserole dish to a high heat with a drizzle of v
 
 Once hot, add the chopped pork belly with a pinch of salt and cook for 5-6 min or until browned on all sides
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723209004035-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Chop your coriander finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723209008074-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the crushed garlic, chopped ginger and most of the chopped coriander (save s
 
 Grind to a paste - this is your coriander & garlic paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723209011310-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Peel and chop your brown onion[s] into wedges
 
 Top, tail, peel and slice your carrot[s] into discs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723209016088-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once fragrant, add your cornflour, ketjap manis, rice vinegar, star anise, chopp
 
 Bring to the boil then put in the oven, covered, for an initial 15 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723209019504-x200.jpg)
 
 ### Step 7
 

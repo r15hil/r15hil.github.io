@@ -31,6 +31,7 @@ For rich, Moroccan-inspired flavour, you'll infuse this plant-based stew with ri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1440.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1440.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 5-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1440.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Dissolve the creamed coconut and vegetable stock mix in 750ml<span class="text-
 
 Add the sultanas to a small bowl, cover them with boiled water and set them aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1440.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Rinse the red lentils and add them to the pan with the coconut stock
 
 Reduce the heat to medium-low and cook for 25-30 min or until the lentils are cooked and the sauce has thickened – this is your Moroccan-style lentil stew
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1440.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Sprinkle over the ground sumac and give everything a good mix up
 
 Put the tray in the oven for 15-20 min or until golden and crispy – these are your roasted chickpeas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1440.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Drain the soaked sultanas and chop them roughly
 
 Combine the halved tomatoes, chopped mint and chopped sultanas with the juice of 1/2 <span class="text-danger">[1]</span> lemon, a drizzle of olive oil and a pinch of salt – this is your tomato & sultana salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1440.-step-7-x200.jpg)
 
 ### Step 7
 

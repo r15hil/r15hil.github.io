@@ -23,6 +23,7 @@ In this dish the chicken is marinated in balsamic vinegar which transforms into 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/175.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add 1-2 tbsp olive oil and season generously with salt and pepper
 
 Mix well and leave to marinate until step 4
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/175.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Set the coins in a sieve and rinse under cold water to remove any grit
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/175.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Finely chop the leaves and discard the stalks
 
 Place a large, wide-based pan over a medium-high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/175.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Meanwhile, peel and chop (or grate) the garlic
 
 Set the chicken aside on a plate for later and add 1-2 tbsp olive oil and a knob of butter to the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/175.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once hot, add the parsnips and cook for 3-4 min or until lightly caramelised, st
 
 Meanwhile, dissolve the stock cube<span class="text-danger">(s)</span> in 850ml <span class="text-danger">(1.7L)</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/175.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add 200ml <span class="text-danger">(400ml)</span> stock and the remaining balsa
 
 Reduce the heat to medium and stir until nearly all the stock is absorbed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/175.-step-7-x200.jpg)
 
 ### Step 7
 

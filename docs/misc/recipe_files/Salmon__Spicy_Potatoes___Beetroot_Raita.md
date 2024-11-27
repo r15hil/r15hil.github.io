@@ -22,6 +22,7 @@ Curry spices aren't exclusive to... curries. Here, we've used them to coat crisp
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/508__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Preheat the oven to 240°C/ 220°C (fan)/ 475°F/ Gas 9
 
 Chop the potatoes (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/508__-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Season generously with salt and pepper and give everything a good mix up
 
 Put the tray in the oven for 15-20 min or until the potatoes have started to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/508__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Peel and finely chop (or grate) the garlic
 
 Strip the mint leaves from the stems and chop finely, discard the stems
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/508__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Open the beetroot packaging and add approx. 2-3 tbsp beetroot juice to a large m
 
 Discard any remaining juice and finely dice the beetroot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/508__-step-5-x200.jpg)
 
 ### Step 5
 
@@ -61,11 +66,13 @@ Add the sliced spring onion, diced beetroot, Greek-style yoghurt, garlic and hal
 
 Mix well and set aside – this is your beetroot raita
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/508__-step-6-x200.jpg)
 
 ### Step 6
 
 Once the potatoes have had an initial 15-20 min, remove the tray from the oven and push them to one side
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/508__-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Sizzle up a spicy Middle Eastern-style stew, with golden halloumi and baby leaf 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610619278460-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2055.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Chop your halloumi into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2055.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the chopped halloumi to the pan and cook for 1-2 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2055.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,16 +65,19 @@ Add your couscous and sultanas to the bowl then stir well, cover and set aside â
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2055.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the halloumi has started to brown, add your baharat and chilli flakes (can't handle the heat? Go easy!) and cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2055.-step-6-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add<span class="text-danger"> </span>your chopped tomatoes, spinach and a splash of boiled water and cook for 2-3 min or until the spinach has wilted and the sauce has thickened to a pasta sauce-like consistency â€“ this is your spicy halloumi stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1653405040622-x200.jpg)
 
 ### Step 7
 

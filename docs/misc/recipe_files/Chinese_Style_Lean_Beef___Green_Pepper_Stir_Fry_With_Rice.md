@@ -29,6 +29,7 @@ One try of this stir-fry and you'll be hooked. You'll sizzle lean beef mince wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599748919576-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599748926819-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ While the rice is cooking, peel and roughly dice your brown onion[s]
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599748938962-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-5 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599748943046-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Peel and roughly chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599748949089-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the onion has softened, add your lean beef mince to the pan and cook over a
 
 While the lean beef mince is browning, add 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp] </span>black pepper to the pan (freshly ground is best!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599748960712-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Reduce the heat to medium and add your Chinese rice wine, hoisin sauce, soy sauc
 
 Cook for 3-4 min or until thickened, sticky and the beef is cooked through (no pink meat!) – this is your Chinese-style lean beef & green pepper stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599748969671-x200.jpg)
 
 ### Step 7
 

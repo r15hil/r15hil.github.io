@@ -21,6 +21,7 @@ Dial up the comfort with this creamy pasta dish. You’ll whip up a speedy sauce
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676974586797-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 3-4 min or until the squash is fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676974598734-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain, reserving half a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676974607162-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Peel and slice your shallot[s]<span class="text-danger"> </span>finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676974623562-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Once hot, add your diced chorizo and cook for 4-5 min or until crisped
 
 Once crisped, transfer to a plate and reserve the pan – this is your crispy chorizo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676974632341-x200.jpg)
 
 ### Step 5
 
 While the chorizo is cooking, dissolve your chicken stock mix, soft cheese and a generous grind of pepper in 100ml <span class="text-purple">[150ml]</span><span class="text-danger"> [200ml]</span> boiled water – this is your creamy stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676974641081-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once starting to brown, add the sliced shallot to the pan with a pinch of salt a
 
 Once softened, add the chopped garlic and cook for 1 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676974657865-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Add a Middle Eastern twist to pasta with spicy harissa and lamb. You'll dial up 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1615371120304-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1582200911953-x200.jpg)
 
 ### Step 2
 
@@ -44,26 +46,31 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the lamb mince and cook for 2-3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1582200917346-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve the chicken stock mix and the tomato paste in 350ml <span class="text-danger">[700ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582200922223-x200.jpg)
 
 ### Step 4
 
 Once the mince has browned, add the roasted garlic paste with the harissa paste and cook for 1 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1582200927821-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the tomato stock and quick cook amorini pasta to the pan and cook, covered for 3-4 min, stirring half way through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1582200933827-x200.jpg)
 
 ### Step 6
 
 Once done, wash the spinach then add it to the pan and cook, covered for 1-2 min further until all the spinach has wilted and the amorini is cooked with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1582200939144-x200.jpg)
 
 ### Step 7
 

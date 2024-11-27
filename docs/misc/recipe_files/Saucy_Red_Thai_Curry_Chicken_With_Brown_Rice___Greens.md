@@ -24,6 +24,7 @@ Give your dinner a protein boost with juicy Thai-style chicken. You’ll whip up
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1724066896228-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add your chicken breast portion[s] to a chopping board
 
 Cover with cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1724066908044-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once hot, add the flattened chicken to the pan with a pinch of salt and pepper a
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1724066917806-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Roughly chop your roasted peanuts
 
 Wash your spinach and shake off any excess water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1724066930865-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of v
 
 Once hot, add the green beans to the pan and cook for 5-6 min or until lightly charred
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1724066939367-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add your red Thai curry paste and half your gluten free soy sauce (you’ll use 
 
 Squeeze your pouch[es] of cooked brown long grain rice to separate the grains
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1724066948476-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Return the pan to a medium-high heat with a splash of cold water and cook for 3-
 
 Once wilted, add the remaining gluten free soy sauce and give everything a good mix up – this is your brown rice & greens
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1724066955252-x200.jpg)
 
 ### Step 7
 

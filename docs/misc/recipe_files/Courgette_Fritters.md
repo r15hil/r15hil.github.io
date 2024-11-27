@@ -22,6 +22,7 @@ We’ve remixed the classic potato fritter by adding seasonal courgette and a fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-53.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Grate the peeled potatoes and the courgette<span class="text-danger">(s)</span> 
 
 Add 2/3 of the spring onion and reserve the rest for step 8
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-53.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: Ensure that the strainer rests above the bottom of the bowl so the unwanted
 
 Sprinkle 2-3 tsp of salt over the mixture, mix well, and set aside until step 4
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-53.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Remove the end<span class="text-danger">(s)</span> of the little gem<span class=
 
 Place the beetroot, mozzarella and little gem in a salad bowl and set aside until ready to serve
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-53.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add 30g<span class="text-danger"> (60g)</span> of flour
 
 Season to your taste with salt and pepper and mix well
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-53.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Spread each dollop to approx. 10cm diameter
 
 Cook for 3 min on each side or until golden and cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-53.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Tip: Alternatively, just use kitchen roll on a plate, but don't leave them too l
 
 Repeat the process until the whole mixture is used up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-53.-step-7-x200.jpg)
 
 ### Step 7
 

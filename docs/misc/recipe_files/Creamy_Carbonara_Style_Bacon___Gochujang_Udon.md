@@ -23,6 +23,7 @@ Put a Korean twist on your go-to carbonara with this spicy chipotle infusion. Yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1717583566017-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1698225701048-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop your smoked streaky bacon roughly
 
 Once hot, add the chopped bacon and cook for 4-5 min or until starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1698225711574-x200.jpg)
 
 ### Step 3
 
@@ -56,21 +59,25 @@ Drain the soaked noodles
 
 Peel and finely slice (don't chop!) your garlic then trim and slice your spring onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693918934773-x200.jpg)
 
 ### Step 4
 
 Once the bacon is starting to crisp, add the sliced garlic and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693918938698-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add your gochujang paste (can't handle the heat? Go easy!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693918942530-x200.jpg)
 
 ### Step 6
 
 Add the drained noodles and your blanched peas to the pan and cook for 1-2 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693918946867-x200.jpg)
 
 ### Step 7
 

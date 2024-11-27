@@ -27,6 +27,7 @@ Let the taste of Tuscany put a spring in your step. You’ll toss olives, cherry
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1722500439641-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop your potato[es] (skin on) into small, bite-sized pieces
 
 Peel and chop your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1722500442705-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the chopped potato[es] and red onion wedges to a baking tray (or two!) with 
 
 Put the tray[s] in the oven for 20-25 min or until the potatoes are golden and crisp and the onion is tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722500445773-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Cut your cucumber in half lengthways, then slice finely
 
 Peel and grate your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1722500448824-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1722500452130-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once the veg is tender, remove the tray[s] from the oven and top with the torn c
 
 Drizzle with a little olive oil, then return the tray[s] to the oven for a further 5-6 min or until golden and crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1722500460176-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Combine your red wine vinegar in a large bowl with the grated garlic and a pinch
 
 Gradually whisk in a generous drizzle of olive oil – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1722500469977-x200.jpg)
 
 ### Step 7
 

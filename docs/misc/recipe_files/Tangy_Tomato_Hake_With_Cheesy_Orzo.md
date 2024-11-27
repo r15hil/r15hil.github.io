@@ -23,6 +23,7 @@ Extra cheese? Yes, please. For this easy dinner, you’ll simmer hake in a tangy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690290203861-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add the chopped tomatoes with a pinch of salt and cook for 4-5 min or until beginning to break down
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690290207779-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Dissolve the vegetable stock mix in 450ml <span class="text-danger">[900ml] </sp
 
 Wash the spinach and pat dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690290211398-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once boiling, reduce the heat to medium-low and cook for 12-15 min or until cook
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690290214810-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once slightly softened, add the tomato paste with a pinch of salt and sugar
 
 Mix everything together, then add the white wine vinegar with 250ml <span class="text-danger">[450ml] </span>boiled water and cook for 3-4 min or until the sauce has slightly thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690290219071-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Meanwhile, peel 1/3 of the Italian hard cheese until you end up with a pile of c
 
 Grate the remaining Italian hard cheese finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690290222678-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Cook, covered, for 5-6 min or until the fish is cooked through and the spinach h
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690290226232-x200.jpg)
 
 ### Step 7
 

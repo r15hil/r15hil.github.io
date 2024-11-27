@@ -29,6 +29,7 @@ This hearty dal is the perfect way to brighten dinner. You’ll infuse lentils w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1457.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1457.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of�
 
 Once hot, add half of the sliced onion (you'll use the rest later!) with a pinch of salt and cook for 5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1457.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Season with a pinch of salt and give everything a good mix up
 
 Put the tray in the oven and cook for 15-20 min or until tender and golden (keep an eye on them to make sure they don't burn!) – this is your roasted sweet potato & onion
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1457.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Dissolve your vegetable stock mix and creamed coconut in 450ml <span class="te
 
 Rinse your red lentils in a sieve under cold running water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1457.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add your ground turmeric, chopped garlic and chopped ginger to the pan and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1457.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once fragrant, add the rinsed red lentils and your green lentils (no need to d
 
 Add the coconut stock and cook, stirring frequently, for 15-20 min or until all the water has absorbed and the lentils are tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1457.-step-7-x200.jpg)
 
 ### Step 7
 

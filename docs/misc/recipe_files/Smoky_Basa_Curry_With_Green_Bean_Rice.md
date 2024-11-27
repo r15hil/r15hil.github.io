@@ -27,11 +27,13 @@ Smoked fish is the secret to this simple yet luxurious curry. You'll simmer it w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/898.-step-1-x200.jpg)
 
 ### Step 1
 
 Trim, then chop your green beans into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/898.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Cook, covered for 10-12 min or until all the water has absorbed and the rice a
 
 Once cooked, remove from the heat and keep covered until serving – this is your green bean rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/898.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/898.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion with a generous pinch of salt, cover with a lid and cook for 5 min or until softened and caramelised
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/898.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Meanwhile, chop your smoked basa into bite-sized pieces
 
 Dissolve your tomato paste in 300ml<span class="text-purple"> [450ml]</span> <span class="text-danger">[600ml]</span> boiled water – this is your tomato stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/898.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the onion has softened, add the chopped garlic, chilli flakes (can't handle
 
 Add the tomato stock and clotted cream and cook for a further 2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/898.-step-7-x200.jpg)
 
 ### Step 7
 

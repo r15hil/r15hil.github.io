@@ -23,6 +23,7 @@ This simple, elegant pasta combines sweet crab meat, chilli, baby plum tomatoes 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1645550711835-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and finely chop (or grate) the garlic
 
 Add the fennel seeds to a pestle & mortar and grind (or chop if you don't have a pestle and mortar) to a fine powder
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1645550723955-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once hot, add the halved tomatoes, chopped garlic, ground fennel seeds and chill
 
 Cook for 3-4 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1645550739203-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Meanwhile, dissolve the vegetable stock mix in 150ml <span class="text-danger">[
 
 Stir through the tomato paste and 1 tsp<span class="text-danger"> [2 tsp] </span>sugar – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1645550747527-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine and return to the pot, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1645550754586-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the tomatoes are fragrant, add the tomato stock and crab meat to the pan an
 
 Season with a pinch of salt and pepper and cook for 4-5 min or until thickened to a pasta sauce-like consistency – this is your fiery tomato sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1645550766834-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Grate any remaining Italian hard cheese
 
 Chop the basil finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1645550777759-x200.jpg)
 
 ### Step 7
 

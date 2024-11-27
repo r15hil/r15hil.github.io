@@ -26,6 +26,7 @@ Rescue your next busy night with this speedy stir-fry. Bring the heat with a spr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1608121739332-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Remove your pineapple from the can (save the can and juice for later!) and chop into quarters
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1608121744824-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot add the chopped pepper and pineapple quarters with a pinch of salt and cook for 4-5 min or until the pineapple has slightly caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1608121750514-x200.jpg)
 
 ### Step 3
 
@@ -53,16 +56,19 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside reserving a cup of starchy noodle water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1608121759888-x200.jpg)
 
 ### Step 4
 
 Lower the heat to medium-high and add the sliced garlic and your chilli flakes to the pan (can't handle the heat? Go easy!) and cook for 1-2 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1608121786419-x200.jpg)
 
 ### Step 5
 
 While the garlic is softening, add your soy sauce and toasted sesame oil to the can with the reserved pineapple juice – this is your pineapple stir-fry sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1608121813588-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once the garlic has softened, add your cornflour to the pan and give everything 
 
 Add your king prawns and pineapple stir-fry sauce to the pan and cook for 4-5 min or until the prawns are cooked through and the sauce is nice and sticky
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1608121822227-x200.jpg)
 
 ### Step 7
 

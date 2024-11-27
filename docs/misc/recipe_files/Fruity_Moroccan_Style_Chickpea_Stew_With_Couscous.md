@@ -27,6 +27,7 @@ This hearty Moroccan-style stew is a firm favourite of ours. Enjoy the rich flav
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1639994269669-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1648123643414-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Chop your tomato[es] roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1627990998384-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Drain and rinse your chickpeas
 
 Once hot, add the drained chickpeas to the pan with your ras el hanout and cook for 2-3 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vegetable-stock-1643708427261-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643708433018-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add your couscous to a heatproof bowl and pour over the vegetable stock
 
 Cover with a tea towelÂ and set aside to soften until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1643708474626-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Bring to the boil and cook for 2-3 min further or until the sauce has reduced â€
 
 Tip: Add a splash of water if it's looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1655215422151-x200.jpg)
 
 ### Step 7
 

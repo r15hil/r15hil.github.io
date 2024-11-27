@@ -21,6 +21,7 @@ Casserole: the ultimate home comfort for tired cooks. It’s a dish in which the
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/192-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Quarter the potatoes, add to a pot of salted boiling water and boil for 7-8 min 
 
 Drain and leave to steam-dry in a colander
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/192-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once&nbsp;hot, add the chicken (skin-side down)
 
 Cook for 10 min or until the skins have browned and crisped
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/192-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Drizzle with 1-2 tbsp olive oil and season with salt
 
 Put&nbsp;them in the oven for 15-20 min or until crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/192-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Dissolve the stock cube<span class="text-danger">(s)</span> in 150ml <span class
 
 Drain and rinse the cannellini beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/192-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,6 +93,7 @@ Transfer the chicken thighs, skin-side up, to some kitchen paper
 
 Reserve the pan for the next step
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/192-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,6 +108,7 @@ Cook for 5 min or until everything is warmed through
 
 Taste and tweak the seasoning
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/192-step-7-x200.jpg)
 
 ### Step 7
 

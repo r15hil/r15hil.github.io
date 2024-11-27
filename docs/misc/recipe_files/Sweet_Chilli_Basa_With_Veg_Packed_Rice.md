@@ -28,6 +28,7 @@ Who doesn't love a bit of sweet chilli? Here's our secret recipe for basa fillet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-15-1732190449376-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Top, tail, peel and dice your carrot[s] finely
 
 Pat your basa fillet[s] dry with kitchen paper and chop into large, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-17-1732190459994-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once boiling, add the diced carrot and reduce the heat to very low and cook, cov
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686065164002-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the chopped basa pieces and give everything a good mix up until fully coated
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686065168685-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 While the fish is cooking, combine your maple syrup, red chilli relish and 30ml <span class="text-purple">[45ml]</span> <span class="text-danger">[60ml]</span> cold water in a small bowl – this is your sweet chilli sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686065173503-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once the basa pieces are cooked through, turn the heat down to medium-low and ad
 
 Add the sweet chilli sauce to the pan and cook for a further 4-5 min or until the sauce has thickened – this is your sweet chilli basa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686065178002-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your blanched peas to a colander and pour boiled water all over them to refr
 
 Once the rice is cooked, add the refreshed peas and remaining soy sauce and mix everything together – this is your veg-packed rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686065183462-x200.jpg)
 
 ### Step 7
 

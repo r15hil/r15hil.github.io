@@ -26,6 +26,7 @@ Get dinner on the table in minutes with this gnocchi. Whip up a rich tomato sauc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1662456360766-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1730365919679-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730365925535-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ While the gnocchi is cooking, peel and finely slice (don't chop!) your garlic
 
 Chop your coriander finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1730365936938-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the sliced garlic and tomato paste to the pan with your dried oreg
 
 Once fragrant, add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> reserved starchy cooking water, your vegetable stock mix and half your balsamic vinegar (save the rest for later!) and give everything a good mix up – this is your tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1730365942991-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Cook, covered, for 4-5 min further or until the fish is cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1730365948498-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ While the fish is cooking, add a generous knob of butter to a heatproof bowl and
 
 Once melted, stir through your harissa paste (can't handle the heat? Go easy!) and chopped coriander with a small pinch of salt – this is your harissa & coriander butter
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730365958849-x200.jpg)
 
 ### Step 7
 

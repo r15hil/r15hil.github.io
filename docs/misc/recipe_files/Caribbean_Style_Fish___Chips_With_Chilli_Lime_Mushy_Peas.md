@@ -25,6 +25,7 @@ We've combined a classic with Caribbean flavours. The fish is coated in a Caribb
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670317146361-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut your sweet potato[es] (skins on) into chips, then add the chips to a baking 
 
 Put the tray[s] in the oven for 20-25 min or until tender and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670317137831-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Give everything a good mix up until fully combined – this is your Caribbean-st
 
 Press your basa fillet[s] into the Caribbean-style seasoning so that one side is fully coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670317100319-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Chop your coriander finely, including the stalks
 
 Zest your lime[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670317107872-x200.jpg)
 
 ### Step 4
 
 Combine your mayo with the juice of half your<span class="text-danger"> </span>lime[s] and the lime zest in a small bowl – this is your lime mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670317115567-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Add your blanched peas to a pot with a lid, cover them with boiled water (just e
 
 Bring to the boil over a high heat and cook for 1 min or until they're warmed through, then drain and return to the pot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670317122912-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Mash the peas with a masher until they come together nicely
 
 Stir through the remaining chilli flakes (not a fan of spice? Just add a little!) and keep covered until serving – these are your chilli-lime mushy peas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670317129959-x200.jpg)
 
 ### Step 7
 

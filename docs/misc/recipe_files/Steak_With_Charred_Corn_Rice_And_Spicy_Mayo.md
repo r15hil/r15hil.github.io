@@ -23,6 +23,7 @@ This speedy steak is super easy. You'll fry corn in butter and toss it with read
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623401476905-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Take your steak out of the fridge, open the packet and let it adjust to room tem
 
 Note: Equipment and pan sizes vary, and if you like your steak well-done, it may take you a little longer than 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2165.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a separate dry, large, wide-based pan (preferably non-stick) over a high h
 
 Pat your rump steak[s] dry with kitchen paper, drizzle with vegetable oil and season all over with salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2165.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak is cooked, transfer to a plate to rest
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2165.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,16 +67,19 @@ Drain your sweetcorn
 
 Once melted, add the drained sweetcorn with a generous pinch of salt and cook for 3-4 min or until golden brown – this is your charred buttery corn
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2165.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine your mayo, sriracha (can't handle the heat? Go easy!) and red chilli relish in a bowl – this is your spicy mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2165.-step-6-x200.jpg)
 
 ### Step 6
 
 Add your cooked white long grain rice to the buttery corn and cook for 2-3 min further or until warmed through – this is your charred corn rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2165.-step-7-x200.jpg)
 
 ### Step 7
 

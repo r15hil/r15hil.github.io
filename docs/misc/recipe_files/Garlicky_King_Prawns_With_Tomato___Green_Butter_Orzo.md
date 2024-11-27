@@ -25,6 +25,7 @@ Impress the table with a stunning orzo, baked in a tomato and basil butter sauce
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1584988703616-x200.jpg)
 
 ### Step 1
 
@@ -36,21 +37,25 @@ Peel your garlic and roughly tear your basil, including the stalks (reserve a 
 
 Add the peeled garlic, torn basil and a large knob of butter to a food processor and pulse until blitzed but not smooth – this is your basil butter
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1584988708897-x200.jpg)
 
 ### Step 2
 
 Dissolve your vegetable stock mix in 350ml <span class="text-purple">[455ml]</span> <span class="text-danger">[650ml] </span>boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1584988712932-x200.jpg)
 
 ### Step 3
 
 Chop your cherry tomatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1584988716632-x200.jpg)
 
 ### Step 4
 
 Add your orzo, vegetable stock and half of the basil butter (you'll use the rest later!) to an oven-proof dish with a pinch of salt and gently stir it all together
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1584988720490-x200.jpg)
 
 ### Step 5
 
@@ -58,11 +63,13 @@ Place the halved cherry tomatoes evenly on top of the orzo, they should sink dow
 
 Season with a pinch of salt and a generous crack of black pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Lemon-halves-1596453610181-x200.jpg)
 
 ### Step 6
 
 Put the dish in the oven for 18-20 min or until the stock has been absorbed and the orzo is cooked – this is your tomato & green butter orzo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1584988727562-x200.jpg)
 
 ### Step 7
 

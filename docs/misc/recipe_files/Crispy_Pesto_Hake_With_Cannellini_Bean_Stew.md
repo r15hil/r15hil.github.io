@@ -25,6 +25,7 @@ For this simple, crowd-pleasing plateful, you'll top your fish with a moreish pe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1350.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and finely slice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1350.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 7-10 min until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1350.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Put the tray[s] in the oven and cook for 12-15 min or until the fish is golden a
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1350.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1350.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the onion has softened, add the chopped garlic and cook for 1 min or until 
 
 Add your cherry tomatoes to the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1350.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Drain and rinse your cannellini beans
 
 Add the drained cannellini beans and vegetable stock to the pan and cook for 5-7 min or until the cherry tomatoes start to burst and the liquid has reduced slightly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1350.-step-7-x200.jpg)
 
 ### Step 7
 

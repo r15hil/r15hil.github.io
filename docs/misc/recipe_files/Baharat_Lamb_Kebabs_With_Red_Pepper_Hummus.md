@@ -24,6 +24,7 @@ This dish is perfect for BBQ season! You'll grill lamb kebab skewers, packed wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2112.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ De-seed the red pepper<span class="text-danger">[s]</span>,<span class="text-dan
 
 Put the tray under the grill for 10 min or until softened and lightly charred, then once done, transfer the roasted pepper to a food processor and reserve the tray
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2112.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Divide the lamb mixture into 4 <span class="text-danger">[8]</span> and shape i
 
 Skewer each lamb kebab and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2112.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once boiling, cook for 7-8 min or until tender with a bite
 
 Once done, drain and return to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2112.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the lamb kebabs to the reserved baking tray (use tin foil to avoid mess!)
 
 Put the tray under the grill for 10 min or until cooked through (no pink meat!), turning once half way – these are your baharat lamb kebabs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2112.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Add the chopped garlic and drained chickpeas to the food processor
 
 Blitz until smooth – this is your red pepper hummus
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2112.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,6 +108,7 @@ Season with a pinch of salt and pepper and add the juice of 1/4 <span class="tex
 
 Stir it all together – this is your herby bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2112.-step-7-x200.jpg)
 
 ### Step 7
 

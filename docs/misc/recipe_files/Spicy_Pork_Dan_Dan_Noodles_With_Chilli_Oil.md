@@ -26,6 +26,7 @@ This Sichuan-inspired dish has so many rich, mouthwatering flavours in one bowl.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580296346246-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580296355292-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the pork mince to a bowl with the soy sauce, 1 tsp <span class="text-danger"
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580296358754-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once done, add the pork to a plate and cover with tin foil to keep warm – this
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580296362268-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the pak choi leaves and cook for 1-2 min further or until the noodles are co
 
 Once done, drain and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580296365910-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Slice the red chilli<span class="text-danger">[es]</span> into rounds
 
 Chop the peanuts roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1636993025487-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Dissolve the chicken stock mix in 200ml <span class="text-danger">[300ml]</span
 
 Add the tahini with the remaining ground coriander and cayenne pepper and whisk until combined – this is your tahini stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580296373594-x200.jpg)
 
 ### Step 7
 

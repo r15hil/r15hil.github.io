@@ -22,6 +22,7 @@ If you're a fan of fish fingers, let us introduce you to the grown-up version. T
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1596539300964-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1596539315391-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the basa fillets to a plate and use the back of a spoon to spread the miso p
 
 Then season with salt and pepper – this is your miso basa
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1596539329043-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Sprinkle the cornflour all over the miso basa and rub it into both sides of the 
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1596539349752-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once hot, add the coated miso basa and cook for 8-9 min, turning once halfway un
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1596539359949-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Bring to the boil over a high heat and cook for 1 min or until they're warmed th
 
 Once cooked, drain and return to the pot with a pinch of salt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1596539367892-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once melted, remove from the heat and stir in the wasabi paste
 
 Mash the peas roughly with a potato masher until lightly crushed – these are your wasabi peas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1596539383772-x200.jpg)
 
 ### Step 7
 

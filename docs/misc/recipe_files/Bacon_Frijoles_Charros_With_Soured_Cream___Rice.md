@@ -30,6 +30,7 @@ Frijoles charros is a classic bean stew named after Mexican cowboys. For your ve
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1712068207955-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a little drizzle of veg
 
 Once hot, add your smoked streaky bacon to the pan and cook for 3 min on each side or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1712068210992-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Combine the juice of half your lime[s] with 1 tsp <span class="text-purple">[1 1
 
 Drain and rinse your black beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1712068214144-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1712068217617-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Reduce the heat to low and add a small knob of butter with the chopped garlic, s
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar with a grind of pepper and cook for 2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1712068221231-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop the crispy bacon roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1712068224766-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Bring to the boil over a high heat, then reduce the heat to medium and cook, cov
 
 Once ready, set aside for a few minutes, covered, for the flavours to develop
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1712068228197-x200.jpg)
 
 ### Step 7
 

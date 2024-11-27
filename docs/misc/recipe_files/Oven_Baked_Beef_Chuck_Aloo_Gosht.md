@@ -30,6 +30,7 @@ Aloo gosht is a fragrant South Asian dish packed with flavour. You’ll cook a q
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1664348188022-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1664348191544-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your diced beef and cook for 2-3 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1664348196074-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Slice your red chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1664348200278-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Reduce the heat to medium and add the chopped onion and chopped tomatoes to the 
 
 Add your curry powder with your garam masala and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>flour and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1664348204206-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Bring to the boil over a high heat and season with a pinch of salt and pepper
 
 Cover with the lid and put the dish in the oven for 55 min or until the sauce has thickened and the beef is cooked through – this is your beef chuck aloo gosht
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1664348207384-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add your basmati rice to an oven-proof dish with a generous pinch of salt and 30
 
 Cover tightly with tin foil and put the dish in the oven for 25-30 min or until all the water has absorbed and the rice is cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1664348210909-x200.jpg)
 
 ### Step 7
 

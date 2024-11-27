@@ -29,6 +29,7 @@ Take a wholesome trip to South America with these plant-based skewers. You'll ro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657612903743-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop your sweet potato[es] (skins on) into 2 wedges per person, lengthways
 
 Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657612905313-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Thread the seasoned sweet potato wedges onto the soaked skewers, lengthways
 
 Add the skewers to a baking tray (or two!) and put the tray[s] in the oven for 20-25 min or until cooked through and starting to crisp – these are your smoky sweet potato skewers
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657612972969-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657612978214-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Chop your cherry tomatoes in half
 
 Drain your sweetcorn
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657612915409-x200.jpg)
 
 ### Step 5
 
 Add the sliced spring onion, halved tomatoes and drained sweetcorn to a large bowl with a pinch of salt and pepper and give everything a good mix up – this is your corn salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657612922347-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Peel and grate (don't chop!) your garlic
 
 Combine the chopped coriander, grated garlic, chilli flakes (can't handle the heat? Go easy!) and white wine vinegar in a small bowl with your natural yoghurt and season with a pinch of salt and pepper – this is your chimichurri yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657612927333-x200.jpg)
 
 ### Step 7
 

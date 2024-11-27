@@ -26,6 +26,7 @@ Fancy some festive fusion? ‘Wich granted. You'll pile this shareable naanwich 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636547327751-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the diced potatoes to one side of a baking tray and sprinkle with half the c
 
 Give everything a good mix up and put the tray in the oven for an initial 6-8 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636547330915-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Stir it all together – this is your tandoori marinade
 
 Add the chopped paneer to the tandoori marinade and give everything a good mix up – this is your tandoori paneer
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636547333767-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ After an initial 6-8 min, add the tandoori paneer to the other side of the bakin
 
 Return the tray to the oven and cook for a further 10-12 min or until golden and soft
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636547337023-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine the cranberry sauce, tamarind paste and grated carrot in a bowl – this
 
 Chop the coriander finely, including the stalks (save a few whole leaves for garnish!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636547339522-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Once the golden tandoori paneer is cooked, transfer it to a clean chopping board
 
 Add the parsnip ribbons to the reserved tray and return it to the oven for 5 min further or until both the potatoes and parsnips are golden and crispy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636547342883-x200.jpg)
 
 ### Step 6
 
 Put the plain naans in the oven for 3 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636547346593-x200.jpg)
 
 ### Step 7
 

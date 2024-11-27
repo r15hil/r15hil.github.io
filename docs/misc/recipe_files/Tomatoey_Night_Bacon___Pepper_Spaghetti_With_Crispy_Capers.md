@@ -25,6 +25,7 @@ There’s always time for bacon. For this easy pasta you’ll stir pepper, tomat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1710241417867-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1710241420728-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add the capers to the pan and cook for 6-7 min or until crispy, then s
 
 Once crispy, transfer the crispy capers to a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1710241424773-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Meanwhile, dissolve your tomato paste and chicken stock mix in 250ml <span class
 
 Grate your cheddar cheese finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1710241428055-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add your bacon lardons and diced pepper and cook for 5-6 min or until 
 
 Reboil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1710241431994-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the lardons are crispy, add the diced onion to the pan and cook for 4-5 min
 
 Once slightly softened, add the chopped garlic and chopped tomato and cook for 5-6 min or until the tomato has completely softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1710241436124-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving 80ml<span class="text-purple"> [100ml] </span><span class="text-danger">[120ml]</span> starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1710241441500-x200.jpg)
 
 ### Step 7
 

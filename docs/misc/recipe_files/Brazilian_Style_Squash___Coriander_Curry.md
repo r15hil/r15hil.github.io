@@ -32,6 +32,7 @@ This Brazilian-inspired curry is packed with zesty, fragrant flavour. You'll coo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633344089914-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add your butternut squash cubes to a baking tray (or two!) with a drizzle of veg
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until tender and golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633344093224-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633344094644-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once fragrant, transfer the coriander seeds to a pestle & mortar and crush rough
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633344095790-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Return the pan to a medium-low heat with a drizzle of vegetable oil and the slic
 
 Cook for 4-5 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633344099044-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix, peanut butter and chopped creamed coconut in 350ml <span class="text-purple">[460ml]<span class="text-danger"> </span>[600ml] </span>boiled water – this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633344102098-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once the onion has softened, add the chopped garlic, chopped ginger, ground tur
 
 Increase the heat to medium, add your cherry tomatoes and coconut stock and cook for 7-9 min or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633344107234-x200.jpg)
 
 ### Step 7
 

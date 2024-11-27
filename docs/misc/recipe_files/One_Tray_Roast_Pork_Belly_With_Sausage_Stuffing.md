@@ -23,6 +23,7 @@ A roast with the most? You’re looking at it. Juicy sage-infused pork belly ser
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708422717128-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Pat your pork belly dry with kitchen paper, then score the fatty side in a criss
 
 Season with a pinch of salt and a drizzle of vegetable oil and rub it deep into the criss-cross pattern
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708422723217-x200.jpg)
 
 ### Step 2
 
 Flip the scored pork over and rub your Dijon mustard all over the non-fatty side with your dried sage and a generous grind of pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708422729170-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Pour 75ml <span class="text-purple">[110ml]</span> <span class="text-danger">[15
 
 Put the tray[s] in the oven for an initial 30 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708422734589-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the sliced carrot and halved potatoes to a large heat-proof bowl covered wit
 
 Put the bowl in the microwave for 5-8 min or until slightly tender, then remove the cling film and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708422740688-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once the pork has had 30 min, remove the tray[s] from the oven and add the carro
 
 Return the tray[s] to the oven for 18-20 min or until the pork belly skin is crisp and tender and the sausage stuffing is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708422746936-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the spinach to the tray[s] and combine with the roasted carrot
 
 Return the tray[s] to the oven for 2-3 min or until the spinach is wilted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708422751740-x200.jpg)
 
 ### Step 7
 

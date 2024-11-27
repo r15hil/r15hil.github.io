@@ -24,6 +24,7 @@ We’ve teamed up with wagamama to recreate the nation’s fave ramen in your ow
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2251-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel (scrape the skin off with a teaspoon) and finely grate the ginger, then com
 
 Place your hand flat onto the chicken breast<span class="text-danger">[s] </span>and slice in half as if you were cutting a burger bun, so you are left with 2 <span class="text-danger">[4]</span> thinner pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2251-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Line a baking tray with baking paper
 
 Add the chicken to the tray and put the tray in the oven for 12-15 min or until cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2251-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Slice the red chilli<span class="text-danger">[es]</span> finely
 
 Tip: Deseed them if you can't handle the heat!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2251-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cut 1/2 <span class="text-danger">[1]</span> lime into wedges
 
 Pick the coriander leaves from the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2251-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the spicy ramen base to a pot over a very-low heat and cook for 5-6 min or u
 
 Re-boil a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2251-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2251-Step-7-x200.jpg)
 
 ### Step 7
 

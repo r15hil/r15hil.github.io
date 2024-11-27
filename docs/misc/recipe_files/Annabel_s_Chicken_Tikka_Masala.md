@@ -26,6 +26,7 @@ If you’re craving a curry night, look no further than Annabel’s Chicken Tikk
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1138.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Add the&nbsp;chicken&nbsp;to a bowl with the&nbsp;garam masala&nbsp;and a genero
 
 Give everything a good old mix up until the&nbsp;chicken&nbsp;is coated in the&nbsp;spices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1138.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Once hot, add the chicken and cook for 1 min on each side or until browned
 
 Once done, set aside on a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1138.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -68,6 +71,7 @@ Meanwhile, dice the tomatoes finely&nbsp;
 
 Add the diced tomatoes,&nbsp;tomato paste, ground coriander, korma curry powder&nbsp;and butternut squash cubes&nbsp;to the softened onion and cook for 4 min or until the tomatoes are beginning to break down
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1138.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -85,16 +89,19 @@ Once cooked, remove from the heat and keep covered until serving&nbsp;
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1138.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the tomatoes are beginning to break down, add 250ml<span class="text-danger"> [400ml]</span> boiled water&nbsp;to the pan and cook, covered, for 10 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1138.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, pick the coriander&nbsp;leaves from their stems, discarding the stems
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1138.-step-7-x200.jpg)
 
 ### Step 7
 

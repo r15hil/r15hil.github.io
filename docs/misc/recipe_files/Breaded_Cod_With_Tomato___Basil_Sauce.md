@@ -25,6 +25,7 @@ There's nothing basic about breaded fish. Especially when it's pan-fried into go
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635763449322-x200.jpeg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potatoes to a baking tray (or two!) with a generous drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635763452159-x200.jpeg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop your basil finely, including the stalks
 
 Set everything aside until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635763455825-x200.jpeg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Pat your cod fillet[s] dry with kitchen paper
 
 Season the cod fillet[s] with a generous pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635763458452-x200.jpeg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add your panko breadcrumbs to another plate
 
 Coat each cod fillet in the flour, tap off any excess, then add it into the beaten egg and finally press it into the breadcrumbs firmly to evenly coat all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1724316441593-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add the cherry tomato quarters with a pinch of salt and cook for 3-4 m
 
 Add the chopped garlic and cook for 30 secs, then add 100ml <span class="text-purple">[130ml] </span><span class="text-danger">[150ml] </span>water with a pinch of pepper and sugar and cook for 4-5 min further or until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1724316444423-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once hot, add the coated cod and cook for 4-5 min on each side or until golden, 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635763470060-x200.jpeg)
 
 ### Step 7
 

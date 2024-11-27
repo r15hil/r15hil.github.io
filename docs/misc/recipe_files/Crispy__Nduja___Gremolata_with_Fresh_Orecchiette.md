@@ -24,6 +24,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1693823886871-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693823789744-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your 'Nduja, breaking it up with a wooden spoon, and cook for 6-8 min or until crisp and golden – this is your crispy 'Nduja
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693823792830-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water (save the pot!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693823795884-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Chop your parsley finely, including the stalks
 
 Zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693823798978-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Combine the chopped parsley and lemon zest in a small bowl with 2 tbsp <span cla
 
 Dissolve your chicken stock mix, soft cheese and tomato paste in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your creamy tomato stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693823802906-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once fragrant, add the creamy tomato stock to the pot and cook for 1-2 min or un
 
 Cut the zested lemon[s] in half, then a squeeze of lemon juice into the sauce (not sure about citrus? Try using less!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693823807548-x200.jpg)
 
 ### Step 7
 

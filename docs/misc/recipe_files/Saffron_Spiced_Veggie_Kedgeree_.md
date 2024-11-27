@@ -24,6 +24,7 @@ This dish is a play on the classic breakfast dish 'kedgeree' – a rice dish of 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/413_step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Meanwhile, peel and finely slice the brown&nbsp;onion<span class="text-danger">[
 
 Place an ice pack (Gousto's are perfect) or loose ice cubes into a bowl of cold water and set aside &ndash; this is your ice bath
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/413_step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once boiled, transfer&nbsp;the eggs to the ice bath and set aside
 
 Re-boil the kettle&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/413_step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Drizzle them with olive oil and a pinch of salt
 
 Add the cashew nuts to the other end and put the tray in the oven for 7 min or until the cashews have coloured slightly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/413_step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,6 +84,7 @@ Reduce the oven temperature to&nbsp;150&deg;C/ 130&deg;C (fan)/ 300&deg;F/ Gas 2
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/413_step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,6 +93,7 @@ Heat a large, wide-based pan with 2 tbsp <span class="text-danger">[4 tbsp]</spa
 
 Once hot, add the onion and a pinch of salt <br /><br />Cook&nbsp;for 5 min, then add the curry powder and cook for a further 2 min until the onion has softened<br /><br />Add the arborio&nbsp;rice and sultanas and stir until both are evenly coated in oil and spice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/413_step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Add the stock to the rice, a ladle at a time, stirring frequently for 15-20 min 
 
 Tip: the more you stir, the creamier the rice will become!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/413_step-7-x200.jpg)
 
 ### Step 7
 

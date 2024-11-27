@@ -27,6 +27,7 @@ If you love curry, this veggie one's a winner. For a healthy curry hero, you'll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583491076153-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583491079774-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Using clean hands, give everything a very good mix up until fully combined
 
 Divide the meat-free mince mixture into 10<span class="text-danger"> [20]</span> and roll into meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1583491083624-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the meat-free mince meatballs and cook for 3-5 min or until browne
 
 Once browned, transfer them to a plate and reserve the pan for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1583491086922-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1583491093344-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-6 min or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1583491097440-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once the onion has softened, add the chopped ginger, garlic, tomato paste, curry
 
 Add the vegetable stock and browned meat-free mince meatballs to the pan and cook, covered, for 10-12 min or until the sauce has thickened to a curry-like consistency – this is your meat-free mince meatball masala
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1583491101327-x200.jpg)
 
 ### Step 7
 

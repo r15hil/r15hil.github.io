@@ -24,6 +24,7 @@ Butter up your week with this winter warmer. You’ll roast crispy herb-crusted 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1730470882921-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel your potatoes and chop into large, bite-sized pieces, then top, tail, peel 
 
 Chop your leek[s] in half lengthways, wash thoroughly then top, tail and slice finely, then peel and finely chop your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1730470890058-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry and reboil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1730470895681-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the seasoned chicken to the pan and cook for 3 min on each side or
 
 Once golden, transfer to a baking tray and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1730470912476-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Scrunch the foil around the carrot to form a tightly sealed parcel[s] and add to
 
 Put the tray in the oven for 12-14 min or until the carrots are fork-tender and the chicken is cooked through (no pink meat!) – these are your glazed carrots and herby chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1730470940368-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once hot, add the sliced leek to the pan and cook for 3-4 min or until softened
 
 Once softened, add the chopped garlic and 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> flour to the pan and cook for 30 secs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1730470950537-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the chicken stock to the pan and cook for 2-3 min or until the sauce starts 
 
 Once thickened, remove the pan from the heat and stir through your Dijon mustard (not a mustard fan? Go easy!) and crème fraîche – this is your creamy leek sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1730470958644-x200.jpg)
 
 ### Step 7
 

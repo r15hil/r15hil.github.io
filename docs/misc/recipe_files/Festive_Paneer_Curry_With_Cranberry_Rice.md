@@ -30,6 +30,7 @@ Deck your dining table with a festive curry that's ready in just 20 minutes. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728643688089-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cranberry rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728643692263-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Boil a kettle
 
 Peel and finely chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728643695792-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped shallot with a pinch of salt and pepper and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728643698146-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your vegetable stock mix with 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water – this is your vegetable stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728643703785-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Chop your paneer into bite-sized pieces
 
 Once the shallot has softened, add your chopped paneer to the pan with a pinch of salt and pepper and cook for 3-5 min until golden, turning occasionally for even colouring
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728643708199-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once the paneer is golden, add your curry powder and ground cinnamon to the pan 
 
 Once fragrant, add the vegetable stock with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and cook for 6-8 min or until the sauce has thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728643711636-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ For a speedy, satisfying salad, you'll toss crispy bacon and sweet chilli relish
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623406996337-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1593437518946-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add your smoked streaky bacon to the pan and cook for 3-4 min on each 
 
 Once the bacon is crisp, add it to a plate lined with kitchen paper and set aside, reserving the pan and any remaining oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1593437527531-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Cut your avocado[s]<span class="text-danger"> </span>in half lengthways, around 
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely lengthways
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1593437539990-x200.jpg)
 
 ### Step 4
 
@@ -60,16 +64,19 @@ Return the reserved pan to a medium-high heat and add the drained cannellini bea
 
 Mix it all together and cook for 1-2 min until warmed through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1593437553706-x200.jpg)
 
 ### Step 5
 
 Whilst the beans are cooking, add the remaining chilli relish to a bowl along with your cider vinegar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil and give it a good mix up – this is your chilli relish dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1593437574084-x200.jpg)
 
 ### Step 6
 
 Transfer the crispy bacon to a clean board and chop roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1593437580948-x200.jpg)
 
 ### Step 7
 

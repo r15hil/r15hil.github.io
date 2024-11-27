@@ -26,6 +26,7 @@ This creamy pasta bake gives mac ‘n’ cheese a run for its money. You’ll pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1713249697481-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1713249700110-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once softened, add a knob of butter with the sliced mushrooms, a pinch of salt a
 
 Increase the heat to high and cook for 4-5 min or until the mushrooms have softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713249703464-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once done, drain the tortiglioni
 
 Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1713249707379-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Grate your cheddar cheese
 
 Combine the grated cheese, your panko breadcrumbs and truffle oil in a bowl – these are your cheesy truffle breadcrumbs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713249710384-x200.jpg)
 
 ### Step 5
 
@@ -77,11 +82,13 @@ Once the mushrooms have softened, reduce the heat to medium-high, add the choppe
 
 Once fragrant, add your Chinese rice wine and creamy stock, bring to the boil over a high heat and cook for 2-3 min or until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713249715409-x200.jpg)
 
 ### Step 6
 
 Once thickened, stir the drained tortiglioni through the sauce and season with a generous grind of black pepper – this is your creamy mushroom pasta
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713249720318-x200.jpg)
 
 ### Step 7
 

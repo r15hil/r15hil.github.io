@@ -21,6 +21,7 @@ This simple family dish is a real crowd-pleaser: smoked basa baked in crunchy pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1479.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Add the tricoloured pasta twists to a pot of boiled water with a large pinch of 
 
 Cook the pasta for 8-10 min or until cooked with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1479.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, top, tail and grate the courgette<span class="text-danger">[s]</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1479.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the smoked basa to a baking tray and top with the&nbsp;panko breadcrumbs
 
 Put the tray in the oven for <span class="text-highlight">6-8 min</span>, or until cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1479.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Zest half the<span class="text-danger"> [whole]</span> lemon<span class="text-da
 
 Peel and finely chop (or grate) the garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1479.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the pasta is cooked, drain it and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1479.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Add the cr&egrave;me fra&icirc;che, lemon zest and the juice of 1/2 <span class=
 
 Season with and pinch of&nbsp;pepper and cook for 2 min or until thickened slightly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1479.-step-7-x200.jpg)
 
 ### Step 7
 

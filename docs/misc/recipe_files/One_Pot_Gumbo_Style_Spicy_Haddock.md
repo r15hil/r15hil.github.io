@@ -25,6 +25,7 @@ Combine classic ingredients like smoky paprika, green pepper and bay for this gu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/812.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Peel and finely chop the red onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/812.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once hot, add the chopped onion and garlic with a pinch of salt
 
 Cook for 3-5 min or until the onion has softened and is starting to turn translucent
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/812.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ While the onion is softening, deseed the pepper<span class="text-danger">[s]</sp
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/812.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -55,11 +59,13 @@ Add the sliced pepper, smoked paprika, bay leaf<span class="text-danger">[ves]<
 
 Sprinkle in the vegetable stock mix and cook for 30 secs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/812.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the white long grain rice and cook for a further 30 secs, stirring so that all of the grains are coated in the spices
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/812.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Tip: Cooking for 2? Save the remaining wholegrain mustard for another recipe!
 
 Bring to the boil over a high heat, then reduce the heat to low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/812.-step-7-x200.jpg)
 
 ### Step 7
 

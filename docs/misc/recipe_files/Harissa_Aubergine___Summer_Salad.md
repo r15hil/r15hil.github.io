@@ -24,6 +24,7 @@ This aubergine stack is spicy, melty and moreish. Served with a bright salad, st
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/576.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut the potatoes (skin on) into thin wedges
 
 Add them to a baking tray, drizzle with 1 tbsp <span class="text-danger">[2 tbsp]</span> vegetable oil, season generously with salt and pepper and oven roast for 30 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/576.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once<span class="text-danger">&nbsp;</span>hot, add the 3 seed mix and toast for
 
 Set&nbsp;the toasted seeds aside to cool - reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/576.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Season generously with salt and pepper, then coat each cut side evenly with hari
 
 Tip: this can be done in a bowl using clean hands
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/576.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once hot, add the aubergine
 
 Cover and cook for 6 min, turning halfway through, or until both sides are nicely charred
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/576.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Peel&nbsp;the carrot<span class="text-danger">[s]</span>, then continue to peel 
 
 Combine the carrot and washed salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/576.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Cover with a lid (this will help the mozzarella melt) and set aside until servin
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/576.-step-7-x200.jpg)
 
 ### Step 7
 

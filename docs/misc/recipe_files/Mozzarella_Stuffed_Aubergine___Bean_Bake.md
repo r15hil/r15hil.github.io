@@ -26,6 +26,7 @@ Melty mozzarella, baked aubergine and creamy cannellini beans served in a tangy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632225196403-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Top, tail and slice the aubergines lengthways into roughly 1cm thick slices
 
 Chop any leftover pieces of aubergine roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632225203526-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Put the tray<span class="text-danger">[s]</span> in the oven for 18-20 min or un
 
 Once cooked, remove from the oven and set aside to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632225210824-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Drain and rinse the cannellini beans
 
 Wash the rocket, then pat dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632225224899-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once softened, add the chopped garlic and cook for 1 min
 
 Add the tomato stock, chopped tomatoes and drained cannellini beans and cook for 3-4 min or until thickened slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632225281755-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Tear the drained mozzarella into rough bite-sized pieces
 
 Chop the basil roughly, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632225291934-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once the aubergine slices are cool enough to handle, sprinkle over some chopped 
 
 Roll up the loaded aubergine slices so the filling is encased – these are your mozzarella-stuffed aubergine rolls
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634227002054-x200.jpg)
 
 ### Step 7
 

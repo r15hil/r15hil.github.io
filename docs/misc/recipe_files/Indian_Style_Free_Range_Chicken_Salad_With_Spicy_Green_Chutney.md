@@ -24,6 +24,7 @@ Make our Indian twist on a bistro classic. You'll toss salad leaves in a zingy d
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1698141348579-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1698141352858-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chopped coriander, garlic, ginger and chilli (can't handle the heat? Go 
 
 Tip: If you don't have a pestle and mortar, chop everything very finely!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1698141360201-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Chop your sweet potato[es] (skin on) into large bite-sized pieces
 
 Cut your red onion[s] into quarters, leaving the skins and root on (this stops them drying out and falling apart when roasting)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1698141364712-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Spoon the spicy green chutney over the chicken evenly
 
 Scrunch the edges of the tin foil together around the chicken to form a sealed parcel[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1698141369112-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Drizzle vegetable oil over the chopped sweet potato and onion quarters and seaso
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for 20-30 min or until the sweet potato is starting to crisp and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1698141373392-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Meanwhile, combine the juice of the remaining lime[s] with 2 tbsp <span class="t
 
 Wash the salad and pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1698141379089-x200.jpg)
 
 ### Step 7
 

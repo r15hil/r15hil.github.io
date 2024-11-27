@@ -24,6 +24,7 @@ Cook up the flavours of the Caribbean with this aromatic take on jerk chicken. Y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702997514341-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of s
 
 Put the tray in the oven for 20-25 min or until the wedges are tender and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702997517302-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Combine half your jerk paste (you'll use the rest later!) in a bowl with half yo
 
 Add your free range chicken thighs and give everything a good mix up – this is your marinated chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702997520858-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Heat a large, wide-based pan (preferably non-stick) over medium-high heat with a
 
 Once hot, add the marinated chicken and cook for 3 min on each side or until lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702997524674-x200.jpg)
 
 ### Step 4
 
@@ -56,16 +60,19 @@ Once the chicken is lightly browned, transfer the browned chicken to an oven-pro
 
 Put the dish in the oven for 12-14 min or until cooked through and slightly charred (no pink meat!) – this is your roasted jerk chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702997528114-x200.jpg)
 
 ### Step 5
 
 Combine your carrot & cabbage slaw mix and your mayo in a bowl with the remaining white wine vinegar and a pinch of salt and pepper – this is your slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702997530589-x200.jpg)
 
 ### Step 6
 
 Combine your ketchup and the remaining jerk paste in a clean large bowl with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar, a generous pinch of salt and pepper – this is your jerk glaze
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702997534960-x200.jpg)
 
 ### Step 7
 

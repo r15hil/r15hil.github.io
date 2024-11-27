@@ -27,6 +27,7 @@ This will take 10 min – tops! Whack the heat on high, and toss in your chestnu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586946337321-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586946341809-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, tear the chestnut mushrooms into the pan and cook for 5 min or until
 
 Tip: Try not to stir the mushrooms too often, as this will stop them from caramelising!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586946345526-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ While the mushrooms are cooking, cut the pak choi in half, separating the white 
 
 Cut the white base into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586946350201-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Combine the cornflour, hoisin sauce, soy sauce, sriracha chilli sauce, rice v
 
 Whisk until smooth – this is your stir-fry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1586946354368-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586946358101-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the stir-fry sauce to the pan and give everything a good mix up
 
 Cook for a further 1 min or until the sauce is thickened – this is your hoisin pak choi & mushroom stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586946362053-x200.jpg)
 
 ### Step 7
 

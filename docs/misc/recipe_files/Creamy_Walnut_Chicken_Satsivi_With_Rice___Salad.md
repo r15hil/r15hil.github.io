@@ -29,6 +29,7 @@ Touch down in Georgia for a perfectly spiced satsivi. This rich garlic and walnu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1722596570447-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, and your chicken breast portion[s] with a pinch of salt and cook for 3 min on each side or until lightly browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1722596578206-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, roughly chop your walnuts
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1722596585579-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1722596594736-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Give everything a good mix up and cook for a further 1-2 min or until fragrant
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1722596608787-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once fragrant, add your chicken stock mix to the pan with 100ml <span class="tex
 
 Once boiling, reduce the heat to medium and cook, covered, for 10-12 min further or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1722596652964-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Chop your tomato[es]<span class="text-danger"> </span>into wedges
 
 Wash your salad and pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1722596662339-x200.jpg)
 
 ### Step 7
 

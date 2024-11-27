@@ -23,6 +23,7 @@ These halloumi pittas are speedy to prepare and perfect to enjoy al fresco! You'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2181.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2181.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Boil a kettle
 
 Add the couscous and sultanas to a heatproof bowl with a generous pinch of salt and 150ml <span class="text-danger">[300ml]</span> boiled water, cover and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2181.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Add the wholemeal pittas to a baking tray
 
 Put the tray in the oven for 5-6 min or until warmed through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2181.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine the natural yoghurt with the sriracha hot chilli sauce (can't handle the heat? Go easy!) in a small bowl – this is your spicy yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2181.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Slice the halloumi into 8 <span class="text-danger">[16]</span> slices
 
 Once hot, add the halloumi to the pan and cook for 3-4 min or until golden all over
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2181.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Cut the lemon<span class="text-danger">[s]</span> in half
 
 Tip: If you're using a toaster, heat up the pittas now!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2181.-step-7-x200.jpg)
 
 ### Step 7
 

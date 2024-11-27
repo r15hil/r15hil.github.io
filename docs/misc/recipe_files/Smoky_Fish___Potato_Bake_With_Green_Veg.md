@@ -21,6 +21,7 @@ Comforting fish bake, coming up! You'll smother smoky fish in a silky chive and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586957729683-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt and cook 
 
 Once done, drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586957734061-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once melted, add 20g <span class="text-purple">[30g]</span><span class="text-dan
 
 Gradually whisk 230ml <span class="text-purple">[345ml]</span> <span class="text-danger">[460ml]</span> milk into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586957743344-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Chop your chives finely
 
 Chop your smoked basa fillet[s] into rough bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4--1586957750091-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add the chopped chives, the juice of half your lemon wedge[s]<span class="text-
 
 Give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586957754215-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-dange
 
 Tip: Don't worry if the potatoes break up a bit!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586957764540-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586957772086-x200.jpg)
 
 ### Step 7
 

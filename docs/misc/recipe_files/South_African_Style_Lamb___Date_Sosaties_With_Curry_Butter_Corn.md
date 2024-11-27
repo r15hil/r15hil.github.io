@@ -25,6 +25,7 @@ A South African favourite, these sosaties are full of Cape Malay flavour. Skewer
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1719398496719-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Take a small knob of butter out of the fridge and set aside to soften
 
 Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1719398500777-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Add the foil parcel[s] and wedges to a baking tray (or two!) with a drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1719398505687-x200.jpg)
 
 ### Step 3
 
 Peel and cut your brown onion[s] into large, rough chunks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1719398509586-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Divide the lamb mixture into 4 balls per person
 
 Thread each skewer with the chopped onion and the lamb meatballs, alternating as you go – these are your South African-style lamb & date sosaties
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1719398514465-x200.jpg)
 
 ### Step 5
 
@@ -68,11 +73,13 @@ Add the South African-style lamb & date sosaties to a baking tray (or two!) (use
 
 Put the tray[s] in the oven for 12-15 min or until cooked through and browned (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1719398518998-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the remaining curry powder with the softened butter in a bowl and mix it all together, then set aside – this is your curry butter
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1719398913198-x200.jpg)
 
 ### Step 7
 

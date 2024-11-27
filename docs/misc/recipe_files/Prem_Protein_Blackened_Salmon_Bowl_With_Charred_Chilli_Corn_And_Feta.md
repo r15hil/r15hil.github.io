@@ -26,6 +26,7 @@ A most impressive salmon dish, rubbed in smoky Mexican spices and charred to pea
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724396851168-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724396854285-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once the pan is hot, add the drained sweetcorn with a pinch of salt and cook fo
 
 Tip: Keep an eye on the pan to make sure you don't burn the corn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724396857273-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Meanwhile, add your ground smoked paprika, ground cumin and ground coriander to 
 
 Add your salmon fillet[s] and press them firmly into the spice mix until evenly coated all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724396860497-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Cook for 9-10 min, turning once halfway, or until cooked through – this is you
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724396863669-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724396867142-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Remove the base of your lettuce then wash under cold running water and cut away 
 
 Tear the lettuce leaves from the stem until you are left with a pile of leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724396870003-x200.jpg)
 
 ### Step 7
 

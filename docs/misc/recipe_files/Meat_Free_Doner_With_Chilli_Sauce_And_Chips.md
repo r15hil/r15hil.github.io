@@ -27,6 +27,7 @@ Make the table go, "phwoar!" with this utterly-delicious homemade doner. You'll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629461991584-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629462007838-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and grate half your<span class="text-danger"> </span>red onion[s]
 
 Peel and finely slice the remaining red onion and set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629462017198-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add a pinch of salt and half of the chopped garlic (save the rest for later!) an
 
 Cut two A3 size sheets of non-stick baking paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629462028463-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Tip: Cooking for 4 or more? Do this in batches!
 
 Drizzle the rolled meat-free mince with olive oil and put the tray[s] in the oven for 8-10 min or until cooked through and browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721745688818-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Cut your tomato[es]<span class="text-danger"> </span>into wedges
 
 Combine the remaining chopped garlic (not a fan of raw garlic? Just add a little!) to a bowl with your mayo, a pinch of salt and a drizzle of olive oil – this is your garlic mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629462039152-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Give it a good mix up – this is your chilli sauce
 
 Once the chips are almost done, push them to one side, then add your wholemeal pitta[s] to the tray[s] and return to the oven for 3-4 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629462044455-x200.jpg)
 
 ### Step 7
 

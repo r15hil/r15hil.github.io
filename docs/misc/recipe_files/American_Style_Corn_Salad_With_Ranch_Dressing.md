@@ -25,6 +25,7 @@ Knock up a summertime salad with crunchy lettuce, cherry tomatoes, creamy avocad
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1588587009862-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to medium and cook for 5-7 min or until tender and
 
 Once done, drain and set aside to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1588587014173-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, chop your chives finely
 
 Peel and finely chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1588587017612-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Combine your natural yoghurt, white wine vinegar, chopped shallot, half the chop
 
 Add 2 tsp <span class="text-purple">[3 tsp] </span><span class="text-danger">[4 tsp]</span> cold water and a generous pinch of salt and stir it all together – this is your ranch dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1588587021409-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the torn lettuce and halved cherry tomatoes to your serving plates
 
 Season the tomatoes with a pinch of salt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1588587025170-x200.jpg)
 
 ### Step 5
 
@@ -68,11 +73,13 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1588587029121-x200.jpg)
 
 ### Step 6
 
 Crumble your feta roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1588587033212-x200.jpg)
 
 ### Step 7
 

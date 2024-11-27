@@ -31,6 +31,7 @@ The Gang have spoken and their most wasted ingredient is… the humble sprout. T
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1637746289879-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut your potatoes (skins on) into chips, then add to a baking paper-lined baking
 
 Give everything a good mix up and put the tray[s] in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1637746297339-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Remove the pot from the heat, then add 300ml <span class="text-purple">[390ml]</
 
 Return the pot to a medium-high heat and cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1637746308293-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add the chopped sprouts to the cheat's buttermilk, give everything a good mix up
 
 Tip: Don't worry if the mixture is a little lumpy, it's meant to be!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1637746319094-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Combine 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger"
 
 Cut the brioche bun[s] in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1637746330749-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Cook for 3-4 min or until the sauce thickens – this is your gravy
 
 Meanwhile, shred the cooked chicken apart using two forks – this is your pulled chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1637746341494-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Drain the marinated sprouts from the cheat's buttermilk in a colander over the s
 
 Return the marinated sprouts to the bowl with the remaining soy sauce, dried sage and remaining cornflour and give it a good mix up to coat the sprouts thoroughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1637746361855-x200.jpg)
 
 ### Step 7
 

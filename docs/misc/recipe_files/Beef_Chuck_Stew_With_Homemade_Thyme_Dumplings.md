@@ -27,6 +27,7 @@ You’re in luck with this oven-stewed beef chuck. You’ll slow-cook beef and c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1718367654224-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1718367661269-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and chop your brown onion[s] into wedges
 
 Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1718367665514-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add 600ml<span class="text-purple"><span class="text-danger"> [750ml] </span>[90
 
 Once boiling, cover with a lid, then put the dish in the oven for an initial 30 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718367673637-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ While the beef is in the oven, add your dried yeast to a jug with 20ml <span cl
 
 Combine 70g <span class="text-purple">[100g] </span><span class="text-danger">[140g]</span> flour with a pinch of salt and 3 tbsp <span class="text-purple">[4 1/2 tbsp] </span><span class="text-danger">[6 tbsp] </span>butter and use your fingers to mix it together to form a crumb (clean hands is the best way!) – this is your buttery crumb
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1718367680367-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Cover with a tea towel and set aside to rise for 20 min – this is your dumplin
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1718367687911-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Return the dish to the oven, covered, for a final 35 min – this is your beef c
 
 Reboil a full kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1718367694334-x200.jpg)
 
 ### Step 7
 

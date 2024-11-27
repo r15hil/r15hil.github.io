@@ -24,6 +24,7 @@ This twist will broc your world. Blitz together broccoli, Italian cheese, almond
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1684232275393-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684232284605-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add your panko breadcrumbs and a pinch of salt
 
 Cook for 6-8 min or until golden, stirring frequently
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684232291238-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Zest your lemon[s] (try to grate lightly with a micro-plane or sharp box grater 
 
 Chop your Tenderstem broccoli in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684232300138-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Cook for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette and broccoli, reserve the pot and a cup of starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684232309046-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Tip: No food processor? Chop everything up as finely as you can and mix it toget
 
 Add the juice of half your zested lemon[s], 2 1/2 tbsp <span class="text-purple">[3 3/4 tbsp]</span> <span class="text-danger">[5 tbsp]</span> olive oil and a pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684232321088-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cut the remaining zested lemon into 1 wedge per person
 
 Once the breadcrumbs are golden, transfer them to a bowl with the lemon zest, give everything a good mix up and set aside for serving – this is your lemony pangrattato
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1684232326451-x200.jpg)
 
 ### Step 7
 

@@ -22,11 +22,13 @@ Biryani is the paella of Indian food. Traditionally, it's baked in a clay pot fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1601312443768-x200.jpg)
 
 ### Step 1
 
 Peel and dice the brown onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1601312453989-x200.jpg)
 
 ### Step 2
 
@@ -36,11 +38,13 @@ Once hot, add the diced onion, garam masala and a pinch of salt and pepper
 
 Cook for 2 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601312458822-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim, then chop the green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1601312464863-x200.jpg)
 
 ### Step 4
 
@@ -48,6 +52,7 @@ Add the meat-free mince to the pan and cook for 3-4 min, breaking it up with a w
 
 Sprinkle the vegetable stock mix into the pan and add the tomato paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1601312469590-x200.jpg)
 
 ### Step 5
 
@@ -55,6 +60,7 @@ Cook for a further 2 min or until the meat-free mince is starting to brown
 
 Stir in the basmati rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1601312474892-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Tip: Add a splash of water if the rice is not fully cooked or the mixture is looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1601312483144-x200.jpg)
 
 ### Step 7
 

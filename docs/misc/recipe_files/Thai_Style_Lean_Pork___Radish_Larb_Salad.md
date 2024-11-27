@@ -30,6 +30,7 @@ Larb is a street food favourite in Thailand, made with fiery, fragrant lean pork
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1685525305250-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Set aside to soak for 4 min
 
 Drain the soaked noodles and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1685525308337-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and finely chop (or grate) your garlic
 
 Cut your lime[s] into quarters
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1685525312146-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the sliced onion and a pinch of salt and cook for 3-4 min or until
 
 Once softened, add the chopped garlic and chopped ginger and cook for a further 1 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685525315808-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add your lean pork mince (remove the paper if required!), chilli flakes (can'
 
 Once cooked, add your soy sauce with the juice of half your lime wedges to the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685525319342-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ While the pork is cooking, wash your lettuce, then pat it dry with kitchen paper
 
 Top, tail and finely slice your radishes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685525322969-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Roughly chop your roasted peanuts
 
 Pick your mint leaves from their stems and roughly chop, discarding the stems
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1685525325697-x200.jpg)
 
 ### Step 7
 

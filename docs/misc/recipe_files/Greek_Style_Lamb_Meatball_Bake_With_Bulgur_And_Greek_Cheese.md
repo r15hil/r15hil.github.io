@@ -24,6 +24,7 @@ We've taken inspiration from sunny Greece for this crowd pleaser. You'll bake su
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1471.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil a kettle
 
 Peel and grate your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1471.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide and shape the lamb mince into 3 meatballs per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1471.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once hot, add the lamb meatballs and cook for 3-4 min, turning occasionally, u
 
 Once the meatballs have browned, transfer them to a plate and set aside (these will finish cooking in the sauce later!), then return the pan to a medium-low heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1471.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Dissolve your beef stock mix in 250ml <span class="text-purple">[325ml]</span> <
 
 Reboil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1471.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once thickened, transfer the sauce to an oven-proof dish and add the lamb meatb
 
 Put the dish in the oven for 15-20 min until the sauce is bubbling and the meatballs are cooked through (no pink meat!) – this is your Greek-style lamb meatball bake
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1471.-step-6.2-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ While the meatballs are cooking, add your bulgur wheat to a pot with plenty of 
 
 Cook over a high heat for 7-9 min or until tender with a slight bite, then drain and return to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1471.-step-7-x200.jpg)
 
 ### Step 7
 

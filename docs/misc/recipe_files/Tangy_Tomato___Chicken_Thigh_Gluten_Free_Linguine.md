@@ -25,6 +25,7 @@ Fun fact about linguine? It's great for slippery sauces. Which happens to includ
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1716884405654-x200.jpg)
 
 ### Step 1
 
@@ -34,16 +35,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chicken thigh and cook for 3-4 min on each side or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1716884410954-x200.jpg)
 
 ### Step 2
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1716884416020-x200.jpg)
 
 ### Step 3
 
 Once the chicken has browned, add the chopped garlic and your chilli flakes (can't handle the heat? Go easy!) and cook for 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1716884422030-x200.jpg)
 
 ### Step 4
 
@@ -51,6 +55,7 @@ Add your chopped tomatoes and chicken stock mix, then increase the heat to mediu
 
 Cook for 10-15 min or until the tomatoes have reduced to the consistency of a thick sauce and the chicken is cooked through (no pink meat!)– this is your tomato & chicken thigh sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1716884427074-x200.jpg)
 
 ### Step 5
 
@@ -58,6 +63,7 @@ Meanwhile, add your gluten free linguine to a large pot of boiled water with a g
 
 Bring to the boil and cook for 8-10 min, or until cooked with a slight bite
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1716884431931-x200.jpg)
 
 ### Step 6
 
@@ -65,6 +71,7 @@ While the linguine is cooking, wash your spinach, then pat it dry with kitchen
 
 When the linguine is almost done, add the spinach to the pot and cook for 30 secs or until the spinach has wilted, then drain the linguine & spinach and reserve a cup of starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1716884436586-x200.jpg)
 
 ### Step 7
 

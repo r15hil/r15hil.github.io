@@ -24,6 +24,7 @@ Cooking spice-crusted fish 'til blackened might seem wrong, but trust us – you
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1718185188312-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1718185192829-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once the pan is hot, add your hake fillet[s] and pour over your soy sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1718185195845-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Sprinkle your ground smoked paprika and ground allspice over the hake and cook f
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718185198599-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Wash your lettuce, then pat it dry with kitchen paper and shred
 
 Chop your coriander roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1718185204133-x200.jpg)
 
 ### Step 5
 
 Add the chopped pineapple, sliced spring onion and chopped coriander to a bowl and gently mix it all together – this is your speedy pineapple salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1718185208660-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the fish is cooked, break it apart into bite-sized pieces with a wooden spo
 
 Add your tortillas to a plate and pop them in the microwave for 1-2 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1718185213355-x200.jpg)
 
 ### Step 7
 

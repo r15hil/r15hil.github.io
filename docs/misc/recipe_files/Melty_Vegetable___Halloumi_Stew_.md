@@ -23,6 +23,7 @@ This vegetable stew is inspired by Sicilian cooking, where they like to use swee
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/644.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and chop the red onion<span class="text-danger">[s]</span> roughly
 
 Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/644.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cook for 10 min or until they have softened but not coloured&nbsp;
 
 Tip: reduce the heat if they are colouring too quickly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/644.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Top and tail the courgette<span class="text-danger">[s]</span> and cut into bite
 
 Chop the sultanas roughly&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/644.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the bulgur to a pot with plenty of salted boiled water (the same as you woul
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/644.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,11 +83,13 @@ Cook for 2 min, then add 300ml <span class="text-danger">[600ml]</span> boiled w
 
 Cover&nbsp;with a lid and cook for 5 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/644.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, cut the halloumi into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/644.-step-7-x200.jpg)
 
 ### Step 7
 

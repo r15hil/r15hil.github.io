@@ -25,6 +25,7 @@ Enjoy a creamy, comforting chowder with sweet onion, tender chicken and creamy s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678879520086-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once hot, add the diced chicken thigh and cook for 3 min on each side or until l
 
 Transfer the browned chicken to a plate and reserve the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678879525525-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop your potatoes (skins on) into small, bite-sized pieces
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678879532721-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add a knob of butter with the chopped onion, half your smoked paprika 
 
 Once softened, add the chopped garlic and cook for a further 1 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678879545455-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once the onion has softened, add the chopped potatoes, browned chicken, thyme (c
 
 Give everything a good mix up and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678879548970-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add the chicken stock and a generous pinch of salt, and bring to the boil over a
 
 Once boiling reduce to medium and cook for an initial 10 min or until the potatoes are fork-tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678879562611-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Wash your spinach, then pat it dry with kitchen paper
 
 After an initial 10 min, add the drained sweetcorn and spinach to the pan for a final 5 min or until the spinach has wilted and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678879570828-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Butter chicken or 'murgh makhani' is a curry house favourite. To make your own, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635260042310-x200.jpg)
 
 ### Step 1
 
@@ -39,11 +40,13 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635260054828-x200.jpg)
 
 ### Step 2
 
 Combine your meat-free chick'n with the ground coriander, 1/3 of your<span class="text-danger"> </span>garam masala (save the rest for later!) and a generous pinch of salt in a large bowl – this is your seasoned meat-free chick'n
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635260062208-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the seasoned meat-free chick'n and cook for 2-3 min or until warme
 
 Once done, transfer the browned meat-free chick'n to a plate and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635260067034-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Return the reserved pan to a medium heat with 1 tbsp <span class="text-purple">[
 
 Once the butter has melted, add the diced onion with a pinch of salt and cook for 5 min or until softened and starting to caramelise
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635260078087-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once softened, add the chopped ginger, chopped garlic, ground turmeric, tomato p
 
 Add your vegetable stock mix, then add 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[450ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1635260082998-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Meanwhile, chop most of your coriander finely, including the stalks (save some l
 
 Fluff the basmati rice with a fork, stir through the chopped coriander and season to taste – this is your coriander rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635260088667-x200.jpg)
 
 ### Step 7
 

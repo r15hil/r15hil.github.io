@@ -26,6 +26,7 @@ We're taking coronation chicken up a notch. For the perfect naanwich, you'll bak
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583502939249-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop the waxy potatoes (skins on) into bite-sized pieces, then add the chopped 
 
 Once the potatoes are cooked, drain and leave them to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583502947594-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely chop (or grate) the garlic
 
 Add chopped ginger, chopped garlic, curry powder, natural yoghurt, mango chutney, soy sauce and chicken thighs to an oven-proof dish and stir everything together
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1583502953016-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Give everything a good mix up – these are your spiced potatoes
 
 Put both the potato tray and the chicken dish in the oven for 25-35 min or until the potatoes are crispy, the chicken is cooked through (no pink meat!) and the sauce has thickened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1583502956719-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Toss the grated carrot and shredded lettuce in a bowl – this is your salad
 
 Add the sultanas to another bowl, cover with boiled water and set aside for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595941064761-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Tip: Return the dish to the oven for 5 min further if the sauce still needs to t
 
 Drain the soaked sultanas and add them to the pulled chicken, giving everything a good mix up – this is your coronation chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595941069820-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Put into the oven for 2-3 min or until warmed through
 
 Meanwhile, cut 2 <span class="text-danger">[4] </span>large pieces of tin foil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595941076752-x200.jpg)
 
 ### Step 7
 

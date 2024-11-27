@@ -23,6 +23,7 @@ Take chicken traybake on a trip to the Med. You’ll roast skin-on chicken thigh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706622773960-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Peel and chop your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706622780683-x200.jpg)
 
 ### Step 2
 
@@ -39,11 +41,13 @@ Peel and finely chop (or grate) your garlic
 
 Cut your lemon[s] in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706622788201-x200.jpg)
 
 ### Step 3
 
 Add the chopped potatoes to a large baking tray (or two!) with a drizzle of olive oil and a pinch of salt and pepper and give everything a good mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706622795115-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Drizzle with olive oil, season with a generous pinch of salt and pepper and give
 
 Tip: Keep the chicken skin side up for crispy skin!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706622802026-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Put the tray[s] in the oven for 30-35 min, mixing halfway, or until the veg is t
 
 <span class="text-danger">Ordered extra halloumi? Slice and cook in a pan with a little oil for 4-6 min or until golden all over</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706622809851-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Whilst everything is cooking, chop your black olives in half
 
 Crumble your feta
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706622816923-x200.jpg)
 
 ### Step 7
 

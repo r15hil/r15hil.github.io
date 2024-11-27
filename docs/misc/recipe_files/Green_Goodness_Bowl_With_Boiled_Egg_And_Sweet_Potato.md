@@ -25,6 +25,7 @@ Dark leafy greens are packed with A, K and B vitamins – and lots of fibre to 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2215-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the sweet potato wedges to a tray (or two!) with 1/2 tbsp <span class="text-
 
 Put the tray[s] in the oven and cook for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2215-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Combine the juice of half your lemon[s] with your wholegrain mustard, 1 tbsp<spa
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2215-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once done, drain and refill the pot with ice cold water, add the cooked egg[s] t
 
 Tip: Use the Gousto ice packs to chill the water!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2215-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once hot, remove the pan from the heat, add the shredded kale with a pinch of sa
 
 Tip: Cover the pan with a lid to help the kale wilt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2215-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Once the kale is starting to soften, add the spinach with the chopped garlic and cook for a further 3-4 min or until the kale is tender and the spinach is starting to wilt – these are your garlic greens
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2215-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Return the tray[s] to the oven for 5-7 min until the sweet potato is cooked thr
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2215-Step-7-x200.jpg)
 
 ### Step 7
 

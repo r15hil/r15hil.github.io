@@ -29,6 +29,7 @@ Spice lovers, get ready. These fiery chilli prawns pack a punch! To balance the 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632823896206-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632823900689-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Slice the mango flesh finely, discarding the stone
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632823906061-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine the chopped ginger and garlic with your chilli flakes, sriracha (can't handle the heat? Go easy!), soy sauce and half of your rice vinegar (you'll use the rest later!) in a small bowl – this is your chilli paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632823909983-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Strip your mint leaves from their stems, then chop them finely and discard the s
 
 Chop your coriander finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632823914046-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, drain then add your king prawns and cook for 3-4 min or until almost cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632823917845-x200.jpg)
 
 ### Step 6
 
 Once the prawns are almost cooked, add the chilli paste and cook for a further 1-2 min or until the prawns are cooked through and coated – this is your spicy chilli king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632823922267-x200.jpg)
 
 ### Step 7
 

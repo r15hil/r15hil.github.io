@@ -31,6 +31,7 @@ Our love letter to India, this rich chickpea curry is easy to pull off at home a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626109155841-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626109160613-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Return the pan to a medium-high heat with a generous drizzle of vegetable oil
 
 Once hot, add the chopped onion with a pinch of salt and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626109165237-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once the onion[s] has softened, add the chopped ginger and garlic with your gara
 
 Tip: Add a little more oil if the pan looks a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626109170427-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Meanwhile, drain and rinse your chickpeas
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626109175350-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626109228377-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Chop your creamed coconut roughly (if required!)
 
 Add the vegetable stock with your ground almonds, chopped creamed coconut and a pinch of sugar and cook for 6-8 min further, stirring occasionally, or until the sauce has thickened and the tomatoes have softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626109235533-x200.jpg)
 
 ### Step 7
 

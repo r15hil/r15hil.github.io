@@ -27,6 +27,7 @@ Give classic risotto an umami hit with creamy miso, king prawns and crisp manget
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687782633524-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687782636437-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Slice your mangetout in half lengthways
 
 Drain your sweetcorn
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687782639188-x200.jpg)
 
 ### Step 3
 
@@ -52,16 +55,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion to the pan with the chopped garlic, chopped ginger and a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687782642769-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your miso paste in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water – this is your miso stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687782646269-x200.jpg)
 
 ### Step 5
 
 Once beginning to soften, add your arborio rice to the pan with your lime leaf[ves] and mirin and cook for 1 min or until evaporated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687782649247-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Once evaporated, add the miso stock to the pan a ladle at a time, stirring conti
 
 Meanwhile, drain your king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687782652574-x200.jpg)
 
 ### Step 7
 

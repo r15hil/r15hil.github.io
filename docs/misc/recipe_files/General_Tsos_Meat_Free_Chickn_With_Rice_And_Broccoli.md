@@ -27,6 +27,7 @@ It’s the USA’s favourite Chinese takeaway, yet no one knows if General Tso e
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1647358605310-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1647358609960-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Lay the broccoli florets in the middle with your toasted sesame oil, 1 tbsp <sp
 
 Scrunch the edges of the foil around the broccoli to form a sealed parcel[s] and put the tray in the oven for 12 min or until tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1647358613204-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Whilst the broccoli is cooking, peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1647358618081-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Combine 1/2 tsp per person of cornflour (save the rest for later!), your soy sau
 
 Add your Chinese rice wine and maple syrup and give everything a good mix up – this is your maple syrup sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1647358637148-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated meat-free chick'n and cook for 6-7 min on each side or until golden
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1647358641746-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the chopped garlic, chopped ginger and chilli flakes (can't handle the heat?
 
 Once fragrant, add the maple syrup sauce and cook for 1 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1647358645298-x200.jpg)
 
 ### Step 7
 

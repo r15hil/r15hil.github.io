@@ -28,6 +28,7 @@ Grab a seat for the smokiest show in town. You’ll coat fable mushroom bites in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680102308505-x200.jpg)
 
 ### Step 1
 
@@ -39,21 +40,25 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680102315896-x200.jpg)
 
 ### Step 2
 
 Combine your vegan mayo and sriracha (can't handle the heat? Go easy!) in a bowl with half your honey and half your white wine vinegar (you'll use the rest later!)– this is your sweet & spicy mayo
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680102324038-x200.jpg)
 
 ### Step 3
 
 Combine the remaining white wine vinegar and remaining honey in a small bowl with a drizzle of olive oil – this is your dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680102332844-x200.jpg)
 
 ### Step 4
 
 Chop your Fable pulled mushrooms in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680102340964-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Add the chopped fable mushrooms and mix until fully combined
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour with a pinch of salt and stir it all together – these are your coated mushrooms
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680102348499-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once hot, add the coated mushrooms and cook for 4-5 min on each side or until cr
 
 Once cooked through, season with a generous pinch of salt – these are your popcorn Fable mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680102356086-x200.jpg)
 
 ### Step 7
 

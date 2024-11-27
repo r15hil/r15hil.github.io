@@ -26,6 +26,7 @@ Give your risotto a kick with spicy ‘nduja, garlic and tangy tomatoes. Serve u
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-3-1688138239382-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely dice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-3-1688138243403-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced shallot and chopped garlic with a pinch of salt and cook for 2-3 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1688138246949-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once softened, add the halved tomatoes to the pan and cook for 3-4 min or until 
 
 Meanwhile, dissolve your chicken stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water – this is your chicken stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-4-1688138251056-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Add your arborio rice and cook for 1 min, stirring to coat the grains in the sau
 
 Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1688138254274-x200.jpg)
 
 ### Step 5
 
 While the risotto is cooking, zest of half your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-4-1688138257580-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ When the risotto is almost ready, heat a separate large, wide-based pan (prefera
 
 Once hot, add the chopped Tenderstem broccoli and cook for 10-12 min or until slightly charred and tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-4-1688138261103-x200.jpg)
 
 ### Step 7
 

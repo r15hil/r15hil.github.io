@@ -23,6 +23,7 @@ This pasta dish is full of wilted spinach, which helps to retain the nutritious 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/725.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the pasta to a large pot with plenty of&nbsp;boiled water and a generous pin
 
 Once cooked, drain and return to the pot with a splash of olive oil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/725.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Dissolve the stock cube<span class="text-danger">[s]</span> in&nbsp;300ml<span c
 
 Add&nbsp;the panko breadcrumbs to&nbsp;a&nbsp;dry, wide-based pan over a medium heat and cook&nbsp;for&nbsp;2-3 min or until toasted and lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/725.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surf
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/725.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Add the chopped parsley, lemon zest, a pinch of salt and pepper and&nbsp;1 tbsp 
 
 Cut the remaining lemon into wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/725.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Crumble the goat's cheese into the bowl with the seasoned breadcrumbs and mix to
 
 You will have breadcrumbs left over, which you'll use at the end&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/725.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Return the drained pasta to a medium-high heat and add the tomato stock&nbsp;
 
 Stir very thoroughly, this with help release the natural starches from the pasta, making the dish creamier
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/725.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Get the kids involved in the kitchen with this delicious Italian classic. You’
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1689669857397-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1689669861794-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add your tomato paste to a bowl with the grated garlic, dried oregano and a pinc
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1689669866105-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Cut your cucumber into batons
 
 Combine your balsamic vinegar with a generous drizzle of olive oil in a bowl – this is your balsamic dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689669870246-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Top with the torn mozzarella
 
 Tip: Cooking for 2 or more? Make sure the pizza doesn't overlap on the tray to avoid raw dough!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689669874797-x200.jpg)
 
 ### Step 5
 
 Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your margherita pizza
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689669877739-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add your chilli flakes (can't handle the heat? Go easy!) to a small heatproof bo
 
 Carefully pour the heated oil into the bowl, give it a good mix up and set aside for later – this is your chilli oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689669883443-x200.jpg)
 
 ### Step 7
 

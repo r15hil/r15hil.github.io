@@ -25,6 +25,7 @@ Leave the knife and fork behind, because this one's meant to be messy! You'll sm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1717667412805-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Peel and cut your sweet potatoes into fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1717667418403-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the sweet potato fries to a baking tray(or two!) with a drizzle of vegetable
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1717667574481-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add your cornflour and a pinch of salt to a bowl
 
 Add the chicken pieces to the cornflour and give everything a good mix up so the chicken pieces are fully coated – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1717667582345-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once hot, add the coated chicken and cook for 5 min on each side, or until nic
 
 Once done, transfer the golden chicken to a plate covered with kitchen paper and set aside for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1717667588531-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once melted, remove the pot from the heat and add your sriracha hot chilli sauce
 
 Stir everything together until it combines and becomes a sauce-like consistency – this is your buffalo sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1717667594758-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Combine your natural yoghurt, Dijon mustard, grated garlic and chopped chives 
 
 Add a drizzle of olive oil and season with a pinch of salt and pepper and give everything a good mix up – this is your ranch dip
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1717667600218-x200.jpg)
 
 ### Step 7
 

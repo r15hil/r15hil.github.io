@@ -21,6 +21,7 @@ The gooey, delicately perfumed golden rice along with the fresh burst of flavour
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/3-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut the tomatoes in half
 
 Dissolve the stock cube<span class="text-danger">(s)</span> in 700ml <span class="text-danger">(1.4L)</span>&nbsp;boiled water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/3-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Cut the courgette<span class="text-danger">(s)</span> in half lengthways and sli
 
 Once the stock has cooled slightly, add the saffron
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/3-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once&nbsp;hot, add the onion and cook for 1 min, stirring constantly
 
 Add the rice and cook for 1 min, stirring constantly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/3-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add 300ml <span class="text-danger">(600ml)</span>&nbsp;stock to the rice (save 
 
 Reduce the heat and simmer for 7-8 min, stirring often
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/3-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Drizzle with olive oil
 
 Season&nbsp;generously with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/3-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Put the vegetables in the oven
 
 Cook for 10-15 min or until tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/3-step-7-x200.jpg)
 
 ### Step 7
 

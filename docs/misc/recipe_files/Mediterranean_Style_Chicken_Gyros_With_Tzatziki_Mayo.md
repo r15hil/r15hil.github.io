@@ -28,6 +28,7 @@ Embrace the flavours of the Aegean Islands with warmed naans and pan-fried chick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1678900717112-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook your food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1681210882213-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add your chicken breast strips with your soy sauce and the juice of half your lemon[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1681210890811-x200.jpg)
 
 ### Step 3
 
 Sprinkle your ground smoked paprika over the chicken and cook for 5-6 min on each side or until cooked through (no pink meat!) – this is your Mediterranean-style chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1681210934297-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Chop half your cucumber (you'll use the rest later!) into small, bite-sized piec
 
 Chop your parsley roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1681210942365-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Combine the diced tomato and chopped cucumber in a bowl with half the chopped pa
 
 Add your naan[s] to a toaster for 1-2 min or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1681210946811-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Grate the deseeded cucumber and squeeze out any excess water
 
 Combine your mayo and grated cucumber in a bowl with the juice of the remaining lemon, the remaining ground sumac and a pinch of salt and pepper – this is your tzatziki mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1681210997637-x200.jpg)
 
 ### Step 7
 

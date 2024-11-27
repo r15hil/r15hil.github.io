@@ -26,6 +26,7 @@ This tasty twist on pasta and meatballs is a real crowd-pleaser. For oodles of f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641295024216-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add your meat free mince (remove the paper if required!) to a bowl with a gener
 
 Mix thoroughly until fully combined, divide and roll into 3 meatballs per person
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641295027625-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Boil half a kettle
 
 Peel and finely grate your red onion[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641295030080-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Sit the meat-free mince meatballs over the grated red onion in an oven-proof
 
 Put the dish in the oven for 8-10 min or until the onion has started to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641295033684-x200.jpg)
 
 ### Step 4
 
@@ -56,11 +60,13 @@ While the onion is softening, dissolve your vegetable stock mix, tomato paste an
 
 Add your dried oregano, balsamic vinegar and chopped tomatoes and give everything a good mix up – this is your tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641295036327-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add the tomato sauce to the dish and cook for 15-20 min<span class="text-danger"> </span>or until the meatballs are cooked through and the sauce has thickened to a ragù-like consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641295039365-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641295041972-x200.jpg)
 
 ### Step 7
 

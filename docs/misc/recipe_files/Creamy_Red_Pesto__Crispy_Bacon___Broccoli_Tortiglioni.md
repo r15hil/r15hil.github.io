@@ -23,6 +23,7 @@ For this easy smoky pasta, you'll whip up a creamy red pesto sauce to coat Tende
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1533.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,16 +33,19 @@ Add your tortiglioni to a pot of boiled water with a large pinch of salt and bri
 
 Cook the tortiglioni for an initial 8-10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1533.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, chop your Tenderstem broccoli in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722950801797-x200.jpg)
 
 ### Step 3
 
 Heat a large, wide based pan (preferably non-stick) with a drizzle of vegetable oil over a high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1533.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -49,6 +53,7 @@ Once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp
 
 Once done, transfer the bacon to kitchen paper and set aside, reserve the pan – this is your crispy bacon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1533.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -58,6 +63,7 @@ Meanwhile, grate your cheddar cheese
 
 Once done, drain the tortiglioni and broccoli, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1533.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Once hot, add your tomato paste, pesto and soft cheese
 
 Season to taste, adding a pinch of salt and pepper if needed and cook for 1 min or until fully combined – this is your creamy red pesto sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1533.-step-7-x200.jpg)
 
 ### Step 7
 

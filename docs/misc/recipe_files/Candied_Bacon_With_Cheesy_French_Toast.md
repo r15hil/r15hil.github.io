@@ -26,6 +26,7 @@ Give your go-to bacon butty a festive glow-up. Swap bread for crispy, cheesy Fre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1604317529794-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Slice your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1604317534014-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the halved cherry tomatoes to the other side of the tray[s] and drizzle with
 
 Put the tray[s] in the oven for 15-20 min or until the bacon is golden and the tomatoes have softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1604317543551-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook for 3-4 min or until thickened – this is your easy balsamic ketchup
 
 Once done, set aside to cool
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1604317548970-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Crack your egg[s] into a large bowl and add 130ml <span class="text-purple">[190
 
 Season with a pinch of salt and pepper and whisk everything together until smooth – this is your cheesy mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1604317554541-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Dip the ciabatta halves into the cheesy mixture until it's been absorbed by the 
 
 Tip: You may need to double dip to absorb all of the mixture!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1604317561413-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once melted, add the soaked ciabatta and cook for 3-4 min on each side or until 
 
 Tip: You may need to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1604317565882-x200.jpg)
 
 ### Step 7
 

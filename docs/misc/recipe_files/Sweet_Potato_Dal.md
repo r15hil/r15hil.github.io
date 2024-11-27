@@ -25,6 +25,7 @@ Incredibly nutritious, Dal is high in protein, low G.I. and counts as 1 of your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/240-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Crush the garlic with the back of a knife, peel and chop (or grate) very finely
 
 Peel the ginger with a teaspoon and chop (or grate) very finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/240-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the sweet potatoe wedges, garlic, ginger and chilli flakes (careful, adjust 
 
 Toss together with 1-2 tbsp of vegetable oil and season to taste with salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/240-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Transfer the coated wedges onto a baking tray (non-stick preferable) and cook fo
 
 Meanwhile, rinse the lentils and add to a wide pot (with a lid) with 650ml <span class="text-danger">(1.3L)</span> of water on a high heat and bring to a boil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/240-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once boiling, reduce the heat to medium-low and simmer covered for 20 min, or un
 
 Stir until resembling a thin mash
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/240-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Once hot, add the onion and a pinch of both the sugar and salt to the pan
 
 Reduce the heat to a medium-low and cook for 20-25 min, or until crispy and brown, stirring occasionally (lowering the heat to prevent burning)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/240-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Wash, drain and pat dry the spinach for step 7
 
 Chop the coriander finely for serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/240-step-7-x200.jpg)
 
 ### Step 7
 

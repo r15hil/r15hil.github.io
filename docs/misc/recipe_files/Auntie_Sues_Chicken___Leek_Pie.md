@@ -20,6 +20,7 @@ Creamy and hearty, this delicious Chicken and Leek Pie is a homage to the comfor
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/949.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Meanwhile, wash the leek<span class="text-danger">[s]</span> carefully to remove
 
 Heat a large, wide-based pan with a drizzle of olive oil over a medium heat and once hot, add the sliced leeks and cook for 6-7 min or until they've softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/949.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once cooked, drain and return them to the pot
 
 Return the drained potatoes to a low heat and add a splash of milk and a large knob of butter and mash until smooth
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/949.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once the leeks have softened, add the chopped chicken to the pan with a generou
 
 Strip the thyme leaves from their stalks and add them to the pan (don't worry if some of the stalks make it into the pan <span class="text-highlight">too)</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/949.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Gradually stir in 200ml <span class="text-danger">[400ml]</span> milk and cook 
 
 Add the wholegrain mustard and season with a pinch of salt and pepper <span class="text-highlight">–</span> this is your chicken and leek mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/949.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Spread the mash evenly on top and run a fork over the top to give it <span class
 
 Put the dish in the oven and cook for 15-20 min or until it's golden and bubbling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/949.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Cut at an angle into small bite-sized pieces
 
 Boil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/949.-step-7-x200.jpg)
 
 ### Step 7
 

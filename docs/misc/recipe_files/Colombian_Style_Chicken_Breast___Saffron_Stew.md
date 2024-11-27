@@ -25,6 +25,7 @@ Give dinner a pop of colour with this Colombian lunchtime staple, packed with vi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1683709630455-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once hot, add the chicken breast portions with a pinch of salt and cook for 3 mi
 
 Once browned, transfer to a plate and reserve the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1683709679954-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1683709688237-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add the sliced onion and pepper strips with a pinch of salt and cook f
 
 Tip: add another drizzle of oil if your pan is looking a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1683709711737-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cut the waxy potatoes in half
 
 Chop the tomatoes finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1683709725033-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the browned chicken, chopped waxy potatoes, chopped tomato and saffron stock
 
 Once boiling, reduce the heat to medium and cook, covered, for 10-15 min or until the potatoes are tender and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1683709764324-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-3-1683709788853-x200.jpg)
 
 ### Step 7
 

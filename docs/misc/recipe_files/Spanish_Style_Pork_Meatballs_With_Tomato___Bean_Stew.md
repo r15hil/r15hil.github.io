@@ -26,6 +26,7 @@ Tuck into this Spanish-style family favourite with a twist. You’ll whip up a h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688737993753-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and finely
 
 Peel and finely chop (or grate) your garlic, then chop your parsley finely, including the stalks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688737996909-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide equally and shape them into 3 meatballs per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688738000771-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Dissolve your chicken stock mix in 125ml <span class="text-purple">[185ml]</span
 
 Drain and rinse your cannellini beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688738004345-x200.jpg)
 
 ### Step 4
 
 Add the pork meatballs to a baking tray (or two!) (use baking paper to avoid mess!) and put the tray[s] in the oven for 15-18 min or until cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688738007553-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once softened, add the remaining chopped garlic with your dried thyme and ground
 
 Cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688738010842-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once fragrant, add your chopped tomatoes and chicken stock to the pot with the d
 
 Once boiling, reduce the heat to medium and cook for 5-6 min or until thickened – this is your tomato & cannellini bean stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688738013430-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Torti-mosas? Samosillas? Whatever they’re called, your next dinner deserves th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1650386300104-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Top, tail, peel and grate your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1650386306809-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the diced shallot and grated carrot with a pinch of salt and cook 
 
 Once starting to soften, add your lamb mince and cook for 5 min or until browned, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1650386321787-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once the lamb is browned, add the chopped garlic, ground cumin, curry powder and
 
 Meanwhile, combine 2 tbsp <span class="text-purple">[2 1/2 tbsp]</span> <span class="text-danger">[3 tbsp]</span> flour with 2 tbsp<span class="text-purple"> [2 1/2 tbsp]</span> <span class="text-danger">[3 tbsp]</span> water in a bowl to form a thick paste – this is your flour paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1650386330413-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Tip: This will make filling your tortillas easier!
 
 Repeat this with the remaining tortillas – these are your samosa shells
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1650386343917-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Use the remaining flour paste to seal the top half of the samosa shells – thes
 
 Tip: Press firmly on the edges to make sure there are no gaps!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1650386359185-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Put the tray[s] into the oven for 8-10 min or until golden
 
 Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1650386374848-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ We've switched up the classic burger for a plant-based option that's full of sop
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599142964634-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599142977549-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Dice your tomato[es] finely
 
 Chop your basil finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599142981976-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Combine the chopped olives, basil and tomato with 1 tbsp <span class="text-purpl
 
 Stir it all together – this is your olive & basil tapenade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599142991213-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine your tomato paste with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> cold water, a pinch of salt, pepper and sugar and the chopped garlic (not a fan of raw garlic? Go easy!) in a separate bowl – this is your garlicky tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599143004652-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Slice your brioche bun[s] in half, then reassemble
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599143032697-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Top the patty[ies] with a cheese flavour slice and add the sliced brioche bun[s]
 
 Return the tray[s] to the oven for 3-4 min or until the cheeze has melted and the brioche is warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599143047599-x200.jpg)
 
 ### Step 7
 

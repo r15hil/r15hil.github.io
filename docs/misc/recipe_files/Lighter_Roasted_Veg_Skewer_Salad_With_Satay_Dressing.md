@@ -29,6 +29,7 @@ While your rainbow veg skewers roast in the oven, you'll whip up a quick, nutty 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-7-1657641974314-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and rinse under cold water to cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-7-1657641979071-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Deseed the peppers (scrape the seeds and pith out with a teaspoon) and cut into 
 
 Peel and cut your red onion[s] into large wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-6-1657641983758-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the chopped veg to a large bowl, drizzle with 1 tbsp <span class="text-pur
 
 Add your curry powder to the bowl and give everything a good mix up – this is your coated veg
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-7-1657641989669-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Sprinkle your sesame seeds over the veg skewers
 
 Put the tray in the oven for 10-15 min or until everything has browned and is starting to char – these are your roasted veg skewers
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-7-1657642002157-x200.jpg)
 
 ### Step 5
 
@@ -78,11 +83,13 @@ Combine your cultured coconut in the reserved bowl with the juice of half the li
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> cold water and give everything a good mix up – this is your creamy satay dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-7-1657642007221-x200.jpg)
 
 ### Step 6
 
 Wash, then shred your lettuce finely and pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-7-1657642025493-x200.jpg)
 
 ### Step 7
 

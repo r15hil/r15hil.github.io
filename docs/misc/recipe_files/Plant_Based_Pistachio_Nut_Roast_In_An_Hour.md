@@ -27,6 +27,7 @@ This vegan roast dinner in an hour will blow your Christmas socks off. You'll st
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1635846081849-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large wide-based pan (preferably non-stick) over a medium-low heat with 
 
 Once hot, add the chopped onion with a generous pinch of salt and cook for 5-6 min, then increase the heat to high, add the chopped mushrooms and cook for a further 5-7 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630927211240-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the halved potatoes to a pot of boiled water with a large pinch of s
 
 Once the potatoes are done, drain and leave them to steam dry, reserving the pot for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630927225726-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the drained lentils, chopped cranberries, chopped pistachios, panko breadcr
 
 Give everything a good mix up then mash until chunky – this is your pistachio nut roast mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630927260813-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the pistachio nut roast mixture to the prepared tin (no loaf tin? Shape int
 
 Add a large drizzle of vegetable oil to 1 <span class="text-danger">[2] </span>baking tray<span class="text-danger">[s]</span> and put in the oven to heat up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630927270708-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once the tray<span class="text-danger">[s]</span> of oil are hot, carefully add 
 
 After 15 min add the Brussels sprouts to the tray<span class="text-danger">[s] </span>and return to the oven for a further 10 min or until the potatoes are crispy – these are your roasted vegetables
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630927294240-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Heat the reserved pot with a drizzle of vegetable oil over a medium heat, then a
 
 Season with salt and pepper and cook, covered, for 20-25 min or until the water has evaporated – this is your braised red cabbage
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630927635641-x200.jpg)
 
 ### Step 7
 

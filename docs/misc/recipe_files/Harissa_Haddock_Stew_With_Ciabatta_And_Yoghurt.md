@@ -26,6 +26,7 @@ To whip up this speedy stew, you'll infuse haddock bites and chickpeas with rich
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1616426880850-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1611.-step-2.new-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Now, let's get started!
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1611.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Drain the chickpeas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1611.-step-4-x200.jpg)
 
 ### Step 4
 
 Once hot, add the roasted garlic paste, tomato paste and drained chickpeas to the pan and cook for 30 secs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1611.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Add 150ml<span class="text-danger"> [300ml]</span> boiled water to the pan with 
 
 Give everything a good mix up and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1611.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once boiling, sit the haddock bites (unevenly sized haddock bites? Chop any lar
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1611.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Take burgers up a notch with this Indian-style twist. You'll infuse the juicy la
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720171985025-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the potato wedges to a baking tray(or two!) with a drizzle of vegetable oil,
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your nigella wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720172102383-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Combine your lamb mince and curry powder in a bowl with a generous pinch of salt
 
 Massage the meat with clean hands for 1 min (this helps the patties hold their shape whilst cooking) then shape into 1 patty per person– these are your curried lamb patty[ies]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720172115764-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Line a baking tray with tin foil
 
 Add the curried lamb patty[ies] to the tray and put it in the oven for 15-20 min or until cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720172128605-x200.jpg)
 
 ### Step 4
 
@@ -56,11 +60,13 @@ Meanwhile, top, tail, peel and grate your carrot[s]
 
 Chop your coriander roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720172148155-x200.jpg)
 
 ### Step 5
 
 Combine the grated carrots and chopped coriander in a bowl with a drizzle of olive oil, 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and a generous pinch of salt and pepper – this is your chopped salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720172157018-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once the potatoes are almost done, remove the tray[s] from the oven and add the 
 
 Return the tray[s] to the oven for 3-4 min or until the bread has warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720172179447-x200.jpg)
 
 ### Step 7
 

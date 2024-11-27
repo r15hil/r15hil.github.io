@@ -31,6 +31,7 @@ Fancy a roast with a classic curry house twist? Pair this fiery vindaloo-style p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708093451166-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop your potatoes (skins on) into bite-sized pieces and add them to a baking pa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until everything is golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708093456936-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Crush your cardamom pod[s] open by squashing with the side of a knife
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708093462827-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once hot, add to the pan and cook for 5-6 min on each side or until golden and c
 
 Once cooked through, transfer the cooked steak[s] to a plate to rest and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708093469333-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or unt
 
 Once the onion has softened, add half the chopped garlic & ginger (you'll use the rest later!), crushed cardamom, cumin seeds, chilli flakes (can't handle the heat? Go easy!), tomato paste and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708093485226-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Stir it all together and cook for 5-6 min or until the sauce begins to thicken t
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708093489949-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Heat a separate large, wide-based pan (preferably non-stick) over a medium heat 
 
 Once hot, add the sliced spring greens with the remaining chopped garlic & ginger and a pinch of salt and cook for 3-4 min or until tender with a bite – these are your garlic & ginger greens
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708093525147-x200.jpg)
 
 ### Step 7
 

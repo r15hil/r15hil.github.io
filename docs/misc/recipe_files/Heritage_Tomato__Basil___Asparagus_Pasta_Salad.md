@@ -23,6 +23,7 @@ Add colourful heritage tomatoes to your plate with a summery pasta salad. You'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-9-1593612603157-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Trim the woody ends off your asparagus and discard, then chop the spears in half
 
 Tip: Alternatively, bend the woody ends of the asparagus until they snap!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1592296335376-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the chopped heritage tomatoes to a baking tray with a drizzle of olive oil a
 
 Put the tray in the oven for 10 min or until the tomatoes are beginning to blister and caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1592296338397-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add your conchiglie to a pot of boiled water with a large pinch of salt and brin
 
 Cook the conchiglie for an initial 7 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1592296342762-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Meanwhile, roughly tear half your basil, including the stalks (you’ll use the 
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1592296348196-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span><span class="text-danger
 
 Stir to combine – this is your basil & lime dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1593612609748-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once done, drain and run both under cold water until slightly cooled
 
 Tip: If you prefer your salad warm, don't run the pasta and asparagus under cold water!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1592296355570-x200.jpg)
 
 ### Step 7
 

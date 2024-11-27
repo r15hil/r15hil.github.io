@@ -24,6 +24,7 @@ Spiced popcorn tofu is a plant-based takeaway night treat! You’ll marinate tof
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2407Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Drain the tofu and pat it very dry with kitchen paper
 
 Cut the tofu into small, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2407Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the tofu to a bowl with the soy sauce, ground cumin, ground coriander, c
 
 Give everything a good mix up and set aside to marinate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2407Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,21 +57,25 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2407Step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add the free from mayonnaise and the BBQ sauce to a small bowl and stir it all together – this is your BBQ mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2407Step-5-x200.jpg)
 
 ### Step 5
 
 Add the panko breadcrumbs to the bowl with the tofu and mix together until the tofu is coated in the panko – this is your spiced popcorn tofu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2407Step-6-x200.jpg)
 
 ### Step 6
 
 Add the spiced popcorn tofu to the tray with the chips and cook for 10-12 min or until golden brown
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2407Step-7-x200.jpg)
 
 ### Step 7
 

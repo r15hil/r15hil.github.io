@@ -23,6 +23,7 @@ Simple reigns supreme in this Sicilian-inspired dish. You'll flavour chicken wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/617_step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the linguine to a pot of boiled water with a large pinch of salt and bring t
 
 Cook the linguine for 8-10 min or until cooked with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/617_step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Peel and roughly chop the garlic
 
 Add the capers and black olives to the board and chop them together with the garlic until everything's finely chopped
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/617_step-3-x200.jpg)
 
 ### Step 3
 
 Dissolve the chicken stock mix in 150ml <span class="text-danger">[300ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1614598421521-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Grate the cheddar cheese
 
 Slice the pepper<span class="text-danger">[s] </span>into strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614598426470-x200.jpg)
 
 ### Step 5
 
@@ -60,11 +65,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced chicken thigh and the pepper strips with a pinch of salt and pepper and cook for 3-4 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1614598430739-x200.jpg)
 
 ### Step 6
 
 Add the chopped capers, garlic and olives to the pan and cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1614598434323-x200.jpg)
 
 ### Step 7
 

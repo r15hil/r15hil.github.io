@@ -28,6 +28,7 @@ This creamy plant-based linguine is absolutely dreamy. You’ll simmer caramelis
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674576469810-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Trim, then cut your asparagus in half
 
 Tip: Alternatively, bend the woody ends of the asparagus until they snap!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674576479836-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add your walnuts and cook for 2-3 min or until toasted and lightly gol
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674576490549-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once done, drain the linguine and return to the pot, reserving a cup of the star
 
 Reboil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674576508686-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once hot, add the diced shallot and sliced mushrooms with a pinch of salt and co
 
 Once softened, add the chopped garlic, dried oregano and soy sauce with 1 tsp <span class="text-purple">[1 1/2 tsp]<span class="text-danger"> </span>[2 tsp]</span> flour and cook for 2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674576516763-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Cut your lemon[s] in half
 
 Finely chop your toasted walnuts
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674576530102-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once boiling, reduce the heat to medium-high and cook for 4-5 min or until start
 
 Once starting to thicken, add your halved asparagus and a pinch of salt and a good grind of pepper and cook, covered, for a further 3-4 min or until the asparagus is tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674576540772-x200.jpg)
 
 ### Step 7
 

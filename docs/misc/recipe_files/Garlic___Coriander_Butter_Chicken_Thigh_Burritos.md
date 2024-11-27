@@ -32,6 +32,7 @@ These buttery burritos are banging. You’ll whip up a creamy butter chicken cur
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679049679812-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add your basmati rice, cardamom pod[s] and 250ml <span class="text-purple">[320m
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679049685715-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Season with a generous pinch of salt and pepper and give everything a good mix u
 
 Add the marinated chicken to a baking paper-lined tray (or two!) and place in the oven for 12-15 min or until the chicken is cooked through (no pink meat!) and starting to char – this is your tandoori chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679049690689-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Chop your coriander finely, including the stalks
 
 Add the chopped garlic and half the chopped coriander (you'll use the rest later!) to a small bowl with a large knob of butter and mix it all together – this is your garlic & coriander butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679049696177-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purp
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679049701368-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once fragrant, add the tomato stock and cook for 4-5 min or until the sauce has 
 
 Once thickened, remove the pan from the heat and stir through the remaining natural yoghurt, tandoori chicken (reserve the tray[s]) and remaining chopped coriander – this is your butter chicken curry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679049705644-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Roll the tortilla until you’re left with a burrito – these are your butter c
 
 Tip: Go light on the filling on your first one so that you don't overfill the burritos!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679049718050-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Lemon chicken is a classic, and our sweet and tangy, baked-not-fried twist is le
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until it's tender with a slight bite, then once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add your free range chicken breast portion[s] to a tin foil-lined baking tray w
 
 Top each piece of chicken with a lemon slice and put the tray in the oven for 15 min or until cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your chicken stock mix, soy sauce and honey and whisk until smooth
 
 Squeeze in the juice of the remaining lemon[s] – this is your lemon stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5--1700124015415-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add your shredded kale to a large baking tray (or two!) with a pinch of salt,
 
 Give everything a good mix up and put the tray[s] in the oven for 10-12 min or until crispy – this is your crispy kale
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6--1700124017563-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once softened, add the lemon stock and cook for 5-6 min or until thickened
 
 Once thickened, remove from the heat and stir through your toasted sesame oil – this is your lemon & ginger sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2412Step-7-x200.jpg)
 
 ### Step 7
 

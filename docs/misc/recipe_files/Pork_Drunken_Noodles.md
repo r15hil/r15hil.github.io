@@ -25,6 +25,7 @@ These noodles are inspired by street food in North Thailand, and are perfect if 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2351Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2351Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once tender, drain the noodles, reserving a cup of the starchy noodle water
 
 Tip: Drizzle the noodles with a little vegetable oil to stop them from sticking together
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2351Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,11 +57,13 @@ Once hot, add the sliced onion and cook for 2-3 min or until starting to soften
 
 Once softened, add the chopped ginger and garlic and cook further for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2351Step-4-x200.jpg)
 
 ### Step 4
 
 Once fragrant, add the pork mince to the pan with a pinch of salt and cook for 5-7 min or until the pork has browned and beginning to crisp, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2351Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Chop any larger leaves in half
 
 Once the pork has browned, add the chopped pak choi and sliced spring onion to the pan with a splash of starchy noodle water and cook for 3-4 min or until they're softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2351Step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Chop the basil finely, including the stalks
 
 Slice the red chilli<span class="text-danger">[es] </span>finely (scrape the seeds out with a teaspoon if you can't handle the heat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2351Step-7-x200.jpg)
 
 ### Step 7
 

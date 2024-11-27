@@ -22,6 +22,7 @@ For this warm, springtime salad, you'll crisp potatoes until golden, then bake y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1589291911128-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skins on) into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1589291923648-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ Add the chopped potatoes to one side of a tin foil-lined baking tray with a gene
 
 Give everything a good mix up and put the tray in the oven for an initial 15-20 min or until the potatoes are starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1589291933982-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Top, tail and slice finely
 
 Combine in a bowl your mayo, Dijon mustard and white wine vinegar with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil and a generous pinch of salt and pepper – this is your mustard mayo dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1589291945831-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Return the tray to the oven for a further 8-10 min or until the potatoes are gol
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1589291954623-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once boiling, cook for exactly 8 min for perfect, mid-boiled eggs, then fill a b
 
 Once cooled, peel the egg and cut into quarters
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1589291966503-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the sliced leek with a small pinch of salt and cook for 4-5 min or until softened and slightly caramelised
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1589291975588-x200.jpg)
 
 ### Step 7
 

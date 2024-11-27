@@ -25,6 +25,7 @@ Whip out the wok for this chicken breast stir-fry, packed with pepper and full o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1678273582265-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678273455434-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Top, tail and grate your carrot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678273458761-x200.jpg)
 
 ### Step 3
 
@@ -54,11 +57,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and chopped pepper to the pan with a pinch of salt and cook for an initial 6 min or until the chicken is starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678273462952-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your soy sauce and toasted sesame oil in a bowl with your sriracha (can't handle the heat? Go easy!), cornflour, 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> sugar and 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp]</span> cold water and mix until smooth – this is your spicy sesame sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678273467184-x200.jpg)
 
 ### Step 5
 
@@ -66,11 +71,13 @@ Once the chicken has had an initial 6 min, add your ginger & garlic paste, grate
 
 Tip: Gently separate the noodles with a fork!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678273471986-x200.jpg)
 
 ### Step 6
 
 Trim, then finely slice your spring onion[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678273479275-x200.jpg)
 
 ### Step 7
 

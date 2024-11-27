@@ -20,6 +20,7 @@ Halloumi cheese has a salty, almost meaty character that lends itself perfectly 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/387.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Deseed the yellow&nbsp;pepper<span class="text-danger">[s]</span> (scrape the se
 
 Boil a kettle&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/387.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cook on a very&nbsp;low heat for 15-20 min or until softened and caramelised
 
 Tip:&nbsp;watch the heat and adjust to prevent burning
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/387.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,16 +59,19 @@ Cover and set aside&nbsp;
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/387.-step-4-x200.jpg)
 
 ### Step 4
 
 Slice the halloumi into sticks (see picture)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/387.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine the harissa paste with 2 tbsp <span class="text-danger">[4 tbsp]</span>&nbsp;olive oil, half of the white wine vinegar (keep the rest for later), 2 tbsp <span class="text-danger">[4 tbsp]</span>&nbsp;boiled water and 1 tsp <span class="text-danger">[2 tsp]</span>&nbsp;sugar and mix well - this is your harissa dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/387.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add&nbsp;most of the harissa&nbsp;dressing (keep a little for garnish) and toss 
 
 Add the remaining white wine vinegar and 1 tbsp <span class="text-danger">[1 1/2 tbsp]</span>&nbsp;sugar to the pepper and onion pan, and cook for 2 min further, then transfer them to the salad bowl and wipe the pan clean with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/387.-step-7-x200.jpg)
 
 ### Step 7
 

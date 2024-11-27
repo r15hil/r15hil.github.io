@@ -25,6 +25,7 @@ Try something new with this aromatic fish dish, steamed 'en papillote' (in a par
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1601376150921-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Wash your pak choi, trim off the roots and discard, then separate the leaves
 
 Cut pieces of baking paper (or tin foil) approx. the size of A3 sheets of paper, then lay the pak choi leaves in the middle of 2 pieces of baking paper (doubling it up prevents any leakages) and add to a baking tray (or two!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1601376167577-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1601376173266-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Combine the chopped creamed coconut in a jug with your tamari soy sauce, ginger 
 
 Mix until fully combined – this is your fiery coconut sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1601376185205-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Rinse your blanched edamame beans under cold running water
 
 Sprinkle the edamame beans over the pak choi, then top with half the chilli rounds (not a fan of spice? Just add a little!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1601376191917-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Top with your basa fillet[s], then divide the remaining fiery coconut sauce even
 
 Scrunch the edges of the baking paper around the fish to form 1 sealed parcel per person, making sure to leave space between the top of the fish and the paper (this is to prevent sticking)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1601376197336-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Put the tray[s] in the oven for 15 min or until the veg has softened and the fis
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1601376206925-x200.jpg)
 
 ### Step 7
 

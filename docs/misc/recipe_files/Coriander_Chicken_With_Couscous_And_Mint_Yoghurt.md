@@ -25,6 +25,7 @@ Seasoning chicken with zingy coriander packs it with flavour in no time. Serve w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612884066096-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581516192868-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and cook for 7-8 min or until mostly cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581516199227-x200.jpg)
 
 ### Step 3
 
 Meanwhile, cut your cucumber into batons
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581516204992-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Dissolve your chicken stock mix in 200ml <span class="text-purple">[300ml] </spa
 
 Add your couscous to a heat-proof bowl with the chicken stock, cover and set aside until all of the stock has been absorbed
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581516211336-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Roll your lemon[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581516215620-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Give everything a good mix up and cook for 3-4 min further or until the chicken 
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot) as cooking equipment varies
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625829590742-x200.jpg)
 
 ### Step 7
 

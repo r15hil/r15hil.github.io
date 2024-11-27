@@ -31,6 +31,7 @@ This one-pot dish from Louisiana is packed with smoky Creole flavour. You'll siz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-4-1685013428145-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-5-1685013418543-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Add your sausage meat (remove the paper if required!) and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-5-1685013445820-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Boil a kettle
 
 Deseed your peppers (scrape the seeds and pith out with a teaspoon) and chop roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-6-1685013449970-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add your roasted garlic paste and your cayenne pepper (can't handle the heat? Go
 
 Add 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water with your chopped tomatoes, chicken stock mix, chopped peppers and basmati rice and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-6-1685013454144-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Bring to the boil over a high heat
 
 Cover with a lid and put the dish in the oven for 25-30 min or until the rice is cooked and the sausage meat is cooked through (no pink meat!) – this is your spicy jambalaya
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-5-1685013458056-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add a pinch of sugar and pepper with 1 tsp <span class="text-purple">[1 1/2 tsp]
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-6-1685013461015-x200.jpg)
 
 ### Step 7
 

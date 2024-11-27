@@ -21,6 +21,7 @@ Whip up a delicious ham & mushroom pizza at home! You'll make a simple tomato sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1781.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Put a large baking tray (or two) in the oven to heat up (this will stop the pizz
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1781.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the tomato paste to a bowl with the chopped garlic and a generous pinch of s
 
 Add 4 tbsp<span class="text-danger"> [8 tbsp]</span> cold water and give everything a good mix up – this is your tomato base
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1781.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Drain and pat the mozzarella dry with kitchen paper (squeeze as much liquid out 
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1781.-step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -59,16 +63,19 @@ Remove the heated tray<span class="text-danger">[s]</span> from the oven and add
 
 Divide the tomato base between the pizza bases and spread it evenly all over them
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1781.-step-5.new-x200.jpg)
 
 ### Step 5
 
 Top the pizzas with the torn mozzarella, pulled ham hock, sliced mushrooms and a drizzle of olive oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1781.-step-6.new-x200.jpg)
 
 ### Step 6
 
 Put the tray in the oven for 12-15 min or until the cheese has melted and the mushrooms are cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1781.-step-7.new-x200.jpg)
 
 ### Step 7
 

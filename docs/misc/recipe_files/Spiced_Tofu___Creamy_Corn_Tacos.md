@@ -28,6 +28,7 @@ We’re giving the much-loved Mex taco a Gousto twist. You'll cook sweetcorn, sh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650894203238-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely dice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650894208337-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a pot with a matching lid with a drizzle of vegetable oil over a medium hea
 
 Once hot, add the remaining diced shallot with a pinch of salt and cook for 1-2 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650894214660-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once fragrant, add your sweetcorn (no need to drain), 50ml<span class="text-purp
 
 After an initial 5 min remove the lid and cook, uncovered, for a further 3-4 min or until most of the liquid has absorbed, then remove from the heat – this is your spiced corn
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650894219732-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Combine your cornflour with the remaining ground smoked paprika and a generous p
 
 Press the marinated tofu strips into the spiced flour, turning a couple of times until fully coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650894224640-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated tofu strips and cook for 5-6 min, turning occasionally until golden and crisp all over – this is your spiced tofu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650894229569-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the diced tomato, chopped coriander and a pinch of salt to the bowl of quick
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650894232483-x200.jpg)
 
 ### Step 7
 

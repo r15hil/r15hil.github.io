@@ -23,6 +23,7 @@ This Korean stir-fry sees you make your own toasted sesame sauce made from grind
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/486.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Separate the tough outer layers from the tender innards
 
 Add the rice, 375ml <span class="text-danger">(750ml)</span> water, outer lemongrass and salt (optional) to a pot with a matching lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/486.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, cut each mushroom into wedges
 
 Cut the pak choi into bite-size pieces, keeping the white and green seperate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/486.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop the reserved lemongrass innards finely
 
 Slice the spring onion<span class="text-danger">(s)</span> finely, discarding the root end<span class="text-danger">(s) </span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/486.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once hot, add the mushroom with a pinch of salt and cook for 4-5 min or until ca
 
 Tip: Allow your mushrooms to get quite dark - this gives them a smoky flavour!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/486.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Add the sesame seeds to a pestle and mortar
 
 Grind and bash the seeds with some force until you have a coarse powder
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/486.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add 1 tbsp <span class="text-danger">(2 tbsp)</span> boiled water, the soy sauce
 
 Grind thoroughly - this is your sesame sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/486.-step-7-x200.jpg)
 
 ### Step 7
 

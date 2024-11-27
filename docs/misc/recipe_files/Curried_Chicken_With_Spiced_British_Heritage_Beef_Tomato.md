@@ -23,6 +23,7 @@ Summer really is the season to spotlight incredible fruit and veg. For this dish
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1657623481868-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the curry powder to a plate with a pinch of salt and pepper
 
 Add the chicken thighs to the curry powder and turn them several times until they're fully coated in the curry powder – these are your curried chicken thighs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1657623534162-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1657623555956-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once hot, add the curried chicken thighs to the pan and cook for 7-8 min on each
 
 Boil a kettle and preheat the grill to high
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1657623589048-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Sprinkle over the ground cumin and half the chilli flakes (can't handle the heat
 
 Season with a pinch of salt and a small drizzle of olive oil – these are your spiced heritage beef tomato rounds
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1657623611039-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Rinse the wilted spinach under the cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can then chop it roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1657623619242-x200.jpg)
 
 ### Step 6
 
 Put the spiced heritage beef tomato rounds under the grill for 5-6 min until slightly softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1657623658967-x200.jpg)
 
 ### Step 7
 

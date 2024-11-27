@@ -29,6 +29,7 @@ This easy one-pot wonder combines slow-braised mushrooms, carrot and onion in a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1650389332564-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650389443376-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid,
 
 Peel and roughly chop your red onion[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650389379640-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Top, tail and chop your carrot[s] in half lengthways, then slice at an angle
 
 Crush your garlic open by squashing it with the side of a knife and remove the skin
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650389404380-x200.jpg)
 
 ### Step 4
 
 Add your Fable pulled mushrooms to the dish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650389410620-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add your chopped tomatoes, tomato paste, vegetable stock mix and 450ml<span clas
 
 Add your balsamic vinegar with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and bring to the boil over a high heat – this is your spicy tomato ragù
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650389418198-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Cover with a lid and put the dish in the oven for 20 min or until everything's b
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650389423594-x200.jpg)
 
 ### Step 7
 

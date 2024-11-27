@@ -21,6 +21,7 @@ Handmade tortelloni, from the hills of Lombardy to your dinner table. You’ll s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1666696447160-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666696254734-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Slice your pepperoni into thin strips
 
 Once hot, add the pepperoni strips and cook for 2-3 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666696266900-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Meanwhile, peel and slice (don't chop!) your garlic
 
 Wash, then chop your cavolo nero roughly, removing any tough stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666696273045-x200.jpg)
 
 ### Step 4
 
@@ -59,16 +63,19 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666696277086-x200.jpg)
 
 ### Step 5
 
 Once the pepperoni has started to brown, add the chopped cavolo nero and sliced garlic to the pan with a pinch of salt and cook for 2-3 min or until the cavolo nero has wilted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666696281337-x200.jpg)
 
 ### Step 6
 
 Once wilted, add your chicken stock mix, chopped tomatoes and dried oregano to the pan with a splash of starchy pasta water and cook for 1-2 min or until the sauce has slightly thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666696284265-x200.jpg)
 
 ### Step 7
 

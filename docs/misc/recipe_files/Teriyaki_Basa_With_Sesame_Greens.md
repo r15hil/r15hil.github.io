@@ -24,6 +24,7 @@ For this easy cook's trick, you'll season your basa in soy, honey and chilli to 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1675162683657-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675162688963-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Trim, then slice your spring onion[s] finely
 
 Tip: Cooking for 2 or more? Chop them in one bunch for speed!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675162692923-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Set aside to soften
 
 Combine your soy sauce, honey and chilli flakes (can't handle the heat? Go easy!) in a bowl – this is your teriyaki sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675162696847-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your basa fillet[s] to the pan and cook for an initial 4 min on each side
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675162700156-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Tear the top corner of the pouch[es] (just a little!) and put the pouch in the�
 
 Tip: If you're cooking two or more packets, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675162704263-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Cook for 1-2 min further on each side or until the basa is cooked through and th
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675162707524-x200.jpg)
 
 ### Step 7
 

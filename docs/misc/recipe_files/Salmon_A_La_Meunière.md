@@ -23,6 +23,7 @@ French cooking is all about simple flavours at their finest. You'll pan-fry salm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1663068048439-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Cut your potatoes (skins on) into large, bite-sized pieces
 
 Peel your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663067941020-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the chopped potatoes and peeled garlic to a pot of plenty of boiled water wi
 
 Once boiling, cook for 12-15 min or until fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663067950623-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add the juice of half your lemon wedges to a small bowl
 
 Chop your parsley finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663067965304-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Add 3 tbsp<span class="text-danger"> <span class="text-purple">[4 1/2 tbsp]</spa
 
 Press your salmon fillet[s] into the flour so the fish is evenly coated, shaking off any excess
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663067958593-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Drain everything and return to the pot and mash together with a knob of butter â
 
 Season generously with salt and pepper, then cover with a lid to keep warm until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663067967563-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Once done, transfer the salmon to a plate, cover loosely with tin foil and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663067968683-x200.jpg)
 
 ### Step 7
 

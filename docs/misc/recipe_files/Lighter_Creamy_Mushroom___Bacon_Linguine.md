@@ -21,6 +21,7 @@ Our new cannellini bean hack proves 'creamy' sauce can be lower in fat, and pack
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1615291428833-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the bacon lardons and sliced mushrooms and cook for 8-10 min or until the bacon is cooked through and crisp, then transfer to a plate (reserve the pan for later!) – these are your crispy lardons & mushrooms
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1615291439612-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1615291451424-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Dissolve the chicken stock mix in 100ml <span class="text-danger">[200ml] </span
 
 Drain and rinse the cannellini beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1615291462807-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Then peel lengths of the sliced courgette until you have a pile of ’courgetti�
 
 Tip: Have a spiraliser? Use this instead!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1615291483640-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the chicken stock and cook for 1-2 min further
 
 Transfer to a food processor (reserving the pan) and blitz until smooth – this is your creamy bean sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1615291508327-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the creamy bean sauce with a pinch of salt and pepper and give it a good mix
 
 Tip: Add a splash of starchy pasta water if it looks a little thick
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1615291660621-x200.jpg)
 
 ### Step 7
 

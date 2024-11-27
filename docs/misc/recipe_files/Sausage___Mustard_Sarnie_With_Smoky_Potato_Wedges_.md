@@ -23,6 +23,7 @@ Get ready to ignite your taste buds with this banger of a sarnie! Fill your ciab
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/443_step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Place your sausages on a baking tray (lightly oil the tray before to prevent the
 
 Put them in the oven for 25-30 min or until golden brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/443_step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the potato wedges to a separate baking tray with a drizzle of vegetable oil 
 
 Sprinkle your ground smoked paprika over the wedges and put them in the oven for 30 min or until crisp – these are your smoky potato wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/443_step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the sliced onion and cook for 5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/443_step-4-x200.jpg)
 
 ### Step 4
 
 While the onion is cooking, combine your mayo, wholegrain mustard and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>olive oil in a mixing bowl and set aside – this is your wholegrain mustard mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/443_step-5-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Once the onion has softened, add your red wine vinegar, Henderson's Relish, 1.5 
 
 Reduce the heat to low and cook the onion gently for a further 10-15 min, or until sticky and sweet – this is your sticky caramelised red onion relish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/443.-new-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, put your ciabatta[s] in the oven for 5 min or until hot and crusty
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/443_step-7-x200.jpg)
 
 ### Step 7
 

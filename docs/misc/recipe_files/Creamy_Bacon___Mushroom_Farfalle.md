@@ -23,6 +23,7 @@ Take pasta night up a notch with this creamy classic. You’ll toss farfalle wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675770834764-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a full kettle
 
 Slice your chestnut mushrooms finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675770844450-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add your bacon lardons and sliced mushrooms and cook for 6-8 min or until the bacon is cooked through and crisp, then transfer to a plate (reserve the pan and any juices for later!) – these are your crispy lardons & mushrooms
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675770850174-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ While the lardons and mushrooms are cooking, peel and finely dice your brown oni
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675770865728-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked farfalle, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675770872770-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once hot, add the diced onion and cook for 4-5 min or until starting to soften
 
 Once starting to soften, add the chopped garlic and cook for a further 1 min or until fragrant and softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675770879481-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ While the onion is softening, dissolve your chicken stock mix in 100ml <span cla
 
 Once the onion has softened, add the cooked farfalle and crispy lardons & mushrooms to the pan and stir it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675770887490-x200.jpg)
 
 ### Step 7
 

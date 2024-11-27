@@ -31,6 +31,7 @@ This plant-based stew is inspired by the Chilean dish Porotos Granados. For our 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1639051315203-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add your sweetcorn cobettes to a tin foil-lined baking tray with a drizzle of ol
 
 Put the tray in the oven for 25-30 min or until charred and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1639051320061-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-4 min or until beginning to soften and caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1639051325132-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Trim, then chop your green beans in half
 
 Chop your basil finely, including the stalks (reserve a few leaves for garnish!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1639051329065-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ While the butternut squash is cooking, drain and rinse your cannellini beans
 
 Combine your vegetable stock mix and tomato paste with 400ml <span class="text-purple">[520ml] </span><span class="text-danger">[700ml] </span>boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1639051334370-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once the butternut squash has slightly browned, add your ground cumin, dried ore
 
 Add the drained cannellini beans to the pan with a generous grind of black pepper and cook for a further 1-2 min or until everything is coated in the spices
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1639051339859-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ After 4-5 min, add the chopped green beans and chopped basil to the pan and cook
 
 Discard the bay leaf[ves]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1639051346750-x200.jpg)
 
 ### Step 7
 

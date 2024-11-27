@@ -33,6 +33,7 @@ This sumptuous Indian fish pie is an aromatic twist on a classic. You'll cook ha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1.-1632836897108-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Combine your rice vinegar, 1/2 tsp <span class="text-purple">[1/4 tsp] </span><
 
 Add the chilli rounds to the bowl and set aside – this is your quick-pickled chilli
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632836903348-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of
 
 Cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632836951496-x200.jpg)
 
 ### Step 3
 
@@ -66,6 +69,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Chop your creamed coconut roughly (if required!), then dissolve it in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[380ml]</span> boiled water with the vegetable stock mix – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632836979779-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Once hot, add the chopped garlic and ginger and cook for 1 min or until fragr
 
 Add your garam masala and ground turmeric and cook for 30 secs further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632836995687-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Add the spinach to the pan and cook for 5-8 min, stirring frequently or until it
 
 Meanwhile, chop your coriander finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632837018095-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Tip: Unevenly-sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Transfer the Indian-style haddock & king prawn pie mix to an oven-proof dish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632837038519-x200.jpg)
 
 ### Step 7
 

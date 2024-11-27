@@ -29,6 +29,7 @@ Take one bite of this crispy Turkish-style lean beef borek roll and you’ll nev
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-29-1713259975663-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add your lean beef mince to a bowl with the diced shallot, your ground cumin, g
 
 Season with a generous pinch of salt and pepper and mix thoroughly to combine (clean hands is the best way!) – this is your beef filling
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-29-1713259979631-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Cut it, lengthways, into 1 rectangle per person then place the rectangle[s] end 
 
 Tip: Cooking for 4 or more? Make 2!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-35-1713259985506-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Spoon the beef filling into the centre of the pastry in an even line, then brush
 
 Fold the pastry over the filling and seal firmly together, then use a fork to crimp along the edge
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-30-1713259990115-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Tip: Leave a 2 cm gap within the spiral so that it can puff up!
 
 Put the tray[s] in the oven for 25-30 min or until golden and crisp and the beef is cooked through (no pink meat!) – this is your Turkish-style spiced lean beef borek
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-31-1713259994544-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot and stir through your chicken stock mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-31-1713259998892-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Top, tail, peel and grate your carrot[s]
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-31-1713260003794-x200.jpg)
 
 ### Step 7
 

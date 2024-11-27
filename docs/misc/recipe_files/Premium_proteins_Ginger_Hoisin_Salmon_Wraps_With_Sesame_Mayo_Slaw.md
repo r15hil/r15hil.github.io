@@ -30,6 +30,7 @@ Wrap up your week with dinner in 10. You’ll load tortillas with sticky hoisin 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724395137504-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724395141396-x200.jpg)
 
 ### Step 2
 
@@ -52,16 +54,19 @@ Once hot, add your salmon fillet[s], skin-side down, then cook for 9-10 min, tu
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724395145661-x200.jpg)
 
 ### Step 3
 
 While the salmon is cooking, combine your ginger paste and hoisin sauce in a bowl with your soy sauce and give everything a good mix up – this is your hoisin glaze
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724395149679-x200.jpg)
 
 ### Step 4
 
 Combine your mayo and toasted sesame oil in a large bowl with your rice vinegar and a pinch of salt and give everything a good mix up – this is your sesame mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724395153036-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Trim, then slice your spring onion[s] finely
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724395156340-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Break the cooked salmon apart into bite-sized pieces with a wooden spoon and giv
 
 Sprinkle your toasted sesame seeds and black sesame seeds over the salmon – this is your ginger hoisin salmon
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724395160514-x200.jpg)
 
 ### Step 7
 

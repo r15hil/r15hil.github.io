@@ -30,6 +30,7 @@ Get ready for a dal-icious dinner. You’ll simmer red lentils with creamy cocon
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684497854598-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a s
 
 Once hot, add the diced onion with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684497857456-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Slice your red chilli[es] finely
 
 Rinse your red lentils under cold running water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684497867487-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Dice the mango flesh finely, discarding the stone[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684497864220-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Cook for 1 min or until fragrant
 
 Once fragrant, add your tomato paste with half the sliced chilli (can't handle the heat? Go easy!), half the diced mango (you'll use the rest later!) and the chopped creamed coconut
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684497871029-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-20 min, stirring occasionally, until thickened – this is your coconut & mango dal
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684497875882-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once cooked, remove from the heat and keep covered until serving
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684497878444-x200.jpg)
 
 ### Step 7
 

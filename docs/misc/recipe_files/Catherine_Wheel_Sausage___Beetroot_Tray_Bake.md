@@ -25,6 +25,7 @@ Fire up Bonfire Night with this banging tray bake. You'll roast beetroot, pepper
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2549Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,16 +35,19 @@ Peel the red onion<span class="text-danger">[s]</span> and slice into wedges
 
 Peel the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2549Step-2-x200.jpg)
 
 ### Step 2
 
 Chop the potato<span class="text-danger">[es]</span> and sweet potatoes (skins on) into small, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2549Step-3-x200.jpg)
 
 ### Step 3
 
 Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into large, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2549Step-4-x200.jpg)
 
 ### Step 4
 
@@ -51,6 +55,7 @@ Drain the beetroot in a colander over the sink
 
 Chop the drained beetroot into quarters
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2549Step-5-x200.jpg)
 
 ### Step 5
 
@@ -58,6 +63,7 @@ Add everything to a baking tray with a large drizzle of olive oil and a generous
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2549Step-6-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Skewer the Catherine wheel sausage<span class="text-danger">[s]</span> through t
 
 Sit the skewered sausage<span class="text-danger">[s]</span> over everything and put the tray in the oven for 25-30 min or until everything is cooked through and golden (no pink meat!) – this is your Catherine wheel sausage & beetroot tray bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2549Step-7-x200.jpg)
 
 ### Step 7
 

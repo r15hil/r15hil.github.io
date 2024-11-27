@@ -30,6 +30,7 @@ You won't believe this full-flavoured ragù is vegetarian! The richness comes fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2445Step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a very large, wide-based pan (preferably non-stick) with a drizzle of olive
 
 Once hot, add the chopped onion and diced carrot with a pinch of salt and cook for 5-6 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2445Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add your white cup mushrooms and chestnut mushrooms to a food processor and puls
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2445Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Cook for 3-4 min or until the mushrooms are beginning to soften
 
 Dissolve your tomato paste in 200ml<span class="text-purple"> [260ml]</span> <span class="text-danger">[340ml] </span>boiled water and stir in your soy sauce and Marmite – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2445Step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the tomato stock to the pan with your chopped tomatoes, drained lentils and 
 
 Give everything a good mix up and cook for 12-15 min or until thickened to a bolognese-like consistency – this is your mushroom ragù
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2445Step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Cook the pasta for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine and return to the pot, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1728293286033-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Whilst the linguine is cooking, chop your basil finely, including the stalks
 
 Peel your Italian hard cheese until you end up with a pile of cheese shavings
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2445Step-7-x200.jpg)
 
 ### Step 7
 

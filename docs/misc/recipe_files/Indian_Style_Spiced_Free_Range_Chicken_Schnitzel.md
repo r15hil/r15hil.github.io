@@ -25,6 +25,7 @@ Say hallo to this spiced-up schnitzel. You’ll coat juicy free range chicken in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1712133400601-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Put the tray in the oven for an initial 20-25 minutes or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1712133406379-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Slice through the thickest part of the chicken being careful not to cut all the 
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1712133411421-x200.jpg)
 
 ### Step 3
 
@@ -54,11 +57,13 @@ Add a generous drizzle of vegetable oil to a shallow bowl
 
 Combine your panko breadcrumbs and nigella seeds with your curry powder, a small drizzle of vegetable oil and a generous pinch of salt on a separate plate
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1712133417176-x200.jpg)
 
 ### Step 4
 
 Coat the butterflied chicken in the flour, tap off any excess, then add to the vegetable oil and finally press into the panko breadcrumbs firmly to evenly coat all over – this is your breaded chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1712133422946-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the breaded chicken and cook for 5-6 min on each side or until golden and cooked through (no pink meat!) – this is your Indian-style spiced free range chicken schnitzel
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1712133496363-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine the remaining mayo and white wine vinegar with the chopped garlic (not a big garlic fan? Try using less!) – this is your garlic mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1712133506359-x200.jpg)
 
 ### Step 7
 

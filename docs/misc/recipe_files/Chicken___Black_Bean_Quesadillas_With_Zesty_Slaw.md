@@ -26,6 +26,7 @@ Quesadillas made easy! You'll stuff tortilla wraps with smoky, spiced pulled chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1669..-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once hot, add the chicken breast portions and cook for 3 min on each side or un
 
 Meanwhile, drain and rinse the black beans
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1669.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Add the smoked paprika and cayenne pepper (can't handle the heat? Go easy!) to t
 
 Cover with a lid and cook for 12-15 min or until the chicken is fully cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1669.-step-3-x200.jpg)
 
 ### Step 3
 
 Whilst the chicken is cooking, grate the cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1669.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once the chicken is done, transfer to a clean board and shred it apart, using tw
 
 Mash the cooked black beans until smooth – these are your refried beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1669.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Divide the chicken & black bean mix between the tortillas
 
 Fold each tortilla over so you're left with 6 <span class="text-danger">[12]</span> half moon-shaped sandwiches
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1669.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Place a second baking tray on top of the tortilla baking tray to weigh it do
 
 Put the stacked baking trays in the oven and cook for 15 min or until the tortillas are slightly browned and the cheese has melted – these are your chicken & black bean quesadillas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1669.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ For this punchy sandwich, you'll fill gluten free brioche buns with spicy chicke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679580317073-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679580324941-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Add the chopped potatoes to a baking tray (or two!), with a drizzle of<span clas
 
 Put the tray[s] in the oven for 25 min or until golden and crisp – these are your herby potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679580333576-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Add your chicken breast portion[s] to a plate with your cayenne pepper (can't 
 
 Refrigerate until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679580341328-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Peel and finely chop (or grate) your garlic
 
 Add the sliced spring onion to a bowl with your mayo, chopped garlic (not a big garlic fan? Try using less!), white wine vinegar, a pinch of salt and pepper and a drizzle of olive oil – this is your garlic mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679580349901-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Once hot, add the spiced chicken and cook for 3 min on each side or until golden
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679580360989-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Slice your gluten free brioche bun[s] in half
 
 Add the brioche halves to a baking tray (or two!), cut side up, and put the tray[s] in the oven for 4-5 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679580366050-x200.jpg)
 
 ### Step 7
 

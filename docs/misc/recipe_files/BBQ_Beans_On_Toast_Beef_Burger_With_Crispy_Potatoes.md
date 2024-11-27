@@ -24,6 +24,7 @@ Bite into a blast from the past like never before because we’ve given burgers 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665130648671-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the potato discs to a baking tray with a drizzle of vegetable oil and a pinc
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665130677778-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Massage the meat with clean hands for 1 min (this helps the patties to hold thei
 
 Divide the mince into 1 per person, then shape into patties
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665130691157-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Chop your chives finely
 
 Slice your cheddar cheese into 3 slices per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665130697812-x200.jpg)
 
 ### Step 4
 
 Combine your mayo, chopped chives and half your white wine vinegar (you'll use the rest later!) in a small bowl – this is your chive mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665130717123-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once the potatoes have been cooking for 15 min, heat a large wide-based pan (pre
 
 Once hot, add the patties and cook for 4 min on each side or until nicely browned
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665130734892-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once browned, top the patties with the cheddar slices and cook, covered, for a f
 
 Meanwhile, slice your ciabattas in half and put them in the oven for 3-4 min or until toasted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665130771111-x200.jpg)
 
 ### Step 7
 

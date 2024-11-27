@@ -28,6 +28,7 @@ Prepping this spicy Italian classic couldn't be easier. You'll throw everything 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-copy-1619452999929-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606746781238-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Crush your garlic cloves open by squashing them with the side of a knife, then remove the skins and chop roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606746785839-x200.jpg)
 
 ### Step 3
 
 Add the chopped garlic to the dish with your chilli flakes (can’t handle the heat? Go easy!) and cook for 30 secs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606746790426-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Stir in your vegetable stock mix, then add your chopped tomatoes, tomato paste a
 
 Bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606746794949-x200.jpg)
 
 ### Step 5
 
 Once boiling, add 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar and stir through your farfalle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606746799214-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Cover with a lid and put the dish in the oven for an initial 25 min
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606746802993-x200.jpg)
 
 ### Step 7
 

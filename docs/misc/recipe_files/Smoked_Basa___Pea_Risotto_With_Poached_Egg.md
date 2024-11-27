@@ -22,6 +22,7 @@ Combine smoky, savoury smoked basa with deliciously sweet garden peas and spring
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1117.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Trim, then chop the spring onions into large pieces
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1117.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,16 +40,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped spring onion and cook for 2-3 min or until it's softened slightly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1117.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve the vegetable stock mix in 700ml <span class="text-danger">[1.4L]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1117.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the spring onion has softened, add the arborio rice and chopped garlic to the pan with a pinch of salt and cook for 1 min, stirring to coat the grains in oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1117.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -55,6 +60,7 @@ Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min o
 
 Reboil a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1117.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Meanwhile, chop the chives finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1117.-step-7-x200.jpg)
 
 ### Step 7
 

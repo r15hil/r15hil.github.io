@@ -23,6 +23,7 @@ Salade niçoise (French pronunciation: 'ni’ swaz') is traditionally presented 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1026.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Re-boil a kettle
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1026.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,6 +59,7 @@ Once done, cool the eggs by running them under cold water for 3 min
 
 Tip: cooling the eggs completely makes them easier to peel
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1026.-step-5-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Meanwhile, chop the&nbsp;green beans&nbsp;in half
 
 Rip the&nbsp;red gem lettuce&nbsp;into rough bite-size pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1026.-step-3-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Chop the&nbsp;black olives&nbsp;roughly
 
 Cut the&nbsp;baby plum tomatoes&nbsp;in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1026.-step-6-x200.jpg)
 
 ### Step 5
 
@@ -87,6 +92,7 @@ Add a generous drizzle of olive oil with&nbsp;a pinch of salt and pepper to the 
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1026.-step-4-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Meanwhile, combine the red wine vinegar and dijon mustard with 3 tbsp<span class
 
 Peel the garlic and grate it into the bowl (not a fan of raw garlic? Go easy!) - this is your french dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1026.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ For our twist on taquitos, delicious Mexican rolled tacos, you'll shred smoky ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2110.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the ground cumin, smoked paprika, chilli flakes (can't handle the heat? Go e
 
 Add a very generous pinch of salt and pepper and give everything a good mix up – this is your spice mix
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2110.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the coated chicken and cook for 3 min on each side or until beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2110.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once the chicken has browned, add the tomato stock to the pan and reduce the hea
 
 Cook, covered, turning occasionally for a further 10 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2110.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the chopped coriander to a pestle & mortar with 2 tsp <span class="text-dang
 
 Grind to a paste then add the mayo and stir it all together – this is your coriander mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2110.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Roll each filled tortilla up and arrange them into an oven-proof dish
 
 Drizzle with olive oil and put the dish in the oven for 15 min or until beginning to crisp – these are your chicken taquitos
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2110.-step-6-x200.jpg)
 
 ### Step 6
 
 While the chicken taquitos are cooking, trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2110.-step-7-x200.jpg)
 
 ### Step 7
 

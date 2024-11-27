@@ -28,6 +28,7 @@ Fire up the grill for this succulent chicken tandoori. You’ll marinate chicken
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678380631644-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Combine half your curry powder and half your natural yoghurt in a bowl with half
 
 Season with a pinch of salt and pepper and mix it all together – this is your tandoori marinade
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678380643596-x200.jpg)
 
 ### Step 2
 
 Add your chicken breast strips to the tandoori marinade and give everything a good mix up – this is your marinated chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678380654960-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Peel and finely dice your red onion[s]
 
 Peel and finely grate (or chop) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678380662838-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion and chopped garlic and cook for 2-3 min or until the onion has softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678380673563-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Wash your spinach, then pat it dry with kitchen paper
 
 Once tender, stir through the spinach and cook for 2-3 min or until the spinach has wilted– this is your curried giant couscous
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678380682801-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Meanwhile, add the marinated chicken to a baking tray (use tin foil to avoid mes
 
 Put the tray under the grill for 10-12 min or until the chicken is starting to char and is cooked through (no pink meat!) – this is your tandoori chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678380691141-x200.jpg)
 
 ### Step 7
 

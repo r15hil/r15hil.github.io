@@ -31,6 +31,7 @@ This aromatic coconut curry takes veg to the next level. You’ll spice up your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684418748475-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add your butternut squash cubes to a baking paper-lined baking tray with a littl
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until tender and golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684418754270-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684418757740-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Crush your garlic open by squashing it with the side of a knife and discard the 
 
 Peel (scrape the skin off with a teaspoon) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684418760771-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684418763863-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the remaining curry powder, creamed coconut and most of the coriander (reser
 
 Tip: Add a splash of water if its looking a little dry!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684418767003-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once melted, add your tomato paste with the saag paste and cook for 3-4 min or u
 
 Once fragrant, add 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[450ml]</span> boiled water with your vegetable stock mix and cashew nuts and cook for 5-6 min or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684418769919-x200.jpg)
 
 ### Step 7
 

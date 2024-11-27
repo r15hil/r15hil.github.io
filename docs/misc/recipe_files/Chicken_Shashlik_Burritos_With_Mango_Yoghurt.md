@@ -31,6 +31,7 @@ For these Indian-inspired burritos, you'll stuff tortillas with curried chicken,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602520201154-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add your white long grain rice, chopped dates, ground turmeric, chicken stock mi
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed, then remove from the heat and keep covered until serving – this is your pilau rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/sliced-onion-on-board-1731414408897-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Meanwhile, peel and finely slice your brown onion[s]
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602520487249-x200.jpg)
 
 ### Step 3
 
@@ -54,16 +57,19 @@ Once hot, add the sliced onion[s] with a pinch of salt and cook for 2-3 min unti
 
 Once softened, add your chicken breast strips and cook for 5-6 min further until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1602520505110-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add your mango chutney, nigella seeds and natural yoghurt to a small bowl and give it a good mix up – this is your mango yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1602520518346-x200.jpg)
 
 ### Step 5
 
 Once the chicken has browned, add your curry powder, ground smoked paprika and a splash of cold water and cook for 5-6 min further until the chicken is cooked through (no pink meat!) – this is your curried chicken & onions
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1625658133466-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Wash, then shred your lettuce and pat it dry with kitchen paper
 
 Slice your tomato[es] into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602520549093-x200.jpg)
 
 ### Step 7
 

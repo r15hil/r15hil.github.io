@@ -28,6 +28,7 @@ For a quick and healthy dinner, you'll stir-fry yellow peppers, spring greens an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1634642647953-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634642650715-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ While the rice is cooking, wash your shredded spring greens then pat them dry wi
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634642653807-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the shredded spring greens with a pinch of salt and cook for 2-3 min or until beginning to wilt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634642657079-x200.jpg)
 
 ### Step 4
 
@@ -62,16 +66,19 @@ Slice your red chilli[es] finely
 
 Add the pepper strips, chopped ginger, chopped garlic and half the sliced chilli (can't handle the heat? Go easy!) to the pan and cook for 1-2 min or until the garlic has softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634642660511-x200.jpg)
 
 ### Step 5
 
 Once softened, drain, then add your king prawns to the pan and cook for an initial 2-3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634642662903-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your soy sauce, honey, white miso paste, toasted sesame oil and rice vinegar in a bowl and give it a good mix up – this is your honey miso sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634642666342-x200.jpg)
 
 ### Step 7
 

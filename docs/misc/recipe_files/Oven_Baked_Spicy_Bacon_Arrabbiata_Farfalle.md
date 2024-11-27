@@ -28,6 +28,7 @@ Prepping this spicy Italian classic couldn't be easier. You'll throw everything 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1678268506164-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678268500923-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add your bacon lardons and cook for 2-3 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678268528904-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Crush your garlic open by squashing them with the side of a knife, then remove t
 
 Add the chopped garlic to the dish with your chilli flakes (can’t handle the heat? Go easy!) and cook for 30 secs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678268518031-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Add your chicken stock mix with your chopped tomatoes, tomato paste and 400ml <s
 
 Bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678268541101-x200.jpg)
 
 ### Step 5
 
 Once boiling, add 1/2 tsp <span class="text-purple">[3/4 tsp] </span><span class="text-danger">[1 tsp] </span>sugar to the dish with your farfalle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678268546131-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Cover with a lid and put the dish in the oven for 25 min
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678268553981-x200.jpg)
 
 ### Step 7
 

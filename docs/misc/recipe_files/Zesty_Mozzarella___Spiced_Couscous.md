@@ -23,6 +23,7 @@ Spice up your couscous (life) with this cherry tomato, sultana, turmeric and bah
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/539.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Peel and finely chop (or grate) the garlic
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/539.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with 1 t
 
 Once hot, add the cashew nuts, garlic, sultanas, baharat and turmeric with a large pinch of salt and cook for 1 min, stirring constantly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/539.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Once boiling, cover with a lid and remove from the heat&nbsp;
 
 Set aside covered until serving and the water has absorbed
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/539.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Meanwhile, cut the cherry tomatoes in half
 
 Strip the mint leaves from their stalks and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/539.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Drain the mozzarella and tear into rough bite-size pieces
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/539.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Zest (be careful not to include any bitter white pith) the lime<span class="text
 
 Cut the zested lime<span class="text-danger">(s)</span> in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/539.-step-7-x200.jpg)
 
 ### Step 7
 

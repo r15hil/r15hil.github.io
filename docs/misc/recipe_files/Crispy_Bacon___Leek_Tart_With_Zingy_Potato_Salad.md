@@ -20,6 +20,7 @@ To make the filling, you'll gently sauté leek with bacon to blend their savoury
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2065.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped bacon and cook for 3-4 min or until starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2065.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Once the bacon is starting to crisp, transfer to a plate and set aside until lat
 
 Add the sliced leek to the pan with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2065.-step-3-x200.jpg)
 
 ### Step 3
 
 While the leek is softening, add the soft cheese to a bowl with 1 tbsp <span class="text-danger">[2 tbsp] </span>boiled water and a pinch of salt and pepper, then give everything a good mix up – this is your soft cheese mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2065.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the pastry to the tray<span class="text-danger">[s]</span> and score a 1cm b
 
 Tip: The pastry border will puff up to give you a nice crust!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2065.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the softened leeks and top with the crispy bacon
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 25-30 min or until the pastry is cooked through and puffed up – this is your crispy bacon & leek tart
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2065.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once boiling, cook for 12-15 min or until fork-tender
 
 Once done, drain and return to the pot to steam dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2065.-step-7-x200.jpg)
 
 ### Step 7
 

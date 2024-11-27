@@ -23,6 +23,7 @@ Whip up a healthy twist on a classic. You'll pan-fry chicken with our chopped pe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626357911925-x200.jpg)
 
 ### Step 1
 
@@ -30,16 +31,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced chicken breast with a pinch of salt and cook for 4-5 min until the chicken has started to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626357916102-x200.jpg)
 
 ### Step 2
 
 Once the chicken has started to brown, add the chopped pepper & pineapple (including any excess pineapple juice!) and the ginger & garlic paste and cook for 2-3 min further until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626357920196-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add the edamame & jasmine rice to a large, heatproof bowl and put the bowl in the microwave for 2-3 min or until piping hot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626357924680-x200.jpg)
 
 ### Step 4
 

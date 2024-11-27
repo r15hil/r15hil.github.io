@@ -25,6 +25,7 @@ This Vietnamese-inspired stir-fry is packed with veg. You'll top the noodles wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1636386528217-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top, tail, peel and chop your carrot[s] into thin batons
 
 Chop your roasted peanuts roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1636386531245-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add your beef mince to a bowl with half the chopped garlic and half the ginger (
 
 Mix thoroughly until fully combined
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1636386534624-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the meatballs to the pan and cook for 5 min on each side or until nicely browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1636386539371-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Meanwhile, combine the remaining chopped garlic and remaining chopped ginger in 
 
 Give everything a good mix up – this is your Vietnamese-style dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1636386544812-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the meatballs are browned, reduce the heat to medium-high, add the sliced c
 
 Once soft, add your sugar snap peas and cook, uncovered, for 1 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1636386548703-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add your rice noodles to a pot of boiled water and cook for 4-5 min or until sof
 
 Once done, drain the rice noodles, reserving a cup of the starchy noodle water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1636386552647-x200.jpg)
 
 ### Step 7
 

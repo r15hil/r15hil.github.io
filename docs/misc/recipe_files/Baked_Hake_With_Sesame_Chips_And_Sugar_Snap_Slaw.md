@@ -26,6 +26,7 @@ Fish and chips have gone on holiday, and returned with an Asian twist! This dish
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1726569520530-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven for 20-30 min or until they're cooked through and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1726569523861-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Strip your parsley leaves from their stalks and chop the stalks finely, leaving 
 
 Combine the lime zest, panko breadcrumbs, chopped parsley stalks, and a drizzle olive oil with a pinch of salt – this is your breadcrumb mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1726569527416-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Grate your apple[s]
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and slice into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1726569531301-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Mix the grated carrot, apple, sliced sugar snaps, sliced spring onion, and parsl
 
 Set aside for later – this is your sugar snap slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1726569535007-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Put the tray in the oven for 12-15 min or until the breadcrumbs are golden and t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1726569539076-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Stir in your mayo – this is your miso mayo
 
 Add the juice of half your lime[s], 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt to the sugar snap slaw and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1726569542589-x200.jpg)
 
 ### Step 7
 

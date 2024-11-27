@@ -24,6 +24,7 @@ This sizzling BBQ will fire up your night. You'll whip up a feast with smoky hal
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1623670019887-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp - these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1623670024338-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely slice your red onion[s]
 
 Chop the coriander roughly, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623670029448-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the sliced pepper, sliced onion and a pinch of salt, then cook for
 
 Once softened, reduce the heat to low and cook for 10 min or until caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623670035477-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Sprinkle your ground smoked paprika over the halloumi strips and pat it on all t
 
 Carefully thread each coated halloumi strip onto a soaked skewer (try not to break them!) – these are your smoky halloumi skewers
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623670040719-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once done, transfer the caramelised pepper & onion to a bowl (reserve the pan!)
 
 Add half your red wine vinegar (you'll use the rest later!), the chopped coriander and 1/2 tsp <span class="text-purple">[3/4 tsp] [1 tsp] </span>sugar and give everything a good mix up – this is your pepper & onion salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623670046302-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Return the reserved pan to a medium-high heat with 1 tbsp <span class="text-purp
 
 Once hot, add the smoky halloumi skewers<span class="text-danger"> </span>and cook for 6 min, turning so they brown on all sides
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623670051381-x200.jpg)
 
 ### Step 7
 

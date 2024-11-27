@@ -27,6 +27,7 @@ These chicken fajitas will have you blending your own spices for a meal the whol
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1944.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Combine the ground cumin, ground coriander, smoked paprika, dried chilli flak
 
 Mix all the spices together – this is your fajita seasoning
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1944.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,16 +45,19 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds an
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1944.-step-3-x200.jpg)
 
 ### Step 3
 
 Slice the chicken breast<span class="text-danger">[s]</span> into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1944.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the sliced chicken to the fajita seasoning and give everything a good mix up until the chicken is fully coated in all the spices
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1944.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced chicken, pepper and onion to the pan and cook for 3-4 min or until the peppers are beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1944.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Meanwhile, dissolve the tomato paste and 1/2<span class="text-danger"> [1]</span
 
 Add the tomato stock to the pan with the chicken and cook for 2-3 min further or until the chicken is cooked through (no pink meat!) and the peppers have softened – this is your chicken & vegetable fajita filling
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1944.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ You had us at ‘golden-fried bacon’... plus courgette and juicy cherry tomato
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/764_764_..step-1-x200.jpg)
 
 ### Step 1
 
@@ -50,6 +51,7 @@ Slice the courgette<span class="text-danger">[s]</span>&nbsp;into rounds&nbsp;
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/764_764_..step-2-x200.jpg)
 
 ### Step 2
 
@@ -64,6 +66,7 @@ Add the courgette&nbsp;to the pan for another 2-3 mins or until soft and lightly
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/764_764_..step-3-x200.jpg)
 
 ### Step 3
 
@@ -75,6 +78,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving 300ml <span class="text-danger">[600ml]</span> of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/764_764_..step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,6 +87,7 @@ Once the courgette is lightly browned, add the cherry&nbsp;tomatoes, garlic,&nbs
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/764_764_..step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,6 +100,7 @@ Meanwhile,&nbsp;chop the basil finely, including the stalks
 
 Slice the black&nbsp;olives&nbsp;finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/764_764_..step-7-x200.jpg)
 
 ### Step 7
 

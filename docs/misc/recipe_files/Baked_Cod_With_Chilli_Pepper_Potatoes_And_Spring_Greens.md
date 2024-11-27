@@ -24,6 +24,7 @@ Like heat? You've come to the right place. For simplicity at its best, serve thi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1645551315231-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughl
 
 Crush your garlic open by squashing with the side of a knife and remove the skin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1645551319853-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Scrunch the edges of the foil around the pepper to form a sealed parcel[s] and a
 
 Put the tray in the oven for 20 min or until the pepper has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1645551327736-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chopped potatoes and onion wedges to a separate baking tray (or two!) wi
 
 Put the tray[s] in the oven for 20-25 min or until crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1645551337443-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1645551347811-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Transfer the toasted almonds to a food processor (reserve the pan) with the soft
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp] </span>olive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> cold water and season with a pinch of salt and pepper, then blitz until you have a coarse paste – this is your chilli-pepper sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1645551355258-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your cod fillet[s] with a drizzle of olive oil and season with a pinch of sa
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1645551367155-x200.jpg)
 
 ### Step 7
 

@@ -32,6 +32,7 @@ Swap your go-to takeaway for this Thai-style fakeaway. You'll sizzle chicken unt
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682608638804-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once done, transfer the basmati rice to a plate (reserve the pot) and spread it out flat to help it cool down
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682608640410-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Cut the remaining chilli in half lengthways, deseed (scrape the seeds out with a
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682608643131-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the diced chicken breast to a bowl with your ground coriander, half the grat
 
 Add your cornflour to the bowl and give everything a good stir until the chicken is fully coated – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682608646232-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Trim, then slice your green beans in half
 
 Chop your coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682608648839-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once the pan is very hot, add the coated chicken and cook for 5-6 min on each side or until cooked through (no pink meat!), golden and crispy – this is your crispy chicken breast
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682608725778-x200.jpg)
 
 ### Step 6
 

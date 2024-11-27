@@ -28,6 +28,7 @@ If you love Thai green curry, you’ll go coco for this softly spiced soup. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1665484126845-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665484130410-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Chop your ginger in half
 
 Roughly chop your tomato[es]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665484134318-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Peel and chop your red onion[s] into wedges
 
 Add the onion wedges and your diced chicken breast to the dish with your Thai green curry paste and a pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665484539489-x200.jpg)
 
 ### Step 4
 
@@ -68,16 +72,19 @@ Add your brown rice, tamari soy sauce and 650ml <span class="text-purple">[850ml
 
 Once boiling, stir in your chicken stock mix with your creamed coconut until the creamed coconut has dissolved
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665484597293-x200.jpg)
 
 ### Step 5
 
 Cover the dish with a lid and put it in the oven for 25 min or until the rice is tender and the chicken is cooked through (no pink meat!) – this is your Thai-style coconut chicken & rice soup
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665484615719-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665484638855-x200.jpg)
 
 ### Step 7
 

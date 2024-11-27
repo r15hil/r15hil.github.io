@@ -29,6 +29,7 @@ This rich plant-based chilli is packed with spices, pepper and black beans. To s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1640167895978-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Transfer the softened sweet potato[es] to a baking tray with a drizzle of veget
 
 Put the tray in the oven and cook for 12-15 min or until the skin is crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1640167860002-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Peel and finely chop (or grate) your garlic
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1640167865439-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion and chopped garlic and cook for 4 min or until the onion has started to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1640167869685-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Whilst the onion is softening, drain and rinse your black beans
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1640167874018-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Once the onion has softened, add your ground cumin, ground smoked paprika, chil
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1640167877586-x200.jpg)
 
 ### Step 6
 
 Add the chopped pepper, drained black beans, vegetable stock and chopped tomatoes and cook over a low heat for 15-20 min or until the sauce has thickened – this is your chilli 'non' carne
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1640167886113-x200.jpg)
 
 ### Step 7
 

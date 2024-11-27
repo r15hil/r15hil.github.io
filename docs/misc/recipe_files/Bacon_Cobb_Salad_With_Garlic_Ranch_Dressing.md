@@ -25,6 +25,7 @@ This all-American salad is packed with streaky bacon, creamy avocado and extra s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-34-1704990065704-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Chop your red potato[es] into bite-sized pieces
 
 Combine the chopped potato, ground smoked paprika, 3/4 of your dried oregano (you'll use the rest later!), a pinch of salt and pepper and a drizzle of olive oil on a baking paper-lined baking tray (or two!) then put in the oven for an initial 20 min or until tender – these are your smoky potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-38-1704990069756-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add your egg[s] to a pot of boiled water and bring to a boil over a high heat
 
 Once boiling, cook for 9 min for a just-set boiled egg, then fill a bowl of very cold water and add the boiled egg[s] to the bowl and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-40-1704990074329-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Chop your tomato[es] finely and season with a pinch of salt and pepper
 
 Peel and finely grate your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-39-1704990078528-x200.jpg)
 
 ### Step 4
 
@@ -57,11 +61,13 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-37-1704990082854-x200.jpg)
 
 ### Step 5
 
 Peel the cooled boiled egg[s] and slice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-35-1704990087453-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ After the initial 20 min, remove the tray[s] from the oven and push the potatoes
 
 Add your smoked streaky bacon to the other side of the tray[s], then return it to the oven and cook for a further 12-15 min or until the bacon is golden and crispy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-27-1704990091376-x200.jpg)
 
 ### Step 7
 

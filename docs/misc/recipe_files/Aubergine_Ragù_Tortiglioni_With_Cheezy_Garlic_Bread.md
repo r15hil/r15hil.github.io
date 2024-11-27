@@ -28,6 +28,7 @@ This hearty aubergine ragù is the ultimate comfort food. You'll stir pulled aub
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612799846773-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Slice your aubergine[s] in half lengthways, keeping the green stalk[s] on
 
 Score the flesh in a criss-cross pattern, then add the aubergine half[ves] to a baking tray (or two!) with a drizzle of olive oil and a pinch of salt, then put the tray[s] in the oven for 20-25 min or until the flesh has softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612799856774-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Grate your cheddar flavour block[s] finely
 
 Add half of the chopped basil, half the grated cheeze (save the rest for garnish!) and half of the chopped garlic (save the rest for later!) to a bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil – this is your cheezy garlic mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612799930563-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked tortiglioni, reserving a cup of starchy pasta water and return to the pot with a drizzle of olive oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612799991365-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until starting to soften and caramelise
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612800003904-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Tip: Carefully hold the stalks (they will be hot!) to scrape the flesh out easil
 
 Once the onion has started to soften, add the pulled aubergine, remaining chopped garlic, ground smoked paprika and soy sauce to the pan and cook for 2 min until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612800018075-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add your vegetable stock mix with a splash of starchy pasta water and cook for 4
 
 Tip: Add another splash of starchy pasta water if your sauce is looking a little thick!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612800035642-x200.jpg)
 
 ### Step 7
 

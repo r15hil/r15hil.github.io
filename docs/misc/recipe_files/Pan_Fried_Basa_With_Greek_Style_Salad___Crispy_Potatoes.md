@@ -27,6 +27,7 @@ Head to the Aegean with the flavours of a rustic island taverna. You’ll serve 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683274717806-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chopped potatoes to a baking tray (or two!) with your ground paprika, a 
 
 Put the tray[s] in the oven for an initial 15 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683274720132-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Cut your cucumber in half lengthways, then slice finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683274724277-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add a generous drizzle of olive oil and a pinch of salt and give everything a go
 
 Return the tray[s] to the oven for a final 15 min or until the potatoes and the ciabatta are golden and crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683274726273-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ While the veg is cooking, add a handful of flour to a plate with the remaining d
 
 Pat your basa fillet[s] dry with kitchen paper and turn several times until fully coated in the herby flour – this is your coated basa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683274729699-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Once hot, add the coated basa with a pinch of salt and cook for 6 min on each si
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683274732487-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the remaining chopped garlic (not a big garlic fan? Try using less!) with your mayo and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>cold water – this is your garlic mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683274735499-x200.jpg)
 
 ### Step 7
 

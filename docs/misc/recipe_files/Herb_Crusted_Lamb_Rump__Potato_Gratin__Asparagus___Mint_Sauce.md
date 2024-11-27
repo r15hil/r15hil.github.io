@@ -25,6 +25,7 @@ Impress someone special with a tender, garlic and herb-crusted British lamb rump
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1588.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a pot over a medium heat with a small knob of butter (approx. 1 tsp)
 
 Once melted, add 1 tsp<span class="text-danger"> [2 tsp]</span> flour and cook for 1-2 minutes or until a roux (sandy paste) has formed
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1588.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and finely slice the potatoes. Layer the sliced potatoes in an oven-proof 
 
 Put the dish in the oven for 1 hour or until the potatoes are golden and cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1588.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once hot, add the lamb and cook for 4-5 min or until golden all over
 
 Transfer the lamb to a baking tray (reserve the pan!) and set aside in a warm place
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1588.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Combine the panko breadcrumbs with the chopped parsley, garlic and 1 tbsp <span 
 
 Season with a pinch of salt and pepper – this is your garlic & herb crumb
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1588.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Add the mint sauce, soy sauce and chicken stock gradually into the roux and co
 
 Once done, remove from the heat and reheat before serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1588.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Increase the oven to 200°C/ 180°C (fan)/ 395°F/ Gas 6
 
 Put the tray on the top shelf of the oven for 20-25 minutes or until the lamb is pink and blushing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1588.-step-7-x200.jpg)
 
 ### Step 7
 

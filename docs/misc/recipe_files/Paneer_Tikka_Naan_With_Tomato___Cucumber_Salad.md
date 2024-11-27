@@ -27,6 +27,7 @@ For this open sandwich with an Indian-inspired twist, you'll top fluffy naan bre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1253.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606328123443-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Add the chopped garlic, chopped ginger, ground turmeric, garam masala, ground pa
 
 Add 1 tbsp <span class="text-danger">[2 tbsp]</span> of the natural yoghurt, the juice of 1/2 <span class="text-danger">[1]</span> lemon, 1 tbsp <span class="text-danger">[2 tbsp]</span> vegetable oil, with a generous pinch of salt and stir to combine – this is your tikka marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1253.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the chopped paneer to the tikka marinade and give everything a good mix up until fully combined – this is your coated paneer
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606328223508-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Finely dice the cucumber
 
 Combine the halved tomatoes, sliced shallot and diced cucumber with the juice of 1/4 <span class="text-danger">[1/2]</span> lemon, a drizzle of olive oil and a pinch of salt and pepper – this is your tomato & cucumber salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1253.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated paneer with any remaining marinade and cook for 3-5 min, turning occasionally until browned and crisp on all sides
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1253.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Meanwhile, add the plain naans to a baking tray
 
 Put the tray in the oven for 3 min or until the bread is hot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1253.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ A super easy Indian-inspired dish (only 15 mins prep required!). You'll roast ha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682405507804-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cut your lemon[s] in half
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682405510430-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the chopped garlic, the juice of half your lemon[s], a drizzle of vegetable 
 
 Chop your hake fillet[s] into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682405519466-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return to the pot and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682405525890-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Put the dish in the oven for 12-15 min or until the fish is cooked through and 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682405529959-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Peel and slice the remaining onion finely
 
 Cut your tomato[es] into wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682405539849-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the tomato wedges, sliced cucumber and sliced onion to a bowl with a dri
 
 Season with a pinch of salt and a grind of pepper and give everything a good mix up – this is your chunky salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682405546651-x200.jpg)
 
 ### Step 7
 

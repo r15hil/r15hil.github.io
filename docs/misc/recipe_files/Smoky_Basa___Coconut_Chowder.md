@@ -24,6 +24,7 @@ Chowders can conjure up visions of hardy seafarers, battening down the hatches a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1612977991488-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Top, tail, peel and dice your carrot[s]
 
 Place your creamed coconut (in its packaging!) in a mug and cover with boiled water (this softens the naturally hard cream)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1612978000541-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add the diced onion and diced carrot and cook, covered, for 3-5 min or
 
 Meanwhile, chop your potatoes (skins on) into small cubes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1612978005882-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Whilst everything is cooking, peel and finely chop (or grate) your garlic
 
 Strip your thyme leaves from their stalks and chop them finely, discard the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1612978016645-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Stir and cook for a further 1 min
 
 Add 400ml <span class="text-purple">[600ml]</span> <span class="text-danger">[800ml]</span> boiled water to the pan, cover, and bring to the boil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1612978026235-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Cook, covered, for 6-8 min until your fish is cooked through, turning halfway
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1612978035700-x200.jpg)
 
 ### Step 6
 
 While the fish is cooking, combine the softened creamed coconut with your cornflour and gradually stir in 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[200ml]</span> cold water, mixing well to form a smooth paste – this is your creamed coconut mixture
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1612978049187-x200.jpg)
 
 ### Step 7
 

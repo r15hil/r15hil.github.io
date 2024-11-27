@@ -28,6 +28,7 @@ This is BBQ, the Mongolian way. You’ll sizzle aromatic ginger and garlic-infus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1702387682771-x200.jpg)
 
 ### Step 1
 
@@ -39,11 +40,13 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702387686973-x200.jpg)
 
 ### Step 2
 
 While the chips are in the oven, combine your soy sauce, hoisin sauce, tomato ketchup and ginger & garlic paste with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar in a bowl – this is your Mongolian-style BBQ marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1702387691447-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide into and shape them into patties, 1 per person – these are your Mongolian-style BBQ patty[ies]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1702387695472-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add 150ml <span class="text-purple">[200ml]</span><span class="text-danger"> [25
 
 Combine your carrot, mooli & pink cabbage slaw mix with the rice vinegar and 1/2 tsp <span class="text-purple">[3/4 tsp]</span><span class="text-danger"> [1 tsp]</span> sugar – this is your quick-pickled mooli slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1702387699157-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the coated patty[ies], press them down firmly with a spatula and c
 
 Tip: Cooking for 5? You may need to do this in batches!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1702387703013-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Reserve the bowl
 
 Cook for 5 min further, spooning the sauce over the patty[ies] until thickened to a gravy-like consistency and the beef is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702387706482-x200.jpg)
 
 ### Step 7
 

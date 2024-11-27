@@ -24,6 +24,7 @@ An American institution, Sloppy Joes are a family favourite across the States. T
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1529.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and carrot and cook for 4-5 min or until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1529.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,11 +57,13 @@ Tear the mozzarella into large pieces
 
 Pat the torn mozzarella with kitchen paper, pressing down very firmly so that the mozzarella is nice and dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1529.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the vegetables have softened, add the beef mince with a grind of black pepper and cook for 4-5 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1529.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,11 +75,13 @@ Add the bottom halves to a baking tray and put them in the oven for an initial 3
 
 Tip: cooking them first stops the sliders from being soggy!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1529.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, add the beef stock and tomato paste to the pan and cook for 5-6 min further or until the sauce has thickened to a ragù-like consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1529.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Return the tray to the oven for 5-7 min or until the mozzarella is starting to m
 
 Once the mozzarella has started to melt, top with the brioche tops and return to the oven for 2-3 min further – these are your melty sloppy joe sliders
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1529.-step-7-x200.jpg)
 
 ### Step 7
 

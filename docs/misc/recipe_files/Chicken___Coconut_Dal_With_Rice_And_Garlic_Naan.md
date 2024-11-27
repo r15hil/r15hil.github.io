@@ -24,6 +24,7 @@ This delicious dal is extra easy. You’ll pan-fry chicken before adding your fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678917042275-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Top, tail, peel and finely dice your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678917053186-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large pot (with a matching lid) with a drizzle of vegetable oil over a hi
 
 Once hot, add your diced chicken thigh to the pot with a pinch of salt and cook for 2-3 min on each side or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678917057853-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and chicken stock mix in 450ml <span class="text-purple">[675ml]</span> <span class="text-danger">[900ml]</span> boiled water – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678917061822-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once softened, add the chopped garlic and curry powder and give everything a goo
 
 Cook for 1 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678917068726-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once fragrant, add the rinsed lentils, coconut stock and a small pinch of salt t
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-20 min, stirring occasionally, until all the water is absorbed, the lentils are tender and the chicken is cooked through (no pink meat!) – this is your chicken & coconut dal
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678917071745-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678917075756-x200.jpg)
 
 ### Step 7
 

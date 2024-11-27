@@ -32,6 +32,7 @@ Take your tastebuds to the streets of Colombo with a punchy coconut-spiked haddo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671627943655-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671627947260-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and chop your garlic
 
 Separate your coriander leaves from their stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671627950249-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Blitz until smooth or very finely chopped – this is your Sri Lankan-style curr
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1671627954297-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add the Sri Lankan-style curry paste and cook for 2-3 min or until fragrant
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1671627957678-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add your red wine vinegar, soy sauce and 1 tsp <span class="text-purple">[1 1/2
 
 Add the coconut stock and cherry tomatoes to the pan and cook, covered, for 8-12 min or until a thick sauce remains
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1671627962157-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once the sauce has thickened, top the curry with the haddock bites and cook, cov
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1671627970256-x200.jpg)
 
 ### Step 7
 

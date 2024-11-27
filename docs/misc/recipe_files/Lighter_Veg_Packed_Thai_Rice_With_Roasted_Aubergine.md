@@ -25,6 +25,7 @@ For this aromatic dish, you'll add baby corn and sugar snaps to Thai red curry-i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1618244968893-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the aubergine wedges to a tray and spread over half of the Thai red curry pa
 
 Put the tray in the oven for 25-30 min or until cooked and tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1618245115257-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large wide-based pan (preferably non-stick with a matching lid) with 1/2 
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1618245246779-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Peel and finely chop (or grate) the ginger
 
 Dissolve the vegetable stock mix and the creamed coconut in 400ml <span class="text-danger">[750ml]</span> boiled water, then add the remaining Thai red curry paste and give it a good mix up – this is your Thai stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1618245405190-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the basmati rice and Thai stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook, covered, for 15-20 min or until the water is absorbed and the rice is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1618245419454-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Whilst the rice is cooking, chop the baby corn into small bite-sized pieces
 
 Cut the sugar snap peas in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1618245429677-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Chop the coriander roughly, including the stalks
 
 Chop the roasted peanuts roughly (or bash them in the bag with a rolling pin!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1618245463605-x200.jpg)
 
 ### Step 7
 

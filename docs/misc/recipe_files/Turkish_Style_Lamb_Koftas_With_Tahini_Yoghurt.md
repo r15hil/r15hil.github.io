@@ -30,6 +30,7 @@ Inspired by the grilled meats and pickled salads found in Turkey, these smoky, s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/skin-on-waxy-potatoes-1601641613239-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once cooked, drain and set aside to steam dry in the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1169.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Meanwhile, add half of your white wine vinegar to a large bowl (you'll use the r
 
 Add your shredded red cabbage to the bowl, give everything a good mix up and set aside until later to pickle slightly – this is your quick-pickled cabbage
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1169.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Grate half your onion[s] and slice the remaining onion finely
 
 Add your grated onion, panko breadcrumbs, baharat, lamb mince and a generous pinch of salt to a large bowl – this is your lamb mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1169.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Tip: Oil your hands slightly to stop the mixture sticking when shaping!
 
 Add the koftas to an oiled baking tray (or two!) and put the tray[s] in the oven for 15 min or until  cooked through (no pink meat!) – this is your Turkish-style lamb koftas
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1169.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a large knob
 
 Once hot, add the sliced onion and cook for 4-5 min or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1169.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add a splash of cold water and a generous pinch of salt and pepper and give ever
 
 Chop your parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1169.-step-7-x200.jpg)
 
 ### Step 7
 

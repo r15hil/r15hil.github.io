@@ -24,6 +24,7 @@ Make dinner a breeze with this one tray wonder. You'll coat basa in panko breadc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720530670168-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720530676039-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Add the chips to a baking paper-lined tray (or two!) with a drizzle of vegetable
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15 min or until starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720530352292-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Meanwhile, chop your parsley finely, including the stalks
 
 Chop your capers roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720530356402-x200.jpg)
 
 ### Step 4
 
@@ -52,11 +56,13 @@ Add your chopped capers to a bowl with your mayo, a squeeze of your lemon, most 
 
 Stir it all together – this is your tartare sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720530360319-x200.jpg)
 
 ### Step 5
 
 Pat your basa fillet[s] dry with kitchen paper and sprinkle each side with your vegetable stock mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720530363946-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Add a drizzle of vegetable oil to the basa and season with salt and pepper
 
 Return the tray[s] to the oven for 12-15 min further or until the breadcrumbs are brown and crispy and the fish is cooked through – this is your one tray breaded fish & chips
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720530367710-x200.jpg)
 
 ### Step 7
 

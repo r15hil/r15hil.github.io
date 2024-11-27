@@ -25,6 +25,7 @@ This dish sees perfect just-set hard boiled eggs snuggled into caramelised onion
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/489.step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop (or grate) the garlic
 
 Place the coconut cream sachet<span class="text-danger">[s]</span> in a mug and cover with boiled water (this softens the naturally hard cream)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/489.step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Once hot, add the basmati&nbsp;rice, sultanas and 350ml <span class="text-danger
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/489.step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once boiling, boil for exactly 7 min, for perfect, mid-boiled eggs
 
 Meanwhile, fill a bowl of very cold water with ice (Gousto's ice packs are perfect) ready for cooling your eggs quickly later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/489.step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Once hot, add the onion with a big pinch of salt and cook for 5 min or until sli
 
 Once softened, add the sweet potato, garlic, curry powder and turmeric and cook for 5 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/489.step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Meanwhile, once the eggs are done, drain and add them to your ice water (this st
 
 Tip: no ice? Run them under very cold running water for 3 min, then set aside in a bowl of cold water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/489.step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Combine the softened coconut cream with the stock and add it to the pan
 
 Reduce the heat to medium-low, cover and cook for 5-10 min or until the sweet potato is fork- tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/489.step-7-x200.jpg)
 
 ### Step 7
 

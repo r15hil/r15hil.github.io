@@ -27,6 +27,7 @@ I spy, a creamy cauliflower cheese pie. For this cult classic, you’ll roast ca
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695901103703-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the cauliflower florets and chopped stem[s] to an oven-proof dish with a dri
 
 Give everything a good mix up and put the dish in the oven for 10-15 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695901107379-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and grate your garlic
 
 Chop your waxy potatoes in half, lengthways
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695901110285-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine the grated cheddar and half the grated Italian hard cheese (you'll use t
 
 Add 175ml<span class="text-purple"> [230ml]</span> <span class="text-danger">[300ml] </span>milk to the pan with the bay leaf[ves], half the Dijon mustard (save the rest for later!) a pinch of salt and pepper, then cook over a medium heat for 3-4 min, stirring frequently, or until the cheese has melted and the sauce has thickened – this is your cheese sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695901112633-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the halved potatoes to a baking paper-lined baking tray (or two!) with your 
 
 Put the tray[s] in the oven for 25-30 min or until golden
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695901115652-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Dust your work surface with a generous sprinkling of flour
 
 Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695901123301-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Top the dish with the rolled pastry, brush with a little milk and sprinkle over 
 
 Return the dish to the oven for a further 20 min or until the pastry is puffed up, golden and cooked through – this is your cauliflower cheese pie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695901126055-x200.jpg)
 
 ### Step 7
 

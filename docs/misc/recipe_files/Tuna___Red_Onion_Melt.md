@@ -20,6 +20,7 @@ This melt-in-your-mouth sandwich hits the spot. You’ll load toasted ciabattas 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697446310697-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697446314580-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Peel and slice your red onion[s] into rings (roughly 0.5cm thick)
 
 Tip: Pop out the centres so that you have different sized rings!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697446318239-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Cook for 4-5 min or until softened and slightly caramelised
 
 Once softened, transfer the cooked onion to a clean plate and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697446322882-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Grate your cheddar cheese finely
 
 Slice your ciabatta[s] in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697446328421-x200.jpg)
 
 ### Step 5
 
 Top the ciabatta base with the tuna mix, cooked onion and grated cheese and place the ciabatta lid on top – this is your tuna ciabatta
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697446345177-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once hot, add the tuna ciabatta[s] and cover with a smaller pan
 
 Add a heavy weight (eg. several tins) to the top pan and cook for 4-5 min per side, checking occasionally or until the ciabatta is golden and the cheese has melted – this is your tuna & red onion melt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697446351468-x200.jpg)
 
 ### Step 7
 

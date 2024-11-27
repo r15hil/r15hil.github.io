@@ -31,6 +31,7 @@ Get a double hit of protein in this spicy curry. You’ll simmer red lentils wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1730903530291-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Tip: Cooking for 4 or more? Use 2 pans!
 
 Once hot, add the onion wedges with a generous pinch of salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723210211042-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Add the rinsed lentils to the pan[s] with your ground coriander, ground turmeric
 
 Give everything a good mix up until the lentils are well coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723210214604-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once well coated, add your vegetable stock mix with 600ml<span class="text-purpl
 
 Once boiling, reduce the heat to medium-high and cook, covered, for an initial 10-13 min or until the lentils are almost tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723210218185-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add your basmati rice and 300ml<span class="text-purple"> [390ml] </span><span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, once cooked, remove from the heat and keep covered until serving – this is your fragrant rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723210221418-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Slice half your green chilli[es] into rounds and finely chop the rest
 
 Tip: Not a fan of spice? Remove the seeds!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723210225351-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once the lentils are almost tender, add the spinach with the finely chopped chil
 
 Give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723210228941-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Chunky halloumi bites are the perfect match for punchy North African harissa. Yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1677575457153-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Boil half a kettle
 
 Cut your halloumi into slices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1677575461246-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Trim, then chop your green beans in half
 
 Roughly chop your cherry tomatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1677575465107-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Once hot, add your halved green beans and cook for 2-3 min or until beginning to
 
 Once slightly softened, add the sliced halloumi and cook for 1-2 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677575468778-x200.jpg)
 
 ### Step 4
 
@@ -55,16 +59,19 @@ Whilst the halloumi is browning, add your couscous to a heatproof bowl
 
 Add 200ml <span class="text-purple">[275ml]</span> <span class="text-danger">[350ml] </span>boiled water and a pinch of salt, give everything a good mix up then cover and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1677575472097-x200.jpg)
 
 ### Step 5
 
 Combine your tomato paste and harissa paste (can’t handle the heat? Go easy!) with 80ml<span class="text-purple"> [100ml]</span> <span class="text-danger">[120ml]</span> boiled water and mix everything together – this is your harissa stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677575475691-x200.jpg)
 
 ### Step 6
 
 Once the halloumi is browned, add the chopped cherry tomatoes and harissa stock to the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1677575479553-x200.jpg)
 
 ### Step 7
 

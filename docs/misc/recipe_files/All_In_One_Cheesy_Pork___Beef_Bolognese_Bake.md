@@ -28,6 +28,7 @@ Requiring just 15 mins of prep, this easy, cheesy, all-in-one bolognese pasta ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1544.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Dice the tomatoes roughly
 
 Roughly chop the chestnut mushrooms
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1544.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,16 +52,19 @@ Once hot, add the chopped garlic and cook for 1 min or until fragrant
 
 Once fragrant, add the pork & beef mince with the chopped chestnut mushrooms, dried oregano and a generous pinch of salt and pepper, then cook for 4-5 min or until the mince is starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1544.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve the beef stock mix in 400ml <span class="text-danger">[700ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1544.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the beef has started to brown, add the diced tomatoes, tomato paste and balsamic vinegar to the pan and cook for 1-2 min further, giving everything a good mix up – this is your bolognese sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1544.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Pour the bolognese sauce and beef stock over and give everything a good mix up
 
 Tip: Try to make sure that most of the pasta is submerged in the liquid
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1544.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Tip: Add a splash of water if it's looking a little dry
 
 Return the dish to the oven for 20 min further or until the pasta is cooked and the sauce resembles a ragù-like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1544.-step-7-x200.jpg)
 
 ### Step 7
 

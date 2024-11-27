@@ -24,6 +24,7 @@ Once your pan is hot, this easy stir-fry comes together in no time. You'll serve
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644338353604-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644338357221-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Peel and finely slice (don't chop!) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into large bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644338360469-x200.jpg)
 
 ### Step 3
 
 Cut your meat-free chick’n into bite sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644338366944-x200.jpg)
 
 ### Step 4
 
@@ -52,11 +56,13 @@ Heat a large, wide-based pan or wok (preferably non-stick) with a drizzle of veg
 
 Once hot, add the sliced garlic, chopped pepper and mangetout and cook for 3-4 min or until the vegetables start to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644338374607-x200.jpg)
 
 ### Step 5
 
 Once the vegetables have softened, add the meat-free chick’n with a pinch of salt and pepper and cook for 2-3 min or until the meat-free chick'n is warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644338379219-x200.jpg)
 
 ### Step 6
 
@@ -64,6 +70,7 @@ Meanwhile, combine your cornflour with 150ml <span class="text-purple">[225ml] <
 
 Add your chilli relish, soy sauce and cornflour mix to the pan and cook for 3-4 min or until the sauce has thickened – this is your sweet chilli meat-free chick’n stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644338385462-x200.jpg)
 
 ### Step 7
 

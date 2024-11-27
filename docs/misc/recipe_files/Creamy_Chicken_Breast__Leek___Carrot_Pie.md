@@ -25,6 +25,7 @@ This pie is a hearty, wholesome hug in a dish. You’ll pack creamy chicken, car
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1668530776662-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your diced chicken breast with a pinch of salt and cook for 2-3 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668530782210-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668530787066-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Season with salt and pepper and cook for 4-5 min or until the carrot has softene
 
 Once softened, stir through 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp]</span> [2 tbsp] </span>flour and your dried oregano and cook for a further 30 secs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668530790601-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Dissolve your chicken stock mix in 150ml<span class="text-danger"> <span class="
 
 Add the creamy mustard stock to the pan and cook for 1-2 min or until thickened slightly – this is your creamy chicken, leek & carrot pie filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1668530794512-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Dust your work surface with a generous sprinkling of flour
 
 Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin then score in a criss-cross pattern across the top with a knife
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668530797884-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Tip: Use any excess pastry to add decorations to the pie!
 
 Press the edges with a fork to seal the pastry to the dish, then brush all over with milk
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1668530801500-x200.jpg)
 
 ### Step 7
 

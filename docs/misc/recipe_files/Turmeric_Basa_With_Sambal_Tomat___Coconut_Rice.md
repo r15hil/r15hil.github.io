@@ -26,6 +26,7 @@ Tender baked fish – delish. For this Indonesian-style curried basa, you’ll s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683203253917-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Rinse the sushi rice in a sieve under cold running water for 30 secs (use your h
 
 Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold water, a generous pinch of salt and half the chopped creamed coconut (you'll use the rest later!) to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683203257924-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683203262013-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Bash the lemongrass with a rolling pin and remove the tough outer layer<span cla
 
 Chop the softer inner core<span class="text-danger">[s]</span> roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683203266280-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add most of the coriander, including the stalks (save some whole leaves for garn
 
 Blitz until smooth – this is your turmeric marinade
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683203271408-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Divide the turmeric marinade evenly over each basa fillet, top with a knob of bu
 
 Add the parcels to a baking tray
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683203275774-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Meanwhile, slice the cucumber into discs on the diagonal and season with a pinch
 
 Chop the tomatoes very finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683203280363-x200.jpg)
 
 ### Step 7
 

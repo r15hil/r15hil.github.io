@@ -26,6 +26,7 @@ For this rustic Italian-style recipe, you'll crisp up crumbled sausage meat with
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580805917482-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Remove your sausage meat from the skins and discard the skins
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of olive oil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580805922267-x200.jpg)
 
 ### Step 2
 
 Once hot, add the sausage meat with your chilli flakes (can't handle the heat? Go easy!) and a generous grind of black pepper to the pan and cook for 3-4 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580805926863-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Bring to the boil over a high heat and cook for 8-10 min or until cooked with a 
 
 Once done, drain the wholewheat spaghetti and return to the pot with a drizzle of olive oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580805931018-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Add the chopped garlic and halved cherry tomatoes to the pan and cook for 3-4 min further or until the sausage meat is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580805935745-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Add your spinach to a colander and pour boiled water all over it until wilte
 
 Rinse the wilted spinach under cold running water until it's cool enough to handle, then squeeze as much water out of the spinach as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580805952992-x200.jpg)
 
 ### Step 6
 
 Once the sausage meat is cooked through, add the tomato stock to the pan with the wilted spinach and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580806000576-x200.jpg)
 
 ### Step 7
 

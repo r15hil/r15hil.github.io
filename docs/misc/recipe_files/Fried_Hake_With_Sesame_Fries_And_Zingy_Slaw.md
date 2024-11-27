@@ -29,6 +29,7 @@ To give this classic a Southeast Asian twist, you'll marinate hake in soy, ginge
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1713278177910-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your gin
 
 Cut your hake into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1713278186346-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the chopped ginger, chopped garlic and soy sauce to a medium bowl –
 
 Add the hake strips and give everything a good mix up, then set aside until later – this is your marinated hake
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713278196166-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Put the tray[s] in the oven for 20-30 min or until they're cooked through and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1713278221660-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Grate your radishes
 
 Top, tail, peel and grate your carrot[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713278229690-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add your rice vinegar and mix to combine – this is your zingy slaw
 
 Combine your mayo with your hoisin sauce in a bowl – this is your hoisin mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713278236534-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Drain and discard any excess marinade from the marinated hake
 
 Add your cornflour to the bowl and stir it all together so the hake strips are fully coated in cornflour – this is your coated hake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713278245463-x200.jpg)
 
 ### Step 7
 

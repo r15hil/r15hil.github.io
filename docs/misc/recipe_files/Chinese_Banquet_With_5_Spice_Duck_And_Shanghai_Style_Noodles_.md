@@ -27,6 +27,7 @@ For a Chinese-inspired feast, fill your table with crispy, shredded, 5-spice duc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1641298143116-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Coat the duck with the five-spice mix and season generously all over with salt
 
 Put the tray in the oven for an initial 30 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1641298146224-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Give everything a good mix up and put the chicken in the fridge until later – 
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1641298155098-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Trim, then slice the remaining spring onion<span class="text-danger">[s]</span> 
 
 Slice the cucumber in half lengthways and scoop out the seeds with a spoon then slice into matchsticks, discard the seeds
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1641298206746-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Return the duck legs with the rice to the oven for 30 min further or until all t
 
 Meanwhile, combine the honey, toasted sesame oil, half the ginger & garlic paste (you'll use the rest later!) and remaining cornflour in a bowl with 80ml <span class="text-danger">[100ml]</span> cold water and a very generous pinch of salt – this is your sesame-honey sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641298210594-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Once brown, add the spring onion thirds with the remaining ginger & garlic paste
 
 Remove from the heat and set aside for later – this is your Shanghai-style veg
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1641298216033-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Set aside to soak for 4 min, then drain
 
 Once golden, add the sesame-honey sauce to the pan and cook for a further 2-3 min or until the sauce has thickened to a syrup like consistency and the chicken is cooked through (no pink meat!) – this is your sesame-honey chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641298221469-x200.jpg)
 
 ### Step 7
 

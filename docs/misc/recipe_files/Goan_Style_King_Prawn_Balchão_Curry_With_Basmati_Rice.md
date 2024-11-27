@@ -31,11 +31,13 @@ The word ‘balchão’ in this dish refers to the use of vinegar as a way of pr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1871.-step-1-x200.jpg)
 
 ### Step 1
 
 Peel and finely dice your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1871.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the diced onion with a pinch of salt and cook for 10-12 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1871.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until a
 
 Once done, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1871.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and roughly chop your gin
 
 Peel and roughly chop your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1871.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Tip: Don't have a pestle & mortar? Use a food processor instead!
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> vegetable oil and give everything a good mix up – this is your balchão spice paste
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1871.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the onion has softened, add the balchão spice paste and tomato paste to th
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1871.-step-7-x200.jpg)
 
 ### Step 7
 

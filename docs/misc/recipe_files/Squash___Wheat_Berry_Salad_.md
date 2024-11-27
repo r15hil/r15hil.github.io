@@ -57,6 +57,7 @@ Once cooked, drain and return to the pot and leave to cool&nbsp;
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/829.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -78,6 +79,7 @@ Juice the&nbsp;lemon[s]
 
 Mix the chopped garlic&nbsp;and&nbsp;lemon juice&nbsp;with&nbsp;2 tbsp&nbsp;[4 tbsp]&nbsp;olive oil and season with&nbsp;salt&nbsp;and&nbsp;pepper&nbsp;- this is your&nbsp;lemon dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/829.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +88,7 @@ Wash and dry the rocket salad&nbsp;
 
 Scatter the 3 seed mix all over the squash and onion 5 mins before they're done
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/829.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +97,7 @@ Crumble the feta&nbsp;
 
 Wash and dry the rocket salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/829.-step-7-x200.jpg)
 
 ### Step 7
 

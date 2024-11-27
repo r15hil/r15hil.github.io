@@ -26,6 +26,7 @@ Here’s a hands-down Chinese takeaway favourite the whole family can enjoy at h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1048.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1048.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cut the baby corn into quarters
 
 Cut the green beans in half&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1048.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Combine the egg yolk<span class="text-danger">[s]</span> with the cornflour, a p
 
 Add the diced chicken to the batter and&nbsp;give everything a good mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1048.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once hot, add the chicken&nbsp;and cook for 3-4 min, turning once halfway until 
 
 Once done, transfer the golden chicken to kitchen paper and set aside&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1048.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, combine the soy sauce, tomato ketchup, rice vinegar, honey and sesame
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1048.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, add the carrot matchsticks, chopped green beans and baby corn&nbsp;and
 
 Add the sweet 'n' sour sauce&nbsp;and cook for a further 2-3 min or until the vegetables are tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1048.-step-7-x200.jpg)
 
 ### Step 7
 

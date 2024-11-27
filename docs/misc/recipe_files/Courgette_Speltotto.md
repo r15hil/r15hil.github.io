@@ -21,6 +21,7 @@ Traditional risotto has been given a Gousto makeover. We've swapped the traditio
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/845.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and chop (or grate) the garlic
 
 Chop the courgettes into small pieces&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/845.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the onion with a pinch of salt and cook for 5 min or until it has 
 
 Meanwhile, boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/845.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the onion has softened, add 3/4 of the courgette&nbsp;(you will use the res
 
 &nbsp;Meanwhile, dissolve the stock cube<span class="text-danger">[s]</span> in 1L <span class="text-danger">[2L]</span> boiled water - this is your stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/845.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the stock a ladle at a time, stirring occasionally for 30-35 min or until al
 
 Tip: when checking if your spelt is cooked, taste it! It will remain course in texture and have a bite to it when cooked&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/845.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add half the grated cheese in 2 <span class="text-danger">[4]</span> large circu
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/845.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once melted, remove from the oven leave to cool for a few min until cool enough 
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/845.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Dine in Hanoi-style with this zingy rice broth. You’ll simmer brown rice and v
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680014088717-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680014116218-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely slice your shallot[s]
 
 Dissolve your pho broth paste in 300ml <span class="text-purple">[450ml] </span><span class="text-danger">[600ml] </span>boiled water – this is your pho stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680014119270-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Trim, then chop your green beans into bite-sized pieces
 
 Wash your spinach
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680014121770-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Combine your cornflour, ground turmeric, 1 tbsp <span class="text-purple">[1 1/2
 
 Add the chopped basa to the turmeric cornflour and give everything a good mix up until fully coated, then set aside for later – these are your coated basa pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680014124476-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once hot, add the grated ginger, sliced shallot and chopped garlic to the pan an
 
 Once softened, add your ground coriander and cook for 30 secs or until fragrant – this is your ginger & shallot mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1680014320994-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Bring to the boil, then reduce the heat to medium-high and cook, covered for an 
 
 Once tender, add the spinach and carrot ribbons and cook, covered, for a final 1-2 min or until the spinach has wilted – this is your Vietnamese-style rice broth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680014323795-x200.jpg)
 
 ### Step 7
 

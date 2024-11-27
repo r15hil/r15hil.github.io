@@ -24,6 +24,7 @@ Take things easy with this warming soup. You’ll pan-fry mushrooms, potato and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687523430635-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely slice your brown onion[s]
 
 Slice your flat white mushroom[s] and baby button mushrooms finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675164434433-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large pot (with a matching lid) with a drizzle of olive oil over a medium
 
 Once hot, add the sliced onion and sliced mushrooms with a pinch of salt and cook for 4-6 min or until the onion is softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675164437700-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Peel and finely chop (or grate) your garlic
 
 Boil a full kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675164441210-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Give everything a good mix up and cook for 1 min or until fragrant, then once fr
 
 Bring to the boil over a medium-high heat and cook, covered, for 10-12 min or until the potato is fork-tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675164444567-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ While the soup is cooking, combine a generous knob of butter in a bowl with the 
 
 Season with a generous grind of black pepper and mix it all together – this is your garlic butter
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687523441578-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Tear the remaining buttered ciabatta into bite-sized pieces and add to the other
 
 Put the tray[s] in the oven for 5-7 min or until golden and crusty – this is your garlic bread and croutons
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687523444025-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Traditionally, huli huli chicken should be turned several times during cooking. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-38-1715933010156-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the drained rice with 200ml <span class="text-purple">[300ml] </span><span c
 
 Once boiling, reduce the heat to low until very gently bubbling and cook, covered, for 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-37-1715933014196-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, take your chicken out of the fridge, open the packet and let it air
 
 Peel your shallot[s] and slice into thin rounds, then add the shallot rounds to a small bowl with your red wine vinegar and a pinch of sugar, then set aside – this is your quick-pickled shallot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-43-1715933017692-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Preheat the grill to high
 
 Drain your pineapple (keep the juice for later!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-38-1715933022533-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Combine the chopped garlic, chopped ginger, tamari soy sauce, pineapple juice an
 
 Turn the chicken breast portion[s] over and add the huli huli sauce to the pan, give everything a good mix up and cook for a further 4-5 min or until the sauce has reduced to a syrup-like consistency – this is your huli huli chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-39-1715933028636-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add the huli huli chicken with any remaining huli huli sauce to a tin foil-lined
 
 Return the pan to the heat with a small drizzle of vegetable oil, add 1 pineapple ring per person (you'll use the rest later!) and cook for 3-4 min, turning once until charred – this is your charred pineapple
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-38-1715933031701-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Meanwhile, add your edamame beans to a colander and pour boiled water all over t
 
 Chop the remaining pineapple into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-38-1715933034798-x200.jpg)
 
 ### Step 7
 

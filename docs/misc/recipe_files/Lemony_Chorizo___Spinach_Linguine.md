@@ -20,6 +20,7 @@ For this elegant pasta dish, you'll pan-fry chorizo in garlic oil, before stirri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643124855377-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Add the linguine to a pot of boiled water with a pinch of salt, then bring to 
 
 Once cooked, drain the linguine and reserve a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643124861348-x200.jpg)
 
 ### Step 2
 
@@ -38,11 +40,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the sliced garlic and cook for 1 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643124868110-x200.jpg)
 
 ### Step 3
 
 Turn the heat up to medium-high, add the diced chorizo and cook for 4-5 min or until crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1643721737322-x200.jpg)
 
 ### Step 4
 
@@ -50,11 +54,13 @@ While the chorizo is cooking, zest 1/2 <span class="text-danger">[1] </span>lemo
 
 Slice the remaining non-zested lemon into wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643124883251-x200.jpg)
 
 ### Step 5
 
 Once the chorizo is cooked, add the Chinese rice wine, soft cheese and 100ml<span class="text-danger"> [150ml]</span> reserved starchy pasta water to the pan and cook for 2 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643124888301-x200.jpg)
 
 ### Step 6
 

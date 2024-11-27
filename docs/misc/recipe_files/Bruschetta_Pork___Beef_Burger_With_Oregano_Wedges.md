@@ -26,6 +26,7 @@ Swap burger buns for bruschetta in this twisted Italian-style takeaway. You’ll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1693919985846-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the wedges to a baking tray (or two!) with the dried oregano, a drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693919989942-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop your cherry tomatoes finely
 
 Chop your basil finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693919994064-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Mix everything together – this is your bruschetta mixture
 
 Combine your mayo with half your balsamic vinegar (you'll use the rest later!) – this is your balsamic mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693919998962-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide and shape into equal-sized patties, 1 per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693920028426-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip the patty[ies] and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693920033795-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Return the tray to the oven for 4-5 min or until toasted and charred
 
 Once toasted, remove the halved bread roll[s] from the oven and rub with the crushed garlic - this is your garlic bread roll
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693920037353-x200.jpg)
 
 ### Step 7
 

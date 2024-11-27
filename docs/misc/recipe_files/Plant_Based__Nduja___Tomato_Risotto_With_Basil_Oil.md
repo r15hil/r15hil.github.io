@@ -28,6 +28,7 @@ It’s the fiery plant-based ‘nduja that steals the show in this punchy risott
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1710750652205-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop (or grate) your garlic
 
 Top, tail and chop your courgette[s] into quarters lengthways, then chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1710750655864-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once toasted, set aside for later and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1710750659459-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Return the reserved pan to a medium-high heat with a drizzle of olive oil and on
 
 Meanwhile, dissolve your vegetable stock mix and tomato paste in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1710750663983-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Whilst the onion is softening, add the chopped courgette and your cherry tomatoe
 
 Put the tray[s] in the oven for 18-20 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5--1710750667837-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the onion has softened, add the chopped garlic and your plant based 'Nduja 
 
 Once fragrant, add your arborio rice and Chinese rice wine and cook for 1 min, stirring to coat the grains in the oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1710750671560-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Meanwhile, chop your basil finely, including the stalks, then grind the chopped�
 
 Tip: If you don't have a pestle & mortar, chop the basil leaves very finely and mix with the olive oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1710750675144-x200.jpg)
 
 ### Step 7
 

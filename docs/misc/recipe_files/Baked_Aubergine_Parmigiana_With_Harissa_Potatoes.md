@@ -24,6 +24,7 @@ Make a melty cheesy aubergine parmigiana, spiked with a North African kick. You'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1654617273656-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your oven-proof dish and all your ingredients ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1654617350935-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1654617350789-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Chop your waxy potatoes in half
 
 Grate your cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1654617389697-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Top with the sliced aubergine
 
 Put the dish[es] in the oven and cook for an initial 40 min or until the aubergine is very tender and the sauce is bubbling – this is your spiced aubergine
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1654617400911-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once the spiced aubergine has had 10 min, put the tray[s] in the oven for 30 min
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1654617411731-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ After the initial 40 min, remove the aubergine from the oven and top with the gr
 
 Return the dish[es] to the oven for 5 min further or until the cheese has melted – this is your baked aubergine parmigiana
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1654617428659-x200.jpg)
 
 ### Step 7
 

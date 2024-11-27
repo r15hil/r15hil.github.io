@@ -24,6 +24,7 @@ Taste the delicate flavours of Japan with this simple, light and refreshing char
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671611776071-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the white long grain rice with 225ml<span class="text-danger"> [450ml]</span
 
 Once boiling, reduce the heat to low until very gently bubbling and cook, covered, for 12-15 min, then remove the pot from the heat and keep covered for a further 10 min before serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671611784470-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add half the chopped ginger to a large bowl with the miso paste, 1/3 of the toas
 
 Stir it all together until smooth – this is your miso marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671611790813-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the diced chicken breast to the miso marinade and mix it all together until 
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671611795699-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Add the coated chicken to a tin foil-lined baking tray
 
 Put the tray under the grill for 10-12 min or until the chicken is cooked through and starting to char (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671611802594-x200.jpg)
 
 ### Step 5
 
@@ -65,11 +70,13 @@ Add the edamame beans to a colander and pour boiled water all over them to refre
 
 Peel and slice the shallot<span class="text-danger">[s]</span> as finely as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671611806060-x200.jpg)
 
 ### Step 6
 
 Combine the remaining chopped ginger with the soy sauce, rice vinegar, remaining sesame oil and 1 tsp <span class="text-danger">[2 tsp]</span> sugar in a small bowl – this is your sesame ginger dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671611815246-x200.jpg)
 
 ### Step 7
 

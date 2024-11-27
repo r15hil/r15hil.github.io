@@ -27,6 +27,7 @@ For an Indian-inspired twist on your favourite wrap, try these soft tortillas st
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1697534568026-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut your hake fillet[s] into bite-sized pieces and add to a bowl with your curry
 
 Give everything a good mix up so that the hake is fully coated in the spices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697534572470-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 3/4 of the sliced onion (save the rest for later!) with a pinch of salt and cook for 10-12 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697534576427-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ While the onion is cooking, chop your coriander finely, including the stalks
 
 Pick your mint leaves from their stalks and chop them finely, discarding the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697534581183-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Grind to a fine paste, then add your mayo and a drizzle of olive oil – this is
 
 Tip: If you don't have a pestle & mortar, chop everything very finely!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697534585945-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the diced tomato to a bowl with your nigella seeds, remaining sliced onion a
 
 Season with a pinch of salt and give everything a good mix up – this is your tomato salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1697534590033-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Squeeze in the juice of the remaining lemon[s] and mix to combine – this is yo
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697534594437-x200.jpg)
 
 ### Step 7
 

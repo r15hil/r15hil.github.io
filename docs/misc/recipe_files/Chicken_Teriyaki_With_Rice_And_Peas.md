@@ -26,6 +26,7 @@ Homemade teriyaki sauce adds a sticky-sweet glaze to succulent chicken. You'll m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1657016402766-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1657016403322-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ While the rice is cooking, heat a large, wide-based pan (preferably non-stick) w
 
 Once hot, add your chicken breast strips with a pinch of salt and cook for 6-7 min on each side or until browned all over and cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1657016403602-x200.jpg)
 
 ### Step 3
 
 While the chicken is cooking, peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1657016403719-x200.jpg)
 
 ### Step 4
 
@@ -54,11 +58,13 @@ Combine the chopped ginger, rice vinegar, chilli flakes (can't handle the heat? 
 
 Give it a good mix up – this is your teriyaki sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1657016404010-x200.jpg)
 
 ### Step 5
 
 Once the rice is cooked, add your blanched peas to the same pot (on top of the rice) and put the lid back on for 3 min or until the peas are warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1657016404275-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Cook for 2-3 min further or until the sauce has reduced to a sticky consistency 
 
 Trim, then finely chop your spring onion[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1657016404584-x200.jpg)
 
 ### Step 7
 

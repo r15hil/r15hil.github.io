@@ -27,6 +27,7 @@ These beefy koftas will have you eating like a Greek god. Build your bowl with g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1719828690621-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Add your minced beef to a large bowl with your panko breadcrumbs
 
 Add half your Mediterranean seasoning and half your roasted garlic paste (you’ll use the rest later!) with a very generous pinch of salt and pepper, then give everything a good mix up until thoroughly combined (clean hands is the best way!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1719828693432-x200.jpg)
 
 ### Step 2
 
 Divide and shape into koftas (3 per person!) – these are your beef koftas
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1719828698515-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Reduce the heat to medium-high, cover with a lid and cook for a further 6-7 min,
 
 Tip: Cooking for 4 or more? You may need to use 2 pans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1719828701874-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1719828705082-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Chop your tomato[es] into thin wedges
 
 Wash your lettuce then pat it dry with kitchen paper and roughly shred
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1719828708978-x200.jpg)
 
 ### Step 6
 
 Combine your yoghurt with half the chopped cucumber, your mint sauce and a pinch of salt and pepper – this is your chunky tzatziki
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1719828713636-x200.jpg)
 
 ### Step 7
 

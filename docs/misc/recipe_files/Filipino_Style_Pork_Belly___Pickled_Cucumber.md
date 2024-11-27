@@ -30,6 +30,7 @@ To recreate the famous barbecue flavours of the Philippines, you'll roast pork b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2108.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a
 
 Season with a pinch of salt and rub it deep into the criss-cross pattern
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2108.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Line a baking tray with tin foil
 
 When the pork is done, place on the tray and put the tray in the oven for 40 min (reserve the pan and pork juices for later)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2108.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the sliced cucumber to a small bowl with your rice vinegar and chilli flakes
 
 Give it a good mix up and set aside to pickle – this is your quick-pickled cucumber
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2108.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2108.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Return the reserved pan to a medium heat
 
 Once hot, add the marinade mix with your bay leaf[ves] and star anise and cook for 6-7 min or until a thick and glossy sauce remains – this is your pork marinade
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2108.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once the pork has had 40 min, remove the tray from the oven and spoon over the p
 
 Return to the oven for a further 5-7 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2108.-step-7-x200.jpg)
 
 ### Step 7
 

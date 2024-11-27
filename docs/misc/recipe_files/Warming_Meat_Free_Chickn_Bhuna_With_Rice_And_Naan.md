@@ -30,6 +30,7 @@ For this easy curry house classic, you'll flavour rich tomato sauce with meat-fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1701942571464-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676635343231-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely chop (or grate) your garlic
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676635347909-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the sliced onion with a generous pinch of salt and cook for 3-4 mi
 
 Once softened, add the halved cherry tomatoes to the pan and cook for 3-4 min further or until starting to break down
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676635352373-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Meanwhile, dissolve your vegetable stock mix and tomato paste in 200ml <span 
 
 Chop any larger pieces of your meat-free chick'n into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676635356994-x200.jpg)
 
 ### Step 5
 
 Once the tomatoes have started to break down, add the chopped garlic to the pan with your garam masala, ground fenugreek and ground paprika and cook for 1 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676635360938-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Tip: Add an extra drizzle of vegetable oil if the meat-free chick'n is looking a
 
 Once the meat-free chick'n is warmed through, add the tomato stock and cook for 3-4 min or until the sauce has thickened – this is your warming meat-free chick'n bhuna
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1677494031445-x200.jpg)
 
 ### Step 7
 

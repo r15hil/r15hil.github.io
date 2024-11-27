@@ -28,6 +28,7 @@ This poke bowl is chock full of fresh veg flavours. Pile your plate high with se
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684340531460-x200.jpg)
 
 ### Step 1
 
@@ -39,11 +40,13 @@ Add the chopped sweet potato to a baking tray (or two!) with a small drizzle of 
 
 Put the tray[s] in the oven for 20 min or until cooked through and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723805930007-x200.jpg)
 
 ### Step 2
 
 Rinse your sushi rice in a sieve under cold running water for 30 secs (use your hands to really wash the grains!), then set aside to drain fully
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723805952671-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723805960833-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Bash your cucumber with a rolling pin and chop it into large, bite-sized pieces 
 
 Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the water is drawn out more easily!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723805967479-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Cut your avocado[s] in half lengthways, around the stone
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely lengthways
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723805973699-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add the ponzu-style sauce and cook for 3-4 min or until thickened to a syrup-like consistency, then set aside to cool – this is your ponzu-style glaze
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723805979092-x200.jpg)
 
 ### Step 7
 

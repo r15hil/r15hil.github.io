@@ -26,6 +26,7 @@ Put a little Seoul in your mid-week dinner. For an extra kick, you’ll pan-fry 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688126486400-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Combine your cornflour and grated tofu in a bowl
 
 Give everything a good mix up – this is your coated tofu
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688126489733-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated tofu to the pan with a pinch of salt and cook for 10-15 min or until golden and crispy – this is your crispy tofu
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688126511592-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add your white long grain rice to a pot with a lid with a pinch of salt and 225m
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688126516756-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Meanwhile, wash your lettuce, then remove the outer leaves and pat dry with kitc
 
 Shred the inner core
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688126520771-x200.jpg)
 
 ### Step 5
 
 Combine your gochujang (can't handle the heat? Go easy!), ginger & garlic paste, 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp] </span>[2 tsp] </span>sugar, tamari soy sauce and most of your toasted sesame seeds (save some for garnish!) – this is your bulgogi-style sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688126586053-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the tofu is crispy, add the grated apple and cook for 5 min or until the ap
 
 Once softened, add the bulgogi-style sauce and cook for 1-2 min or until fragrant – this is your bulgogi-style tofu
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688126588720-x200.jpg)
 
 ### Step 7
 

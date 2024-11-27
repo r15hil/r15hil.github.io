@@ -25,6 +25,7 @@ The most luscious of risottos, and the perfect way to indulge. You'll combine de
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/792.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/792.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the diced onion and cook for 3 min or until softened but not coloured
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vegetable-stock-1656341279292-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml] </span><span class="text-danger">[1.4L]</span> boiled water and add your saffron, then leave to infuse – this is your saffron stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/792.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Once the onion has softened, add the chopped garlic with your arborio rice and
 
 Add the saffron stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/792.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Season with a pinch of salt and pepper and whisk to combine – this is your le
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/792.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Tip: Your risotto should be porridge-like in consistency so if it is looking a l
 
 Stir most of your crab meat (save some for garnish!) and your clotted cream through the risotto – this is your saffron, crab & clotted cream risotto
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/792.-step-7-x200.jpg)
 
 ### Step 7
 

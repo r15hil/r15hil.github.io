@@ -31,6 +31,7 @@ Make sweet potato the star of the show with this tangy tamarind-glazed stunner. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687534469061-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your creamed coconut finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687534472427-x200.jpg)
 
 ### Step 2
 
@@ -51,11 +53,13 @@ Add 350ml <span class="text-purple">[525ml]</span> <span class="text-danger">[70
 
 Put the dish in the oven for 30-35 min or until all the water is absorbed and the rice is cooked – this is your coconut rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687534478180-x200.jpg)
 
 ### Step 3
 
 Whilst the rice is cooking, pierce your sweet potatoes with a fork, then cook in the microwave for 10-12 min or until fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687534483132-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Chop your coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687534487872-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Give everything a good mix up – this is your coriander salsa
 
 Cut the remaining lime into wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687534492349-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Carefully cut narrow slices (approx. 1cm apart) into the cooked sweet potatoes, 
 
 Add the potatoes to one side of a tin foil-lined baking tray, spread the tamarind glaze over the tops with the back of a spoon and put in the oven for an initial 4-5 min – these are your tamarind glazed sweet potatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687534496151-x200.jpg)
 
 ### Step 7
 

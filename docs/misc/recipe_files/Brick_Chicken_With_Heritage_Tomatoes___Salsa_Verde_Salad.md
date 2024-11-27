@@ -23,6 +23,7 @@ Dine in like the Romans with our twist on pollo al mattone or “chicken under a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-3-1715249240316-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your chopped potatoes to a heatproof bowl, then cover the bowl with cling fi
 
 Put the bowl in the microwave for 8-10 min or until the potatoes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1715249243496-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the chicken thighs, skin-side down and cover with a piece of tin f
 
 Add a heavy weight (eg. several tins) to the top pan and cook for 12 min, checking occasionally, until the chicken skin is golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-3-1715249253177-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once the potatoes are tender, remove the cling film and add a pinch of salt and 
 
 Give the seasoned potatoes a good mix up, then set aside to cool down
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1715249256321-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Chop your capers roughly
 
 Peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1715249260017-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add a generous drizzle of olive oil with the juice of half your lemon[s] and mix
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1715249264052-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once the chicken has had 12 min, remove the smaller pan and discard the tin foil
 
 Turn the chicken thighs over and cook for a final 6 min or until cooked through (no pink meat!) – this is your brick chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-3-1715249267354-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ This pasta bake is sensational: sun-dried tomato pesto, juicy pork meatballs, wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2420Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Combine the pork mince with the dried basil, panko breadcrumbs and a generous p
 
 Divide the mixture into 10 <span class="text-danger">[20]</span> and shape them into meatballs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2420Step-2-x200.jpg)
 
 ### Step 2
 
 Combine half <span class="text-danger">[all]</span> the Knorr chicken stock cube with the sun-dried tomato nut pesto pots, crème fraîche and 300ml <span class="text-danger">[600ml]</span> boiled water – this is your pesto sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2420Step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the macaroni to an oven-proof dish and pour the pesto sauce all over
 
 Top with the baby leaf spinach and pork meatballs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2420Step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Cover the oven-proof dish tightly with tin foil and put the dish in the oven for
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2420Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Give everything a good stir until the spinach has wilted into the sauce
 
 <span class="text-highlight">Return the meatballs to the dish and return to the oven for 10-15 min further or until everything is cooked through (no pink meat!)</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2420Step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Meanwhile, grate the cheddar cheese
 
 Once everything's cooked through, top with the grated cheese and return the dish to the oven for a further 3-4 min or until the cheese has melted – this is your all-in-one pork meatball pesto bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2420Step-7-x200.jpg)
 
 ### Step 7
 

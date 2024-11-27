@@ -31,6 +31,7 @@ Fill your kitchen with the aromas of Thailand. For this fiery stir-fry, you'll c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-5-1679404276895-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel (scrape the skin off with a teaspoon) and roughly chop your ginger, shallot
 
 Bash your lemongrass with a rolling pin, remove the tough outer layers and set aside for later, then chop the softer inner core[s] roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-5-1679404287401-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the chopped shallot, garlic, ginger, chopped lemongrass and coriander to a f
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> vegetable oil, 2 tbsp<span class="text-purple"> [3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> cold water and 1.5 tsp <span class="text-purple">[2 1/4 tsp]</span> <span class="text-danger">[3 tsp] </span>sugar and blitz to a paste – this is your fiery curry paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-5-1679404453194-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to low and stir vigorously for 1 min, then cover a
 
 Once done, remove the pot from the heat and discard the outer lemongrass layers and keep covered until serving – this is your lemongrass rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-5-1679404457625-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Whilst the rice is cooking, heat a large, wide-based pan (preferably non-stick) 
 
 Once hot, add your diced chicken breast and a pinch of salt and cook for an initial 4-5 min on each side or until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-5-1679404465831-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Peel and chop your red onion[s] into wedges
 
 Separate the onion wedges into petals
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1679404475867-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the chicken is browned, add the halved green beans and onion petals and coo
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-5-1679404485389-x200.jpg)
 
 ### Step 7
 

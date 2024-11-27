@@ -29,6 +29,7 @@ This Mexican-inspired dish pairs smoky pulled chicken with fluffy white rice and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690535822388-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690535825739-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Meanwhile, zest your lime[s] (try to grate lightly with a micro-plane or sharp b
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690535779793-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add your chipotle paste (can't handle the heat? Go easy!) to a large bowl with a
 
 Dissolve your chicken stock mix, tomato paste and a pinch of salt in 150ml <span class="text-purple">[195ml] </span><span class="text-danger">[255ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690535830889-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once hot, add the marinated chicken with 1 tsp <span class="text-purple">[1 1/2 
 
 Once browned, add the tomato stock to the pan and cook, covered, for 8-10 min further or until the chicken is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690535834239-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add your carrot & cabbage slaw mix to a bowl with the juice of half your lime[s]
 
 Give everything a good mix up – this is your lime slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690535837898-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the diced tomato to a bowl with the remaining lime zest, a squeeze of lime j
 
 Mix it all together – this is your tomato lime salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690535841772-x200.jpg)
 
 ### Step 7
 

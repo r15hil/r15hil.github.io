@@ -26,6 +26,7 @@ Moussaka is creamy, luxurious and a true Mediterranean classic. You'll layer roa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/985-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Slice your potatoes (skins on) into discs, then trim the green stalk[s] off yo
 
 Add the potato discs and aubergine rounds to a baking tray (or two!) with a drizzle of olive oil and a generous pinch of salt and put the tray[s] in the oven for 10-15 min or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/985-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely dice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/985-v2-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add your lamb mince and diced shallot and cook for 3-4 min or until th
 
 Meanwhile, dissolve your beef stock mix in 100ml<span class="text-purple"> [120ml] </span><span class="text-danger">[150ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/985-v2-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Add the chopped garlic and your ground cinnamon and cook for 1 min further
 
 Once browned, add your chopped tomatoes, beef stock, bay leaf[ves], dried oregano and a pinch of salt and pepper and cook over a high heat for 4-5 min or until reduced and the lamb is cooked through (no pink meat!) – this is your lamb ragù
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/985-v2-Step-5-x200.jpg)
 
 ### Step 5
 
 While the ragù thickens, grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/985-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Gradually whisk 250ml <span class="text-purple">[375ml]<span class="text-danger"
 
 Add your grated cheese and a pinch of salt – this is your cheese sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/985-v2-Step-7-x200.jpg)
 
 ### Step 7
 

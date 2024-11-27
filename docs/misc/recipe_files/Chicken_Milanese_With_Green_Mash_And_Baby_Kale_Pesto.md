@@ -22,6 +22,7 @@ Milanese is a traditional Italian way of breading thin slices of chicken or veal
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1636448520872-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Peel and chop the potatoes roughly into bite-sized pieces
 
 Add the chopped potatoes to a pot of boiled water with a pinch of salt and cook over a high heat for 15 min or until they're fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1636448529059-x200.jpg)
 
 ### Step 2
 
 Meanwhile, cover the chicken breasts in cling film and bash them with a rolling pin until evenly flattened and approx. 1cm in thickness
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1636448536816-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Add the juice of 1/2 <span class="text-danger">[1] </span>lemon to a bowl with 2
 
 Give it a good mix up until the lemon and oil have combined - this is your lemon & olive oil mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1636448546595-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Dip the flattened chicken breasts in the lemon & olive oil mix then press firml
 
 Add the coated chicken to one side of an oiled baking tray
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1636448552246-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Add the cherry tomatoes to the other side of the baking tray with a drizzle of o
 
 Put the tray in the oven for 20 min or until the chicken is cooked through (no pink meat!) and the tomatoes have started to blister and char
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1636448562406-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Add the garlic (not a fan of raw garlic? Go easy!), the grated cheddar, walnuts,
 
 Whizz it all up until blitzed but not smooth and set aside – this is your baby kale pesto
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1636448568997-x200.jpg)
 
 ### Step 7
 

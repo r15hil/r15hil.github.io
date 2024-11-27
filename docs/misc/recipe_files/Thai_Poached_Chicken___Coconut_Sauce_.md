@@ -25,6 +25,7 @@ Poached chicken and rice is comfort food like no other. This Thai version is fla
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/664.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/664.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Dissolve half the green curry paste&nbsp;(save the rest for later) in 400ml <spa
 
 Add the chopped&nbsp;ginger,&nbsp;chilli flakes (can't handle the heat? Go easy!) and 2 <span class="text-danger">[4]</span> soy sauce sachets and stir to combine &ndash; this is your poaching liquid
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/664.step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Slice in half as if you were cutting a burger bun, so you are left with 2 <span 
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/664.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Bring to the boil, cover with a lid&nbsp;and cook for 8-10 min or until the chic
 
 Meanwhile, chop the coriander roughly, including the stalks&nbsp;and trim, then finely slice the spring onions
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/664.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Cut the lime<span class="text-danger">[s]</span> in half
 
 Combine the softened coconut cream, remaining&nbsp;soy sauce sachets, juice of 1/2&nbsp;<span class="text-danger">[1]</span> lime, toasted sesame oil, remaining green curry paste and 75ml <span class="text-danger">[150ml]</span> boiled water&nbsp;&ndash; this is your coconut sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/664.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -100,6 +106,7 @@ Use two forks to shred the chicken by pulling the meat in opposite directions
 
 Return&nbsp;the shredded chicken&nbsp;to the pot with the pak choi and cook, covered, for a further 3-4 min or until tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/664.-step--7-x200.jpg)
 
 ### Step 7
 

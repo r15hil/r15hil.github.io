@@ -21,6 +21,7 @@ To make this healthier twist on risotto, you'll fill your dinner with goodness f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616582497616-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6, then boil a full kettle
 
 Chop the leek<span class="text-danger">[s]</span> in half lengthways, wash thoroughly to remove any grit then top, tail and slice finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616582505881-x200.jpg)
 
 ### Step 2
 
@@ -35,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1/2
 
 Once hot, add the sliced leek with a pinch of salt and cook for 5-6 min until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1616582527208-x200.jpg)
 
 ### Step 3
 
@@ -46,11 +49,13 @@ Add the vegetable stock and cook, covered, for 25-30 min, stirring occasionally
 
 Tip: Add a splash more water if it's looking a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1616582543791-x200.jpg)
 
 ### Step 4
 
 Whilst the spelt is cooking, chop the basil roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1616582574634-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Add 2 tbsp<span class="text-danger"> [4 tbsp] </span>olive oil and the juice of 
 
 Cut the remaining lemon into 2<span class="text-danger"> [4]</span> wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1616582603738-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Add the asparagus tips to a baking paper-lined tray and sprinkle over half the g
 
 Put the tray in the oven for 6-7 min or until the asparagus tips are cooked and the cheese is melted and crisp – these are your cheesy asparagus tips
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1616582645615-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ This posh risotto blends the flavours from sea and land to create a real showsto
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1659.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and garlic and cook for 8-10 minutes or until softened.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1659.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Add the butternut squash cubes<span class="text-highlight"> to a pot of boiled
 
 Once done, drain and mash until smooth.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1659.-step-4-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Add <span class="text-highlight">1/3 </span>of the stock and stir continuously
 
 Continue to add the stock a little at a time, stirring continuously for 25-30 minutes or until the stock has been absorbed and the rice is cooked.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1659.-step-3-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Cook the coppa 
 
 Add the sliced coppa to a baking tray and put the tray in the oven for 6-8 minutes or until crispy.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1659.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,6 +100,7 @@ Set aside on a piece of kitchen paper to drain the excess oil and season with a 
 
 Reserve the pan for later.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1659.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -112,6 +118,7 @@ Flip the scallops and cook for 1 minute further or until cooked through. 
 
 Tip: your scallops are cooked when they turn opaque.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1659.-step-7-x200.jpg)
 
 ### Step 7
 

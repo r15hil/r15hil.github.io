@@ -19,6 +19,7 @@ You won’t believe how simple this sausage and gnocchi bake is to whip together
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1679.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -27,31 +28,37 @@ Preheat the oven to 220°C/ 200°C (fan)/ 425°F/ Gas 7
 
 Top, tail then chop the courgette<span class="text-danger">[s]</span> into thick slices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1679.-step-2-x200.jpg)
 
 ### Step 2
 
 Peel and chop the red onion<span class="text-danger">[s]</span> into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1679.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the gnocchi to a baking tray
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1679.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the onion wedges and chopped courgette to the tray with a generous drizzle of olive oil and a pinch of salt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1679.-step-5-x200.jpg)
 
 ### Step 5
 
 Squeeze the sausage meat from their casings into small meatballs directly onto the tray (clean hands is the best way!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1679.-step-6-x200.jpg)
 
 ### Step 6
 
 Put the tray in the oven for 30-35 min or until the sausages are cooked through and the gnocchi are starting to crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1679.-step-7-x200.jpg)
 
 ### Step 7
 

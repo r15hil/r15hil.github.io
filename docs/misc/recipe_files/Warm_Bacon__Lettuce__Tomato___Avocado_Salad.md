@@ -25,6 +25,7 @@ We've deconstructed a classic BLT and turned it into a delicious warm salad. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1658.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your waxy potatoes (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1658.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Drizzle them with olive oil and a pinch of salt
 
 Put the tray in the oven for an initial 10 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1658.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Roughly chop your cherry tomatoes
 
 Peel and finely slice your shallot[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1658.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and roughly chop
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1658.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Return the tray[s] to the oven for a further 20-25 min or until the potatoes are cooked through and the bacon is crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1658.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Combine your wholegrain mustard, white wine vinegar and mayo in a bowl
 
 Add a drizzle of olive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> water – this is your mustard dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1658.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Bring the heat to pizza night with goats’ cheese, caramelised onion and a driz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1689687489053-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Cook the onion for 8-10 min or until it has softened and caramelised, then stir through half your balsamic vinegar (save the rest for later!) and cook for a final 30 secs - this is your caramelised onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1689687493501-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add your tomato paste to a bowl with a generous pinch of salt, pepper and sugar
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp] </span><span class="text-danger">[10 tbsp] </span>cold water and stir it all together – this is your tomato base
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1689687497101-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Crumble your goats' cheese into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689687502112-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Divide the tomato base between the pizza base[s] and spread it evenly with the b
 
 Top with the torn mozzarella, caramelised onion, crumbled goats’ cheese and a generous pinch of pepper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689687507513-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Meanwhile, wash your salad, then pat it dry with kitchen paper
 
 Cut your cucumber in half lengthways, then slice finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689687512653-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the salad and chopped cucumber to a bowl with the remaining balsamic vinegar
 
 Toss to combine – this is your dressed salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689687516680-x200.jpg)
 
 ### Step 7
 

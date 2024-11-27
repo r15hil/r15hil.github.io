@@ -30,6 +30,7 @@ Fusing American & Asian techniques, our Korean-style fried chicken is bang on tr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1154.step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon) and dice finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1154.step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped pepper with a pinch of salt and a splash of cold water and cook, covered, for 8-10 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1154.step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your cornflour to a bowl with a generous pinch of salt and give it a good 
 
 Add the chicken strips to the bowl and toss to coat them evenly in the cornflour, then set aside – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1154.step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1154.step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Heat a separate, large, wide-based pan (preferably non-stick with a matching lid
 
 Once golden, transfer the browned chicken to a baking tray (reserve the pan) and put the tray in the oven for 8-10 min or until cooked through (no pink meat!) – this is your crispy chicken thigh
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1154.step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once boiling, remove the sauce from the heat – this is your Korean-style sauce
 
 Tip: If you have a food processor, blitz the sauce until smooth for a more authentic look and feel!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1154.step-7-x200.jpg)
 
 ### Step 7
 

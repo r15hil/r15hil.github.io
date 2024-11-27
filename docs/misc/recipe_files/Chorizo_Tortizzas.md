@@ -23,6 +23,7 @@ Part pizza, part tortillas, these cheesy chorizo 'tortizzas' are breaking down s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/693.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the diced&nbsp;onion and cook for 3-4 or until soft and starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/693.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop the mini cooking&nbsp;chorizo roughly into small pieces
 
 Add the&nbsp;chopped chorizo to the onions and cook them both for a further 2-3 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/693.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Meanwhile, dissolve the&nbsp;tomato paste and chipotle paste in 150ml <span clas
 
 Add the spicy tomato stock to the pan and cook for 2-3 min or until the liquid reduces to form a loose paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/693.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Slice the spring onion<span class="text-danger">[s]</span> finely, discarding th
 
 Add the tortillas to a large baking tray
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/693.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Divide the tomato chorizo mixture between the tortillas and spread it out toward
 
 Sprinkle each tortilla with the&nbsp;grated cheese and sliced&nbsp;spring onion- these are your tortizzas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/693.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Place the tortizzas into the oven and cook for 10 min or until the cheese has me
 
 Meanwhile, mix the pomegranate molasses with the mayonnaise, 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and pepper - this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/693.-step-7-x200.jpg)
 
 ### Step 7
 

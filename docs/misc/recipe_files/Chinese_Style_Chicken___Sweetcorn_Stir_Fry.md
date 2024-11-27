@@ -26,6 +26,7 @@ This speedy sir-fry is inspired by the classic chicken and sweetcorn soup. For y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-5-1647946527210-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Bite-sized-Chicken-Breast-on-board-1666611402409-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Trim, then slice your spring onios
 
 Drain your sweetcorn
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-5-1647946573487-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chicken thigh with a pinch of salt and pepper and cook for 6-7 min on each side or until golden and cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-5-1647946590385-x200.jpg)
 
 ### Step 4
 
@@ -66,16 +70,19 @@ Rinse the wilted spinach under the cold tap until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-5-1647946610966-x200.jpg)
 
 ### Step 5
 
 Combine your cornflour, soy sauce and sesame oil in a bowl and give everything a good mix up – this is your stir-fry sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-5-1647946620994-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked through, add half the sliced spring onions (you'll use the rest later!) to the pan with the chopped garlic, chopped ginger and chilli flakes (can't handle the heat? Go easy!) and cook for 1-2 min until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-5-1647946707613-x200.jpg)
 
 ### Step 7
 

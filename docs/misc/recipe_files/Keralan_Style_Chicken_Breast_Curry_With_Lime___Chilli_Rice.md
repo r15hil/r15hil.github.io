@@ -32,6 +32,7 @@ This vibrant Kerala-inspired curry is filled with bright colours and bold flavou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1709033095300-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add your coriander seeds and fennel seeds and cook for 1-2 min or until fragrant and toasted, then once toasted, transfer to a food processor and reserve the pan for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1709033098653-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once browned, add your ground turmeric and cook for a further 1 min
 
 Transfer the browned chicken breast to a plate, reserve the pan and any juices
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1709033102787-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Peel and roughy chop your garlic
 
 Trim, then chop your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1709033106297-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chicken stock mix and chopped creamed coconut in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml] </span>boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1709033109521-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1709033113371-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Add the spice paste and cook for 4-5 min or until fragrant
 
 Once fragrant, add the browned chicken breast, halved green beans and coconut stock and cook for 6-8 min or until thickened to a curry-like consistency and the chicken is cooked through (no pink meat!) – this is your Keralan-style chicken breast curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1709033117363-x200.jpg)
 
 ### Step 7
 

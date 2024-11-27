@@ -26,6 +26,7 @@ Our most decadent vegan burger to date. You’ll sandwich a gravy-soaked layer o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1604315111320-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Boil half a kettle
 
 Cut your potatoes (skin on) into thin chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1604315115594-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Give everything a good mix up and put the tray in the oven for 25-30 min or unti
 
 Meanwhile, dissolve your vegetable stock mix and Henderson's Relish in 200ml <span class="text-purple">[260ml]</span><span class="text-danger"> [350ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1604315119338-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-d
 
 Gradually whisk the vegetable stock into the roux (a little at a time!) and cook for 5 min or until a smooth, thick sauce remains – this is your gravy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1604315123912-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the festive fries have been cooking for 10-15 min, add your meat-free patti
 
 Once the patties have started to brown, top half of the patties<span class="text-danger"> </span>with your cheese flavour slices and return the tray to the oven for 2-3 min or until the cheese has melted
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1604315142510-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Slice your brioche buns in half
 
 Wash your lettuce, then pat dry with kitchen paper and shred
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1604315148774-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once done, add the sliced brioche buns, cut-side down, and cook for 2-3 min or u
 
 Tip: You'll need to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1604315152952-x200.jpg)
 
 ### Step 7
 

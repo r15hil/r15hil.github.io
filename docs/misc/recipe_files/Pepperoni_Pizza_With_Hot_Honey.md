@@ -25,6 +25,7 @@ Some like it hot, and some like it hot and sweet. You’ll top crispy pizza base
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1716469675994-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Add your honey and chilli flakes (can't handle the heat? Go easy!) to a bowl and stir it all together – this is your hot honey
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716469683750-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Put a large baking tray (or two) in the oven to heat up (this will stop the pizz
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716469687378-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716469693165-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Add your tomato paste to a bowl with the chopped garlic, dried oregano and a pin
 
 Add 5 tbsp <span class="text-purple">[7 1/2 tbsp]</span> <span class="text-danger">[10 tbsp]</span> cold water and stir it all together – this is your tomato base
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716469697394-x200.jpg)
 
 ### Step 5
 
@@ -66,11 +71,13 @@ Top with your pepperoni, pepper strips and torn mozzarella
 
 <span class="text-danger">Tip: Cooking for kids? Set aside half of the pepper strips for serving!</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716469700672-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the base is crisp – this is your pepperoni pizza
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716469703872-x200.jpg)
 
 ### Step 7
 

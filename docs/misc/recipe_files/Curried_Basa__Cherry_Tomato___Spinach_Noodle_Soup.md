@@ -26,6 +26,7 @@ This healthy, wholesome noodle soup will warm you up with a big burst of flavour
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1645552119866-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1645552152870-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and chop your brown onion[s] into wedges and slice your cherry tomatoes in 
 
 Once hot, add the onion wedges and halved cherry tomatoes to the pan with a pinch of salt and cook for 2-3 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1645552148824-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1645552158944-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once starting to soften, add your ginger & garlic paste and curry powder to the 
 
 Reboil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1645552172310-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Dissolve the chopped creamed coconut and vegetable stock mix in 400ml <span clas
 
 Add the coconut stock to the pan and bring to the boil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1645552179658-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the chopped basa to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook for an initial 2-3 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1645552200355-x200.jpg)
 
 ### Step 7
 

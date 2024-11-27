@@ -31,6 +31,7 @@ This Mexican-inspired dish pairs pulled Fable mushrooms with fluffy white rice a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681892872676-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681892879783-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Zest your lime[s] (try to grate lightly with a micro-plane or sharp box grater a
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681892886037-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once hot, add the bashed Fable pulled mushrooms with 1 tsp <span class="text-pur
 
 Once the mushrooms have browned, shred them apart gently, using two forks – this technique is known as ‘pulling’ – these are your pulled mushrooms
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681892893093-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Give everything a good mix up and cook for 1 min or until fragrant
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681892902044-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 8-10 min, sti
 
 Tip: Add a splash of water if your mushrooms are looking a little dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681892906533-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Add your carrot & cabbage slaw mix to a bowl with the juice of half your zested 
 
 Give everything a good mix up – this is your lime slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681892926046-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ It doesn’t get feta than this spiced squash supper. You’ll cook chickpeas an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677587531393-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Combine your red wine vinegar and 1 tsp <span class="text-purple">[1 1/2 tsp]</s
 
 Peel and slice half your red onion[s] (you'll use the rest later!) as finely as you can, then add them to the bowl and set aside to pickle – this is your quick-pickled onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677587540185-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677587556784-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion and cook for 2-3 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677587565833-x200.jpg)
 
 ### Step 4
 
 Once softened, add your tomato paste and chopped garlic to the pan with the chopped ginger and curry powder and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677587573601-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Meanwhile, drain and rinse your chickpeas
 
 Once fragrant, add your butternut squash cubes and drained chickpeas to the pan with your vegetable stock mix and 100ml <span class="text-purple">[150ml]</span><span class="text-danger"> [200ml] </span>boiled water and cook, covered, for 15-20 min or until the squash is fork-tender – this is your curried squash & chickpeas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677587583050-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ While the squash is cooking, add your Greek cheese to a food processor with your
 
 Add a drizzle of olive oil and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water and blitz until smooth and creamy – this is your whipped Greek cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677587592815-x200.jpg)
 
 ### Step 7
 

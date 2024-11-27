@@ -24,6 +24,7 @@ To whip up this Cantonese classic, you'll sizzle turkey mince and crisp pepper b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650451798150-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650451804106-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ While the rice is cooking, peel and roughly dice the brown onion<span class="tex
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650451810302-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-5 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650451818001-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Peel and roughly chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650451823292-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Once the onion has softened, add the turkey mince to the pan and cook for 3-4 mi
 
 While the turkey mince is browning, add 1 tsp <span class="text-danger">[2 tsp] </span>black pepper to the pan (freshly ground is best!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650451830905-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Once the mince has browned, add the chopped pepper, garlic and ginger and cook 
 
 Add the Chinese rice wine, hoisin sauce, soy sauce, toasted sesame oil and 1 tbsp <span class="text-danger">[2 tbsp]</span> sugar and cook for 4-5 min or until thickened and sticky – this is your Chinese-style turkey & pepper stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650451837214-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ There’s no slaving over this ‘salsiccia piccante’ inspired sauce. Made in 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1683881772227-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683881857852-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add your sausage meat (remove the paper if required!) to the pan with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683881863423-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Wash your spinach
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683881866848-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Add your fresh tagliatelle to a pot of boiled water and bring to the boil over a
 
 Cook the tagliatelle for an initial 3-4 min, or until cooked with a slight bite
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683881870588-x200.jpg)
 
 ### Step 5
 
 Once the sausage meat is starting to brown, add the chopped garlic and most of your chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683881874211-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once fragrant, add your chicken stock mix, soft cheese and chopped tomatoes to t
 
 Cook for 2-3 min further or until the sauce thickens slightly and the sausage meat is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1721748632806-x200.jpg)
 
 ### Step 7
 

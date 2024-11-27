@@ -24,6 +24,7 @@ Is there anything more comforting than creamy pasta? You'll flavour your creamy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1640091471373-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Squeeze your sausage meat out of the sausage skins (clean hands is the best way!
 
 Roll into bite-sized meatballs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1640091475177-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your sausage meatballs and cook for 5-6 min or until they're browned all over
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1640091479390-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Peel and finely chop (or grate!) your garlic
 
 Dissolve your chicken stock mix and soft cheese in 125ml<span class="text-purple"> [175ml]<span class="text-danger"> </span>[225ml] </span>boiled water – this is your creamy chicken stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1640091483133-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Once the sausage meatballs are brown, add the sliced mushrooms to the pan along 
 
 Once soft, add the chopped garlic and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1640091487896-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ While the mushrooms are cooking, add your linguine to a pot of boiled water, bri
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1640091491926-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once thickened, stir through the cooked linguine and half your grated Italian h
 
 Tip: Add a splash of starchy pasta water if it's looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1640091496985-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ In Creole cooking there is something called 'The Holy Trinity'. This consists of
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/634.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to low and cook, covered, for 10-15 min or until a
 
 Once cooked, remove from the heat and keep covered
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/634.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop the celery roughly
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into bite-size pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/634.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the onions, celery and green pepper
 
 Cover and cook for 3-4 min or until beginning to brown and soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/634.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Meanwhile, add the beef mince,&nbsp;paprika and oregano to a bowl
 
 Crumble in the stock cube<span class="text-danger">[s]</span> and mix very thoroughly with clean hands
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/634.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the beef mixture to the pan&nbsp;and cook for 3 min or until starting to bro
 
 Meanwhile, chop the parsley roughly, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/634.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Save a couple pinches of parsley for garnish and add the rest to the pan
 
 Stir thoroughly&nbsp;to combine the flavours - this is your dirty rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/634.-step-7-x200.jpg)
 
 ### Step 7
 

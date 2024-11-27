@@ -29,6 +29,7 @@ Wake up your tastebuds with this sticky chilli sensation. You'll smother crispy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690189150811-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Cut your potatoes (skins on) into chips, then add to a baking tray (or two!) with your five-spice mix, a drizzle of vegetable oil, 1/2 tsp<span class="text-purple"> [3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar and a generous pinch of salt and pepper, then give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690189154078-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ While the chips are cooking, add your diced chicken breast to a bowl with the co
 
 Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690189156758-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once the pan is very hot, add the coated chicken and cook for 5-6 min on each si
 
 Once crispy, transfer to a plate and set aside and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690189159758-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Finely slice your red chilli[es] into rounds
 
 Trim, then finely slice your spring onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690189162930-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the chopped pepper, ginger and half of the chopped garlic (save the rest f
 
 Meanwhile, add your soy sauce to a bowl with your honey, red chilli relish and Chinese rice wine – this is your sticky chilli sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690189165841-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ While the sauce thickens, chop your coriander finely, including the stalks
 
 Once thickened, add the crispy chicken to the pan and cook for 1 min further until the chicken is coated in the sauce – this is your sticky chilli chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690189169873-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ These thyme-infused meatballs are extra easy. You’ll pack them with garlic bef
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673367147883-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender and once done, drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673367150127-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Combine your pork mince (remove the paper if required!) with half your dried thy
 
 Mix thoroughly with clean hands until fully combined, then shape into 6 meatballs per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673367153152-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a l
 
 Once hot, add the meatballs to the pan and cook for 2 min on each side, turning occasionally, until they are browned all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673367155580-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Slice your white cup mushrooms finely
 
 Peel and finely dice your brown onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673367158068-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Return the pan to a medium heat with a drizzle of vegetable oil
 
 Once hot, add the diced onion and sliced mushrooms and cook for 5-6 min or until tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673367161554-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[25
 
 Season with a pinch of salt and pepper and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673367164199-x200.jpg)
 
 ### Step 7
 

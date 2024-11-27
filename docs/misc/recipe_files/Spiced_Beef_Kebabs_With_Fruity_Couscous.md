@@ -25,6 +25,7 @@ Tuck into these spiced kebabs in a flash. You’ll pack beef mince with cumin, g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680046421999-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Dice your remaining onion finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680046426722-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Stir it all together and add 200ml <span class="text-purple">[300ml]</span> <spa
 
 Cover with a tea towel and set aside until all of the liquid has been absorbed – this is your couscous
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680046432023-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add your beef mince with a very generous pinch of salt and pepper to the bowl
 
 Give everything a good mix up until thoroughly combined (clean hands is the best way!) – this is your kebab mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680046436111-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the beef kebabs and cook for 2-3 min on each side or until browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680046440703-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Cook, covered, for an initial 6-7 min or until the kebabs are cooked through (no
 
 Once the kebabs are cooked through, remove the lid and cook for a final 2-3 min or until all the liquid in the pan has gone – these are your spiced beef kebabs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680046445691-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Combine your mayo with the remaining chopped garlic (not a big garlic fan? Try u
 
 Give everything a good mix up – this is your garlic mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680046449650-x200.jpg)
 
 ### Step 7
 

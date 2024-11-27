@@ -24,6 +24,7 @@ Peri peri prawns meet their match in tomato tortiglioni in this one pot masterpi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708352887171-x200.jpg)
 
 ### Step 1
 
@@ -31,11 +32,13 @@ Boil a kettle
 
 Peel your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708352890241-x200.jpg)
 
 ### Step 2
 
 Heat a pot (with a matching lid) over a medium heat with a knob of butter and a drizzle of olive oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708352893530-x200.jpg)
 
 ### Step 3
 
@@ -43,6 +46,7 @@ Once melted, drain, then add your king prawns to the pot with your peri peri spi
 
 While the prawns are cooking, grate the peeled garlic into the pot and give everything a good mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708352897128-x200.jpg)
 
 ### Step 4
 
@@ -50,6 +54,7 @@ Once the prawns are cooked through, transfer them to a plate for later and reser
 
 Return the reserved pot to a low heat, then add your tomato paste with a pinch of salt and pepper and give it a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708352900633-x200.jpg)
 
 ### Step 5
 
@@ -57,6 +62,7 @@ Add your vegetable stock mix and 500ml <span class="text-purple">[750ml]</span> 
 
 Bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708352907846-x200.jpg)
 
 ### Step 6
 
@@ -64,6 +70,7 @@ Once boiling, reduce the heat to medium and cook, covered, for 11-14 min, or unt
 
 Tip: Stir occasionally to stop it from sticking!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708352912711-x200.jpg)
 
 ### Step 7
 

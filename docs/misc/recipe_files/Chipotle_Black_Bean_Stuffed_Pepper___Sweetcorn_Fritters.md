@@ -29,6 +29,7 @@ Bite into Mexico City’s thriving street food scene with these hearty corn frit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632819199143-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Combine the drained black beans with your chipotle paste (can't handle the heat?
 
 Cut your sweet pointed pepper[s] in half lengthways and deseed (scrape the seeds and pith out with a teaspoon)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632819203430-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Transfer the pepper halves to an oven-proof dish and load them up with the BBQ b
 
 Drizzle the peppers with olive oil and put the dish in the oven for 15-20 min or until the peppers are tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632819217015-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the peppers are cooking, peel and finely chop (or grate) your garlic
 
 Drain your sweetcorn
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632819233772-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the chopped garlic, drained sweetcorn, chilli flakes (not a fan of spice? Ju
 
 Crumble in your feta, season with a pinch of salt and pepper and stir to combine – this is your fritter mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632819238720-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, spoon the fritter mixture into the pan, roughly divided into 2 per person and cook for 4 min on one side then 2 min on the other until golden and cooked through – these are your sweetcorn fritters
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632819244406-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Combine most of the chopped chives (save some for garnish!) with your mayo
 
 Add a little splash of cold water to loosen and season with a crack of black pepper – this is your herby mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632819251009-x200.jpg)
 
 ### Step 7
 

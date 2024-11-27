@@ -25,6 +25,7 @@ Grab a taste of the Caribbean with spicy chicken thighs coated in an allspice br
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1669139269091-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Combine the zest of your lime[s] with your panko breadcrumbs, cayenne pepper (can’t handle the heat? Go easy!), ground allspice, 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil, salt and pepper in a bowl – this is your Caribbean-style crumb
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669139273303-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Transfer the chicken thighs to a tin foil-lined baking tray (or two!) and top ev
 
 Put the tray[s] in the oven for 17-18 min or until cooked through (no pink meat!) – this is your Caribbean-style chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669139278932-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Boil a full kettle
 
 Peel and chop your sweet potato[es] into bite-sized chunks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669139283541-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once boiling, reduce the heat to medium and cook for 10-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669139794968-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ While the sweet potato is cooking, dice your tomato[es]
 
 Trim, then slice your spring onion[s] finely, then separate the whites from the greens
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669139803454-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Cut the zested lime[s] in half
 
 Add your mango chutney, a squeeze of lime juice and a drizzle of olive oil and give everything a good mix up – this is your tomato salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669139810002-x200.jpg)
 
 ### Step 7
 

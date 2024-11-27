@@ -25,6 +25,7 @@ Introducing our new favourite way to sauté mushrooms, with crispy bacon, butter
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670922312179-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potatoes to a pot of boiled water over a high heat and cook 
 
 Once cooked, drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670922316204-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop your chestnut mushrooms into quarters
 
 Chop your smoked streaky bacon into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1670922326373-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Trim your Tenderstem broccoli, then add to the middle of the foil with a pinch o
 
 Scrunch the edges of the foil to form a sealed parcel[s] and put the tray[s] in the oven for 10-12 min or until the Tenderstem broccoli is tender with a slight bite
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670922340029-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once hot, add the chopped bacon and cook for 4-5 min or until golden and crisp
 
 Once done, transfer the crispy bacon to kitchen paper and set aside, reserving the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670922412097-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once hot, add the chopped mushrooms and cook for for 6-7 min or until starting t
 
 Once browned, add the chopped garlic and cornflour and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1-1670922435419-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once fragrant, add your soy sauce and crème fraîche to the pan with your chick
 
 Return most of the crispy bacon to the pan (save some for garnish!) and cook for 2-3 min or until the sauce has thickened a little – these are your bacon & garlic mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670922472412-x200.jpg)
 
 ### Step 7
 

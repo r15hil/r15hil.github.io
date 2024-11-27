@@ -21,6 +21,7 @@ Fish and chips aren’t just for Friday – you’ll want to eat this version al
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2000.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Cut the potatoes (skins on) into thin chips, then add them to a baking tray wit
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2000.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Combine the chopped chives with the panko breadcrumbs and a generous pinch of sa
 
 Add a generous drizzle of olive oil and stir it together until all of the breadcrumbs are coated in the oil – this is your chive crumb
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2000.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Top the fish evenly with the chive crumb and press it into the fish using the ba
 
 Put the tray in the oven for 12-15 min or until golden and cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2000.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ While the fish is cooking, combine the juice of 1/4 <span class="text-danger">[
 
 Season with a pinch of salt and pepper – this is your lemony mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2000.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add the carrot batons to a pot with plenty of boiling water over a high heat
 
 Once boiling, cook for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2000.-step-6new-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once done, drain the vegetables and return them to the pot with a knob of butter
 
 Keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2000.-step-7-x200.jpg)
 
 ### Step 7
 

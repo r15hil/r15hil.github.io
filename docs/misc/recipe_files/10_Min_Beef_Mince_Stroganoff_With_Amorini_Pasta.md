@@ -22,6 +22,7 @@ This creamy stroganoff is the perfect quick-fix comfort food after a long, busy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581672890305-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581672895841-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the beef mince to the pan and cook for 1-2 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581672900297-x200.jpg)
 
 ### Step 3
 
@@ -53,16 +56,19 @@ Cook the amorini for 3-4 min or until cooked with a slight bite
 
 Once done, drain the amorini and return to the pot with a drizzle of olive oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581672905072-x200.jpg)
 
 ### Step 4
 
 Once the mince has started to brown, roughly tear the chestnut mushrooms into the pan with a pinch of salt and cook for 2-3 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581672910071-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve 1/2<span class="text-danger"> [1]</span> Knorr beef stock cube in 100ml <span class="text-danger">[200ml]</span> boiled water – this is your beef stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581672915331-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once fragrant, add the beef stock and cook for 1-2 min further
 
 Meanwhile, roughly chop the chives
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581672920010-x200.jpg)
 
 ### Step 7
 

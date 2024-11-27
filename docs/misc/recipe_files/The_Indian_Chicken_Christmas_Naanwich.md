@@ -26,6 +26,7 @@ Fancy some festive fusion? ‘Wich granted. You'll pile this shareable naanwich 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635848283329-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the ground turmeric, smoked paprika, chilli flakes (can't handle the heat? G
 
 Add the chicken thighs to the tandoori marinade and give everything a good mix up – this is your marinated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635848294847-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Peel the potatoes, then chop into small bite-sized cubes
 
 Add the marinated chicken to one side of a baking tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635848377175-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Sprinkle the remaining curry powder over the potato cubes, season with a pinch o
 
 Give everything a good mix up and put the tray in the oven for 18-20 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635848420084-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Combine the cranberry sauce, tamarind paste and grated carrot in a bowl – this
 
 Chop the coriander finely, including the stalks (save a few whole leaves for garnish!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635848457567-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Once the tandoori chicken is cooked, transfer it to a clean chopping board and r
 
 Add the parsnip ribbons to the reserved tray and return it to the oven for 5 min further or until both the potatoes and parsnips are golden and crispy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1635848535184-x200.jpg)
 
 ### Step 6
 
 Put the naans in the oven for 3 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635848629696-x200.jpg)
 
 ### Step 7
 

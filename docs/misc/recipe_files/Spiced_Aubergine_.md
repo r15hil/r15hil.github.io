@@ -25,6 +25,7 @@ Spiced aubergine becomes meltingly tender when roasted whole. Here, it's served 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/477.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cut the aubergine<span class="text-danger">(s)</span> in half lengthways
 
 Score the flesh quite deeply (in a diamond pattern), taking care not to cut through the skin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/477.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ When hot, add the onion, curry powder, sultanas and a pinch of salt
 
 Cook for 3 min or until the onion is softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/477.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,6 +70,7 @@ Once boiling, reduce the heat to low and simmer, covered, for 20 min or until th
 
 Check to prevent over-cooking and, once done, set aside until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/477.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Add the cayenne pepper (can't handle the heat? Go easy!), half the garlic and a 
 
 Mix the oil, garlic and spice well with a spatula or spoon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/477.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,6 +97,7 @@ Put the tray in the oven for 15-25 min or until the aubergine is tender enough t
 
 Tip: Check them after 15 min and then check regularly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/477.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -106,6 +112,7 @@ Add the yoghurt, remaining garlic, a big pinch of salt and pepper and a drizzle 
 
 Mix to combine and set aside for serving - this is your raita
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/477.-step-7-x200.jpg)
 
 ### Step 7
 

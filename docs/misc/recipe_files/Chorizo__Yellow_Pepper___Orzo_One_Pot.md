@@ -23,6 +23,7 @@ Some days you just want a delicious bowl of comfort, and that’s exactly what t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1552.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Once hot, add the diced onion and cook for 4-5 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1552.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,16 +47,19 @@ Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds a
 
 Cut the <span class="text-highlight">mini cooking chorizo in half</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1552.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the onion has softened, add the chopped pepper and chorizo and cook for 5-6 min further or until the chorizo has turned golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1552.-step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve the chicken stock cube<span class="text-danger">[s]</span> in 350ml <span class="text-danger">[600ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1552.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Once the chorizo is golden, add the Shaoxing wine and cook for 30 sec
 
 Add the orzo pasta and cook for 30 sec further or until lightly toasted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1552.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Reduce the heat to low and cook, covered, for 10-15 min, stirring occasionally o
 
 Tip: add a splash more water if it's looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1552.-step-7-x200.jpg)
 
 ### Step 7
 

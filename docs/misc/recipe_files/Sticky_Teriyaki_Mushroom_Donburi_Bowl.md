@@ -30,6 +30,7 @@ Donburi is one of Japan's comfort foods. For our version, you'll top a bed of su
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614003601065-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice, 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614003619408-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ After 15 min, remove the rice from the heat and keep covered for a further 10 mi
 
 Tip: Don’t peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729069387117-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Peel and finely chop (or grate) your ginger and garlic
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614003650623-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped ginger, chopped garlic and chilli flakes (can't handle the heat? Go easy!), then roughly tear your chestnut mushrooms into the pan and cook for 3 min or until beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1614003672639-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the mushrooms have softened, add the teriyaki sauce and cook for 2 min furt
 
 Once the mushrooms are done, add them to a bowl and set aside, reserve the pan – these are your sticky teriyaki mushrooms
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614003708709-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your mangetout to a pot with a pinch of salt and cover with plenty of boiled
 
 Bring to the boil over a high heat and cook for 3-4 min or until tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729069396417-x200.jpg)
 
 ### Step 7
 

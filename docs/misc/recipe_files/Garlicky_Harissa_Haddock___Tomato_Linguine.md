@@ -23,6 +23,7 @@ Seasonal tiger tomatoes from the Isle of Wight are the star of this fragrant fus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1656954298245-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a full kettle
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1656954301107-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Cut your tomato[es] into thin wedges
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1656954303837-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Tip: This will finish cooking in your sauce later!
 
 Once done, drain the linguine, reserving 50ml <span class="text-purple">[60ml] <span class="text-danger">[70ml]</span> </span>of starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656954307258-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Reboil half a kettle
 
 Dissolve your harissa paste (can't handle the heat? Go easy!) and vegetable stock mix in 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> boiled water with 1/2 tsp <span class="text-purple">[3/4 tsp]</span><span class="text-danger"> [1 tsp]</span> sugar – this is your harissa stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656954311852-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Heat a large, wide-based pan (preferably non-stick) with a small drizzle of oliv
 
 Once hot, add the sliced garlic with a generous pinch of salt and cook for 1-2 min or until the garlic has slightly softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656954315582-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Once the garlic has slightly softened, add the haddock bites to the pan with the tomato wedges and a pinch of salt and cook for 4 min or until the fish begins to turn opaque
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656954319719-x200.jpg)
 
 ### Step 7
 

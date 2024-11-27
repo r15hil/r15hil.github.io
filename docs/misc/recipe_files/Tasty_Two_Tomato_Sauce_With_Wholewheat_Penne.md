@@ -22,6 +22,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2153-Step-1-v2-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling cook for 12-15 min or until tender
 
 Once cooked, drain and return to the pot, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2153-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the pine nuts and cook for 2-3 min or until toasted 
 
 Once toasted, transfer to a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2153-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Peel and finely slice (don't chop!) the garlic
 
 Roughly chop the cherry tomatoes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2153-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Return the pan to a medium heat with 1 tbsp<span class="text-danger"> [2 tbsp]</
 
 Once hot, add the chopped cherry tomatoes and sliced garlic with a generous pinch of salt and cook, covered, for 8-10 min or until the tomatoes are starting to break down
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2153-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Meanwhile, drain and tear the mozzarella into rough bite-sized pieces 
 
 Chop the basil roughly, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2153-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the tomatoes have broken down, add the tomato paste, sundried tomato paste,
 
 Give everything a good mix up – this is your tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2153-Step-7-x200.jpg)
 
 ### Step 7
 

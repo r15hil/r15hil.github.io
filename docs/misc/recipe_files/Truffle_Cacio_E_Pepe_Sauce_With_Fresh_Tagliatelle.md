@@ -21,6 +21,7 @@ Pronounced ‘cah-choh e pe-pe’, we’ve given this speedy ‘cheese and peppe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1683882601455-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1683882606718-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, crumble in your chestnut mushrooms using your hands with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1683882613696-x200.jpg)
 
 ### Step 3
 
@@ -52,21 +55,25 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1683882619324-x200.jpg)
 
 ### Step 4
 
 Once the mushrooms are beginning to soften, add your cracked black pepper and a pinch of salt to the pan and cook for 1-2 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1683882630196-x200.jpg)
 
 ### Step 5
 
 Add your vegetable stock mix and clotted cream to the mushrooms and cook for 1 min or until the cream has melted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1683882637899-x200.jpg)
 
 ### Step 6
 
 Once melted, add 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> of the reserved starchy pasta water to the sauce and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1683882641583-x200.jpg)
 
 ### Step 7
 

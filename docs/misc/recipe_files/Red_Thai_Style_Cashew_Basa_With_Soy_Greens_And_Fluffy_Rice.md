@@ -29,6 +29,7 @@ Inspired by chuu chee pla, this flavour-packed basa in red curry sauce will tran
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-7-copy-1701945132766-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and roughly chop your ginger, then peel and finely chop your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-8-1701945139956-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add half your cashew nuts and half the chopped garlic (save the rest for later!)
 
 Add the peeled ginger, chilli halves (can't handle the heat? Go easy!), chopped lemongrass, Thai basil stalks, dried lime leaf[ves] and fish sauce with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>vegetable oil and a splash of cold water and blitz until a paste forms – this is your red Thai curry paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-12-1701945145357-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once done, remove from the heat and set aside (lid on) to steam until serving
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-7-1701945149743-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Scrunch the foil around the greens to form a tightly sealed parcel and add to a 
 
 Tip: Cooking for 3 or more? Make 2 parcels!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-8-1701945155139-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, transfer to a clean board and reserve the pan – these are your caramelised cashews
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-8-1701945161663-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Once hot, add your red Thai curry paste and cook for 3-4 min or until fragrant
 
 Once fragrant, add 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml] </span>boiled water, chopped creamed coconut, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and a pinch of salt and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-7-1701945166895-x200.jpg)
 
 ### Step 7
 

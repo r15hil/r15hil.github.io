@@ -30,6 +30,7 @@ A speedy rice one-pot that’s full of flavour. You’ll combine tasty ginger po
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1639.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your pork mince (remove the paper if required!) and cook for 4-6 min or until browned and starting to caramelise, breaking it up with a wooden spoon as you go
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Kettle-copy-1687255020902-x200.jpg)
 
 ### Step 2
 
 Meanwhile, boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1639.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add your soy sauce and the juice of half your lime[s] and give everything a go
 
 Cut the remaining lime into 1<span class="text-danger"> </span>wedge per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1639.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add your basmati rice with 300ml <span class="text-purple">[390ml]</span> <span 
 
 Cover with a lid, reduce the heat to low and cook for 10-12 min or until the water is absorbed, the rice is cooked and the pork mince is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1639.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Trim, then slice your spring onion[s] finely
 
 Top, tail and slice your radishes (as finely as you can)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1639.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your rice vinegar and a generous pinch of salt
 
 Mix well and set aside to marinate – this is your quick-pickled cucumber & radish salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1639.-step-7-x200.jpg)
 
 ### Step 7
 

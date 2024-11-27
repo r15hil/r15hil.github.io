@@ -27,6 +27,7 @@ Serve up the flavours of the Aegean Isles with warmed naans, tender hake and a G
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1692864724552-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook your food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692864740966-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once the pan is hot, add your hake fillet[s] along with your soy sauce and the juice of half your lemon
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692864734674-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Sprinkle your ground smoked paprika over the fish and cook for 3-4 min on each s
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692864760268-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Chop half your cucumber (you'll use the rest later!) into small, bite-sized piec
 
 Add the diced tomato, chopped cucumber and half of the chopped parsley to a bowl with half your ground sumac (save the rest for later!), a pinch of salt and pepper and a drizzle of olive oil, then give everything a good mix up – this is your Greek-style salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692864764783-x200.jpg)
 
 ### Step 5
 
 Add your plain naan[s] to a toaster for 1-2 min or until soft and warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692864768790-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Grate the deseeded cucumber and squeeze out any excess water
 
 Add your mayo to a bowl along with the grated cucumber, the juice of the remaining lemon, the remaining ground sumac and a pinch of salt and pepper – this is your tzatziki mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692864773445-x200.jpg)
 
 ### Step 7
 

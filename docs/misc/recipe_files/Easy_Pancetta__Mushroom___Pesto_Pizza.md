@@ -23,6 +23,7 @@ This ‘poshed-up' bacon and mushroom pizza is sure to be a hit with all ages. S
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1224.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Put 1 <span class="text-danger">[2]</span> large baking tray<span class="text-da
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1224.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the chopped garlic and tomato paste to a small bowl with a generous drizzle 
 
 Season with a pinch of salt, sugar and pepper and mix to combine – this is your tomato sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1224.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Pat the mozzarella dry with kitchen paper
 
 Tip: press down firmly to release any excess water!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1224.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Spread the tomato sauce over the naan breads with the back of a spoon
 
 Top the naan breads with the torn mozzarella
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1224.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Put the naan breads in the oven for 15-20 min or until cooked through
 
 Tip: keep them in the oven until any mushroom juice has dried up to prevent a soggy bottom!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1224.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Meanwhile, chop the cherry tomatoes in half
 
 Combine the balsamic vinegar with 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your balsamic dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1224.-step-7-x200.jpg)
 
 ### Step 7
 

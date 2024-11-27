@@ -18,6 +18,7 @@ For this tantalising twist on an Italian classic, you'll pan-fry peppery tilapia
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1649843008175-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Add the chopped potatoes to a baking tray, drizzle with vegetable oil and season
 
 Put the tray in the oven for 30 min or until golden and crisp – these are your crispy roast potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1649843009753-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ While the potatoes are roasting, heat a large, dry, wide-based pan (preferably n
 
 Slice the lemon<span class="text-danger">[s]</span> in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649843013931-x200.jpg)
 
 ### Step 3
 
@@ -43,6 +46,7 @@ Once the pan is hot, add the lemon halves (cut-side down) and cook for 3-4 min o
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649843016309-x200.jpg)
 
 ### Step 4
 
@@ -50,6 +54,7 @@ Dust a clean tray or plate with a generous sprinkling of flour and season with a
 
 Dip the tilapia fillets into the seasoned flour until both sides are well coated, then shake off any excess flour
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1649843018792-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Once hot, add the coated tilapia fillets and cook for 4-5 min on each side or un
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1649843022252-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Once boiling, trim, then add the green beans and cook for 2-3 min or until the 
 
 Once done, drain and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1649843024537-x200.jpg)
 
 ### Step 7
 

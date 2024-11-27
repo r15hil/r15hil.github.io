@@ -30,6 +30,7 @@ This Indian-inspired dish is like sunshine on a plate! You’ll serve spice-crus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728999513768-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Crush your cardamom pods open by squashing them with a knife
 
 Dissolve your chicken stock mix in 300ml<span class="text-danger"> <span class="text-purple">[390ml]</span> [600ml]</span> boiled water and add your sultanas to soak
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1728999518013-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add your ground turmeric and crushed cardamom pods, and cook for 20 se
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked – this is your sultana rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728999521346-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Trim and slice your spring onion[s] finely
 
 Add the grated carrot, sliced spring onion and nigella seeds to a large mixing bowl and set aside – this is your Indian-style carrot slaw
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1728999525075-x200.jpg)
 
 ### Step 4
 
 Add the chicken breast portions to a bowl with your curry powder and a generous pinch of salt and mix until fully coated – this is your coated chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1728999528679-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the coated chicken and cook for 3 min on each side or until golden
 
 Add a couple of splashes of water to the pan and cover with a lid, then cook for a further 10-12 min or until the chicken is cooked through (no pink meat!) – this is your curried chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1728999532267-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Strip your mint leaves from the stems and chop finely, discarding the stems
 
 Cut your lemon[s] in half (save the rest for garnish!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1728999535435-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Looking for pasta with a punch? This is it. You’ll dress pasta shells with jui
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657623789837-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cook the conchiglie for 8-10 min or until cooked with a slight bite
 
 Once done, reserve 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> of the starchy pasta water and drain the cooked conchiglie
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657623809214-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the drained sweetcorn to a tin foil-lined baking tray with 1 tsp <span class
 
 Give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657623832398-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Put the tray under the grill and cook for 8-10 min or until the corn is lightly 
 
 Tip: Cooking for 4 or more? You may need to do this in batches!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657624031059-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Combine the chopped garlic and chilli flakes (can't handle the heat? Go easy!) i
 
 Drain, then add your king prawns and mix everything together – these are your marinated king prawns
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657624086722-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once the butter has melted, add your tomato paste with your ground smoked paprika and ground cumin and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657624099394-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once the prawns have had 3 min, add the reserved starchy pasta water and vegetab
 
 Cook for 2-3 min further or until the prawns are cooked through and the sauce has thickened – these are your spicy king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657624110716-x200.jpg)
 
 ### Step 7
 

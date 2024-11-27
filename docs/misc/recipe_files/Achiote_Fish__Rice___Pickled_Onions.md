@@ -24,6 +24,7 @@ This marinated fish dish hails from the region of Yucatán. You'll marinate your
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1595521651703-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil half a kettle
 
 Peel and finely slice 1/2<span class="text-danger"> [1]</span> red onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1595521655838-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Add a pinch of sugar and salt to a bowl with a splash of boiled water and give e
 
 Add the red wine vinegar and sliced red onion and set aside to pickle – these are your pickled onions
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1595521660662-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1595521665415-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Whilst the rice is cooking, combine the achiote paste, smoked paprika, ground cu
 
 Add the basa fillets to the achiote marinade and give everything a good mix up until the fish is completely covered
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1595521672263-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the marinated fish and cook for 3-4 min on each side or until cooked through and slightly charred
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1595521683763-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Remove the stone<span class="text-danger">[s]</span> using a teaspoon
 
 Scoop the avocado out of the skin<span class="text-danger">[s] </span>using a spoon and roughly chop
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595521694061-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Nail this sweet and spicy stir-fry in moments. You'll fry up juicy chicken with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1704795723426-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723185782594-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and cook for an initial 5-6 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723185791488-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Whilst the chicken is browning, add your medium egg noodles to a large bowl, cov
 
 Set aside to soak for 5-6 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723185800376-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Meanwhile, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon)
 
 Drain your pineapple (save the juice!) and chop into small, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723185809318-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the chicken has begun to brown, add the pepper strips and chopped pineapple
 
 Give everything a good mix up and cook for 3-4 min or until the pepper has slightly softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723185819224-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add a drizzle of vegetable oil and stir it all together – this is your sweet &
 
 Once done, drain the soaked noodles, reserving a cup of starchy noodle water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723185827676-x200.jpg)
 
 ### Step 7
 

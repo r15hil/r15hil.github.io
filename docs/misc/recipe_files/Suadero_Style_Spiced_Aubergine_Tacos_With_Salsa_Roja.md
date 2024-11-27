@@ -30,6 +30,7 @@ Send your tastebuds soaring to Mexico City with this veggie take on a street foo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1672853512524-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Dice your tomato[es]
 
 Peel your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672853515188-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the chopped shallot, peeled garlic and half the diced tomato (you'll use the
 
 Put the tray in the oven for 12-15 min or until everything has softened and slightly charred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672853517935-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Cover with 200ml <span class="text-purple">[300ml]</span> <span class="text-dang
 
 While the ancho chilli is softening, trim the green stalk off your aubergine[s] and discard, then chop into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672853520786-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once hot, add the chopped aubergine with a generous pinch of salt and cook for 5
 
 While the aubergine is softening, slice half your<span class="text-danger"> </span>red chilli[es] into rounds and finely chop the rest
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672853524144-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once the aubergine is slightly softened, reduce the heat to medium-high and add 
 
 Once fragrant, add the chopped red chilli (can't handle the heat? Go easy!) with 130ml <span class="text-purple">[170ml]</span><span class="text-danger"> [220ml] </span>boiled water and your vegetable stock mix and cook, covered, for 7-8 min or until the stock has completely absorbed – this is your suadero-style spiced aubergine
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672853527092-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add a drizzle of olive oil and 2 tsp<span class="text-purple"> [3 tsp]</span> <s
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672853529993-x200.jpg)
 
 ### Step 7
 

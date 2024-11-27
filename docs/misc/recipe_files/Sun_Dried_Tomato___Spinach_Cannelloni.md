@@ -25,6 +25,7 @@ Holy cannelloni, these creamy soft cheese, spinach and sundried tomato-stuffed t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671010096737-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your lasagne sheets one at a time (this prevents them from sticking together
 
 Cook for 5-7 min stirring occasionally, until slightly tender but not soft, then drain the lasagne sheets and lay them on a clean chopping board so they don't overlap each other
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671010100386-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671010104825-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Chop your basil finely, including the stalks
 
 Roughly chop your sun-dried tomatoes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671010109246-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once hot, add the sliced shallot and chopped garlic with 1 tsp <span class="text
 
 Once softened, add your chopped tomatoes and cook for a further 3-4 min – this is your tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671010113565-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Season with salt and pepper – this is your sun-dried tomato & spinach mix
 
 Divide the sun-dried tomato & spinach mix between the drained lasagne sheets, then roll the filled lasagne sheets up tightly like a cigar –these are your cannelloni
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671010117302-x200.jpg)
 
 ### Step 6
 

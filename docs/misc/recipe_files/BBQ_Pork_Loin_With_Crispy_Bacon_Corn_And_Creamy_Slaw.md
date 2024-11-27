@@ -31,6 +31,7 @@ Feast on some classic BBQ with sticky, smoky pork loins, garlicky potatoes, crea
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696239815237-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel your potatoes and chop them into small, bite-sized pieces, then peel and fi
 
 Add your sweetcorn cobette[s] to a large piece of tin foil with a pinch of salt and scrunch the tin foil around the corn until tightly sealed
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696239819347-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the sweetcorn cobette[s] to the other side of the tray[s] and put it in the 
 
 Add your smoked streaky bacon to a separate tin foil-lined baking tray and put the tray in the oven for 10-15 min, or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696239823317-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Whilst everything's cooking, combine half your ground smoked paprika (you'll use
 
 Season your pork loin steak[s] on both sides with the dry rub
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696239827380-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Grate your Italian hard cheese finely
 
 Combine your carrot & cabbage slaw mix and mayo in a bowl with your cider vinegar, Dijon mustard, half the sliced spring onion (save the rest for garnish!) and a pinch of salt and pepper – this is your creamy slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696239830775-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the bacon is cooked, transfer to a clean board and chop very finely
 
 Combine the chopped bacon in a bowl with the remaining ground smoked paprika and grated Italian hard cheese – this is your crispy bacon crumb
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696239835101-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once cooked, coat the pork with your BBQ sauce – this is your BBQ pork loin[s
 
 Transfer the BBQ pork loin[s] to a plate to rest
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696239839065-x200.jpg)
 
 ### Step 7
 

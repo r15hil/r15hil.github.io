@@ -22,6 +22,7 @@ Treat tomato and mozzarella stuffed tortelloni to tangy sun-dried tomatoes, torn
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1648657565122-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1647964676937-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and slice (don't chop!) the garlic
 
 Roughly chop the sun-dried tomatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1647964686515-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the flaked almonds to a baking tray and put the tray under the grill for 2-4
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1647964691809-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked tomato & mozzarella tortelloni, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1647964697848-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1647964714639-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the Chinese rice wine, vegetable stock mix, soft cheese and 50ml <span class
 
 While the sauce is thickening, drain the mozzarella, then pat and squeeze as much liquid out as you can with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1647964723658-x200.jpg)
 
 ### Step 7
 

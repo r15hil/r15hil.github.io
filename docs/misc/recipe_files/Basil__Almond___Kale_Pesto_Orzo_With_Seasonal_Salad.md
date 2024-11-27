@@ -29,6 +29,7 @@ Go all in on your greens with a vibrant pesto, jam-packed with basil, kale and s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684421067401-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684421071275-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once melted, add the chopped onion and sliced leek with a pinch of salt and cook for 5-6 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684421075191-x200.jpg)
 
 ### Step 3
 
 Once the onion has softened, add 3/4 of the chopped garlic (you'll use the rest later!) with your orzo and cook for 1 min, stirring to coat the grains in the oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684421079175-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684421083076-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Bring to the boil over a high heat and cook for 2-3 min or until wilted, once do
 
 Once cool, squeeze out as much water as you can – this is your cooked kale & spinach
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684421088789-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Blitz until smooth – this is your pesto
 
 Tip: Add a splash of water if it's looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684421105291-x200.jpg)
 
 ### Step 7
 

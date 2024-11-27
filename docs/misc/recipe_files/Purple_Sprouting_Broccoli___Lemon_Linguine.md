@@ -21,6 +21,7 @@ This quick vegetarian linguine dish delivers sophisticated Italian flavour every
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1456.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Tip: watch the nuts like a hawk to make sure they don't burn!
 
 Once done, transfer them to a plate and set aside, reserving the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1456.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Cover with plenty of boiled water and bring to the boil over a high heat
 
 Cook the linguine for an initial 4-5 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1456.-step-3new-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Cut the purple sprouting broccoli in half 
 
 Dissolve the vegetable stock cube<span class="text-danger">[s]</span> in 150ml <span class="text-danger">[300ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1456.-step-4new-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Once tender, drain and keep in the sieve
 
 Reserve the pot for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1456.-step-5new-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Meanwhile, peel and finely slice (don't chop!) the garlic 
 
 Zest 1/2 <span class="text-danger">[1] </span>lemon and cut the lemon<span class="text-danger">[s] </span>in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1456.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Return the reserved pot to a medium heat with 2 tbsp <span class="text-danger">[
 
 Once hot, add the sliced garlic and cook for 2-3 min or until starting to soften
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1456.-step-7new-x200.jpg)
 
 ### Step 7
 

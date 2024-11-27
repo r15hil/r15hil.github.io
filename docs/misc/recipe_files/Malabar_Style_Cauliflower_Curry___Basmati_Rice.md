@@ -27,6 +27,7 @@ Kerala is famous for its coconut groves, so curries from this South Indian state
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1813.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Peel and finely slice the ginger into thin matchsticks 
 
 Dice the tomatoes, finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1813.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Boil a kettle
 
 Chop the cauliflower into bite-sized florets, discarding the leaves
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1813.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once hot, add the cashew nuts and cook for 2-3 min or until toasted, then remove
 
 Chop the toasted cashew nuts, roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1813.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once hot, add the red onion wedges, <span class="text-highlight">ground</span>�
 
 Season generously with salt and cook for 5-6 min until the onions have softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1813.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1813.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once the onions have softened, add the garlic and <span class="text-highlight">
 
 Once fragrant, stir in the tomato paste and add the cauliflower florets and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1813.-step-7-x200.jpg)
 
 ### Step 7
 

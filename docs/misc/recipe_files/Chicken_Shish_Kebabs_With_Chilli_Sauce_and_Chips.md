@@ -27,6 +27,7 @@ Make the table go, "phwoar!" with these delicious homemade chicken shish kebabs.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678878975769-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678878978077-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ While the chips are cooking, peel and chop half your red onion[s] into quarters,
 
 Slice the remaining red onion finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678878981468-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
 Combine your baharat and a drizzle of vegetable oil in a medium bowl with a pinch of salt – this is your marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678878983963-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the chopped chicken and onion petals to the marinade
 
 Give everything a good mix up, then thread the chicken and onion petals on to the soaked skewers
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678878986737-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once hot, add the chicken skewers and cook for 2 min on each side or until golde
 
 Once golden, cover with a lid and cook for a further 3-4 min on each side or until cooked through (no pink meat!) – these are your chicken shish kebabs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678878990951-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Peel and finely chop (or grate) your garlic
 
 Combine the chopped garlic (not a fan of raw garlic? Just add a little!) with your mayo in a bowl with a pinch of salt and 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp] </span>cold water – this is your garlic mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678879303151-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Switch up your burger routine with a Spanish-inspired twist, stuffed with smoky 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595254320452-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595254323565-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Whilst the chips are cooking, chop the parsley finely, including the stalks
 
 Chop the capers finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595254328302-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Combine the chopped parsley and capers with the white wine vinegar, Dijon mustar
 
 Season with a pinch of salt and mix thoroughly – this is your salsa verde
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595254333939-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Deseed the pepper<span class="text-danger">[s] </span>(scrape the seeds and pith
 
 Add the sliced pepper to a separate baking tray and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595254337251-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Bash the chicken breasts with a rolling pin to flatten them slightly
 
 Turn the chicken breasts in the spices several times until they're fully coated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595254350898-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add the spiced chicken breasts to the tray with the yellow pepper and drizzle ev
 
 Put the tray in the oven for 15 min or until the peppers have softened and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595254355416-x200.jpg)
 
 ### Step 7
 

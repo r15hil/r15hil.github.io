@@ -30,6 +30,7 @@ This Kentucky favourite gets a Keralan twist. You’ll coat bite-sized popcorn c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629800433616-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cut your potatoes (skins on) into thin fries, then add them to a baking tray (or
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your spiced fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629801244893-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cut your chicken breast strips into bite-sized pieces, then add to a bowl with y
 
 Give everything a good mix up – this is your spiced chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629801253090-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Crack your egg[s] into a bowl, add a splash of cold water and beat lightly with 
 
 Add your panko breadcrumbs to a separate large bowl, season with a pinch of salt and mix to combine
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629801263810-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the spiced chicken to the beaten egg and give it a good mix up, then add it 
 
 Transfer the breaded chicken pieces to a separate baking tray (or two!) and put the tray[s] in the oven for 15 min or until golden and cooked through (no pink meat!) – this is your Keralan-style popcorn chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629801278711-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Top, tail, peel and grate your carrot[s]
 
 Add the grated carrot to a bowl with the juice of your lime[s], nigella seeds, a pinch of salt and a drizzle of olive oil – this is your zesty carrot slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629801284071-x200.jpg)
 
 ### Step 6
 
 Add your mayo to a small bowl with your mango chutney and give it a good mix up – this is your mango mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629801296138-x200.jpg)
 
 ### Step 7
 

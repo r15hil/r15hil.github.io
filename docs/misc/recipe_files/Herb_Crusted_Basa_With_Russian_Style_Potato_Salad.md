@@ -27,6 +27,7 @@ This Russian-inspired basa is baked to perfection. You’ll coat it in a parsley
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1713265288425-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your egg[s] to a pot of boiled water with a pinch of salt and bring to the b
 
 Once boiling, cook for exactly 8 min for a perfect, mid-boiled egg, then fill a bowl with very cold water, add the cooked egg[s] to the bowl and set aside, reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1713265291663-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Top, tail, peel and chop your carrot[s] into bite-sized pieces
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713265294860-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to medium and cook for 10-12 min or until fork-ten
 
 Reboil a full kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1713265297882-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Slice your cucumber into discs
 
 Add the cucumber discs to a bowl with your cider vinegar, chopped dill, a pinch of salt and sugar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> boiled water and set aside to pickle – this is your quick-pickled cucumber
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713265300879-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Pat your basa fillet[s] dry with kitchen paper, then add to a baking paper-lined
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713265304520-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Transfer the cooked potato & carrot to a bowl with the refreshed peas and sliced
 
 Add your mayo with a pinch of salt and pepper and give everything a good mix up – this is your Russian-style potato salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713265307937-x200.jpg)
 
 ### Step 7
 

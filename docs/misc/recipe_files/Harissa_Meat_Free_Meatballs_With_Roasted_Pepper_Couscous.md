@@ -26,6 +26,7 @@ Studded with sweet chopped apricots and spring onion and oven baked for ease, th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633339157086-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Put the tray in the oven for 3-4 min or until the cashews are lightly toasted, t
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1633339163578-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop your parsley finely, keeping the stems and leaves separate
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon) then chop into large, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633339165161-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your meat-free mince (remove the paper if required!) to a large bowl with th
 
 Mix thoroughly with clean hands, then divide the mixture and shape into 3 meatballs per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633339169133-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the meat-free meatballs to one side of your reserved baking tray (use tin fo
 
 Add the chopped pepper to the other side, then put the tray in the oven for 12-15 min or until the meatballs are cooked through and the pepper has softened – these are your harissa meat-free meatballs and roasted pepper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633339171813-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Meanwhile, dissolve your vegetable stock mix and the remaining harissa paste (no
 
 Add your couscous, cover and set aside until all the liquid has been absorbed
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633339175655-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add your natural yoghurt to a separate bowl with a drizzle of olive oil and a pi
 
 Chop the toasted cashews coarsely (only once they are cool enough to handle!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1633339178470-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ This Thai-style pesto is full of vibrant flavours, and boosted with heart-health
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1713869005574-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Boil a kettle
 
 Drain and rinse your chickpeas
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600363884496-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Drizzle with olive oil and season with a pinch of salt
 
 Put the tray[s] in the oven and cook for an initial 15-20 min or until the squash is starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Bulgur-wheat-in-pan-copy-1684769593618-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600363902857-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Strip your mint leaves from their stems, then chop them finely and discard the s
 
 Chop your coriander finely, including the stems
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600363908322-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add your toasted sesame oil, rice vinegar and 1 tbsp <span class="text-purple">[
 
 Tip: Alternatively, use a food processor!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600363931365-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once the squash has had 15-20 min, remove the tray[s] from the oven and drizzle 
 
 Return the tray[s] to the oven for 10-15 min further or until the squash is cooked through and the chickpeas are crisp – this is your chilli roasted squash
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600363942073-x200.jpg)
 
 ### Step 7
 

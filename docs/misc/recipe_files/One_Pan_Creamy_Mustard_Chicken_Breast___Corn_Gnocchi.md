@@ -23,6 +23,7 @@ You’re one pan away from this creamy chicken dinner. You’ll sizzle chicken b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1723213740991-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add your diced chicken breast and cook for 3-4 min or until lightly browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1723213744658-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Once lightly browned, add your gnocchi to the pan and cook for 6-8 min or until 
 
 Tip: Don’t stir too often as this will prevent the gnocchi from crisping!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1723213748519-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Meanwhile, boil half a kettle
 
 Peel and finely dice your brown onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1723213752473-x200.jpg)
 
 ### Step 4
 
@@ -53,11 +57,13 @@ Drain your sweetcorn
 
 Dissolve your chicken stock mix in 100ml<span class="text-purple"> [130ml]</span> <span class="text-danger">[170ml] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723213756735-x200.jpg)
 
 ### Step 5
 
 Once your gnocchi is beginning to crisp, add the diced onion and cook for 2-3 min or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723213765419-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Season with a grind of pepper
 
 Cook for 3-4 min or until the sauce has thickened and your chicken is cooked through (no pink meat!) – this is your one pan creamy mustard chicken breast & corn gnocchi
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723213768797-x200.jpg)
 
 ### Step 7
 

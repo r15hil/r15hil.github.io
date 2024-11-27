@@ -25,6 +25,7 @@ A pie that's a feast for the eyes, and a breeze to make. You'll simmer up a beef
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599145832390-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for an initial 20 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599145839948-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, peel and finely dice your brown onion[s]
 
 Top, tail and dice your carrot[s]<span class="text-danger"> </span>finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599145845028-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and carrot with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599145855094-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your beef stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water and stir in your tomato paste and Marmite – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599145865446-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the chopped garlic with the tomato stock and bring to the boil over a high h
 
 Strip your thyme leaves from their stems and add them into the pan, then cook for 3-4 min or until thickened slightly – this is your beef & thyme mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599145871960-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Tip: Try to put the more cooked chips at the bottom, and balance them over each 
 
 Put the dish in the oven for 15-20 min or until the chips are crispy and cooked through – this is your chip-topped beef & thyme pie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599145884991-x200.jpg)
 
 ### Step 7
 

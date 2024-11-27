@@ -31,6 +31,7 @@ A nutty-tasting chicken dish that's perfect for those who love curry, but prefer
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1616.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Deseed your red and green pepper[s]<span class="text-danger"> </span>(scrape the
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until softened and beginning to char – these are your roasted peppers
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1616.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the chopped chicken to the marinade and give everything a good mix up, then 
 
 Peel and finely chop your garlic and onion[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1616.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion and cook for 4 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1616.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the onion has softened, reduce the heat to medium-low and add the chopped g
 
 Add the marinated chicken and cook for 4-5 min or until lightly browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1616.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add your peanut butter to the stock with 1 tsp <span class="text-purple">[1 1/2 
 
 Bash your roasted peanuts in their bag with a rolling pin
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1616.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1616.-step-7-x200.jpg)
 
 ### Step 7
 

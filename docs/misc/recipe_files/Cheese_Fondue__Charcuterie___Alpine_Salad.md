@@ -25,6 +25,7 @@ Now this is a real showstopper. You'll dice up bread to dip into garlicky melted
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1604489058446-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Top, tail and grate the carrot<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604489073864-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Chop the root<span class="text-danger">[s]</span> from the little gem lettuce<sp
 
 Combine the red wine vinegar with the Dijon mustard and 2 tbsp<span class="text-danger"> [4 tbsp] </span>olive oil and a pinch of salt and pepper – this is your vinaigrette
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604489084122-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add the torn little gem to a serving bowl and top with the sliced shallot and gr
 
 Set aside for serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604489090163-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Add the ciabatta rolls to a baking tray and put the tray in the oven for 3-4 min
 
 Once done, carefully cut the ciabatta rolls into bite-sized cubes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604489095950-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add the the Serrano ham, Napoli salami and salami cones to a serving board or pl
 
 Peel and finely slice (don't chop!) the garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604489112589-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Cook for 6-8 min, stirring continuously until melted and silky
 
 Tip: Although it melts quickly, letting it bubble for longer cooks off any excess alcohol!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604489126489-x200.jpg)
 
 ### Step 7
 

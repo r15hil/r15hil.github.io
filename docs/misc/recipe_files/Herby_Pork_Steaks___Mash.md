@@ -20,6 +20,7 @@ Sweet parsnip and bitter sage make an unlikely but excellent pairing for pork. W
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/120.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the pork loin steaks, coat evenly and set aside
 
 Prepare 2 <span class="text-danger">(4)</span> A4 size pieces of clingfilm
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/120.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cover the steaks with the remaining cling film&nbsp;
 
 Bash with the bottom of a spare pot or rolling pin to 1 1/2cm thickness and set aside until step 5
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/120.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Peel the parsnips, cut in half lengthways and chop into pieces (approx. 1cm)
 
 Add the parsnip and a pinch of salt (optional) to a pot of boiling water and boil for 10-15 min or until you can pierce them easily with a fork
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/120.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Tear the cavolo nero leaves from the tough inner stalk and discard the stalks
 
 Roll or bunch up the leaves and cut into bite-size pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/120.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Once the oil is hot, hold the strip of fat from the pork steaks against the pan,
 
 Then lay the steaks flat and cook for 3 min on each side or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/120.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Drain and return the cooked parsnip to the cooking pot, add 1-2 tbsp of butter, 
 
 Mash and season to your taste with salt and pepper, then cover until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/120.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ This is the perfect, comforting chicken roast. You'll wrap chicken breasts in ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1722955588359-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop your leek[s] into rounds and wash thoroughly to remove any grit, then slice
 
 Add the sliced potato and leek rounds to a pot of plenty of boiled water, bring to the boil over a high heat and cook for 5-6 min or until softened slightly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1647532880496-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once melted, add 20g<span class="text-purple"> [30g]</span> <span class="text-da
 
 Add 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> milk gradually and whisk for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1647532885012-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Pour the cheesy béchamel over the leek & potato and top with the remaining grat
 
 Cook for 30-35 min or until the potato is cooked through and the top is golden – this is your creamy potato & leek gratin
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1647532889112-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Whilst the gratin is cooking, wrap your chicken breast portion[s] in your smoked
 
 Put the tray in the oven for 25-30 min or until the chicken is cooked through (no pink meat!) and the bacon is slightly crispy – this is your chicken wrapped in bacon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1647532893589-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Peel and finely chop (or grate!) your garlic
 
 Return the reserved pot to a medium-high heat with a generous drizzle of olive oil and once hot, add the chopped shallot and cook for 1-2 min or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1647532897640-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once softened, add the chopped garlic to the pot along with 1 tsp <span class="t
 
 Add the chicken stock to the pot and cook for 5-6 min or until reduced to a gravy-like consistency – this is your gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1722955878518-x200.jpg)
 
 ### Step 7
 

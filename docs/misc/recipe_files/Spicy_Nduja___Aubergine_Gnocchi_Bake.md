@@ -25,6 +25,7 @@ Spice up your pasta bake with a sizzling Calabrian pork salume known as 'Nduja (
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1592234002649-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped aubergine to a baking tray (or two!) with a generous drizzle of
 
 Give everything a good mix up and put the tray[s] in the oven for 20 min or until golden and tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1592234025760-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: Don't have a pestle and mortar? Chop them up as finely as you can
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1592234183836-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Once hot, add half your 'Nduja (can't handle the heat? Go easy!) to the pan and 
 
 Add the chopped tomatoes and crushed fennel seeds (not a fan of aniseed? Only add a little!) to the pan and cook for 2-3 min or until the tomatoes are beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1592234204026-x200.jpg)
 
 ### Step 4
 
 Dissolve your chicken stock mix in 300ml <span class="text-purple">[400ml]</span> <span class="text-danger">[500ml]</span> boiled water and stir in your tomato paste and half your balsamic vinegar (save the rest for later!) – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1592234217086-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the tomatoes are starting to soften, add the roasted aubergine and tomato s
 
 Once boiling, remove the pan from the heat and stir through your gnocchi
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1592234244182-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Tear over the remaining 'Nduja (not a fan of spice? Just add a little!), top wit
 
 Put the dish[es] in the oven for 10-15 min or until golden and bubbling – this is your spicy 'Nduja & aubergine gnocchi bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1592236984165-x200.jpg)
 
 ### Step 7
 

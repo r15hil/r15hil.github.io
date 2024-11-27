@@ -29,6 +29,7 @@ Fusing America & Asia, our Korean-style fried free range chicken is bang on tren
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691483407910-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon), then chop as finely as you can
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691483412863-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a
 
 Once hot, add the finely chopped pepper with a pinch of salt and a tiny splash of water and cook, covered, for 8-10 min or until it's softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691483424495-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add your cornflour to a large bowl with a generous pinch of salt and give it a
 
 Add the chicken strips and toss them to coat them evenly in the cornflour, then set aside – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691483429509-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691483434983-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Tip: Try not to turn the chicken until it's golden!
 
 Once golden, transfer the browned chicken to a baking tray (reserve the pan) and put the tray in the oven for 8-10 min or until the chicken is cooked through (no pink meat!) – this is your crispy free range chicken thigh
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691483441366-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once boiling, remove the sauce from the heat – this is your Korean-style sauce
 
 Tip: If you have a food processor, blitz the sauce until smooth for a more authentic look and feel!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691483447146-x200.jpg)
 
 ### Step 7
 

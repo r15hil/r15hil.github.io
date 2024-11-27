@@ -27,6 +27,7 @@ For this salad-style twist on the famous Vietnamese sandwich, you'll add oven-ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634718706761-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the torn ciabatta to a baking tray with your toasted sesame oil, black sesa
 
 Put the tray in the oven for 5 min or until golden and crisp – these are your sesame croutons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634718712074-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Slice your cucumber into discs, then slice each individual cucumber disc into ma
 
 Top, tail and peel your carrots, then continue to peel lengths until you end up with a pile of carrot ribbons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634718731659-x200.jpg)
 
 ### Step 3
 
 Add your hoisin sauce, rice vinegar, soy sauce, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil to a large bowl with a pinch of salt and stir it all together – this is your hoisin dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634718738600-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Chop your coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1646139992678-x200.jpg)
 
 ### Step 5
 
@@ -66,11 +71,13 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the carrot ribbons, cucumber matchsticks, sliced shallot, salad, sesame croutons and most of the chopped mint and chopped coriander (save the rest for garnish!) to the hoisin dressing and give it a gentle mix up – this is your bánh mì-style salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634718829163-x200.jpg)
 
 ### Step 6
 
 Drain your king prawns, then pat them dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634718834104-x200.jpg)
 
 ### Step 7
 

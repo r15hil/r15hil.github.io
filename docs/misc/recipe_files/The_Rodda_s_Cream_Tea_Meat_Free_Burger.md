@@ -24,6 +24,7 @@ Ready to bite into tradition with a burger-y twist? Shake up convention by swapp
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619779405773-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Slice the potatoes (skins on) into thin discs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619779434844-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Spread the potato discs into a single layer and put the tray in the oven for 20-
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619779482472-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Meanwhile, cut 2 <span class="text-danger">[4] </span>slices from the tomato<spa
 
 Chop the remaining tomato finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619779500429-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the tomato has started to break down, add the tomato paste, red wine vinega
 
 Cook for 10-15 min, stirring frequently, or until thickened to a jam-like consistency – this is your warming tomato jam
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619779529544-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Wash, then separate the lettuce leaves and pat them dry with kitchen paper
 
 Slice the brioche buns in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619779542751-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the meat-free burger patties to a baking paper-lined baking tray
 
 Put the tray in the oven for 8 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1619779549471-x200.jpg)
 
 ### Step 7
 

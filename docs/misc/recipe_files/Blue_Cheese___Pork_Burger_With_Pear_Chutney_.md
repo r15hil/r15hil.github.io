@@ -24,6 +24,7 @@ We've stuffed this pork burger with blue cheese to make it extra juicy. You'll w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1292.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,11 +42,13 @@ Put the tray in the oven for 25-30 min or until the chips are golden and startin
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap; font-weight: bold;">&nbsp;</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1292.-step-2.a-x200.jpg)
 
 ### Step 2
 
 Meanwhile, chop the pear<span class="text-danger">[s] </span>into very small pieces, discarding the core
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1292.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add a large knob of butter and the chopped pear and cook for 3-5 min o
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1292.-step-4.a-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Reduce the heat to low and cook, covered, for 10-12 min or until the pear pieces
 
 Tip: if the chutney is looking too chunky, mash it roughly with a fork
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1292.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Tip: if you don't love blue cheese, just add half!
 
 Mix, then knead thoroughly until fully combined, then shape into 2&nbsp;<span class="text-danger">[4]</span>&nbsp;burger patties and refrigerate&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1292.-step-6.a-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Cut the&nbsp;brioche rolls&nbsp;in half
 
 Once hot, add the&nbsp;brioche, cut-side down, and cook for 3 min or until toasted and charred, then set them aside until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1292.-step-7-x200.jpg)
 
 ### Step 7
 

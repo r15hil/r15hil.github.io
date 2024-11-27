@@ -26,6 +26,7 @@ Chopsticks at the ready, these speedy noodles will be ready to slurp in 10. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1682435328795-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682435346235-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Drain your tofu and pat it dry with kitchen paper then tear into bite-sized piec
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682435354335-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once fully coated, add most of your cornflour to the bowl (you’ll use the rest
 
 Once very hot, add the coated tofu to the pan, and cook for 8-9 min, turning occasionally until golden and crisp (reserve the bowl) – this is your crispy tofu
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682435362191-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Set aside to soak for 5-6 min
 
 Drain the soaked noodles, reserving a cup of starchy noodle water, and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682435371306-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Combine your Chinese rice wine with your toasted sesame oil, sriracha (can't han
 
 Give everything a good mix up, then add 75ml<span class="text-purple"> [110ml] </span><span class="text-danger">[150ml]</span> cold water and stir it all together – this is your Chinese-style sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682435394269-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add your carrot & cabbage slaw mix and half the sliced spring onion (s
 
 Cook for 1-2 min or until slightly softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682435408885-x200.jpg)
 
 ### Step 7
 

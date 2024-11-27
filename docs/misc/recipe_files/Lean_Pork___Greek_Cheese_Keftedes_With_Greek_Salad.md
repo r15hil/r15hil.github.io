@@ -26,6 +26,7 @@ Keftedes are traditional Greek meatballs, often served as part of a mezze. For t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1669630820475-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1669630826816-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the grated shallot, lean pork mince, panko breadcrumbs and half your dr
 
 Crumble in half your Greek cheese (you'll use the rest later!) and mix thoroughly until fully combined (clean hands is the best way!) – this is your lean pork mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669630830158-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once the chips have had 10 min, add the lean pork & Greek cheese keftedes to o
 
 Return the tray[s] to the oven for 15-20 min or until everything is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669630833812-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Strip your mint leaves from their stems, then chop them roughly and discard the 
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669630837383-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Squeeze the water out of the grated cucumber and add it to a bowl along with th
 
 Season with pepper and stir it all together – this is your tzatziki
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669630841469-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Chop the remaining Greek cheese into small cubes
 
 Dice your tomato[es] finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669630845046-x200.jpg)
 
 ### Step 7
 

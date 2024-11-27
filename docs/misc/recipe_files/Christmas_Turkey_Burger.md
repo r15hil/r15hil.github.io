@@ -23,6 +23,7 @@ What happens when your Christmas dinner walks through an American diner? This ha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/295.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Place on an oven-proof tray and coat well with 1-2 tbsp vegetable oil and season
 
 Put in the oven for 30 min or until they are golden and crisp, turning once
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/295.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Mix with clean hands, cover and refrigerate for 15 min
 
 Tip: Chilling the mixture helps the burgers to hold their shape better
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/295.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop the dried cranberries finely
 
 Peel and finely slice 1/2 <span class="text-danger">(1)</span> of the red onion<span class="text-danger">(s)</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/295.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Add 200ml <span class="text-danger">(300ml)</span> boiling water
 
 Cook for 15-20 min or until most of the water is absorbed
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/295.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Grate the Brussels sprouts, apple and the remaining red onion into the bowl
 
 Stir well to combine - this is your slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/295.-step-7-x200.jpg)
 
 ### Step 6
 
@@ -98,6 +104,7 @@ Once hot, add the patties and cook for 2 min on each side or until coloured
 
 Transfer them to the chip tray and cook in the oven for the remaining 10 min or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/295.-step-6-x200.jpg)
 
 ### Step 7
 

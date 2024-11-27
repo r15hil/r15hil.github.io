@@ -26,6 +26,7 @@ Take your tastebuds to the streets of Colombo with a coconut-spiked curry, jam-p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1621936824239-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the aubergines (no prep needed!) to a baking tray with a drizzle of vegetabl
 
 Put the tray in the oven for 30-35 min or until the aubergines are soft inside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1621936834666-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel (scrape the skin off with a teaspoon) and chop the ginger and garlic rough
 
 Separate the coriander leaves from their stalks and set them aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1621936945731-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Blitz until smooth or very finely chopped – this is your Sri Lankan-style curr
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1621937154189-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621937171168-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the Sri Lankan-style curry paste and cook for 2-3 min or until fr
 
 Boil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621937194036-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the red wine vinegar, soy sauce and 1 tsp <span class="text-danger">[2 tsp]
 
 Once fragrant, add the coconut stock and cherry tomatoes to the pan and cook, covered, for 10-15 min or until a thick sauce remains
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621937239063-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ Put the takeaway menu back in the drawer and whip this recipe up in no time. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1728392444950-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1728392448820-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated chicken and cook for 10-12 min or until cooked through (no pink meat!) and crispy all over – this is your crispy chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1728392454196-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Trim, then slice your spring onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1728392458550-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the chicken is crispy, transfer it to a plate and set aside for later, then
 
 Add the chopped pepper and onion and cook for 5-6 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1728392465773-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Meanwhile, boil a full kettle
 
 Add your vegetable spring rolls to a baking tray and put in the oven for 10-12 min or until golden and cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1728392469690-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add your tomato ketchup, rice vinegar, red chilli relish, ginger & garlic paste 
 
 Increase the heat to high, then add the crispy chicken to the pan with the sweet & sour sauce and cook for 2-3 min further or until the sauce has thickened – this is your sweet & sour chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1728392473043-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ This 10-minute Spanish rice has everything a weeknight meal could need: smoky ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1623409743343-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1540.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Chop the green beans in half (cut them in one bunch for speed!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1540.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the roasted garlic paste, diced chicken and halved green beans to the pan and cook for 5 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1540-v2-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,16 +64,19 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1540.-step-5-x200.jpg)
 
 ### Step 5
 
 Dissolve the chicken stock mix in 100ml<span class="text-danger"> [200ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1540.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the smoked paprika, heated basmati rice and chicken stock to the pan and cook for a further 3 min or until the chicken is cooked through (no pink meat!) – this is your smoky Spanish chicken & rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1540.-step-7-x200.jpg)
 
 ### Step 7
 

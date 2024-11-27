@@ -24,6 +24,7 @@ Fresh chilli and a spritz of lemon perfectly lift the flavour of rich smoked mac
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-3-1728986182734-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-3-1728986215541-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cut your red chilli[es]<span class="text-danger"> </span>in half lengthways, des
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-3-1728986220946-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Peel the skin off your smoked mackerel fillet[s] and discard
 
 Tear the smoked mackerel into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-3-1728986227893-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced shallot, chopped garlic and chopped chilli (can't handle the heat? Go easy!) and cook for 1-2 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-3-1728986231902-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Rinse the wilted spinach under the cold running water until it's cool
 
 Once cool, squeeze as much water out as possible and chop roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-3-1728986244937-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add the chopped spinach and smoked mackerel pieces to the pan with the drained t
 
 Add your crème fraîche and the juice of half your lemon[s] to the pan with your vegetable stock mix and grated Italian hard cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-3-1728986251706-x200.jpg)
 
 ### Step 7
 

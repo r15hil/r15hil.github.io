@@ -28,6 +28,7 @@ Portugal meets Italy in this fiery Mediterranean match-up. You’ll love this pe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1720170525226-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Transfer your feta and chopped pepper to a tin foil-lined baking tray with a dri
 
 Put the tray in the oven for 12-15 min or until the pepper is charred and the feta is golden – this is your baked feta and charred pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1720170534690-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cook the pasta for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1720170834056-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a
 
 Cut your lemon[s] in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1720170846136-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Combine your chipotle paste, tomato paste, dried oregano and chopped chilli (c
 
 Add 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and a pinch of salt and mix to combine – this is your peri peri sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1720170857918-x200.jpg)
 
 ### Step 5
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[275ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your veg stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1720170866491-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once hot, add the chopped garlic and cook for 30 secs or until fragrant
 
 Once fragrant, add the peri peri sauce, soft cheese and veg stock, and cook for 4-5 min or until the sauce has thickened – this is your peri peri pasta sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1720170876179-x200.jpg)
 
 ### Step 7
 

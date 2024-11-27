@@ -27,6 +27,7 @@ This Syrian-style shish taouk is charred to perfection. You’ll skewer smoky pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687516110782-x200.jpg)
 
 ### Step 1
 
@@ -38,11 +39,13 @@ Peel and finely chop (or grate) your garlic
 
 Soak your skewer[s] in cold water (this prevents them from burning whilst cooking)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687516114278-x200.jpg)
 
 ### Step 2
 
 Chop your chicken thighs into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687516118355-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add a very generous pinch of salt, and a pinch of sugar and pepper
 
 Give everything a good mix up – this is your shish taouk marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687516123531-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add the chopped chicken and onion petals to the marinade
 
 Give everything a good mix up until everything is well coated, then thread the coated chicken and onion petals onto the skewers
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687516129338-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once hot, add the chicken skewers and cook for 3-4 min on each side or until sli
 
 Once slightly charred, reduce the heat to medium and cook, covered, for a further 8-10 min, turning half way, or until charred and cooked through (no pink meat!) – these are your chicken shish taouk kebabs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687516136036-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the shredded lettuce to a bowl with the diced tomato, remaining ground sumac
 
 Toss everything together – this is your sumac salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687516140329-x200.jpg)
 
 ### Step 7
 

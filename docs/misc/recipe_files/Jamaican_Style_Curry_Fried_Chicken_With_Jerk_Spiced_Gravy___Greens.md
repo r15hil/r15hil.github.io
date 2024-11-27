@@ -27,6 +27,7 @@ There’s nothing like some heady spice to light up your evening. For this Jamai
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1714745567490-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chopped creamed coconut to a bowl with 3 tbsp <span class="text-purple">
 
 Give everything a good mix up until fully dissolved and then set aside until cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1714745580487-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and finely slice (don't chop!) your garlic
 
 Dissolve your chicken stock mix in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml] </span>boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1714745592875-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add your diced chicken thigh to the bowl with your corn flour and 3 tbsp <span c
 
 Give everything a good mix up and set aside to marinate for 10 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1714745639251-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1714745666614-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once the pan is very hot, add the coated chicken and cook for 5-6 min on each side until golden and crispy and the chicken is cooked through (no pink meat!) – this is your Jamaican-style curry fried chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1714745715877-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Scrunch the foil around the spring greens to form a tightly sealed parcel[s] and
 
 Put the tray in the oven for 10-12 min or until the spring greens are tender – this is your greens
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1714745790317-x200.jpg)
 
 ### Step 7
 

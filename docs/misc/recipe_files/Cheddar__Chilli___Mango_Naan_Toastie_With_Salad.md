@@ -27,6 +27,7 @@ Introducing our amazing cheese toastie with an Indian twist! Simply spread mango
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1663.-step-1.2-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chopped sweet potato to a baking tray (or two!) with a generous drizzle 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1663.-step-2.2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Trim, then slice your spring onion[s] finely
 
 Grate your cheddar cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1663.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Top with your nigella seeds, sliced red chilli (can't handle the heat? Go easy
 
 Sandwich the halved naan[s] together
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1663.-step-4.2-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Top, tail, peel and grate your carrot[s]
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1663.-step-5.2-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Combine your white wine vinegar with a drizzle of olive oil and a pinch of salt 
 
 Once the sweet potatoes are almost done, heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1663.-step-6.2-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add a heavy weight (e.g. several tins) to the top pan and cook for 2-3 min per s
 
 Tip: You may need to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1663.-step-7.2-x200.jpg)
 
 ### Step 7
 

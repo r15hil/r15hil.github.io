@@ -23,6 +23,7 @@ This lamb is mint. You’ll layer tender potato and minced lamb with lashings of
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1--1709041310816-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the sliced potatoes to a heatproof bowl, then cover the bowl with cling film
 
 Put the bowl in the microwave for 8-10 min or until the potatoes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1709041315297-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once hot, add your lamb mince and cook for 3-4 min or until beginning to brown, 
 
 Once the steamed potatoes are done, remove the cling film to allow them to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1709041319356-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the meat has browned, reduce the heat to medium-high and add the diced onio
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1709041323913-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add 300ml <span class="text-purple">[400ml] </span><span class="text-danger">[50
 
 Cook for 3-4 min or until the sauce has slightly thickened to a gravy-like consistency and the lamb is cooked through (no pink meat!) – this is your minty lamb mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1709041328283-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ While the sauce is thickening, add a layer of the steamed potatoes (save the res
 
 Tip: For fancy presentation, use individual dishes!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1709041332395-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Top with a knob of butter, breaking it up over the potatoes, then season with a 
 
 Put the dish[es] in the oven for 15-20 min or until golden and bubbling – this is your minty lamb & potato torte
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1709041335705-x200.jpg)
 
 ### Step 7
 

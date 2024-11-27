@@ -24,6 +24,7 @@ Pigs in blankets meet parsnips in this plant-based Christmas twist. You’ll wra
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635847887618-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil a kettle, then peel and chop your potatoes into bite-sized pieces, add them
 
 Once boiling, reduce the heat to medium-high and cook for 14-16 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635847910472-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once hot, add your meat-free sausages and cook for 4 min or until lightly browne
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635847933538-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Combine half your Henderson's Relish (you'll use the rest later!) with your grou
 
 Line a baking tray with a large piece of tin foil (or two!), add the sliced spring greens to the middle with a few small knobs of butter alternative and 3 tbsp<span class="text-purple"> [4 1/2 tbsp] </span><span class="text-danger">[6 tbsp]</span> cold water, then scrunch the edges of the foil around the greens to form a sealed parcel[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635848002738-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Add the parsnip ribbons to the smoky marinade and gently mix together until nice
 
 Lay several smoky parsnip ribbons together on a chopping board to make a thicker strip, then repeat this process until you are left with 3 thick strips per person – these are your blankets
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635848043845-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Wrap the browned meat-free sausages in the blankets and add them to the tray –
 
 Put the tray in the oven, along with the tray of spring greens, for 15 min or until the sliced spring greens are tender and the plant-based pigs in blankets are golden and cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1635848081622-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Gradually stir in 200ml <span class="text-purple">[260ml]</span> <span class="t
 
 Bring to the boil over a high heat and cook for 4 min or until thickened – this is your gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635848098002-x200.jpg)
 
 ### Step 7
 

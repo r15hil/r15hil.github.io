@@ -29,6 +29,7 @@ For this bowlful of classic Tex-Mex flavours, you’ll toss together spiced faji
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1654602532584-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1654602545031-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the pepper strips and onion wedges to a baking tray (or two!) with a drizzle
 
 Put the tray[s] in the oven for 15 min or until the vegetables are tender – these are your roasted vegetables
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690536092939-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Chop your chicken breast strips into smaller strips
 
 Add the chicken strips to the fajita seasoning and give everything a good mix up until it's fully coated in all the spices – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654602558649-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Wash your lettuce, then pat dry with kitchen paper and tear it into bite-sized p
 
 Chop your coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654602565267-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add half your honey (you'll use the rest later!) and a generous pinch of salt �
 
 Tip: Add a little<span class="text-danger"> </span>cold water if the dressing is looking a little thick!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690536098080-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once hot, add the coated chicken and cook for 5-6 min on each side or until the 
 
 Once cooked, remove the pan from the heat and add the remaining honey – this is your fajita-style chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654602580398-x200.jpg)
 
 ### Step 7
 

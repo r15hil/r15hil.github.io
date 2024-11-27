@@ -27,6 +27,7 @@ Got the hots for sweet chilli? You’re going to love these tasty tofu slices sm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636381219670-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Drain your tofu and pat it dry with kitchen paper
 
 Cut the drained tofu into 6 strips per person
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636381222863-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once boiling, add the diced carrot and reduce the heat to very low and cook, cov
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636381226850-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Whilst the rice is cooking, add the tofu strips to a bowl with half of your soy 
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636381231032-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the coated tofu strips and cook for 3 min on each side or until<sp
 
 While the tofu is browning, combine your agave, red chilli relish and 30ml <span class="text-purple">[45ml] </span><span class="text-danger">[60ml]</span> cold water – this is your sweet chilli sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636381235105-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once the tofu has browned, turn the heat down to medium-low and add the sliced g
 
 Add the sweet chilli sauce to the pan and cook for a further 5 min or until the sauce has thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636381238339-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add your blanched peas to a colander and pour boiled water all over them to refr
 
 Once the rice is cooked, add the refreshed peas, black sesame seeds and remaining soy sauce and mix everything together – this is your veg-packed rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636381242444-x200.jpg)
 
 ### Step 7
 

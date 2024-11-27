@@ -20,6 +20,7 @@ This pork dish features pan-fried pork steaks, golden potatoes and apple, all tu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/464.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Boil a full kettle
 
 Cut the potatoes into 2cm wedges lengthways, keeping the skins on
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/464.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ Add the potatoes and salt (optional) to a large pot with a lid, cover with boile
 
 Boil for 10-15 min or until you can pierce the potatoes easily with a fork
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/464.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Chop the sage finely, including the stalks
 
 Peel and grate (or finely chop) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/464.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Add the hazelnuts to a dry wide-based pan (preferably non-stick) over a low heat
 
 Once toasted, transfer them to a bowl and bash with a rolling pin (use a pestle and mortar if you have one) into a coarse rubble, reserving the pan for the next step
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/464.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ When hot, add the steaks and cook for approx. 3 min on each side or until golden
 
 Once cooked, transfer them to a plate, cover with a teatowel and rest until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/464.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ After the 1 min, drain the &nbsp;well &nbsp;and add them to the pork pan on a hi
 
 Cook for a further 3 min until the potatoes are starting to turn golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/464.-step-7-x200.jpg)
 
 ### Step 7
 

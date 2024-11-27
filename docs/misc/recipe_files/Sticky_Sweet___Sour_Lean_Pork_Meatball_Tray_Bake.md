@@ -28,6 +28,7 @@ For your favourite takeaway in a tray bake, look no further than these aromatic 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-12-1729092740067-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your sweet potato[es] (skin on) into wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and roughly chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-12-1729092749455-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the sweet potato wedges to a large baking tray (or two!) with a generous dri
 
 Put the tray[s] in the oven for an initial 10 min or until the wedges are starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-12-1729092757797-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Dice half the red onion[s] finely
 
 Cut the remaining onion into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-12-1729092762692-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Season with a generous pinch of salt and pepper and give everything a good mix u
 
 Shape into 4 meatballs per person (they don't have to look perfect!) – these are your five-spice meatballs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-12-1729092771767-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Drain your pineapple (reserve the juice)
 
 Roughly chop the drained pineapple into bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-12-1729092782134-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the wedges have had an initial 10 min remove the tray[s] from the oven and 
 
 Return the tray[s] to the oven for a further 15 min or until the meatballs are cooked through (no pink meat!) and the wedges are golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-12-1729092803645-x200.jpg)
 
 ### Step 7
 

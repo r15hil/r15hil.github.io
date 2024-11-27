@@ -29,6 +29,7 @@ This cheeky chicken dinner is so easy. For the Portuguese-style dressing, you'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655204394837-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut your sweet potato[es] (skins on) into chips, then add them to a large bakin
 
 Put the tray[s] in the oven for 25-30 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655204401731-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655204407814-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Combine your chipotle paste (can't handle the heat? Go easy!), tomato paste, dr
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and a pinch of salt and mix to combine – this is your peri peri sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655204412863-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Transfer the coated chicken thighs to a baking tray (use tin foil to avoid mess!
 
 Tip: Cooking for 4 or more? Use 2 trays!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655204416303-x200.jpg)
 
 ### Step 5
 
 While the chicken is cooking, combine the remaining peri peri sauce with your mayo – this is your perinaise
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655204420830-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Cut your apple[s]<span class="text-danger"> </span>(skin on) into matchsticks
 
 Trim, then slice the spring onion[s] finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655204425056-x200.jpg)
 
 ### Step 7
 

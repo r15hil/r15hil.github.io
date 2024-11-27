@@ -30,6 +30,7 @@ Roast the rainbow with this simply spiced chicken and veg. Serve with crumbly co
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679326506040-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Peel and cut your red onion[s] into quarters
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679326509312-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Top, tail, peel and chop your carrot[s] into quarters lengthways, then into smal
 
 Peel and grate (or very finely chop) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679326513766-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add a drizzle of olive oil and season with a generous pinch of salt and pepper
 
 Put the tray[s] in the oven for 20-30 min or until the veg is tender and starting to colour – this is your chunky roast veg
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679326517234-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once hot, add the diced chicken thigh and chopped garlic to the pan with half of
 
 Once cooked, transfer to a plate and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679326520527-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Chop your dried cranberries finely
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml] </span>boiled water with your ground turmeric and remaining ras el hanout – this is your spiced stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679326523518-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the chopped cranberries and your couscous to a bowl with the spiced stock 
 
 Cover the bowl, then set aside until all of the stock has been absorbed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679326526500-x200.jpg)
 
 ### Step 7
 

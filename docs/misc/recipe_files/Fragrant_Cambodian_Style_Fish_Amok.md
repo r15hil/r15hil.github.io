@@ -31,6 +31,7 @@ Inspired by ‘Amok’, a Cambodian fish curry, this tangy, aromatic dish combin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1582200203726-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Cut your cucumber in half lengthways, then into batons
 
 Add the cucumber batons to a small bowl with your rice vinegar – this is your quick-pickled cucumber
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582200209153-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Cut the remaining chilli in half lengthways, deseed (scrape the seeds out with a
 
 Bash your lemongrass with a rolling pin, remove the tough outer layers (save them for later!) and chop the soft inner core[s] finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1582200214475-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving - this is your lemongrass rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582200219856-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Chop your basa fillet[s] into large, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582200223922-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once the shallot has softened, add the chopped ginger, chopped lemongrass, your 
 
 Cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1582200229093-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Cook for 3-5 min or until thickened to a curry sauce-like consistency
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582200233974-x200.jpg)
 
 ### Step 7
 

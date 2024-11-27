@@ -27,6 +27,7 @@ This plant-packed bolognese has a secret ingredient. Whip up your rich sauce wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1659352644287-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709223490750-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add your gnocchi and cook for 8-9 min or until beginning to crisp
 
 Tip: Don’t stir too often as this will prevent the gnocchi from crisping!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709223496195-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, crumble your chestnut mushrooms roughly into the pan with your hands a
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659350350465-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once the mushrooms have started to brown, reduce the heat to medium
 
 Add your marmite to the pan with your dried oregano, dried basil and roasted garlic paste and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1659350355014-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add 100ml<span class="text-purple"> [130ml]</span> <span class="text-danger">[17
 
 Cook for 2-3 min or until the mushrooms are cooked and the sauce has thickened to a ragù-like consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709223520819-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Combine your balsamic vinegar in a bowl with 1 tbsp <span class="text-purple">[1
 
 Toss the salad in the dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709223526319-x200.jpg)
 
 ### Step 7
 

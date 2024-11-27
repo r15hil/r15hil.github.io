@@ -24,6 +24,7 @@ This simple one-pan dish is packed with vegetables. You'll stir green beans, spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1504.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil a kettle
 
 Peel and finely slice your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1504.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Once hot, add the sliced garlic and cook for 30 secs
 
 Add your orzo and cook for 1 min further
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1592918335809-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the vegetable stock to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium-low and cook, covered, for an initial 5 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1592918342124-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Meanwhile, trim, then cut your green beans in half
 
 Chop your Tenderstem broccoli in half lengthways
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1592918603212-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once hot, add your pine nuts and cook for 2-3 min or until toasted and lightly g
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1592997220989-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add the halved Tenderstem and cook, covered, for 5 min further or until everyth
 
 Tip: Add a splash more water if your orzo is looking a little dry, and stir it occasionally to prevent it from sticking
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1592997211572-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ For this easy smoky pasta, you'll whip up a creamy red pesto sauce to coat Tende
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603213476320-x200.jpg)
 
 ### Step 1
 
@@ -31,16 +32,19 @@ Boil a kettle
 
 Add the wholewheat tortiglioni to a pot of boiled water with a large pinch of salt and bring to the boil over a high heat and cook for an initial 10-12 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603213480495-x200.jpg)
 
 ### Step 2
 
 Meanwhile, chop the Tenderstem broccoli in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722932034293-x200.jpg)
 
 ### Step 3
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603213489915-x200.jpg)
 
 ### Step 4
 
@@ -50,6 +54,7 @@ Once done, transfer the crispy bacon to kitchen paper and set aside
 
 Reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603213505869-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Meanwhile, grate the cheddar cheese
 
 Once done, drain the wholewheat tortiglioni and broccoli, reserving a cup of starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603213514156-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Once hot, add the tomato paste, pesto and soft cheese and a generous grind of p
 
 Taste for seasoning, adding a pinch more salt if needed and cook for 1 min or until fully combined – this is your creamy red pesto sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603213525036-x200.jpg)
 
 ### Step 7
 

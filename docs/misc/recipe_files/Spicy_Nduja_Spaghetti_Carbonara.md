@@ -23,6 +23,7 @@ For this cheat's carbonara, we've taken inspiration from Calabria. You'll make a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623406804158-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1596538905399-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat
 
 Once hot, tear your 'Nduja into the pan (can't handle the heat? Go easy!) with a generous grind of black pepper and cook for 2-3 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1596538922942-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Cook for 2-3 min or until the spaghetti and Tenderstem broccoli are cooked wit
 
 Return the drained spaghetti and Tenderstem broccoli to the pot with a drizzle of olive oil and stir it all together
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1596538937890-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once the 'Nduja has softened, add the chopped garlic to the pan and cook for a f
 
 Once fragrant, add your chicken stock mix with 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> boiled water and cook for 1-2 min or until thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1596538954589-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Transfer the yolk from one shell half to the other several times, until all the 
 
 Tip: Hold on to those egg whites! They’re perfect for meringues or a protein-rich omelette (they freeze well too)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1596539021782-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Stir it all together – this is your carbonara sauce
 
 Wash your spinach, then pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1596539025825-x200.jpg)
 
 ### Step 7
 

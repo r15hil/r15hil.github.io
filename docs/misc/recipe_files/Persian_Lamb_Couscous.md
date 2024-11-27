@@ -25,6 +25,7 @@ We’ve created a simple dish here that encompasses all that’s good within Per
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/263_step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once hot, add the pistachios and toast for 2 min or until they've darkened sligh
 
 Once done, transfer the toasted pistachios to a board to cool and keep the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/263_step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Return the pan to a medium heat with a drizzle of olive oil
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/263_step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add the couscous and sultanas to a heatproof bowl with 200ml<span class="text-danger"> [400ml]</span> boiled water, cover and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/263_step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Meanwhile, strip the mint leaves from their stems and chop them finely
 
 Mix the chopped mint through the natural yoghurt – this is your minted yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/263_step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once browned, crumble the chicken stock cube<span class="text-danger">[s] </span
 
 Add 100ml <span class="text-danger">[150ml]</span> boiled water and cook for a further 5 min or until the lamb has crisped
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/263_step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Dice the remaining cucumber
 
 Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/263_step-7-x200.jpg)
 
 ### Step 7
 

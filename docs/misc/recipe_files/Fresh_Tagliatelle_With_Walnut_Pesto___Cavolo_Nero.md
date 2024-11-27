@@ -24,6 +24,7 @@ Fresh pasta is the star of the show in this nutty Italian dinner. You’ll blitz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695727592863-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695727597304-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and roughly chop your shallot[s]
 
 Crush your garlic open by squashing with the side of a knife and discard the skin
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695727601977-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving 100ml<span class="text-danger"> <span class="text-purple">[150ml]</span> [200ml] </span>of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695727610201-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add the juice of half your<span class="text-danger"> </span>lemon[s], 2 tbsp<spa
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695727616318-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add the chopped cavolo nero to the pan with a pinch of salt and cook for 2-3 min or until the cavolo nero has wilted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695727622415-x200.jpg)
 
 ### Step 6
 
 Once wilted, add the walnut pesto to the pan with the reserved starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695727626685-x200.jpg)
 
 ### Step 7
 

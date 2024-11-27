@@ -30,6 +30,7 @@ To lighten up these enchiladas, we're swapping tortillas for spring greens. You'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634036764364-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Peel and finely slice your red onion[s]
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634036779642-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add the sliced onion and chopped garlic to the pan with a pinch of sal
 
 While the onion is softening, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634036801276-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add your finely chopped tomatoes, vegetable stock mix, half the chipotle paste (
 
 Give everything a good mix up and cook for 3-4 min or until the sauce has slightly reduced – this is your enchilada filling
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634036821482-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Wash, then rip the leaves off your spring greens, discarding the tough stalks
 
 Add the spring green leaves to a colander and pour boiled water all over them to wilt them slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634036860626-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Lay 2 wilted spring green leaves per person out on a clean board and add a coupl
 
 Roll the loaded leaves tightly lengthways – these are your spring green enchiladas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634036886646-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Top the enchiladas with the remaining enchilada filling and grate your mature ch
 
 Put the dish in the oven for 8-10 min or until the grated cheeze has melted – these are your lighter plant-based spring green enchiladas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634036924291-x200.jpg)
 
 ### Step 7
 

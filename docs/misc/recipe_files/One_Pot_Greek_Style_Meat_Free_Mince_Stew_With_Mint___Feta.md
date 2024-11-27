@@ -24,6 +24,7 @@ Inspired by hearty moussaka, this meat-free Greek stew only takes 5 minutes to p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1633451612979-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633452200462-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish, with a matching lid, with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633452208545-x200.jpg)
 
 ### Step 3
 
 Add your meat-free mince (remove the paper if required!) to the dish with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 1-2 min or until very lightly browned all over, breaking it up into rough, large chunks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633452214396-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Trim the green stalk[s] off your aubergine[s] and chop into bite-sized pieces
 
 Add the chopped potato and aubergine to the dish and stir everything together
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633452261178-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add 500ml <span class="text-purple">[650ml]</span> <span class="text-danger">[85
 
 Season generously with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633452275638-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Cover with the lid and put the dish in the oven for 40-45 min or until the potat
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633452283080-x200.jpg)
 
 ### Step 7
 

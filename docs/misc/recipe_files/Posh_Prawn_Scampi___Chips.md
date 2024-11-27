@@ -24,6 +24,7 @@ In this dish, whole prawns are coated in panko breadcrumbs and cayenne pepper th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/849.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Put the tray in the oven for 20-25 min or until golden and crisp&nbsp;
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/849.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -61,6 +63,7 @@ Add the chopped shallot,&nbsp;capers and&nbsp;mayonnaise to a small bowl with 1 
 
 Mix to combine - this is your tartare sauce&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/849_step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,6 +75,7 @@ Add them to a pot of salted boiled water and cook for 3-4 min or until tender wi
 
 Once cooked, drain and rinse them under cold water and set aside and keep the pan for later&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/849.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -89,6 +93,7 @@ Place all of the prawns in the flour (tap off any excess), add them to the beate
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/849.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -103,6 +108,7 @@ Return the pot to a medium heat with a knob of butter
 
 Once hot, add the sliced&nbsp;shallot&nbsp;and cook over a medium-low heat for 4 min or until softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/849.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -117,6 +123,7 @@ Tip: add extra oil if your pan is looking dry
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/849_step-7-x200.jpg)
 
 ### Step 7
 

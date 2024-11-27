@@ -26,6 +26,7 @@ Curry udon is a favourite in Japan. You’ll whip up a mild aromatic curry sauce
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708421263845-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil a kettle
 
 Peel and finely slice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708421271577-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once melted, add your sliced onion with a pinch of salt and 1 tsp<span class="te
 
 Cook for 8-10 min or until softened and starting to caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708421279647-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Tip: Gently separate the noodles with a fork!
 
 Drain the soaked noodles
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708421287157-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the grated carrot and your rice vinegar to a bowl with a small pinch of salt
 
 Trim, then slice your spring onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708421296534-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ When the gyozas have had 5 min, remove from the gyozas from the heat and careful
 
 Tip: Be careful when adding the water to the pan, it may splash!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708421303302-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the onion is caramelised, add your curry powder, ginger & garlic paste, chi
 
 Cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708421312322-x200.jpg)
 
 ### Step 7
 

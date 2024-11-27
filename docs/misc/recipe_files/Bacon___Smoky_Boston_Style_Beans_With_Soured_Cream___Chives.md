@@ -25,6 +25,7 @@ BBQ. Bacon. Beans. Say no more. For this hearty dish, you’ll simmer baked bean
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678880675217-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678880679767-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop your smoked streaky bacon in half (use scissors for speed!)
 
 Once hot, add the halved bacon to the pan and cook for 2-3 min on each side or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678880686296-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the chopped garlic and cook for 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678880688345-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once fragrant, add your baked beans to the pot with your ground smoked paprika, 
 
 Bring to the boil over a high heat and once boiling, reduce the heat to medium
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678880694902-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Once the bacon is golden and crisp, add it to the pot and give everything a good
 
 Cook for 3-4 min further or until the sauce has thickened – these are your bacon & smoky Boston-style beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678880697452-x200.jpg)
 
 ### Step 6
 
 Slice your ciabatta[s] in half and place in the toaster for 1-2 min or until toasted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678880702995-x200.jpg)
 
 ### Step 7
 

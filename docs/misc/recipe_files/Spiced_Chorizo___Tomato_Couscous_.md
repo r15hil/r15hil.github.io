@@ -24,6 +24,7 @@ This dish of Spanish chorizo with couscous and Moroccan spice mix, ras el hanout
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/97.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to medium and continue to cook for 20-25 min or un
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/97.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Slice the chorizo in half lengthways
 
 Once hot, add the chorizo and cook for 4 min or until golden oil has been released
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/97.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,6 +69,7 @@ Transfer the cooked&nbsp;chorizo (use a slotted spoon if you have one) to a bowl
 
 Return&nbsp;the pan to a medium-low heat and add the red onion
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/97.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,6 +84,7 @@ Meanwhile, slice the cherry tomatoes in half
 
 Add the halved tomatoes to the red onions for a further 3-5 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/97.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,6 +96,7 @@ Dissolve the stock cube<span class="text-danger">[s]</span>&nbsp;in 320ml <span 
 
 Add the garlic, ras el hanout and bay leaf<span class="text-danger">[ves]</span>&nbsp;to the onion&nbsp;and stir for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/97.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,6 +108,7 @@ Add the stock and mix well
 
 Bring to a boil over a high heat, then reduce the heat to low, cover and cook for 5-10 min or until the couscous is tender and the water has absorbed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/97.-step-7-x200.jpg)
 
 ### Step 7
 

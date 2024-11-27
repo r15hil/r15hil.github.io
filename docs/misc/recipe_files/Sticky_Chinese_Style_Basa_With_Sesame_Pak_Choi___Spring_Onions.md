@@ -26,6 +26,7 @@ These sticky hoisin basa fillets are easy, quick and packed with flavour. While 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679396962141-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679396964734-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Trim your spring onions, then cut each spring onion into thirds
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679396967526-x200.jpg)
 
 ### Step 3
 
 Combine your soy sauce, hoisin sauce and honey to a bowl and give everything a good mix – this is your sticky sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679396970079-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your basa fillet[s] and cook for an initial 3-4 min on one side
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679396972845-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once hot, add the pak choi leaves, spring onion thirds and a pinch of salt an
 
 Once softened, add the chopped garlic and your toasted sesame oil and cook for 1 min further – this is your sesame pak choi & spring onions
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679396976484-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Cook for a further 3-4 min or until the basa is cooked through and the sauce has
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679396979175-x200.jpg)
 
 ### Step 7
 

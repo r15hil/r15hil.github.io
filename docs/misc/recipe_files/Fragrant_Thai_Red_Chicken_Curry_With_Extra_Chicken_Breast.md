@@ -28,6 +28,7 @@ A Thai signature dish, and a surefire hit. With tender chicken, crisp mangetout
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1731412113973-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1731412116755-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 2-3 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1731412121088-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Meanwhile, boil half a kettle
 
 Chop your chicken breast strips and your chicken breast portion into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1731412124100-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add the chopped chicken, chopped ginger and your ground paprika to the pan and cook for 3-4 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1731412127924-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Dissolve the chopped creamed coconut in 200ml <span class="text-purple">[260ml]<
 
 Add your fish sauce and a pinch of sugar – this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1731412131569-x200.jpg)
 
 ### Step 6
 
 Add your red Thai curry paste to the pan with the chicken and cook for 1 min further or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1731412134569-x200.jpg)
 
 ### Step 7
 

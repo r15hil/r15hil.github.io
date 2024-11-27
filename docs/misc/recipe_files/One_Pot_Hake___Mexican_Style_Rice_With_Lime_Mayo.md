@@ -30,6 +30,7 @@ Prep this one-pot Mexican feast in just 5 minutes. You'll bake sweet pepper rice
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1707995293937-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1707995277647-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Boil a full kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1707995281114-x200.jpg)
 
 ### Step 3
 
@@ -61,11 +64,13 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop r
 
 Add the chopped shallot and chopped pepper to the dish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1707995288768-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water with your chipotle paste (can't handle the heat? Go easy!), tomato paste, your roasted garlic paste and a generous pinch of salt – this is your smoky stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1707995298172-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add the smoky stock with your chopped tomatoes, give everything a good mix up an
 
 Once boiling, top with your hake fillet[s] and sprinkle over the remaining ground smoked paprika and a pinch of pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1707995300795-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Combine your mayo and the juice of half your<span class="text-danger"> </span>lime quarters with a pinch of pepper – this is your lime mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1707995303322-x200.jpg)
 
 ### Step 7
 

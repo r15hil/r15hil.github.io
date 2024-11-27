@@ -26,6 +26,7 @@ The goodness of our cottage pie lies beneath its smooth, cheesy mash topping. Pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609262941573-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chopped potatoes to a pot of boiled water, bring to the boil over a high
 
 Once done, drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609262995042-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Top, tail, and dice your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609263003736-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the chopped onion, diced carrot and chopped garlic and cook for 3-
 
 Meanwhile, dissolve your beef stock mix and tomato paste in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[400ml]</span> boiled water and stir in your Marmite – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609263107160-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once the beef has browned, add your tomato stock to the pan and bring to the boi
 
 Season with a grind of black pepper and cook for 4-5 min or until slightly thickened – this is your lean beef mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609263123746-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Mash until smooth
 
 Grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609263161905-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Top with the mashed potato and sprinkle over your grated cheese
 
 Put the dish[es] in the oven for 15-20 min or until golden brown and bubbling and the beef is cooked through (no pink meat!) – this is your lean beef cottage pie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1677606038318-x200.jpg)
 
 ### Step 7
 

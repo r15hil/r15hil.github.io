@@ -28,6 +28,7 @@ Inspired by Thai ‘chu chi’ curry, this fragrant fish supper delivers tons of
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1732119909680-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Bash your lemongrass stalk with a rolling pin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1732119913337-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the sliced onion, pepper strips, bashed lemongrass stalk and star anise to a
 
 Put the tray in the oven for an initial 5-10 min or until the onion has started to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1732119917482-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut, vegetable stock mix, ground paprika, Thai red curry paste, and a pinch<span class="text-danger"> </span>of<span class="text-danger"> </span>sugar in 500ml <span class="text-purple">[650ml] </span><span class="text-danger">[850ml]</span> boiled water – this is your Thai red curry stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1732119923969-x200.jpg)
 
 ### Step 4
 
 Once the onion has started to soften, pour the Thai red curry stock over the vegetables, then put the tray back in the oven for 10-15 min or until the sauce has started to thicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1732119928999-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1732119933422-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Season to taste with a pinch of salt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1732119937692-x200.jpg)
 
 ### Step 7
 

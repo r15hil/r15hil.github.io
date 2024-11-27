@@ -20,6 +20,7 @@ Sear stunning 21-day aged sirloin steaks until perfectly tender, then serve them
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580132326710-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Pat the fries dry with kitchen paper
 
 Tip: This helps the fries get extra crispy!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580132330502-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Chop the chestnut mushrooms roughly (keep the oyster mushrooms whole!)
 
 Dissolve 1/2 <span class="text-danger">[1]</span> Knorr beef stock cube in 75ml <span class="text-danger">[150ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580132334174-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Season with a generous pinch of salt and pepper and give everything a gentle mix
 
 Return the tray to the oven for 20-25 min or until the fries are golden and crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580132337933-x200.jpg)
 
 ### Step 4
 
 Pat the sirloin steaks dry with kitchen paper, drizzle them with vegetable oil and season with a pinch of salt on both sides
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580132341626-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ For medium, cook for 4-5 min on each side
 
 Once the steaks are cooked, transfer them to a plate to rest (reserve the pan)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580132345811-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Whilst the steak is cooking, add the Tenderstem broccoli to a pot with plenty 
 
 Once boiling, cook for 3-4 min or until tender with a slight bite, then drain
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580132349230-x200.jpg)
 
 ### Step 7
 

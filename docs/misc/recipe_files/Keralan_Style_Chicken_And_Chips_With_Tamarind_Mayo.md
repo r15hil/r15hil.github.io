@@ -26,6 +26,7 @@ Sumptuous, simple, spicy. You’ll marinate chicken in a rich spice mix before r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1649175019530-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut the potatoes (skins on) into chunky chips, then add to a baking tray with 
 
 Put the tray in the oven for 25-30 min or until golden and crispy – these are your chunky chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1649175032499-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Add the garam masala and crushed cardamom pod<span class="text-danger">[s]</span
 
 Add the ginger & garlic paste and chicken stock mix to the bowl along with 1 tbsp <span class="text-danger">[2 tbsp] </span>vegetable oil and stir everything together – this is your Keralan-style marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649175043256-x200.jpg)
 
 ### Step 3
 
 Add the chicken thighs to the marinade and give everything a good mix up – this is your Keralan-style marinated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649175053936-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Add the Keralan-style marinated chicken to a tin foil-lined baking tray
 
 Put the tray in the oven for 15-20 min or until cooked through (no pink meat!) – this is your Keralan-style chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1649175062747-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, transfer the toasted cashews to a large bowl
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1649175075120-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Cut the cucumber in to quarters lengthways, then chop into pieces
 
 Add the chopped cucumber to the toasted cashews along with the white wine vinegar, a drizzle of vegetable oil and a pinch of salt and give everything a good mix up – this is your cucumber & cashew salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1649175084409-x200.jpg)
 
 ### Step 7
 

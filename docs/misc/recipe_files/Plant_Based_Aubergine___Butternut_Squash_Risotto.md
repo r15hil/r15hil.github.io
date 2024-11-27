@@ -26,6 +26,7 @@ This rich plant-powered risotto replaces cheese with an Italian-style "crema di 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609944942299-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Score the aubergine flesh in a criss-cross pattern, then add the aubergine halve
 
 Put the tray in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609944972830-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609945044731-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once softened, add the arborio rice to the pan with the chopped garlic and Chine
 
 Add the vegetable stock a ladle at a time, stirring continuously, for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609945051270-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the butternut squash cubes to the tray with a drizzle of olive oil
 
 Return the tray<span class="text-danger">[s]</span> to the oven for 15 min further or until the aubergine flesh has softened and the butternut squash is tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609945073055-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, transfer them to a plate and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609945390475-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add the softened aubergine flesh and half the toasted pine nuts (you'll use the 
 
 Blitz until smooth – this is your aubergine purée
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1609945424119-x200.jpg)
 
 ### Step 7
 

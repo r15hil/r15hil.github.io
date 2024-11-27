@@ -30,6 +30,7 @@ This lamb meatball curry is packed with Kashmiri-inspired flavours. You'll make 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1606824775904-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1606824782903-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add your fennel seeds (not a fan of aniseed? Only add a little!), card
 
 Toast for 2-3 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1606824817689-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Season with a generous pinch of salt and pepper and give everything a good mix u
 
 Divide the lamb mince and shape into 4 meatballs per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1606824837286-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Transfer the toasted spices to a pestle & mortar and return the pan to a medium-
 
 Once hot, add the lamb meatballs and cook for 2-3 min on each side or until golden
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1606824847229-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Whilst the meatballs are cooking, bash the spices into a fine powder in the pest
 
 Add most of your ground turmeric (you'll use the rest later!) and chilli flakes (can't handle the heat? Go easy!) – this is your Kashmiri-style spice blend
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1606824859579-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the meatballs have browned, add a generous knob of butter to the pan with t
 
 Once softened, add the tomato wedges and cook for 3-4 min further or until the meatballs are cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1606824875799-x200.jpg)
 
 ### Step 7
 

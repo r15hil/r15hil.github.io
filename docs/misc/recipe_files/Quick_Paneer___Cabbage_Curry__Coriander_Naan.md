@@ -27,6 +27,7 @@ To create this speedy, tantalising curry, you'll cook golden-fried paneer, shred
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1376..step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Preheat the oven to 200&deg;C/ 180&deg;C (fan)/ 400&deg;F/ Gas 6
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1376.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -58,6 +60,7 @@ Once golden, transfer the paneer to a plate and set it aside
 
 Reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1376.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -72,6 +75,7 @@ Return the pan to a medium heat with a drizzle of vegetable oil&nbsp;
 
 Once hot, add the sliced onion and chopped tomato with a pinch of salt and cook for 5-8 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1376..step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,6 +84,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1376.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,6 +93,7 @@ Once the onion and tomato have softened, add the garam masala, ground turmeric, 
 
 Crumble in the vegetable stock cube<span class="text-danger">[s]</span><span class="text-highlight">,<span class="text-danger">&nbsp;</span>add the chopped&nbsp;ginger</span> and cook for 30 sec
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1376.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,6 +105,7 @@ Season with a generous grind of black pepper, give everything a good mix up and 
 
 Cook, covered, for 3-4 min, stirring occasionally, until the greens have wilted and the sauce has thickened&nbsp;&ndash; this is your paneer &amp; cabbage curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1376.-step-7-x200.jpg)
 
 ### Step 7
 

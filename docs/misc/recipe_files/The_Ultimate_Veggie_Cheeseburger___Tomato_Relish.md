@@ -24,6 +24,7 @@ Get excited! Whether you’re meat-free on Mondays or all week long, our ultimat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2503-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Strip the rosemary leaves from their stems and chop them roughly, discard the 
 
 Sprinkle the chopped rosemary all over the chips and put the tray in the oven for 25-30 in or until crisp – these are your rosemary chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2503-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the chopped tomato with a pinch of salt and cook for 2-3 min o
 
 Whilst the tomatoes are cooking, peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2503-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add 100ml <span class="text-danger">[150ml]</span> cold water with the balsam
 
 Once boiling, cook for 5-6 min or until the tomatoes have broken down and the sauce is the consistency of ketchup – this is your tomato relish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2503-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Line a baking tray with non-stick baking paper
 
 Add the meat-free burger patties to one side of the tray and put in the oven for an initial 10 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2503-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Peel and slice the shallot<span class="text-danger">[s]</span> into rounds
 
 Grate the cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2503-Step-6-x200.jpg)
 
 ### Step 6
 
 Once the patties have had 10 min, remove the tray from the oven and top them with the grated cheese - these are your cheesy meat-free patties
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2503-Step-7-x200.jpg)
 
 ### Step 7
 

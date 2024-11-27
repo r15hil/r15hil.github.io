@@ -26,6 +26,7 @@ A vegetable packed, soothing yet fiery Thai vegetable curry, comprising of brocc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/618.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut the broccoli into small florets and cut the stem<span class="text-danger">[s
 
 Slice the mushrooms finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/618.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a wide-based pan with a matching lid (preferably non-stick) over a medium-h
 
 Once hot, add the carrots and broccoli stems (leave the florets for later), cover and leave to cook for approx. 5-8 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/618.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/618.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Dissolve&nbsp;the chopped coconut cream and the stock cube<span class="text-dang
 
 Crumble the kaffir lime leaves&nbsp;into the stock - this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/618.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Cut the chilli<span class="text-danger">[es]</span> in half lengthways (can't ha
 
 Stir&nbsp;the curry paste, star anise, ginger and red chilli (cant handle the heat? Go easy!) into the carrot pan and cook for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/618.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add the broccoli florets and sliced mushrooms
 
 Cover and cook for a further 3 min or until the broccoli is cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/618.-step--7-x200.jpg)
 
 ### Step 7
 

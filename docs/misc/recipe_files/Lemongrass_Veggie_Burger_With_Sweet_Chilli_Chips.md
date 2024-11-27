@@ -28,6 +28,7 @@ Bite into a juicy veggie burger this week, infused with fresh, zingy lemongrass 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678176856603-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678176859760-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Peel your garlic and shallot[s]<span class="text-danger"> </span>and chop in 
 
 Add the halved garlic and shallot, lemongrass, half the mint leaves and half your coriander (you'll use the rest later!) to a food processor and blitz until finely chopped – this is your lemongrass paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715085716988-x200.jpg)
 
 ### Step 3
 
 Once blitzed, combine the lemongrass paste with your vegan burger patty[ies] in a large bowl and give everything a good mix up – this is your lemongrass burger mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715085720819-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the patty[ies] to the pan and cook for 5 min on each side or until browned, crisp and cooked through – these are your lemongrass patty[ies]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678176869718-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the carrot ribbons to a bowl with your rice vinegar and give everything a go
 
 Trim, then slice your spring onions
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678176874179-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the halved ciabatta[s] to a baking tray (cut side up) and put the tray in th
 
 Tip: Cooking for 4 or more? Use 2 trays!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715085725673-x200.jpg)
 
 ### Step 7
 

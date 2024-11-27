@@ -29,6 +29,7 @@ This plant-based Greek feast is worthy of the gods. You’ll coat tofu skewers i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681376917370-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Drain your tofu and pat it dry with kitchen paper then cut into small bite-sized
 
 Add the tofu pieces to a large bowl with your soy sauce and set aside to marinate
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681376921899-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the fries to a baking tray with a drizzle of olive oil, half the dried oreg
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until crisp – these are your herby fries
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681376926259-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely slice your shallot[s]
 
 Add the sliced shallot to a bowl with your white wine vinegar and a pinch of salt and sugar and give everything a good mix up and set aside – these are your pickled shallots
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681376935778-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Peel and grate (don't chop!) your garlic
 
 Add your mayo to a bowl with half the grated garlic (not a big garlic fan? Try using less!) and a splash of water – this is your garlic mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681376939528-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger"
 
 Give everything a good mix up – this is your spiced tofu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681376943526-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once very hot, add the tofu skewers and cook for 5-6 min, turning occasionally until golden – these are you tofu souvlaki skewers
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681376947159-x200.jpg)
 
 ### Step 7
 

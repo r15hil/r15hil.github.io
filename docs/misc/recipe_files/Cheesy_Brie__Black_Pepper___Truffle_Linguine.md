@@ -24,6 +24,7 @@ To make this outrageously delicious linguine, you'll combine brie and Italian ha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1604489763265-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely slice (don't chop!) the garlic
 
 Heat a large, wide-based pan (preferably non-stick) over a medium-low heat with 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil and half<span class="text-danger"> </span>of the truffle oil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604489775167-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Season with a pinch of salt – these are your truffled garlic crisps
 
 Reserve the pan and the oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604489784249-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cook the linguine for 7-9 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604489798494-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel the Italian hard cheese until you end up with a pile of cheese shavings
 
 Crumble the remaining Italian hard cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604489808697-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Chop the seedless grapes in half
 
 Combine the balsamic vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your balsamic dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604489817654-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once hot, add the cracked black pepper and cook for 30 secs
 
 Add 90ml <span class="text-danger">[170ml]</span> of the starchy pasta water with the grated Italian hard cheese (and any crumbled Italian hard cheese), chopped brie and crème fraîche and cook for 2-3 min or until everything's melted and a cheese sauce has formed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604489830221-x200.jpg)
 
 ### Step 7
 

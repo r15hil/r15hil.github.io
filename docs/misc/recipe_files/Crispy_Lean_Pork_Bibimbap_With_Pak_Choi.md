@@ -30,6 +30,7 @@ Bibimbap is a Korean favourite and literally translates to "mixed rice"; our ver
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681305802941-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Add the carrot ribbons to the vinegar mixture and give it all a good old mix up and set aside - this is your quick-pickled carrot salad
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681305808067-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681305814755-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a matching l
 
 Once hot, add your lean pork mince (remove the paper if required!) and cook for 5 min until starting to brown and crisp, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681305821417-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Wash then cut your pak choi in half, separating the white base and green tops, t
 
 Chop the white bases into bite-size pieces & shred the green tops
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681305826819-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once the pork has browned, add your soy sauce, toasted sesame oil, sliced spri
 
 Once cooked, transfer everything to a bowl and set aside and reserve the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681305831376-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cover with a lid and cook for 2-3 min, then add the green tops, cover and cook f
 
 Transfer the cooked pak choi to a separate bowl
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681305837101-x200.jpg)
 
 ### Step 7
 

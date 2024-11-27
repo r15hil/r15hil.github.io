@@ -21,6 +21,7 @@ This recipe features warming baharat, salty halloumi, zesty lemon and refreshing
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/200.step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Pour&nbsp;the rice and lentils into a sieve&nbsp;
 
 Rinse&nbsp;thoroughly with cold water&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/200.step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add&nbsp;the rice and lentils to a large pot with 500ml <span class="text-danger
 
 Once cooked, drain, rinse and return to the pot to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/200.step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Meanwhile, slice the halloumi&nbsp;
 
 Drizzle with a little olive oil, sprinkle with the baharat and season generously with pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/200.step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Chop the parsley finely, including the stalks&nbsp;
 
 Add the herbs to a bowl large enough to fit the lentils and rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/200.step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the juice of the lemon<span class="text-danger">[s]&nbsp;</span>and 1-2 tbsp
 
 Season generously with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/200.step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1-2 tbsp olive oil over
 
 Once hot, add the halloumi and cook for 4 min or until golden&nbsp;on both sides
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/200.step-7-x200.jpg)
 
 ### Step 7
 

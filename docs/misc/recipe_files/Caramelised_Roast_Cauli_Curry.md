@@ -25,6 +25,7 @@ By roasting the cauliflower rather than boiling, you caramelise its flavour into
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/377.step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 220&deg;C/ 200&deg;C (fan)/ 425&deg;F/ Gas 7
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/377.step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Bring to the boil over a high heat and cook for 20-25 min or until tender
 
 Once tender, drain and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/377.step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Drizzle the cauliflower with vegetable oil and season generously with salt and p
 
 Put the tray in the oven for 20 min or until the cauliflower is golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/377.step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 Peel and cut the carrot<span class="text-danger">[s]</span>&nbsp;into quarters lengthways, then cut them into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/377.step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Cook for 2 min before adding the chopped garlic and carrots
 
 Continue to cook for a further 4 min until starting to colour
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/377.step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Add the stock and sultanas to the pan, cover with a lid, and cook for 10 min
 
 Meanwhile, add the cashew nuts to a separate&nbsp;baking tray&nbsp;or oven dish and place in the oven for 5 min or until starting to turn brown
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/377.step-7-x200.jpg)
 
 ### Step 7
 

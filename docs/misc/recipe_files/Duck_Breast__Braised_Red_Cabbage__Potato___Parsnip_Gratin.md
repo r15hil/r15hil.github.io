@@ -25,6 +25,7 @@ You’ll be proud to serve this delectable roast duck breast, which is succulent
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1448.-step-1.new-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Heat a pot over a medium heat with a small knob of butter (approx. 1 tsp).
 
 Once melted, add 1 tsp <span class="text-danger">[2 tsp]</span> flour and cook for 1-2 minutes or until a roux (sandy paste) has formed.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1448.-step-2.new-x200.jpg)
 
 ### Step 2
 
@@ -59,6 +61,7 @@ Layer the sliced potatoes and parsnip ribbons in an oven-proof dish and top wi
 
 Put the dish in the oven for 1 hour 10 min or until the potatoes and parsnips are golden and cooked through.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1448.-step-3.new-x200.jpg)
 
 ### Step 3
 
@@ -67,6 +70,7 @@ Slice your red cabbage
 
 Slice approx. 250g <span class="text-danger">[500g]</span> red cabbage very finely. Use the root as a handle, and discard at the end.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1448.-step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -84,6 +88,7 @@ Season with a generous pinch of salt and 1 tbsp<span class="text-danger"> [2
 
 Add 200ml <span class="text-danger">[350ml] </span>water and cook, covered, for 45 minutes, stirring occasionally.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1448.-step-5.new-x200.jpg)
 
 ### Step 5
 
@@ -98,6 +103,7 @@ Add the scored duck, skin-side down, to a cold, dry pan over a low-medium heat.
 
 Tip: by cooking this over a low-medium heat, you'll render all of the fat.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1448.-step-6.new-x200.jpg)
 
 ### Step 6
 
@@ -112,6 +118,7 @@ Put the tray in the oven for 10-12 minutes<span class="text-highlight"> if yo
 
 Re-boil a kettle.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1448.-step-7.new-x200.jpg)
 
 ### Step 7
 

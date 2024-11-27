@@ -24,6 +24,7 @@ This light, refreshing dish is inspired by delicate Japanese flavours. You'll gr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1635261078706-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635261081943-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add half of the chopped ginger (you'll use the rest later!) to a large bowl with
 
 Mix until smooth – this is your miso marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635261085941-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and 
 
 Add the aubergine rounds to the miso marinade and give them a gentle mix up until fully coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635261088969-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Line a baking tray (or two!) with tin foil and add the coated aubergine rounds
 
 Drizzle the aubergine with a little vegetable oil, then put the tray<span class="text-danger">[s]</span> under the grill and cook for 6-7 min on each side or until tender and starting to char – this is your grilled miso aubergine
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635261091682-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Add the blanched edamame beans to a colander and pour boiled water all over them
 
 Peel and slice the shallot<span class="text-danger">[s]</span> as finely as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1635261096162-x200.jpg)
 
 ### Step 6
 
 Combine the remaining chopped ginger with the soy sauce, rice vinegar, remaining sesame oil and 1 tsp <span class="text-danger">[2 tsp]</span> sugar in a small bowl – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1635261099523-x200.jpg)
 
 ### Step 7
 

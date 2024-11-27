@@ -29,6 +29,7 @@ Nothing beats the Mexican heat. For our version of adobo, simmer chipotle paste,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680015681478-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Crush your garlic open by squashing them with the side of a knife and discard th
 
 Cut your red chilli[es] in half lengthways and discard the stem[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680015689360-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add the chopped onion, crushed garlic and chilli halves (can't handle 
 
 Cook for 6-7 min or until the vegetables are starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680015694912-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Give everything a good mix up and put the tray[s] in the oven for 20-25 min or u
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680015703451-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680015710014-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Once softened, remove the pot from the heat and blitz until smooth with a (stick
 
 Return the pot to a medium-high heat and cook for 2-3 min further or until the sauce begins to thicken – this is your Mexican-style adobo sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680015714233-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and dice roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680015719051-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ Inspired by the classic Indian dish, saag paneer, this mild, rich curry is packe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1007.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Melt a knob of butter in a pot with a lid over a medium heat
 
 Once melted, add the crushed cardamom pods and cook for 1 min or until fragrant
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1007.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1007.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Peel and finely chop (or grate) your garlic
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1007.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-5 min or un
 
 Once softened, add your garam masala, ground cumin, vegetable stock mix, chopped garlic and chopped ginger and cook for 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1007.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add the chopped tomato[es], tomato paste, 1 tsp<span class="text-purple"> [1 1/2
 
 Once thickened, add your spinach and cook for a further 5-6 min or until it's wilted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1007.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Heat a second large, wide-based pan (preferably non-stick) with a drizzle of veg
 
 Once hot, add the chopped paneer and cook for 3-5 min, turning occasionally until it's golden on all sides
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1007.-step-7-x200.jpg)
 
 ### Step 7
 

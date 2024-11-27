@@ -26,6 +26,7 @@ Who said a sandwich needs a lid? For this open-plan Scandi national favourite, y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683103552652-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the potato discs to a baking paper-lined baking tray (or two!) with a small 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683103556412-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Wash your lettuce, then pat it dry with kitchen paper
 
 Remove the outer leaves from the lettuce and shred the inner core
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683103560125-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Remove the skin from your smoked mackerel fillet[s]
 
 Chop the mackerel into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683103564180-x200.jpg)
 
 ### Step 4
 
 Add your roasted garlic paste to a bowl with your mayo, the juice of half your lemon[s] and a generous grind of pepper – this is your roasted garlic mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683103568960-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the potatoes have cooked, remove the tray[s] from the oven and push the pot
 
 Add the sliced bread to the other side of the baking tray[s], then return the tray[s] to the oven for 5-6 min or until the bread is starting to brown
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683103573171-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the butter has melted, add the chopped chives and the chopped mackerel and 
 
 Cook for 2-3 min or until warmed through – this is your buttery chive mackerel
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683103579308-x200.jpg)
 
 ### Step 7
 

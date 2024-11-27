@@ -28,6 +28,7 @@ These Thai-inspired lean pork patties are packed with fragrant ginger, garlic an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660034143862-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the wedges to a large baking tray (or two!) with a drizzle of vegetable oil 
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are tender and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660034148269-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Strip your mint leaves from their stalks and roughly chop the leaves (discard th
 
 Chop your coriander roughly, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660034152720-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Add your lean pork mince (remove the paper, if required!) to a bowl with the c
 
 Mix thoroughly until fully combined (clean hands is the best way!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660034169132-x200.jpg)
 
 ### Step 4
 
 Divide the pork mixture into 2 per person and shape into patties – these are your Thai-style lean pork patties
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660034173218-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the Thai-style lean pork patties and cook for 5 min on one side th
 
 Tip: Press the patties down with a spatula to keep them flat throughout cooking
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660034186473-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the sliced radishes and cucumber ribbons to a bowl with the juice of half th
 
 Gently mix it all together – this is your quick-pickled radish salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660034194014-x200.jpg)
 
 ### Step 7
 

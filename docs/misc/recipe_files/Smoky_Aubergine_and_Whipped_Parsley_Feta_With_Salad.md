@@ -26,6 +26,7 @@ Add a little attitude to your salad with smoky aubergine. You’ll spice and bak
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657005293693-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Trim the green stalk[s] off your aubergine[s] and cut in half lengthways
 
 Slice each half, lengthways, into 5 strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657005301061-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the aubergine strips to a baking paper-lined baking tray (or two!) with your
 
 Mix everything together and put the tray[s] in the oven for 25-30 min or until the aubergine is golden and softened – these are your smoky aubergine strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657005303762-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Peel and finely chop (or grate) your garlic
 
 Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657005306332-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Put the mixture in the fridge until serving – this is your whipped parsley feta
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657005310146-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Combine your Dijon mustard with your honey, lemon zest, 1 tbsp<span class="text-
 
 Season with a pinch of salt and pepper – this is your honey mustard dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657005323049-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the aubergine is cooked, remove the baking tray[s] from the oven and set th
 
 Add your plain naan[s] to the reserved baking tray[s], splash with a little cold water and put the tray[s] in the oven for 3 min or until the bread is hot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657005326532-x200.jpg)
 
 ### Step 7
 

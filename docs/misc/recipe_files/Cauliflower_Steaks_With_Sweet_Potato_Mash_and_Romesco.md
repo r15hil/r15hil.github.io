@@ -26,6 +26,7 @@ Pack your 5-a-day in with this cauliflower feast. You’ll douse a hearty caulif
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684422208929-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Slice your cauliflower[s] into 1 steak per person, approx. 3cm thick (use the mi
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon), cut into large chunks, then crush your garlic open by squashing with the side of a knife, discard the skin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684422213201-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Scrunch the foil around the cauliflower to form a tightly sealed parcel and add 
 
 Put the tray[s] in the oven for 15-20 min or until the pepper is slightly charred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684422217258-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel and chop your sweet potato[es] into small bite-sized pieces
 
 Wash your spinach then pat it dry with kitchen paper and set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684422221304-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cook for 10-15 min or until fork-tender
 
 Once done, drain, return them to the pot and cover to keep warm
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684422225145-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add your tomato paste, red wine vinegar, half your dried thyme (you'll use the r
 
 Once the pepper is slightly charred, remove the tray[s] from the oven and transfer the roasted pepper and garlic to the food processor – this is your romesco mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684422229391-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Open the cauliflower parcel[s], then add the remaining grated Italian hard chees
 
 Return the tray[s] to the oven and cook, uncovered, for 5 min or until the cauliflower is golden and tender – this is your cheesy cauliflower steak
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684422232486-x200.jpg)
 
 ### Step 7
 

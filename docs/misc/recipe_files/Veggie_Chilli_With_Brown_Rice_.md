@@ -26,6 +26,7 @@ This veggie chilli is made from soy mince, which plumps up with the aid of a lit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/365.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain and return to the pot and cover until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/365.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, dissolve the stock cube<span class="text-danger">[s]</span>&nbsp;in 2
 
 Add the meat free mince to the stock and set aside&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/365-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely chop (or grate) the garlic
 
 Grate the cheddar&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/365-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once hot, add the paprika, chilli flakes (can't handle the heat? Go easy!) and c
 
 Add the red onion with a pinch of salt and cook for 8-10 min or until starting to caramelise
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/365-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Add the soaked mince, increase the heat to high and cook for 2 min
 
 Re-boil a kettle&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/365-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add the tin<span class="text-danger">[s]</span>&nbsp;of kidney beans (with liqui
 
 Cook until it reaches a chilli-like consistency, then remove from the heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/365-step-7-x200.jpg)
 
 ### Step 7
 

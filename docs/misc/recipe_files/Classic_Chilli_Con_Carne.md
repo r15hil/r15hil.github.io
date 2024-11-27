@@ -33,6 +33,7 @@ Our hunger-busting chilli comes with a spice blend you’ll make yourself, so yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1974.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop your brown onion[s]
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1974.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the pepper strips and chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1974.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1974.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Dissolve your beef stock mix and tomato paste in 250ml <span class="text-purp
 
 Drain and rinse your kidney beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1974.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the onion and pepper have softened, increase the heat to medium-high an
 
 Cook for 3-4 min or until the beef mince is browned, breaking it up with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1974.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the beef is browned, add the stock with the drained kidney beans and seaso
 
 Bring to the boil over a high heat and cook for 6-7 min further or until the sauce is thickened to a bolognese-like consistency and the beef is cooked through (no pink meat!) – this is your chilli con carne
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1974.-step-7-x200.jpg)
 
 ### Step 7
 

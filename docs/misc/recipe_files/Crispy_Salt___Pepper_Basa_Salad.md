@@ -27,6 +27,7 @@ Get your takeaway fix with this crispy salt and pepper basa. You’ll dish up yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688483530117-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688483533285-x200.jpg)
 
 ### Step 2
 
 Chop your basa fillets into large, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688483538201-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the remaining cornflour to a separate bowl
 
 Add the basa to the bowl with the remaining cornflour and give everything a good mix up until all the basa is coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688483542974-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Trim, then slice your spring onions
 
 Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle of vegetable oil  over a medium-high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688483549990-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the pan is very hot, add the coated basa with a good grind of pepper and co
 
 Once cooked through, add the sliced spring onion, sliced chilli (can't handle the heat? Go easy!) and your ginger & garlic paste and cook for 1-2 min further or until fragrant – this is your crispy salt & pepper basa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688483556248-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Cut your cucumber in half lengthways, then slice finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688483560932-x200.jpg)
 
 ### Step 7
 

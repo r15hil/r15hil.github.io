@@ -28,6 +28,7 @@ A twist on classic cottage pie, this indulgent recipe combines tender pulled chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1649240932007-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop your potatoes (skins on) into bite-sized pieces, then add them to a pot wi
 
 Cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1649240939530-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649240946278-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add the diced onion and carrot and cook for 3 min or until starting to
 
 Meanwhile dissolve your beef stock mix, tomato paste and Marmite in 250ml<span class="text-purple"> [325ml]</span><span class="text-danger"> [400ml] </span>boiled water and stir in your soy sauce – this is your rich tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649240951227-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once browned, reduce the head to medium-high, then add your red wine vinegar and
 
 Add the rich tomato stock and bay leaf[ves]<span class="text-danger"> </span>and cook, covered, for a further 10 min or until the sauce has thickened and the chicken is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1649240954492-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ While the chicken is cooking, return the drained potatoes to a low heat with a g
 
 Season with a pinch of salt and pepper and mash until smooth – this is your creamy mash
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1649240960106-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the chicken is cooked, transfer it to a clean board and shred it apart usi
 
 Return the pulled chicken to the pan with a generous grind of black pepper and give everything a good mix up (discard the bay leaf[ves])– this is your pulled chicken pie filling
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1649240967065-x200.jpg)
 
 ### Step 7
 

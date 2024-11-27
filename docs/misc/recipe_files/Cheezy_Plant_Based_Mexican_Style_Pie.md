@@ -31,6 +31,7 @@ This plant-based pie is a Brit-Mex mashup. You’ll rustle up a smoky chipotle c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1679047449592-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1679047453976-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and sliced pepper to the pan with a pinch of salt and cook for 9-10 min or until the pepper has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1679047457234-x200.jpg)
 
 ### Step 3
 
@@ -66,6 +69,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 250ml <span class="text-purple">[325ml]</span><span class="text-danger"> [450ml] </span>boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1679047463384-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Grate your cheddar flavour block
 
 Trim, then finely slice your spring onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1679047466427-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Give everything a good mix up and cook for 1-2 min or until fragrant, then add t
 
 Bring to the boil, then reduce the heat to medium and cook for 3-4 min or until thickened, then transfer to an oven-proof dish – this is your pie filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1679047472298-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Add the halved green beans to a large piece of tin foil with a pinch of pepper, 
 
 Scrunch the foil around the green beans to form a tightly sealed parcel (or two!) and add to a baking tray – this is your bean parcel
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1679047477504-x200.jpg)
 
 ### Step 7
 

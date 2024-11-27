@@ -23,6 +23,7 @@ According to her former chef, HRH’s fave fast food is a bunless venison burger
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651572357055-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Peel the potatoes and chop them into thick chips, then add them to a pot with pl
 
 Once boiling, reduce the heat to medium and cook for 10 min, then drain (reserve the pot!) and shake them around the colander to fluff up the edges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651572359419-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut the orange<span class="text-danger">[s]</span> in half
 
 Reboil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651572377220-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Season with a pinch of salt and sugar and whisk together – this is your mustar
 
 Combine the mayo with the truffle oil in a separate bowl – this is your truffle mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651572384884-x200.jpg)
 
 ### Step 4
 
 Add the parboiled chips to a baking tray with a drizzle of vegetable oil and a generous pinch of salt and put the tray in the oven for 20-25 min or until crispy and golden – these are your twice cooked chips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651572401403-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once hot, add the diced shallot with a pinch of salt and cook for 1-2 min or unt
 
 Mix everything together and cook over a medium-low heat for 15-20 min or until thickened to a jam-like consistency – this is your cranberry & orange relish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651572410618-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Tip: Use a sharp knife to get rid of any pith!
 
 Cut the gem lettuce into 8 <span class="text-danger">[16] </span>thin wedges, give them a wash and pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651572419769-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Take to the streets of Caracas with this South American-inspired hearty black be
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1663757303433-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of s
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663757309497-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the drained black beans to a bowl with the grated onion, ground cumin, Hende
 
 Season with a pinch of salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663757314967-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add the black bean patties to one side of a baking paper-lined baking tray with 
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663757320237-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Chop the coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663757327846-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Add the sliced brioche buns, cut side up, to the other side of the tray<span cla
 
 Return the tray<span class="text-danger">[s]</span> to the oven for 3-4 min or until the cheese has melted and the buns are warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663757332018-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Zest the lime<span class="text-danger">[s]</span> (try to grate lightly with a m
 
 Chop the zested lime<span class="text-danger">[s]</span> into quarters
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663757336467-x200.jpg)
 
 ### Step 7
 

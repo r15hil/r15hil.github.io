@@ -26,6 +26,7 @@ Amp up the umami in this Marmite-marinated fried chicken. You’ll coat tender c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1601539468192-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601539484339-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add a handful of flour to a plate with a generous pinch of salt
 
 Combine your natural yoghurt and most of your Marmite (save a little for the mayo!) in a separate bowl – this is your speedy Marmite buttermilk
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601539502685-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Add your cornflour to a large plate with the cayenne pepper (can't handle the he
 
 Add a generous pinch of salt and a few grinds of black pepper and give it a good mix up – this is your spice mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601539558885-x200.jpg)
 
 ### Step 4
 
 Coat the chicken breast strips in the flour, tap off the excess, then add them into the speedy Marmite buttermilk and finally press them into the spice mix firmly to evenly coat all over – these are your Marmite coated chicken strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601539568415-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the Marmite coated chicken strips and cook for 5-7 min on each side or until the chicken is crispy and cooked through (no pink meat!) – these are your Marmite fried chicken strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601539603017-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Add your carrot & cabbage slaw mix to a bowl with 1 tbsp<span class="text-danger
 
 Gently mix it all together – this is your slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601539613067-x200.jpg)
 
 ### Step 7
 

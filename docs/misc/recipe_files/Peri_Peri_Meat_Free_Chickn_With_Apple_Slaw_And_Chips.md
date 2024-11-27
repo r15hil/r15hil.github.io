@@ -28,6 +28,7 @@ This cheeky meat-free chicken dinner is so easy. For the Portuguese-style dressi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1621865852013-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a large baking tray (or two!) with a drizzle of vegetable oil a
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1621865856155-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a
 
 Roll the lemon[s] with your hand on a hard surface (to release more juice!) and cut in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1621865859662-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Combine your tomato paste, dried oregano, white wine vinegar, chopped garlic, c
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and a pinch of salt, then mix to combine – this is your peri peri sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1621865864243-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add half of the peri peri sauce (you'll use the rest later!) to a separate bowl 
 
 Set aside to marinate
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1621865868355-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Trim, then slice your spring onion[s] finely, keeping the whites and greens sepa
 
 Combine the remaining peri peri sauce with your mayo in a bowl – this is your perinaise
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1621865871654-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Combine the grated carrot, apple matchsticks, sliced spring onion whites and 1/
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621865876009-x200.jpg)
 
 ### Step 7
 

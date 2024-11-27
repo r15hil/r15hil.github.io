@@ -22,6 +22,7 @@ Goats' cheese and caramelised onion are a classic combo for a reason. However, c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1735.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ 395°F/ Gas 6
 
 Peel and finely slice the red onions
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1735.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,16 +43,19 @@ Once hot, add the sliced red onion with a generous pinch of salt and reduce the 
 
 Cover and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1735.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add the flaked almonds to a baking tray and put them in the oven for 3 min or until they've darkened slightly in colour (toasted)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1735.-step-4-x200.jpg)
 
 ### Step 4
 
 <span class="text-highlight">Crumble</span> the goats' cheese and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1735.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Combine the balsamic vinegar with a generous drizzle of olive oil and a large pi
 
 Slice the cherry tomatoes in half and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1735.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Once softened, add the onion marmalade to the red onion and cook for 1 min furt
 
 Remove the pan from the heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1735.-step-7-x200.jpg)
 
 ### Step 7
 

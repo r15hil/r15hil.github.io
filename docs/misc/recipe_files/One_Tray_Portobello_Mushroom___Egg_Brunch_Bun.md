@@ -22,6 +22,7 @@ Brunch just got better. Start your day strong with a one-tray Christmas brunch. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728571605746-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skins on) into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728571619595-x200.jpg)
 
 ### Step 2
 
@@ -38,11 +40,13 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Add your portobello mushroom[s] to the other side of the tray[s] and top with a drizzle of olive oil and a generous pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1728571667420-x200.jpg)
 
 ### Step 3
 
 Put the tray[s] in the oven for an initial 25-30 min or until the potatoes and mushroom[s] are tender and golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728571680127-x200.jpg)
 
 ### Step 4
 
@@ -50,6 +54,7 @@ Meanwhile, combine your ketchup with your cranberry sauce in a small bowl – th
 
 Boil a full kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728571693879-x200.jpg)
 
 ### Step 5
 
@@ -63,11 +68,13 @@ Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
 Add your brioche bun[s] on top of the potatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728571717408-x200.jpg)
 
 ### Step 6
 
 Return the tray[s] to the oven for 3-5 min or until the egg is done to your liking and the brioche is warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728571727375-x200.jpg)
 
 ### Step 7
 

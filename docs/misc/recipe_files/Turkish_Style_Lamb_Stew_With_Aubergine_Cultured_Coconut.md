@@ -30,6 +30,7 @@ To make a stew inspired by the Turkish dish, Alinazik kebab, you'll top couscous
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1642518108969-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the aubergine halves to a baking tray (or two!) with a generous drizzle of v
 
 Put the tray[s] in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642518116301-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add your lamb mince and cook for 3-4 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642518129619-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add your ground cumin to the lamb with your chilli flakes (can't handle the heat
 
 Add the tomato stock with a grind of pepper, reduce the heat to medium-low and cook for 15 min or until thickened and the lamb is cooked through (no pink meat!) – this is your Turkish-style lamb stew
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642518143213-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add the tomato and onion wedges to the tray[s] with a drizzle of olive oil and a
 
 Return the tray[s] to the oven for 15 min further or until the aubergine flesh has softened and everything is tender - these are your roasted vegetables
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1642518149972-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Dissolve the remaining beef stock mix in 200ml <span class="text-purple">[300ml]
 
 Add your couscous to the large bowl with the beef stock, stir it all together, then cover with a tea towel and set aside until all of the stock has been absorbed
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642518160145-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Tip: Carefully hold the stalks (they will be hot!) to scrape the flesh out easil
 
 Chop the scooped aubergine flesh finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642518170443-x200.jpg)
 
 ### Step 7
 

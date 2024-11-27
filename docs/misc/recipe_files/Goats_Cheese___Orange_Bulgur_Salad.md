@@ -27,6 +27,7 @@ For this citrusy salad, you'll roll creamy goat cheese in honey and spiced-roast
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1709051216100-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709051219582-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the onion wedges to a tray (or two!) with a drizzle of olive oil and a pinch
 
 Put the tray[s] in the oven for an initial 10 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709051222872-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once coated, add the nuts to the tray[s] with the onion wedges and return to the
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1709051226020-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Combine the juice of half your<span class="text-danger"> </span>orange[s] with y
 
 Peel and slice the remaining orange finely and chop each slice into quarters
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1709051230534-x200.jpg)
 
 ### Step 5
 
 Chop your parsley and chives finely together, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709051234085-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Combine half the chopped spiced nuts (save some for garnish!) with the orange ze
 
 Add your goats' cheese rounds to the plate and roll, pressing the nuts into the cheese, until fully coated – this is your rolled goats' cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709051236999-x200.jpg)
 
 ### Step 7
 

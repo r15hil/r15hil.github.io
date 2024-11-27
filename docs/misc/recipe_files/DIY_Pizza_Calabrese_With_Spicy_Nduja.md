@@ -26,6 +26,7 @@ This spicy Calabrian pizza is sure to blow your socks off. You'll make your no-k
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599141775604-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your dried yeast to a large bowl with 100ml <span class="text-purple">[150m
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599141787071-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid out
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599141795947-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Pick your basil leaves from their stems, discard the stems
 
 Break your ‘Nduja into small bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599141810323-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Tip the dough ball out onto a floured work surface and cut into 1 per person
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599141816960-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Tip: Dust with extra sprinkles of flour as you go to stop it sticking!
 
 Heat a large, dry, wide-based pan (or two!)<span class="text-danger"> </span>(preferably non-stick) over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599141827943-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Tip: To pick up the pizza dough, gently flip it over the back of your hand to st
 
 Add your pizza sauce to each pizza base and spread it evenly with the back of a spoon (be careful of the hot pan!) then cook the pizza base for 3-4 min or until the crust has started to puff up, then remove the heated tray[s] from the oven and slide the pizza bases onto the tray[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599141843799-x200.jpg)
 
 ### Step 7
 

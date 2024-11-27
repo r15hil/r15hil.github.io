@@ -25,6 +25,7 @@ This pizza tastes like pepperoni, only better! For smoky, meaty flavour you'll t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1797.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Put a large baking tray (or two!) in the oven to heat up (this will stop the piz
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1797.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch of 
 
 Add 5 tbsp [<span class="text-purple">7 1/2 tbsp]</span><span class="text-danger"> [10 tbsp]</span> cold water and give everything a good mix up – this is your tomato sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1797.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,11 +51,13 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655813293570-x200.jpg)
 
 ### Step 4
 
 Chop your cherry tomatoes in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655813323058-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Remove the heated tray[s] from the oven and add your naan[s]
 
 Divide the tomato sauce between the naan[s] and spread it evenly all over them
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655813325582-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Sprinkle over your dried oregano
 
 Put the tray[s] in the oven for 13-15 min or until the chorizo is cooked through – these are your chorizo pizzas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1797.-step-7-x200.jpg)
 
 ### Step 7
 

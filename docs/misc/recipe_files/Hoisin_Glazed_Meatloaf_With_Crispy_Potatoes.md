@@ -31,6 +31,7 @@ An Asian-inspired spin on the classic roast. You'll marinate pork mince with chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661880385990-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel (scrape the skin off with a teaspoon) and grate your ginger, then cut your 
 
 Add your pork mince (remove the paper if required!) to a bowl with the diced shallot, panko breadcrumbs and half of the chopped garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661880392011-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add your ground coriander, half of the chopped chilli (can't handle the heat? Go
 
 Using clean hands, knead the pork mixture thoroughly until fully combined, then add it to one side of a tin foil-lined baking tray (or two!) and shape into a loaf[ves]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661880399989-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the chopped potatoes to the other side of the tray[s]
 
 Add a drizzle of olive oil to the potatoes and a pinch of salt and a good grind of pepper and give them a good mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661880409804-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Put the tray[s] in the oven for 35-40 min or until the meatloaf[ves] is cooked t
 
 Meanwhile, combine your hoisin sauce and Chinese rice wine in a small bowl – this is your hoisin glaze
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661880415749-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once the meatloaf[ves] is cooked through, pour half of the hoisin glaze over the
 
 Return the tray[s] to the oven for a final 5 min or until golden and sticky – this is your hoisin-glazed meatloaf
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661880419908-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Once everything is almost done, heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661880433770-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Fire-up dinner with this fragrant feast. You’ll fold basa, lime leaves and lem
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674578764475-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Slice 1/2 <span class="text-danger">[1]</span> red chilli into rounds and finely chop the remaining
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674578776824-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surfa
 
 Combine the Chinese rice wine and soy sauce in a small bowl with the toasted sesame oil, the juice of the lime<span class="text-danger">[s]</span> and a splash of cold water – this is your marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674578785467-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Top the basa with half the chopped ginger, the chopped chilli (can't handle the 
 
 Divide the marinade evenly over each basa fillet, then scrunch the edges of the baking paper together around the basa to form a sealed parcel
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674578798187-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and sugar and cook for 15 min or until they have softened and caramelised
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674578807806-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat, add the carrot ribbons and set aside (lid on) to steam until serving – this is your ginger & carrot rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674578817081-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Wash the spinach, then pat it dry with kitchen paper
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674578827952-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ To whip up this twist on a Mauritian delight, you'll pan-fry fish in mustard spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585754216281-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Peel and finely chop 1/4 <span class="text-danger">[1/2]</span> red onion
 
 Chop the cherry tomatoes finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585754224717-x200.jpg)
 
 ### Step 2
 
 Add the chopped onion and tomato to a bowl with a generous drizzle of olive oil and a pinch of salt and pepper – this is your tomato & onion salad
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585754230797-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the onion petals with a pinch of salt and cook for 4-5 min or until beginning to brown and soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585754236153-x200.jpg)
 
 ### Step 4
 
@@ -56,11 +60,13 @@ Add the sliced chilli (can't handle the heat? Go easy!), ground turmeric, fenugr
 
 Add 1 tbsp<span class="text-danger"> [2 tbsp] </span>vegetable oil, 1 tbsp<span class="text-danger"> [2 tbsp] </span>cold water and a pinch of salt and stir it all together – this is your spice paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585754243526-x200.jpg)
 
 ### Step 5
 
 Chop the basa fillets into large, bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1585754253196-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Add the cider vinegar and cook for 30 secs or until evaporated
 
 Add the spice paste and cook for 1-2 min further or until the fish is cooked through and everything's fragrant – this is your fish vindaye
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1585754258139-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ This pesto pasta is oh-so-easy. You’ll crisp up prosciutto before tossing in s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1730392331701-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679676575128-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Chop your sliced prosciutto roughly
 
 Chop your Tenderstem broccoli in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679676198413-x200.jpg)
 
 ### Step 3
 
 Dissolve your chicken stock mix in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[150ml]</span> boiled water with your sun-dried tomato pesto and soft cheese – this is your creamy pesto stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679676555997-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Drain the spaghetti and Tenderstem, reserving a cup of the starchy pasta water
 
 Reserve the pot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679676563512-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Return the reserved pot to a medium-high heat with a drizzle of olive oil
 
 Once hot, add the chopped prosciutto and cook for 2-3 min or until golden
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679676386174-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop your basil finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679676390405-x200.jpg)
 
 ### Step 7
 

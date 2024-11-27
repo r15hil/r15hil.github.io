@@ -33,6 +33,7 @@ Ready for the ultimate breakfast-dinner mash-up? You'll fry bacon lardons with m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1635258327509-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Once boiling, cook for exactly 8 min for perfect, mid-boiled eggs, then fill a b
 
 Reserve the pot for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1635258330120-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your bacon lardons and cook for 5-6 min or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1635258335185-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once done, set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635258339469-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Slice your chestnut mushrooms finely
 
 Chop your tomato[es] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1635258342737-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Once softened, add the chopped tomato, chopped garlic, sliced mushrooms and a kn
 
 Cook for 5-8 min or until the veg is tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1646410406827-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Peel the cooled eggs and cut them into quarters
 
 Combine your ketchup and sriracha (can't handle the heat? Go easy!) in small bowl – this is your spicy ketchup
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635258349289-x200.jpg)
 
 ### Step 7
 

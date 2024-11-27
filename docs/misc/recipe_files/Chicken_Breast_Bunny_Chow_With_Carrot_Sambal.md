@@ -32,6 +32,7 @@ Need a new twist on curry? Head to Durban, South Africa, with our take on their 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688471083682-x200.jpg)
 
 ### Step 1
 
@@ -45,6 +46,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688471134991-x200.jpg)
 
 ### Step 2
 
@@ -56,6 +58,7 @@ Once hot, add the diced potatoes and half the diced onion (you'll use the rest l
 
 Meanwhile, dissolve your chicken stock mix and tomato paste in 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[500ml]</span> boiled water – this is your tomato stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688471178002-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Once the potatoes are beginning to soften, add the diced chicken breast to the p
 
 Once golden, add the chopped garlic with the chopped ginger, garam masala, cayenne pepper (can't handle the heat? Go easy!) and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> flour and cook for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688471245928-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once fragrant, add the tomato stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook for 6-8 min or until everything is cooked through (no pink meat!) and the sauce has thickened to a curry-like consistency – this is your chicken breast curry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688471246955-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Chop your tomato[es] finely
 
 Chop your coriander finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688471314731-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Combine the grated carrot, chopped tomato and shredded lettuce in a large bowl w
 
 Season with a pinch of salt and a drizzle of olive oil and give everything a good mix up – this is your carrot sambal salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688471356191-x200.jpg)
 
 ### Step 7
 

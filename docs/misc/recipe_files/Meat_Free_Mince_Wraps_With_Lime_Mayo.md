@@ -27,6 +27,7 @@ For this plant-based supper, we're throwing Mexican inspiration in the mix with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581508457576-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel your red onion[s] and slice a few rings off, as finely as you can
 
 Finely chop the remaining onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581508467672-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the chopped onion and cook for 2-3 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581508473672-x200.jpg)
 
 ### Step 3
 
 Once starting to soften, add your meat-free mince and cook for 5-6 min or until browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581508483643-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Set aside for later – this is your quick-pickled onion
 
 Peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1581508478784-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Once the meat-free mince has browned, add your chopped garlic, dried oregano, gr
 
 Add 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> water and your soy sauce and cook for 4-5 min or until the mince is cooked and coated in the spices
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581508495751-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Wash, then remove 3 outer leaves per person from your lettuce, shred the inner c
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1667297466720-x200.jpg)
 
 ### Step 7
 

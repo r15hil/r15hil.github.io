@@ -26,6 +26,7 @@ This classic soup is packed with deliciously sweet peas and fresh herbs. Serve w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641896114567-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely slice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641896121683-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Put the tray[s] in the oven for 12-15 min or until golden and crispy
 
 Meanwhile, boil a full kettle and set some butter alternative aside near a warm place to get to room temperature for easy spreading later on
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641896126942-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the sliced onion with a generous pinch of salt and pepper and coo
 
 Add the chopped potato, chopped garlic and bay leaf[ves]<span class="text-danger"> </span>and cook for 1-2 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641896130674-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Strip your mint leaves from their stems, discard the stems
 
 Slice your ciabatta[s] in half and spread butter alternative on both bases
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641896135155-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Add one rasher of smoked streaky bacon to each ciabatta base (leave the remainin
 
 Add both the ciabatta bases and lids (cut side up) to the other side of the tray[s], then return the tray[s] to the oven for 5-6 min or until the cheeze has melted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641896139521-x200.jpg)
 
 ### Step 6
 
 Once the potatoes are fork-tender, add the mint leaves and blanched peas to the pot and cook for 2-3 min further
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641896142693-x200.jpg)
 
 ### Step 7
 

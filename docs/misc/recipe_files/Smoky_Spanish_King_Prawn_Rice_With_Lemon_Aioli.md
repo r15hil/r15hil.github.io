@@ -22,6 +22,7 @@ This 10-minute Spanish rice has everything a weeknight meal could need: smoky ki
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1626175973844-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626087813994-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Chop the green beans in half (cut them in one bunch for speed!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626087818092-x200.jpg)
 
 ### Step 3
 
 Once hot, add the roasted garlic paste, king prawns and halved green beans to the pan and cook for 5 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626087822593-x200.jpg)
 
 ### Step 4
 
@@ -60,16 +64,19 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626087835512-x200.jpg)
 
 ### Step 5
 
 Dissolve the veg stock mix in 100ml <span class="text-danger">[200ml]</span> boiled water – this is your veg stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626087867850-x200.jpg)
 
 ### Step 6
 
 Add the smoked paprika, heated basmati rice and veg stock to the pan and cook for a further 1-2 min or until the prawns are cooked through – this is your smoky Spanish king prawn rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626087860069-x200.jpg)
 
 ### Step 7
 

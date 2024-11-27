@@ -30,6 +30,7 @@ These cheesy enchiladas will transport you to the bustling streets of Mexico Cit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677698366434-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast with a pinch of salt and cook for 3 min or until the chicken is starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1677698373858-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Grate your cheddar cheese
 
 Drain and rinse your black beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677698378303-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once the chicken has started to brown, reduce the heat to medium-high, add the s
 
 Meanwhile, dissolve your chicken stock mix and tomato paste in 180ml <span class="text-purple">[270ml]</span><span class="text-danger"> [360ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677698385635-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once the onion has softened, add your ground cumin, chipotle paste (can't handle
 
 Once fragrant, add your tomato stock and drained black beans to the pan and cook for 4-5 min until the chicken is cooked through (no pink meat!) and a thick sauce remains – this is your enchilada filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677698395918-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Divide 3/4 of the enchilada filling (save some for later!) between your tortil
 
 Roll up your tortillas tightly – these are your enchiladas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677698410269-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Top with the remaining enchilada filling and grated cheese
 
 Put the dish in the oven for 10-12 min or until the cheese is golden and melted – these are your cheesy baked chicken breast enchiladas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677698420206-x200.jpg)
 
 ### Step 7
 

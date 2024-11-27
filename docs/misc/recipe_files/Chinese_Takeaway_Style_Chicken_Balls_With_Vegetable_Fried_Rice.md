@@ -27,6 +27,7 @@ Put down the takeaway menu and crank up the heat for this home-style Chinese. Yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1722594944804-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once cooked, transfer to a plate and set aside to cool, reserve the pot
 
 Take your chicken out of the fridge, open the packet and let it air
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1722595060669-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add 40g<span class="text-purple"> [60g]</span> <span class="text-danger">[80g]</
 
 Stir it all together until fully combined with no lumps, then set aside – this is your batter
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722595073012-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then slice your spring onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1722595079763-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Combine the remaining cornflour in a jug with 125ml <span class="text-purple">[1
 
 Add your tomato ketchup, remaining soy sauce and remaining rice vinegar with 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> sugar and mix it all together – this is your sweet & sour sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1722595085208-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once fragrant, add the cooked rice to the pot, give everything a good mix up and
 
 Once hot, remove the pot from the heat and set aside (lid on) until serving – this is your vegetable fried rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1722595090160-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the chopped chicken to a bowl with a sprinkle of flour and toss until the ch
 
 Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle of vegetable oil (enough to cover the whole base of the pan) over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1722595094590-x200.jpg)
 
 ### Step 7
 

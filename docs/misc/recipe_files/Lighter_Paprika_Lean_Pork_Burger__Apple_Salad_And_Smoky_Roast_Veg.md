@@ -27,6 +27,7 @@ Take a bite out of the Med. You'll build a burger with smoky lean pork patties, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720094836583-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top, tail, peel and chop your carrot[s] roughly
 
 Add your butternut squash cubes and chopped carrot to a baking paper-lined baking tray, drizzle with a little vegetable oil then season with half your ground smoked paprika (save the rest for later!) and a pinch of salt, mix everything up and put the tray in the oven for 20-25 min or until they're crispy – this is your smoky roast veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720094846490-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Season very generously with salt and pepper
 
 Divide and shape the mince into patties for 1 per person – these are your paprika lean pork burgers
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720094856842-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the onion rings and cook for 4-5 min or until the onion has start
 
 Once caramelised, set aside until serving and reserve the pan – these are your caramelised onion rings
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720094865594-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Slice your apple[s] (skin on) thinly
 
 Add the sliced apple to the salad dressing and give everything a good mix up – this is your dressed apple
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720094875225-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip the paprika lean pork burgers and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720094884377-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Wash your lettuce, then pat it dry with kitchen paper and shred
 
 Add the shredded lettuce to the dressed apple and give everything a good mix up – this is your apple salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720094892981-x200.jpg)
 
 ### Step 7
 

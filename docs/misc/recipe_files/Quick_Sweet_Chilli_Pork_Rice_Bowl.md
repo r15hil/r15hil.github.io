@@ -21,6 +21,7 @@ Whip up a steaming bowl of caramelised salty-sweet pork, rice and green beans. P
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/600.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Once boiling, reduce the heat to low and cook, covered, for 12-15 min or until a
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/600.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,21 +41,25 @@ Once hot, add the pork mince with a pinch of salt and pepper and cook for 2 min
 
 Tip: Add a little vegetable oil if the pan is looking a little dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/600.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, cut the green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1591635189578-x200.jpg)
 
 ### Step 4
 
 Add the chopped green beans to the pork mince and continue to cook for 5-7 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/600.-step-5-x200.jpg)
 
 ### Step 5
 
 In a small bowl combine the Chinese rice wine, toasted sesame oil, soy sauce, and chilli jam with a generous pinch of sugar – this is your sweet chilli sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/600.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -63,6 +69,7 @@ Cook for a further 3-4 min allowing the rice to crisp and brown a bit in the pan
 
 Chop the peanuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/600.-step-7-x200.jpg)
 
 ### Step 7
 

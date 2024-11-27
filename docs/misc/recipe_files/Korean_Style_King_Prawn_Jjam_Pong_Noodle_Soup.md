@@ -24,6 +24,7 @@ Take your taste buds on a trip to Korea with a fiery noodle soup that’s garlic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1616581012429-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616581030062-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add the sliced onion and cook for 8-10 min or until softened
 
 Once softened, add the chopped garlic and ginger and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616581063865-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Meanwhile, dissolve your vegetable stock mix, gochujang paste (can't handle the 
 
 Reboil a full kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616581072467-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop the green pak choi leaves from the stem[s]
 
 Trim off the roots and discard, then chop the white bases in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1616581082540-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and drizzle them with a little vegetable oil to prevent them from sticking, then set aside until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1616581095414-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the gochujang stock and cook for 2-3 min
 
 Add the halved white pak choi bases and cook for 3-4 min further or until tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1616581163166-x200.jpg)
 
 ### Step 7
 

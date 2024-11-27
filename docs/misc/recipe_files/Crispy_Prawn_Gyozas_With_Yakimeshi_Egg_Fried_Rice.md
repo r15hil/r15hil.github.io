@@ -28,6 +28,7 @@ It’s not Japanese home cooking without classic yakimeshi. Literally meaning �
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708419827475-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the cooked rice to a plate and spread it out flat to help cool down
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708419835259-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708419844601-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced carrot and sliced leek with a pinch of salt and cook for 4-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708419853988-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once softened, add half of the chopped garlic and half of your shichimi togarash
 
 Cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708419872562-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Remove from the heat, add your prawn gyozas and carefully add a splash of cold w
 
 Tip: Be careful when adding the water to the pan, it may splash!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708419910465-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once combined, push the rice to one side of the pan and crack your egg[s] into t
 
 Stir the egg[s] with a wooden spoon to break the yolk[s] and cook for 1-2 min until it resembles scrambled egg, then mix it all through the rice – this is your yakimeshi egg fried rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708419921324-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Swap out your tomato base for this cheesy pizza bianca. You’ll layer potato, m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1712068818337-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the sliced potato and onion wedges to a baking paper-lined baking tray (or t
 
 Put the tray[s] in the oven for 10-12 min or until slightly softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1712068823390-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ While the yeast is developing, drain your mozzarella, then pat and squeeze as mu
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1712068827256-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add your pizza base mix to the bowl with the yeast
 
 Gradually add up to 75ml <span class="text-purple">[115ml] </span><span class="text-danger">[150ml]</span> warm water (you may not need all of it), a little at a time, and gently mix with a plastic spatula until a sticky dough ball has formed
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1712068830852-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Press each dough ball in the centre and gently push outwards with your fingertip
 
 Tip: Dust with extra sprinkles of flour as you go to stop it sticking!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1712068834928-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Remove the tray[s] with the potato and onion from the oven and transfer the cook
 
 Add the pizza base[s] to the tray[s] and top with the cooked potato and chopped garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1712068838908-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Separate the cooked onion wedges so you end up with a pile of onion petals (care
 
 Season with a pinch of salt and pepper and add a drizzle of olive oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1712068842461-x200.jpg)
 
 ### Step 7
 

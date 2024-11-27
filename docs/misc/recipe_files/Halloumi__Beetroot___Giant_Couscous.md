@@ -22,6 +22,7 @@ We've tossed our giant couscous with crispy fried shallots and almonds for maxim
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/484.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Remove the halloumi from its package and press it firmly between kitchen roll or
 
 Slice the halloumi into thick sticks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/484.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Push to one side of the tray and set aside until step 5
 
 Preheat the grill to medium-high
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/484.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Drain and rinse briefly under cool water (to remove the excess starch which can 
 
 Set aside until step 7
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/484.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Peel,&nbsp;halve and slice the shallots finely
 
 Peel and finely chop (or grate) the garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/484.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Add the halloumi sticks to the opposite side of the tray
 
 Return the tray to the grill for a further 8-12 min or until the halloumi is golden, flipping halfway
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/484.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Whisk together until the sugar is dissolved - this is your dressing
 
 Roughly chop the dill, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/484.-step-7-x200.jpg)
 
 ### Step 7
 

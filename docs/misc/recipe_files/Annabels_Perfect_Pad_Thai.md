@@ -27,6 +27,7 @@ Introduce your family to a taste of the Orient with this popular dish from Annab
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1064.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the rice noodles&nbsp;to a shallow dish and cover them with&nbsp;cold water&
 
 Set the rice noodles aside to soak and soften&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1064.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Combine the cornflour, honey and 1 <span class="text-danger">[2]</span> soy sauc
 
 Add the chicken breast strips&nbsp;to the bowl, then set aside to marinate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1064.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and a pinch of sugar and cook for 5-6 min or until beginning&nbsp;to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1064.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Cook for 4-7 min or until tender with a slight bite
 
 Once cooked, drain and run them under cold water (this will stop them from sticking together!), then set aside&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1064.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,6 +96,7 @@ Add the&nbsp;egg<span class="text-danger">[s]</span><span class="text-danger">&n
 
 Once the chicken is cooked, transfer everything to a plate and keep the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1064.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,6 +111,7 @@ Meanwhile, crush peanuts with a rolling pin (keep them in the bag so you don't l
 
 Once tender, push the vegetables to one side of the pan, add the beaten egg and stir for 1 min or until the egg is scrambled&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1064.-step-7-x200.jpg)
 
 ### Step 7
 

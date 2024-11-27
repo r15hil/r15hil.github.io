@@ -28,6 +28,7 @@ This healthier peri peri chicken still packs a punch. Stuff in wholemeal pittas 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2012.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your sweet potato[es] (skin on) into wedges and add to a baking tray (or two
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are tender and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2012.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1/2
 
 Once hot, add the sliced onion with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and cook for 3-5 min or until starting to caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2012.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cut your chicken breast portion[s] in half across the middle – these are your 
 
 Peel and finely chop (or grate) your garlic and cut your lemon[s] in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2012.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the juice from your lemon[s], your soy sauce and 1/2 tbsp <span class="tex
 
 Add the chicken pieces to the paste and mix until fully coated – this is your coated chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2012.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the coated chicken to the other side of the pan and cook for 5 min on each s
 
 Tip: Cooking for 3 or more? Use 2 pans!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2012.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ While the chicken is cooking, wash and shred your lettuce finely, then pat it d
 
 Slice your tomato[es]<span class="text-danger"> </span>into rounds
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2012.-step-7-x200.jpg)
 
 ### Step 7
 

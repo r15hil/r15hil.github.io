@@ -24,6 +24,7 @@ This classic combo of squash and sage hails from the sunny plains of Emilia-Roma
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2083.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Scoop out the seeds and discard
 
 Slice finely into half-moons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2083.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Add the sliced butternut squash to a baking tray with a drizzle of vegetable oil
 
 Put the tray in the oven for 10-15 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2083.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,6 +72,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 5-6 min or unti
 
 Once softened, add the chopped garlic and baby leaf spinach and cook for 1-2 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2083.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -83,6 +87,7 @@ Stir the stock gradually into the roux and cook for 1-2 min
 
 Add the crème fraîche and stir well until combined – this is your white sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2083.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,6 +99,7 @@ Repeat this process until you end up with a final layer of lasagne sheets 
 
  Tip: You may need to layer differently depending on the size of your dish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2083.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -105,6 +111,7 @@ Pick the sage leaves from their stalks and layer them on top
 
 Sprinkle over the grated Italian hard cheese and a good grind of black pepper and put the dish in the oven for 30-35 min or until cooked through and golden – this is your squash &amp; sage lasagne
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2083.-step-7-x200.jpg)
 
 ### Step 7
 

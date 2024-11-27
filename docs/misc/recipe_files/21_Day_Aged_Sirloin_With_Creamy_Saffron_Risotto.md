@@ -28,6 +28,7 @@ This rich and elegant risotto is infused with saffron, the world's rarest spice.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1591624603540-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1591624620279-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the chopped onion with a pinch of salt and cook for 5-6 min or unt
 
 Once caramelised, add the chopped garlic and cook for 1 min further or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1591624629632-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile, dissolve your vegetable stock mix in 750ml<span class="text-purple">
 
 Once the garlic is fragrant, add your arborio rice to the pan and cook for 1 min, stirring to coat the grains in the oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1591624646428-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Whilst the risotto is cooking, slice your cherry tomatoes in half
 
 Once the risotto has been cooking for 25-30 min, heat a separate large, wide-based pan (preferably non-stick) over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1591624661118-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min o
 
 Once the steak is cooked, transfer to a plate to rest
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1591624668430-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once the risotto is cooked, add your Chinese rice wine, most of your grated It
 
 Season with a pinch of salt and cook for 1 min or until the cheese has melted – this is your creamy saffron risotto
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1591624684224-x200.jpg)
 
 ### Step 7
 

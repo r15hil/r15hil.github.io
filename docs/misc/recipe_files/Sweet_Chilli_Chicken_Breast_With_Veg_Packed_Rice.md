@@ -30,6 +30,7 @@ Got the hots for sweet chilli? You’re going to love chicken smothered in stick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686066937591-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Top, tail, peel and dice your carrot[s] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686066943482-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, add the diced carrot and reduce the heat to very low and cook, cov
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686066947585-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your chicken breast portion[s] and give everything a good mix up until fully
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686066951810-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Meanwhile, combine your honey, red chilli relish and 30ml <span class="text-purp
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686066955942-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add a couple of splashes of water and the sweet chilli sauce to the pan and cove
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686066959511-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add your blanched peas to a colander and pour boiled water all over to refresh t
 
 Once the rice is cooked, add the refreshed peas, black sesame seeds and remaining soy sauce and mix everything together – this is your veg-packed rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686066964352-x200.jpg)
 
 ### Step 7
 

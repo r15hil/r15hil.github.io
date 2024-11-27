@@ -25,6 +25,7 @@ Cumberland sausage adds a twist to these crispy pizzas. Top it with melty mozzar
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681664242997-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Put a large baking tray (or two) in the oven to heat up (this will stop the pizz
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1801.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your sausage meat (remove the paper if required!) to the pan and breaking it up into bite-sized pieces with a wooden spoon and cook for 5-7 min or until crispy and nearly cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1801.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch
 
 Add 5 tbsp<span class="text-purple"><span class="text-danger"> [7 1/2 tbsp]</span> [10 tbsp]</span> cold water and give everything a good mix up – this is your tomato sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1801.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1801.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Remove the heated tray[s] from the oven and add your pizza base[s]
 
 Divide the tomato sauce between the pizza base[s] and spread it evenly all over with the back of a spoon
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1801.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Sprinkle over your dried oregano and chilli flakes (can't handle the heat? Go e
 
 Put the tray[s] in the oven for 12-15 min or until the sausage is cooked through and the base[s] is crisp – this your sausage & shallot pizza[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1801.-step-7-x200.jpg)
 
 ### Step 7
 

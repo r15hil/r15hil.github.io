@@ -25,6 +25,7 @@ Aloo Tikki is a North Indian snack made from spiced mashed potatoes. We're servi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/938.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Sprinkle them with 1 tbsp <span class="text-danger">[2 tbsp]</span> sugar&nbsp;a
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/938.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Meanwhile, peel and chop the potatoes roughly into bite-size&nbsp;pieces
 
 Add the chopped&nbsp;potatoes to a pot of boiled water with a pinch of salt and cook over a high heat for 15 min or until fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/938.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Set aside&nbsp;
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/938.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Mash them until smooth
 
 Add the curry powder,&nbsp;ground cumin and 2-3 tbsp olive oil and season generously with both salt and pepper&nbsp;then give everything a good mix up&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/938.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Divide into 6 <span class="text-danger">[12]</span>&nbsp;pieces and roll each in
 
 Pat each ball down and sprinkle with a little extra flour - these are your Indian&nbsp;potato cakes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/938.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Transfer to some kitchen paper and season with salt&nbsp;
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/938.-step-7-x200.jpg)
 
 ### Step 7
 

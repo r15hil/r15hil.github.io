@@ -23,6 +23,7 @@ Get this simple Thai green haddock curry ready in a flash! It's easy peasy and p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622802713636-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1689936520653-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop your creamed coconut roughly (if required)
 
 Dissolve the chopped creamed coconut and soy sauce in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[340ml] </span>boiled water – this is your coconut stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1689936523475-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add your Thai green curry paste and ginger paste to the pan with a gen
 
 Tip: Be careful – the ginger will sizzle from the heat of the oil!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689936527988-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once fragrant, add the coconut stock and your chopped green beans to the pan a
 
 Once boiling, reduce the heat to medium and cook for 1-2 min or until beginning to thicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689936530719-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you’re cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689936533984-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Cook, covered, for 4-5 min or until cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689936537463-x200.jpg)
 
 ### Step 7
 

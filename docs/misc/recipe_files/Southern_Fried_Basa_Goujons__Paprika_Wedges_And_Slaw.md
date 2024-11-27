@@ -27,6 +27,7 @@ This Southern-fried feast is deliciously smoky. You’ll coat tender basa strips
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679048661967-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the wedges to a baking tray with half your ground smoked paprika (you'll use
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your paprika wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679048665787-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ While the wedges are cooking, chop your basa fillet[s] lengthways into finger-wi
 
 Pat dry with kitchen paper – these are your basa goujons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679048670629-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add your cornflour to a bowl with your vegetable stock mix, dried oregano, cayen
 
 Add a generous pinch of salt and pepper and mix it all together – this is your spiced cornflour
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679048675444-x200.jpg)
 
 ### Step 4
 
@@ -59,16 +63,19 @@ Add the basa goujons to the spiced cornflour
 
 Give everything a good mix up until the basa goujons are fully coated, then set aside – these are your coated basa goujons
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679048680122-x200.jpg)
 
 ### Step 5
 
 Meanwhile, trim, then finely slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679048695472-x200.jpg)
 
 ### Step 6
 
 Add your carrot & cabbage slaw mix to a large bowl with your mayo and the sliced spring onions and mix it all together – this is your creamy slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679048690201-x200.jpg)
 
 ### Step 7
 

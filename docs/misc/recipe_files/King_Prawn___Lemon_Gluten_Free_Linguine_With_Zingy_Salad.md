@@ -25,6 +25,7 @@ To add a smoky twist to creamy pasta, you'll sizzle prawns, then toss in garlic,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1705664200735-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1705664204590-x200.jpg)
 
 ### Step 2
 
 While the linguine is cooking, peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1705664207417-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once hot, drain, then add your king prawns and cook for 3-4 min
 
 Add your ground smoked paprika, chopped garlic, chilli flakes (can't handle the heat? Go easy!) to the pan with your vegetable stock mix and 50ml <span class="text-purple">[62ml] </span><span class="text-danger">[75ml]</span> of the reserved starchy pasta water and cook for a further 1-2 min or until the prawns are cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1705664210385-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ While the prawns are cooking, cut your lemon[s]<span class="text-danger"> </span
 
 Roughly chop your cherry tomatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1705664213059-x200.jpg)
 
 ### Step 5
 
@@ -66,11 +71,13 @@ Wash your salad, then pat it dry with kitchen paper and add to a bowl with the c
 
 Add the zingy dressing and toss – this is your zingy salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1705664216214-x200.jpg)
 
 ### Step 6
 
 Add the drained linguine to the pan with the cooked prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1705664218698-x200.jpg)
 
 ### Step 7
 

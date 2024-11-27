@@ -29,6 +29,7 @@ Spice up your health goals in a flash with this tasty tandoori. You’ll pan fry
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720536478947-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop your potatoes (skins on) into bite-sized pieces, then add them to a pot wit
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720536481677-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add half your natural yoghurt and most of your curry powder to a large bowl (you
 
 Add your ground paprika and garam masala with a generous pinch of salt and give everything a good mix up – this is your Tandoori-style marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720536486296-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add your chicken breast strips to the Tandoori-style marinade
 
 Give everything a good mix up until the chicken is completely coated – this is your marinated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720536490733-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the marinated chicken breast strips and cook for 6-7 min on each s
 
 Tip: Cooking for 4 or more? Use 2 pans!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720536493944-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Top, tail and coarsely grate your carrot[s]
 
 Cut your lemon[s] into wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720536497385-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add a squeeze of lemon juice, a drizzle of olive oil and a pinch of salt and pep
 
 Give everything a good mix up – this is your zingy salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720536500643-x200.jpg)
 
 ### Step 7
 

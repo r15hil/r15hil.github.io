@@ -25,6 +25,7 @@ Prep this Moroccan-spiced chicken tray bake in 15 minutes! Then just bake until 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641296870906-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 180°C/ 160°C (fan)/ gas 4, then take your chicken out of t
 
 Combine the baharat, cumin seeds and ground cinnamon with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a generous pinch of salt and pepper in a small bowl – this is your spice rub
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641296874741-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Peel and cut the red onion<span class="text-danger">[s]</span> into wedges
 
 Top, tail, peel and cut the carrots into batons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1641296877162-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Pour over the spice rub and give everything a good mix up (clean hands are the b
 
 Make sure the chicken thighs are skin-side up on top of the other ingredients and season with a pinch of salt and pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1641296880696-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Put the tray<span class="text-danger">[s]</span> in the oven for 50-60 min or un
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1641296882685-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Once the chicken and vegetables have been in the oven for 45 min, boil a kettle
 
 Add the couscous, sun-dried tomatoes and sultanas to a heatproof bowl with 200ml <span class="text-danger">[400ml]</span> boiling water, cover and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1641296885505-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Combine the chopped dill with the coconut yoghurt in a small bowl and give it a 
 
 Chop the parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1641296888854-x200.jpg)
 
 ### Step 7
 

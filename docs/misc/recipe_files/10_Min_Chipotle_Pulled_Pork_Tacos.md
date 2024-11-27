@@ -25,6 +25,7 @@ With our British cooked pulled pork, you can have a taco favourite on the table 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1971.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. <span class="text-highlight">Make sure</span> you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1971.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -59,6 +61,7 @@ Trim, then chop the spring onion<span class="text-danger">[s]</span>
 
 Mix the spring onion and tomatoes and chop them together for 30 sec until combined then add to a bowl with a pinch of salt and set aside – this is your tomato salsa
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1971.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,6 +70,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pulled pork with the ground cumin and a pinch of salt and cook for 2-3 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1971.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,11 +79,13 @@ Meanwhile, dissolve the chipotle paste (can't handle the heat? Go easy!) and tom
 
 Once fragrant, add the spicy stock to the pan with the soy sauce and cook for 2-3 min further or until the sauce has thickened – this is your chipotle pulled pork
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1971.-step-5-x200.jpg)
 
 ### Step 5
 
 While the sauce is thickening, shred the little gem lettuce<span class="text-danger">[s]</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1971.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add the tortillas to a plate
 
 Put the plate in the microwave and cook for 1-2 min, or until the tortillas are warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1971.-step-7-x200.jpg)
 
 ### Step 7
 

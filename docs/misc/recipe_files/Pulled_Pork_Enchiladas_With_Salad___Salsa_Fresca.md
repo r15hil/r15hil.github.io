@@ -30,6 +30,7 @@ Bring the bold flavours of Mexican BBQ to your kitchen with pulled pork enchilad
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1666707383978-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Chop half of your tomato[es] roughly (save the rest for later!)
 
 Slice half your green chilli[es] finely and set aside for later, then chop the remaining green chilli roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1666707388995-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add your ground cumin, tomato paste, chipotle paste (not a fan of spice? Just ad
 
 Blitz until smooth – this is your chilli paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1666707392272-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Divide the enchilada filling between your tortillas
 
 Roll each tortilla up and arrange them into an oven-proof dish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1666707395944-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Spoon over the remaining chilli paste
 
 Put the dish in the oven for an initial 18-20 min or until bubbling and golden round the edges – these are your enchiladas
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1666707896501-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Wash your lettuce, then pat dry with kitchen paper and cut into quarters, length
 
 Grate your cheddar cheese finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1666707900030-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Chop the remaining coriander finely, including the stalks
 
 Combine the diced shallot and chopped tomato in a bowl with the chopped coriander, juice of the remaining lime[s], a drizzle of olive oil and a pinch of salt and give everything a good mix up – this is your salsa fresca
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1666707903614-x200.jpg)
 
 ### Step 7
 

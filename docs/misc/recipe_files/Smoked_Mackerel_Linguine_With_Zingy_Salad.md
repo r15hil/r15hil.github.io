@@ -22,6 +22,7 @@ The smoky, savoury flavour of mackerel pairs perfectly with this creamy linguine
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/907.-step-2-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Cook the linguine for 8-10 min or until it's cooked with a slight bite
 
 Once done, drain and reserve a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1718090475258-x200.jpg)
 
 ### Step 2
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1718090484904-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Peel the skin off your smoked mackerel fillet[s]<span class="text-danger"> </spa
 
 Tear the smoked mackerel into rough pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/907__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Wash your salad, then pat it dry with kitchen paper
 
 Toss the salad in the zingy dressing, then set this aside until serving – this is your zingy salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-broken-up-1666714689733-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once hot, add the sliced garlic and cook for 30 secs or until it starts to sizzl
 
 Add the torn smoked mackerel and cook for 1 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/907.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add your soft cheese and cook for 1-2 min, stirring until everything is combi
 
 Tip: Add a splash more starchy pasta water if the sauce is looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/907__-step-7-x200.jpg)
 
 ### Step 7
 

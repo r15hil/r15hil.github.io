@@ -27,6 +27,7 @@ Try your hand at our twist on "galinhada" (gah-leen-ya-dah). It's a Brazilian-in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1610471178337-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chicken thighs to a bowl with the ground smoked paprika and a pinch of s
 
 Give it all a good mix up until the thighs are evenly coated with the spice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610471182521-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once crisp, transfer to a baking tray and set aside (reserve the pan)
 
 Tip: It’s okay if they’re a little pink on the inside, they’ll get cooked more later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610471191833-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Roll the lemon<span class="text-danger">[s] </span>with your hand on a hard surf
 
 Chop the coriander finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1610471205916-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Meanwhile, rinse the white long grain rice until the water runs clear
 
 Once fragrant, add the white long grain rice to the pan with a pinch of salt and stir until coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1610471224747-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Dissolve the chicken stock mix in 2250ml <span class="text-danger">[450ml]</span
 
 Add the saffron stock to the pan and give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610471230248-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once the rice is cooked through, add the blanched peas to the pan and mix everyt
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610471239641-x200.jpg)
 
 ### Step 7
 

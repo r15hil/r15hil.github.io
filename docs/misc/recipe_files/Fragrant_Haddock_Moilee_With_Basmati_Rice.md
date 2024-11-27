@@ -29,6 +29,7 @@ Take a trip to sunny Southern India with a rich, coconutty fish curry. Inspired 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581673053556-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581673063432-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581673068650-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581673074046-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once the onion has softened, add the chopped ginger, garlic and chilli (can't ha
 
 Add a very generous grind of black pepper and cook for 2-3 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581673079113-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Dissolve your vegetable stock mix and the chopped creamed coconut in 200ml <span
 
 Chop your tomato[es] into wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581673084140-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Pat your haddock bites dry with kitchen paper
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581673089495-x200.jpg)
 
 ### Step 7
 

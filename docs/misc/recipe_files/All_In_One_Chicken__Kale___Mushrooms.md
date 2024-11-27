@@ -23,6 +23,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1820.-step-1.a-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil a kettle
 
 Chop the chicken thighs in to bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1820.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once hot, add the chopped chicken thighs and cook for 2-3 min on each side or un
 
 Transfer the browned chicken to a plate and set aside, reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1820.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel and finely chop (or grate) the garlic
 
 Slice the chestnut mushrooms finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1820.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the chopped onion and cook over a medium heat for 3-5 min or until
 
 Once softened slightly, add the chopped garlic and mushrooms and cook for a further 2 min or until the garlic is fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1820.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Dissolve 1/2 <span class="text-danger">[1]</span> <span class="text-highlight">
 
 Add the cream cheese and Dijon mustard and give everything a good mix up – this is your creamy chicken stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1820.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Increase the heat to high and add the creamy chicken stock, chopped potatoes a
 
 Bring to the boil then reduce the heat to medium-low and cook, covered, for 10-15 min or until the potatoes are cooked through, stirring occasionally
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1820.-step-7-x200.jpg)
 
 ### Step 7
 

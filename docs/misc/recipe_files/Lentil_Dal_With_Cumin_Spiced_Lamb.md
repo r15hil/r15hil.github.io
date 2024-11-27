@@ -27,6 +27,7 @@ Here’s our tasty take on an Indian staple. This rich red lentil dal is topped 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1726751448064-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once hot, add the diced onion with a pinch of salt
 
 Cook for 5 min or until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1726751474678-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Once starting to soften, add the chopped ginger and half the chopped garlic (you'll use the rest later!) to the pan with half your ground cumin (save the rest for later!) and your curry powder and cook for a further 2-3 min until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1726751644828-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Dissolve your vegetable stock mix in 650ml<span class="text-danger"> <span class
 
 Once fragrant, add the rinsed lentils and vegetable stock with a pinch of salt to the pan and cook for 15-20 min, stirring occasionally, until all the water is absorbed and the lentils are tender and porridge-like in consistency
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1726751651031-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ While the lentils are cooking, add your basmati rice to an oven-proof dish with 
 
 Cover tightly with tin foil and put the dish in the oven for 25-30 min or until all the water is absorbed and the rice is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1726751657530-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your parsley finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1726751663459-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, add your lamb mince and a generous pinch of salt, then cook for 6-7 mi
 
 Once browned, add the remaining garlic and remaining ground cumin and cook for 1 min or until fragrant and cooked through (no pink meat!) – this is your cumin spiced lamb
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1726751670935-x200.jpg)
 
 ### Step 7
 

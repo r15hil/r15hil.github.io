@@ -22,6 +22,7 @@ Our secret to a crisp, flavourful "beer" batter isn't beer at all... it's Marmit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617708271498-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Peel the potatoes and chop them into chunky chips, then add them to a pot with p
 
 Once boiling, reduce the heat to medium and cook for 6-8 min or until slightly softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617708285776-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Combine the chopped shallot with the mayo and the juice of 1/2<span class="text-
 
 Season with a pinch of salt and give everything a good stir – this is your lemon mayo
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617708305798-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Season them with salt and turn them a few times until they're fully coated in th
 
 Put the tray in the oven for 30 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617708319476-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add 60g <span class="text-danger">[120g] </span>flour to a separate large bowl w
 
 Stir everything together thoroughly until there are no lumps, then set aside for later – this is your batter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617708380397-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Season the basa with a pinch of salt and sprinkle both sides with flour until fu
 
 Reboil a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617708399451-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the pan is hot, dip the floured basa into the batter and turn it several ti
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1618326586921-x200.jpg)
 
 ### Step 7
 

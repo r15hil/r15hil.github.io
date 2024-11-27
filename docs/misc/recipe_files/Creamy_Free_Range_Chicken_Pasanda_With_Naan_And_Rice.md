@@ -30,6 +30,7 @@ Pasanda means "favourite" in Urdu, possibly because it's such a crowd-pleaser. T
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688471040576-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and lig
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688471044355-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Return the pan to a medium-high heat with a generous drizzle of vegetable oil
 
 Once hot, add the chopped onion with a pinch of salt and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688471051555-x200.jpg)
 
 ### Step 3
 
@@ -59,11 +62,13 @@ Once the onion has softened, add the chopped ginger and garlic with your garam m
 
 Tip: Add a little more oil if the pan looks a little dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688471315750-x200.jpg)
 
 ### Step 4
 
 Meanwhile, chop your free range chicken breast portion[s] into large, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688471062156-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1688471233894-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Chop your creamed coconut roughly (if required!)
 
 Add your chicken stock mix with your ground almonds, chopped tomatoes, chopped creamed coconut and a pinch of sugar and cook for 8-10 min further, stirring occasionally, or until the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1688471206184-x200.jpg)
 
 ### Step 7
 

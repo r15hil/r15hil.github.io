@@ -29,6 +29,7 @@ The umami-rich yakitori sauce is the star of this dish. You'll use it to glaze s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2136Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
 Chop your sweet potato[es] (skins on) into large, bite-sized pieces and add to a non-stick baking paper-lined tray (or two!) with a drizzle of vegetable oil and a pinch of salt and put the tray[s] in the oven for an initial 25 min or until starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2136Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ Cut your chicken breast portion[s] into bite-sized pieces
 
 Trim, then cut half your spring onion[s] into small, bite-sized pieces and slice the rest finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2136Step-3-x200.jpg)
 
 ### Step 3
 
 Thread the chicken pieces and spring onion pieces evenly onto the soaked skewers – these are your chicken skewers
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2136Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the chicken skewers to a separate baking tray (or two!) and put the tray[s] 
 
 Tip: You'll cook these more later!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2136Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Halve your cucumber lengthways then scrape out and discard the seeds using a t
 
 Slice the cucumber halves finely into half moons and add them to a separate bowl with the remaining rice vinegar and a pinch of salt – this is your quick-pickled cucumber
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2136Step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add the yakitori sauce to a pot over a medium heat and cook for 5 min or until i
 
 Tip: Watch the sauce like a hawk to make sure it doesn't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2136Step-7-x200.jpg)
 
 ### Step 7
 

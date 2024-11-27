@@ -26,6 +26,7 @@ Stir fries don’t get much better than this. In 10 minutes, you'll serve up swe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1730458773401-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1730458781122-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add your wholewheat noodles to a pot with a pinch of salt and cover them with bo
 
 Bring to the boil over a high heat and cook for 5-6 min or until cooked with a slight bite
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1730458791173-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ While the noodles are cooking, heat a large, wide-based pan (preferably non-st
 
 Once the pan is hot, add your lean pork mince with your ginger & garlic paste and a pinch of salt and cook for 6-7 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1730458797991-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Once the noodles are almost cooked, add the halved mangetout and cook for 1 min 
 
 Once cooked, drain, reserving a cup of the starchy noodle water and keep to one side
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1730458805533-x200.jpg)
 
 ### Step 5
 
 Trim, then chop your spring onion[s]<span class="text-danger"> </span>roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1730458813122-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the lean pork mince has browned, add your soy sauce, red chilli relish and 
 
 Cook for 1 min further or until thickened and cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1730458818893-x200.jpg)
 
 ### Step 7
 

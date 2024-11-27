@@ -26,6 +26,7 @@ Take it easy with a one pot twist on jambalaya, packed with halloumi and smoky S
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714464509600-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then slice your spring onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714464513308-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the diced halloumi
 
 Cook for 2-3 min, turning occasionally or until very lightly golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714464516663-x200.jpg)
 
 ### Step 3
 
@@ -53,16 +56,19 @@ Once golden, remove the pot from the heat
 
 Add the diced pepper and chopped garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714464521024-x200.jpg)
 
 ### Step 4
 
 Add a small knob of butter with your ground smoked paprika, dried thyme and southern fried seasoning
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714464524819-x200.jpg)
 
 ### Step 5
 
 Add your tomato paste and vegetable stock mix with your white long grain rice and give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714464532190-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Reduce the heat to very low and cook, covered, for 13-16 min or until the rice i
 
 Tip: Stir halfway through, to stop it sticking!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714464535924-x200.jpg)
 
 ### Step 7
 

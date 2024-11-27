@@ -30,6 +30,7 @@ Banish the chill with this smoky Spanish-style dish. You’ll crisp up juicy por
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1725454313684-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-56-1725454323385-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Boil half a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a little drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-61-1725454336137-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the scored pork belly, fat-side down, to the dish and cook for 2 min or unti
 
 Transfer the pork belly to a plate and reduce the heat to medium
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-54-1725454342909-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Cut your potatoes (skins on) into wedges
 
 Deseed your sweet pointed pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and cut into thick strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-56-1725454348113-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add your ground cumin, ground coriander, half your dried oregano and half your g
 
 Give everything a good mix up and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-56-1725454352371-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Wash your salad, pat dry with kitchen paper and set aside
 
 Once the pork has had 30 min, remove the dish from the oven and add the chopped red pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-55-1725454355907-x200.jpg)
 
 ### Step 7
 

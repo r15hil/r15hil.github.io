@@ -27,6 +27,7 @@ Wait, is that pesto? Think again. Mind-bending, mouthwatering and inspired by Th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1662482079165-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Boil a kettle
 
 Trim the green stalk[s] off your aubergine[s] and chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1662482090189-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the chopped aubergine with a generous pinch of salt and cook for 10-12 min or until golden and tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1662482094128-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Chop your green chilli[es] in half lengthways and deseed (scrape the seeds out w
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1662482098043-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1662482100969-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Blitz until smooth – this is your Thai green curry pesto
 
 Tip: Don't have a food processor? Finely chop the ingredients and grind in a pestle & mortar instead!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1662482103807-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Chop your cherry tomatoes in half
 
 Chop the remaining roasted peanuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1662482108693-x200.jpg)
 
 ### Step 7
 

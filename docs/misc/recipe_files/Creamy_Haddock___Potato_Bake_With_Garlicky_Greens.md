@@ -23,6 +23,7 @@ This mouthwatering bake is inspired by the Portuguese favourite, "Bacalhau com n
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1644840989385-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Peel and finely slice (don't chop!) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1644840996759-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add all the chopped potatoes to the pan with a pinch of salt and cook for 10-12 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1644841005103-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Meanwhile, heat a separate large, wide-based pan (preferably non-stick) with a d
 
 Once hot, add the sliced onion and bay leaf<span class="text-danger">[ves]</span> with a pinch of salt and cook for 4-5 min or until the onion is starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1644841015343-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Stir in 200ml <span class="text-danger">[350ml]</span> milk – this is your cre
 
 Once the onion has softened, add the haddock bites to the pan with 1.5 tbsp <span class="text-danger">[3 tbsp] </span>flour, give everything a good mix up and cook for 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1644841026265-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Meanwhile, grate the cheddar cheese
 
 Once the sauce has thickened, add the browned potatoes (reserve the pan) and a grind of black pepper to the pan with the fish and mix everything together – this is your creamy haddock mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1644841051983-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Transfer the creamy haddock mixture to an oven-proof dish and pour over the rema
 
 Season with a grind of black pepper and put the dish in the oven for 15-20 min or until the potatoes are cooked through and the cheese is melted and golden – this is your creamy haddock & potato bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1647257706069-x200.jpg)
 
 ### Step 7
 

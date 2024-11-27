@@ -23,6 +23,7 @@ This West African inspired stew is packed with butternut squash, shredded kale a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/903_step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/903_step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,21 +53,25 @@ Once hot, add the sliced onion and cook for 6-8 min or until starting to caramel
 
 Once caramelised, add the ras el hanout and cook for 1 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/903_step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve the vegetable stock cube<span class="text-danger">[s]</span>, peanut butter, ground almonds and 1 tsp <span class="text-danger">[2 tsp]</span> sugar&nbsp;in 450ml <span class="text-danger">[700ml]&nbsp;</span>boiled water &ndash;&nbsp;this is your nut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/903_step-4-x200.jpg)
 
 ### Step 4
 
 Once fragrant, add the butternut squash cubes to the ras el hanout and cook for 1-2 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/903_step-5-x200.jpg)
 
 ### Step 5
 
 Add the nut stock and cook, covered, for 8-10 min or until the butternut squash is fork tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/903_step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Meanwhile,&nbsp;chop the coriander finely, including the stalks (save some leave
 
 Cut the&nbsp;red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop ﬁnely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/903_step-7-x200.jpg)
 
 ### Step 7
 

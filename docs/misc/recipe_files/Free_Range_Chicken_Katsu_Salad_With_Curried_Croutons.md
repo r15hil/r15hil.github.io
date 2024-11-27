@@ -27,6 +27,7 @@ Katsu this takeaway twist while you can. You’ll pan-fry breaded free range chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1693291399239-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
 Slice your red chilli[es] finely, then combine the sliced red chilli (can't handle the heat? Go easy!) with 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp]</span> [2 tsp] </span>sugar and half your rice vinegar (save the rest for later!) and give everything a good mix up – this is your quick-pickled chilli
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1693291403243-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tear your ciabatta[s] into bite-sized pieces
 
 Add the chopped creamed coconut to a medium bowl with half your curry powder (save the rest for later!), a pinch of salt and 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water and stir to combine – this is your crouton marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1693291407664-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Put the tray in the oven for 15-20 min or until the croutons are crispy around t
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1693291410625-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once fragrant, transfer it to a bowl and reserve the pan
 
 Add your mango chutney and soy sauce to the bowl with the remaining rice vinegar and mix it all together – this is your katsu dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1693291415002-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add the free range chicken breast portion[s] to a chopping board and cover with 
 
 Bash the chicken with a rolling pin until evenly flattened – this is your chicken escalope
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1693291418295-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add your panko breadcrumbs and your ground turmeric to a plate and season with a
 
 Coat the chicken escalope in a drizzle of vegetable oil, then press into the panko mix firmly to evenly coat all over – this is your coated chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1693291421254-x200.jpg)
 
 ### Step 7
 

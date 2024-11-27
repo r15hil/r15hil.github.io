@@ -28,6 +28,7 @@ Give this classic Japanese curry the ultimate fakeover. You’ll dip juicy free 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687858756692-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span c
 
 Remove the pot from the heat and keep covered for a further 10 min before serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687858761181-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Finely chop (or grate) your remaining ginger
 
 Add the peeled ginger to a small bowl, cover with boiled water and set aside for later – this is your soaked ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687858764489-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Heat a separate pot with a generous drizzle of vegetable oil over a medium heat
 
 Once hot, add the chopped ginger, onion, garlic and a generous pinch of salt and cook for 4-5 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687858766646-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once fragrant, add 300ml <span class="text-purple">[390ml] </span><span class="t
 
 Cook for 6-7 min or until the sauce has thickened to a curry-like consistency, then blitz until smooth with a (stick) blender – this is your curry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687858770295-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Crack your egg[s] into a shallow bowl and beat lightly, add 2 tbsp<span class="t
 
 Coat the flattened chicken in the flour, then add to the beaten egg and firmly press into the seasoned breadcrumbs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687858773403-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the breaded free range chicken and cook for 5-6 min on each side 
 
 Tip: Cooking for 4 or more? Use 2 pans!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687858776220-x200.jpg)
 
 ### Step 7
 

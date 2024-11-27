@@ -25,6 +25,7 @@ For this warm summer salad, you'll roast courgette, aubergine and croutons infus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624886726326-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Trim the green stalk[s] off your aubergine[s] and cut into bite-sized pieces
 
 Top, tail and slice your courgette[s] into discs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624886737847-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Add the chopped aubergine and sliced courgette to a baking tray with a drizzle o
 
 Put the tray in the oven for 20-25 min or until tender – these are your roast vegetables
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624886747677-x200.jpg)
 
 ### Step 3
 
 Meanwhile, chop your cherry tomatoes in half and tear your bread roll[s] into large bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624886761911-x200.jpg)
 
 ### Step 4
 
@@ -55,11 +59,13 @@ Add the halved tomatoes and torn bread to a bowl with your dried basil, 2 tbsp <
 
 Mash the tomatoes together with the torn bread so that the juice soaks into the bread – these are your tomato croutons
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624886769350-x200.jpg)
 
 ### Step 5
 
 Add the tomato croutons to a separate baking tray (or two!) and put in the oven for 12-15 min or until golden and crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624886777352-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Whilst everything’s cooking, combine your Dijon mustard with your cider vinega
 
 Mix everything together – this is your tangy mustard dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624886822882-x200.jpg)
 
 ### Step 7
 

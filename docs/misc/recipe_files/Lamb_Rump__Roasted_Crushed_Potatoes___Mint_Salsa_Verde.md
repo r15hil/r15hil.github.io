@@ -23,6 +23,7 @@ We're giving holiday traditions a twist with homemade salsa verde. This zingy co
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2067.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Boil a kettle
 
 Cut the waxy potatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2067.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the potatoes to a pot of boiling water with a large pinch of salt and cook o
 
 Once cooked, drain and return them to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2067.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once hot, add the lamb rump and cook for 4-5 minutes, turning frequently, or u
 
 Once browned, transfer to a baking tray and set the pan and tray aside for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2067.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Drizzle the potatoes in vegetable oil and any remaining oil from the pan and sea
 
 Crush the potatoes lightly with a fork and put the tray in the oven for 20-25 minutes or until the lamb is pink and blushing on the inside and the potatoes are starting to crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2067.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Strip the mint leaves from their stems and chop them roughly
 
 Add the garlic, parsley and mint to a food processor with the chilli flakes (can't handle the heat? Go easy!), capers, Dijon mustard, red wine vinegar, 50ml <span class="text-danger">[100ml]</span> olive oil and a pinch of salt and blitz until smooth – this is your mint salsa verde
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2067.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Return the potatoes to the oven for 10 minutes further or until golden and crisp
 
 Meanwhile, boil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2067.-step-7-x200.jpg)
 
 ### Step 7
 

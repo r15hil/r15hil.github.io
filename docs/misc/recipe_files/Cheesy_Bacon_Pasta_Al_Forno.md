@@ -24,6 +24,7 @@ This easy, creamy bake is a real crowd-pleaser: bacon, cheese and pastaâ€¦ whatâ
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1192.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the tortiglioni&nbsp;to a pot of boiled water with a large pinch of salt and
 
 Once done, drain the tortiglioni, reserving 150ml <span class="text-danger">[250ml]</span> of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1192.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the&nbsp;chopped bacon and cook for 5-6 min or until starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1192.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and finely dice the brown&nbsp;onion<span class="text-danger">[s]</span><br /><br />Once the bacon is crisp, reduce the heat to medium and add the diced onion and cook for 4-5 min further or until the onion has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1192.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,16 +69,19 @@ Peel and finely chop the garlic
 
 Combine the panko breadcrumbs with <span class="text-highlight">the&nbsp;chopped garlic, dried oregano,&nbsp;</span><span class="text-highlight">half the</span><span class="text-highlight"> grated cheese&nbsp;and a </span>generous pinch of black pepper &ndash;&nbsp;this is your cheesy crumb
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1192.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, stir through the cooked tortiglioni,&nbsp;cr&egrave;me<span class="text-highlight"> fra&icirc;che</span>, remaining&nbsp;grated cheese and reserved starchy pasta water<br /><br />Season with a generous pinch of black pepper and cook for 1 min or until the cheese has melted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1192.-step-6-x200.jpg)
 
 ### Step 6
 
 Transfer the bacon &amp; cheese pasta to an oven-proof dish (or use 2 <span class="text-danger">[4]</span> individual dishes!) then top with the cheesy crumb&nbsp;and put the dish in the oven for 15 min or until it's golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1192.-step-7-x200.jpg)
 
 ### Step 7
 

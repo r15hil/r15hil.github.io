@@ -26,6 +26,7 @@ We’re still wrapping our heads ‘round this one. For our Mexican-inspired Chr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637061019856-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once melted, add the ground allspice and white long grain rice and cook for 30 s
 
 Once boiling, reduce the heat to very low and cook, covered, for 18-20 min or until the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637061023692-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add half the sliced red onion with a pinch of salt and cook for 5-6 min or until softened and starting to caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637061026226-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add the remaining sliced red onion to a medium bowl with a pinch of salt and the white wine vinegar and set aside to pickle – this is your quick-pickled onion
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637061029494-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Season with a generous pinch of salt and pepper and cook for 10-12 min or until 
 
 Cut the remaining lime into wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637061032024-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Give everything a good mix up, then spread them out as much as you can
 
 Put the tray in the oven for 6-8 min or until lightly browned and crisp – these are your tortilla chips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637061036008-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Chop the tomato<span class="text-danger">[es] </span>and coriander roughly, incl
 
 Add the chopped sprouts, tomato and coriander to the quick-pickled onion with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and pepper – this is your sprout salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637061038977-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ This salad is simple yet delicious! Tumble nutty black rice with fresh rocket wh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Brown-rice-in-pan-1680001937912-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling reduce the heat to medium and cook for 20-25 min or until it's tend
 
 Once cooked, drain and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/798.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cut your lemon[s] in half
 
 Chop your parsley finely, including the stalks, separating the stalks from the leaves
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/798.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Wash your salad and pat dry with kitchen paper, then chop it roughly
 
 Heat a large, wide-based pan (preferably non-stick) with 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>olive oil over a medium-low heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/798.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, carefully add the sliced garlic and cook until very slightly golden th
 
 Sprinkle your garlic crisps with a pinch of salt and set aside until serving, keeping the pan and garlic oil for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/798.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Return the pan of garlic oil to a medium-high heat
 
 Once hot, add the chopped cherry tomatoes and parsley stalks with a generous pinch of salt and cook for 3-4 min or until they're beginning to break down
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/798.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100m
 
 Once thickened, stir through the remaining chopped parsley and remove from the heat – these are your Andalusian-style jumbo prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/798.-step-7-x200.jpg)
 
 ### Step 7
 

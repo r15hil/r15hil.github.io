@@ -33,6 +33,7 @@ This mouthwatering one-pot is perfect after a long, busy day. You'll chop a few 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1685399570466-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Peel and slice your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1685399579144-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ Once hot, add the sliced onion and chopped pepper with a pinch of salt
 
 Cook for 2 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1685399583325-x200.jpg)
 
 ### Step 3
 
 Add your ground cumin, ground coriander, ground smoked paprika and chilli flakes (can't handle the heat? Go easy!) and cook for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1685399587385-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Cook for a further 2 min or until the mince is browned all over
 
 Add your basmati rice and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1685399592768-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once boiling, reduce the heat to low and cook, covered, for 10-15 min or until a
 
 Tip: Add a splash more water if it's looking a little dry!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1685399597016-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Strip your coriander leaves from their stalks and chop the stalks finely (save t
 
 Drain and rinse your black beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1685400970060-x200.jpg)
 
 ### Step 7
 

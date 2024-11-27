@@ -29,6 +29,7 @@ Cheat night treats don’t get better than this. Load up crispy homemade fries w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680001567524-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the fries to a baking paper-lined baking tray with a drizzle of vegetable oi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680001572899-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ While the fries are cooking, peel and finely dice the brown onion<span class="te
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680001577484-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion to the pan with a pinch of salt and pepper, 2/3 of the ground smoked paprika and half the dried basil (you'll use the rest later!) and cook for 5-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680001589156-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680001594157-x200.jpg)
 
 ### Step 5
 
 Combine the vegan mayo with the remaining dried basil, remaining ground smoked paprika, grated garlic and 1/3 of the white wine vinegar (save the rest for later!) – this is your smoky ranch dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680001600133-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Tip: Try not to stir too often so the mince gets nice and brown!
 
 Once browned, add the remaining white wine vinegar to the pan and cook for 30 secs or until evaporated
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680001604962-x200.jpg)
 
 ### Step 7
 

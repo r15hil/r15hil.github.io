@@ -26,6 +26,7 @@ Udon want to miss this one! You’ll caramelise pork mince in Marmite until cris
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610645051683-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603205995617-x200.jpg)
 
 ### Step 2
 
@@ -46,16 +48,19 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your pork mince (remove the paper if required!) to the pan and cook for 4-5 min, breaking it up with a wooden spoon as you go, until starting to brown and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603205999347-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add half of your Marmite (you'll use the rest later!) to a small bowl with your red chilli relish, peanut butter and soy sauce and mix until combined – this is your Marmite satay sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603206005598-x200.jpg)
 
 ### Step 4
 
 Once the pork mince has started to brown, add your ginger & garlic paste and remaining Marmite to the pan and cook for 1 min further or until caramelised
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603206008815-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once the pork has caramelised, add your udon noodles and spinach to the pan with
 
 Tip: Gently separate the noodles with a fork!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603206015030-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Meanwhile, trim, then slice your spring onion[s] finely
 
 Chop your roasted peanuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603206018760-x200.jpg)
 
 ### Step 7
 

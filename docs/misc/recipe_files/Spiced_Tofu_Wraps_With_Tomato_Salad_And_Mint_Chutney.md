@@ -27,6 +27,7 @@ For an Indian-inspired twist on your favourite wrap, try these soft tortillas st
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1601313290809-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your curry powder, ground turmeric and cayenne pepper (can't handle the heat
 
 Drain your tofu and pat it dry with kitchen paper, then crumble it with your fingers into the bowl, then toss in the spices until nicely coated
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601313296693-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 3/4 of the sliced onion (save the rest for later!) with a pinch of salt and cook for 10-12 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601313306863-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ While the onion is cooking, chop your coriander finely, including the stalks
 
 Pick your mint leaves from their stalks and chop finely, discard the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601313316928-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Grind to a fine paste, then add your mayo and a drizzle of olive oil – this is
 
 Tip: If you don't have a pestle & mortar, chop everything very finely!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601313322738-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the diced tomato to a bowl with your nigella seeds, remaining sliced onion a
 
 Season with a pinch of salt and give everything a good mix up – this is your tomato salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1601313329450-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Squeeze in the juice of the remaining lemon and mix to combine – this is your 
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601313337044-x200.jpg)
 
 ### Step 7
 

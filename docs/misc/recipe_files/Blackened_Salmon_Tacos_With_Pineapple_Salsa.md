@@ -26,6 +26,7 @@ Cooking spice-crusted salmon 'til blackened might seem wrong, but trust us – y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1620660417887-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620660471778-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once the pan is hot, add your salmon fillet[s] and pour over your soy sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620660476548-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Sprinkle your ground smoked paprika and ground allspice over the fish and cook f
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620660482080-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Wash your lettuce, then pat it dry with kitchen paper and shred
 
 Chop your coriander roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1620660485515-x200.jpg)
 
 ### Step 5
 
 Add the chopped pineapple, sliced spring onion and chopped coriander to a bowl and gently mix it all together – this is your speedy pineapple salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620660489704-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add your tortillas to a plate and pop them in the microwave for 20 secs or un
 
 While the tortillas are in the microwave, combine your chipotle paste (can't handle the heat? Go easy!) with your mayo, a drizzle of olive oil and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>cold water in a bowl – this is your chipotle mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620660493815-x200.jpg)
 
 ### Step 7
 

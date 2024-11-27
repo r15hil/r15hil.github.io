@@ -25,6 +25,7 @@ Ready to raise your burger game? You’ll rustle up patties spiced with smoked p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-10-1680703187503-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and 
 
 Put the tray[s] in the oven for 20-25 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-9-1680703191435-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Massage the lamb mince mixture with clean hands for 1 min (this helps the patty[
 
 Divide the lamb mince mix into 1 per person, shape into a thin patty[ies] and refrigerate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-8-1680703197657-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Squeeze out the excess liquid from the cucumber ribbons (over the sink is the ea
 
 Tip: You want to get rid of the excess liquid so that the cucumber absorbs the pickling vinegar
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-6-1680703200341-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your white wine vinegar to a bowl with 1 tsp <span class="text-purple">[1 1
 
 Mix to combine and set aside to pickle until serving – this is your quick-pickled cucumber
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-5-1680703205310-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Combine your mayo and chopped mint in a bowl with a generous drizzle of olive o
 
 Slice your tomato[es] into rounds
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-6-1680703209389-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip the patty[ies] and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-8-1680703214103-x200.jpg)
 
 ### Step 7
 

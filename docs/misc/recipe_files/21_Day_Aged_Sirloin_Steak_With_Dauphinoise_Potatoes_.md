@@ -24,6 +24,7 @@ For a gourmet night in, pair grass-fed sirloin with our hassle-free twist on dec
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2368Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and slice your brown onion[s]<span class="text-danger"> </span>and slice yo
 
 Tip: You don't want the potatoes to brown at this point!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2368Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender
 
 Once tender, drain and rinse the beans under cold water and set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2368Step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Dissolve your beef stock mix and your redcurrant jelly in 150ml <span class="tex
 
 Warm 80ml <span class="text-purple">[120ml]</span> <span class="text-danger">[160ml] </span>milk in the microwave and stir through your clotted cream – this is your clotted cream mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2368Step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Put the dish in the oven for 15 min or until golden and crisp – these are your
 
 Meanwhile, heat a large, wide-based pan (preferably non-stick) over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2368Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the pan is very hot, add the seasoned sirloin steak[s] to the pan, for r
 
 Once the steak is cooked, transfer to a plate to rest (reserve the pan!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2368Step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once hot, add the sliced garlic and cook for 1-2 min or until fragrant
 
 Once fragrant, add the drained green beans with a pinch of salt and cook for 1-2 min further – these are your garlicky green beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2368Step-7-x200.jpg)
 
 ### Step 7
 

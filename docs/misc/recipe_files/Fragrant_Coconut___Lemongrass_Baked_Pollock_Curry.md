@@ -25,6 +25,7 @@ Inspired by Thai ‘chu chi’ curry, this fragrant fish supper delivers tons of
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649774852514-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Bash the lemongrass with a rolling pin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649774856485-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the sliced onion, pepper strips, bashed lemongrass and star anise to a deep 
 
 Put the tray in the oven for an initial 5-10 min or until the onion has started to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649774861398-x200.jpg)
 
 ### Step 3
 
@@ -52,11 +55,13 @@ Meanwhile, chop the creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut, vegetable stock mix, ground paprika, Thai red curry paste, and a pinch <span class="text-danger">[2 pinches]</span> of sugar in 500ml <span class="text-danger">[900ml]</span> boiled water – this is your Thai red curry stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649774866499-x200.jpg)
 
 ### Step 4
 
 Pour the Thai red curry stock over the vegetables, add the lime leaves and cook for 10-15 min further or until the sauce has started to thicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649774870343-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649774874840-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Season to taste with a pinch of salt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649774879224-x200.jpg)
 
 ### Step 7
 

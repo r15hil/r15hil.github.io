@@ -24,6 +24,7 @@ This plant-based rice dish is a fast and tofu-rious feast. You'll make fried ric
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1617716874297-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2194-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2194-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once hot, drain your tofu, pat dry with kitchen paper and crumble it with your f
 
 Add your ground turmeric and a generous pinch of salt to the tofu and cook, stirring frequently, for 3-4 min or until starting to crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2194-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once hot, add the diced pepper with your ginger & garlic paste and cook for 30 
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2194-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Once fragrant, add your cooked white long grain rice to the pan with the diced p
 
 Cook for 3-4 min or until the spinach has wilted and the rice has warmed through – this is your veg fried rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729501284832-x200.jpg)
 
 ### Step 6
 
 While the spinach is wilting and the rice is warming through, trim, then slice your spring onion[s] roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2194-step-7-x200.jpg)
 
 ### Step 7
 

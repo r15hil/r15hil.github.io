@@ -24,6 +24,7 @@ French cuisine is famed for its rich, elegant flavours, and this dish is no exce
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1589209984952-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your steak out of t
 
 Chop your potatoes (skins on) into chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1589209989700-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Give everything a good mix up and add the tray[s] to the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1589209994701-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Trim your green beans
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1589209999639-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Season with a pinch of salt and add a splash of boiled water and cook, cove
 
 Once done, keep covered and set aside for later – these are your garlicky beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1589210005438-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Heat a separate large, dry, wide-based pan (preferably non-stick) over a high he
 
 For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min on each side; for medium, cook for 4-5 min on each side
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1589210008783-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the steak is cooked, transfer it to a plate to rest and return the pan to a
 
 Add the diced shallot and cook for 1-2 min or until softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1589210013732-x200.jpg)
 
 ### Step 7
 

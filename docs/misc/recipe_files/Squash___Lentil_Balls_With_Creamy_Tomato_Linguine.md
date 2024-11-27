@@ -25,6 +25,7 @@ This veg-packed twist on the Italian American classic is better than mamma used 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1659885144377-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 5-6 min or until the butternut squash cubes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1659885148463-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add half the panko breadcrumbs (you'll use the rest later!) and a pinc
 
 Once golden, transfer the toasted panko breadcrumbs to a small bowl and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1659885152965-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Pulse for 7 secs until roughly blitzed then divide the mixture into 10 <span cla
 
 Add the squash & lentil balls to an oiled baking tray and put the tray in the oven for 10-12 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659885157382-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1659885161472-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Chop the parsley finely, including the stalks
 
 Add the chopped parsley and chilli flakes (can't handle the heat? Go easy!) to the bowl of toasted panko breadcrumbs and give everything a good mix up – this is your parsley pangrattato
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1659885166163-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once hot, add the chopped garlic and cook for 2-3 min or until fragrant
 
 Once fragrant, add the creamy tomato stock and cook for 2-3 min further or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659885170461-x200.jpg)
 
 ### Step 7
 

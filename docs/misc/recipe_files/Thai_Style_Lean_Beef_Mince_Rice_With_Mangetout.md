@@ -26,6 +26,7 @@ This Thai-inspired stir-fry is ready in a flash. You'll sizzle quick-cook rice w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610620364808-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610620434405-x200.jpg)
 
 ### Step 2
 
@@ -48,16 +50,19 @@ Once hot, add your lean beef mince and sprinkle in your beef stock mix
 
 Cook for 3-4 min or until the lean beef mince is browned all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610620444484-x200.jpg)
 
 ### Step 3
 
 Add your mangetout to the pan and cook for 1 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1610620456509-x200.jpg)
 
 ### Step 4
 
 Add your red Thai curry paste, ginger paste and half of your chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1610620464499-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Meanwhile, chop your basil finely, including the stalks
 
 Cut your lime[s] into 2 wedges per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610620475875-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once fragrant, add your tomato paste, a pinch of sugar and a small splash of wa
 
 Squeeze your pouch[es]<span class="text-danger"> </span>of cooked white long grain rice to separate the grains then add to the pan, breaking it up with a wooden spoon as you go and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610620516336-x200.jpg)
 
 ### Step 7
 

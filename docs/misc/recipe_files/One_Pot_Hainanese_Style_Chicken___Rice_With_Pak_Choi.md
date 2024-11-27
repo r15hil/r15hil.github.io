@@ -28,6 +28,7 @@ This fragrant one-pot is the perfect centerpiece. You’ll infuse rice with soy,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1715088557644-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1696842208495-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Boil a kettle
 
 Heat a hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1696842213673-x200.jpg)
 
 ### Step 3
 
 Meanwhile, wash your pak choi and slice into quarters lengthways, then pat dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1696842218333-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once hot, add your chicken breast portion[s] with a pinch of salt and pepper
 
 Cook for 3 min on each side or until lightly browned, then set the browned chicken aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1696842224867-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Add your white long grain rice to the casserole dish with your ginger & garlic p
 
 Add your chicken stock mix and 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[600ml]</span> boiled water, give everything a good mix up until the rice is fully coated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696843889909-x200.jpg)
 
 ### Step 6
 
 Put the browned chicken on top and put the dish in the oven, covered, for an initial 25 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696843894030-x200.jpg)
 
 ### Step 7
 

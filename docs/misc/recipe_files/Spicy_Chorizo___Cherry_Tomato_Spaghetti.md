@@ -26,6 +26,7 @@ For this quick, punchy pasta, you'll toss spaghetti with garlic, sizzling choriz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1670884069138-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690277638221-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the halved cherry tomatoes and remaining whole cherry tomatoes to a baking t
 
 Give everything a good mix up and put the tray under the grill until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690277641899-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your diced chorizo and chilli flakes (can't handle the heat? Go easy!) and cook for 3 min or until beginning to crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690277646606-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Sliced-Garlic-1690278391113-x200.jpg)
 
 ### Step 5
 
 Peel and roughly slice (don't chop) your garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690277664821-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Tip: Be careful when adding the water to the pan, it may splash!
 
 Return the pan to the heat, then sprinkle in your vegetable stock mix and tear your parsley into the pan and stir it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690277667931-x200.jpg)
 
 ### Step 7
 

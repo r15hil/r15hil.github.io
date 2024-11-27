@@ -21,6 +21,7 @@ Potatoes and chorizo roast together in the oven until golden and crispy.  Served
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/459_step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add&nbsp;them to a baking tray, drizzle with 2 tbsp<span class="text-danger">&nb
 
 Put them in the oven for an initial 25 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/459_step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Deseed the yellow&nbsp;pepper<span class="text-danger">[s]</span> (scrape the se
 
 <span style="font-family: Lato; font-size: 15px; white-space: pre-wrap;">&nbsp;</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/459_step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add the sliced onion and pepper with a big pinch of salt
 
 Cook for 15-20 min or until softened and caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/459_step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Peel and finely slice the garlic
 
 Chop the parsley finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/459_step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once&nbsp;the potatoes are very nearly cooked, remove the tray from the oven, tu
 
 Return the tray to the oven for a further 10 min or until the potatoes are crisp and the chorizo is hot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/459_step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Tip:&nbsp;shake your eggs before cracking for a perfectly-centred yolk
 
 Once&nbsp;hot, add the eggs, cover and cook for 3 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/459_step-7-x200.jpg)
 
 ### Step 7
 

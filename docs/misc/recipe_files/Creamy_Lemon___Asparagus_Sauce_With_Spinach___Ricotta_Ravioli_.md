@@ -23,6 +23,7 @@ Ravioli, the ‘Italian dumpling’, is a sure fire way to wow at dinnertimes wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1645553530524-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1645553540707-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and slice (don't chop!) your garlic
 
 Peel 2 thin strips per person of zest from your lemon[s]<span class="text-danger"> </span>(avoid the white bitter pith)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1645553547239-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped asparagus to the pan with a pinch of salt and cook for 2-3 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1645553553834-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cook the ravioli for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked ravioli, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1645553562099-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the sliced garlic and lemon zest strips to the pan with the asparagus and co
 
 Once fragrant, add the juice of half your lemon[s] to the pan along with your vegetable stock mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1645553569788-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Season with a pinch of salt and a grind of black pepper and gently cook for 1 mi
 
 Tip: Make sure the pan isn't too hot as this could cause your sauce to split!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1645553576568-x200.jpg)
 
 ### Step 7
 

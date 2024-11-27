@@ -29,6 +29,7 @@ Touch down in Georgia for a perfectly spiced satsivi. This rich garlic and walnu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670926953874-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Grind the crushed garlic and walnuts in a pestle & mortar with a pinch of salt t
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670926958468-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, and the chopped mushrooms with a pinch of salt and cook for 4-5 min or until nicely browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670926963851-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670926971553-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Give everything a good mix up and cook for a further 1-2 min or until fragrant
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670927091961-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add your vegetable stock mix and creamy single soy to the pan and cook for 8-10 min or until the sauce has thickened, stirring occasionally
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670927098888-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Chop your tomato[es]<span class="text-danger"> </span>into wedges
 
 Wash your salad and pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670927144421-x200.jpg)
 
 ### Step 7
 

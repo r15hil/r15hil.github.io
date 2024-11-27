@@ -24,6 +24,7 @@ For a vegetarian twist on a fast food classic, you’ll coat halloumi in breadcr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2129.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil an
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are tender and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2129.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, cut your halloumi into 2 equal sized slices per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2129.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Crack your egg[s] into a shallow bowl and beat with a fork
 
 Add your panko breadcrumbs to a plate with your dried oregano, ground smoked paprika and a very generous pinch of black pepper and give everything a good mix up – these are your seasoned panko breadcrumbs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2129.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Tip: Make sure the halloumi slices are fully coated in the breadcrumbs on all si
 
 Put in the fridge until later to firm up – these are your breaded halloumi slices
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2129.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Top, tail, peel and grate your carrot[s]
 
 Add the grated carrot to a bowl with your shredded red cabbage
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2129.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Add your cider vinegar and mayo to the bowl with a generous grind of black p
 
 Combine your chilli relish with 10ml <span class="text-purple">[15ml]</span> <span class="text-danger">[20ml] </span>water – this is your chilli dip
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2129.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ To make these spicy Mexican-inspired burritos, you'll stuff warm tortillas with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1640000226588-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1640000232913-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince with a generous pinch of salt and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1640000237382-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Combine the juice of half the lime with your mayo and a drizzle of olive oil in 
 
 Season with a pinch of salt and pepper – this is your lime mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1640000241044-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once browned, add your ground smoked paprika and chilli flakes (can't handle th
 
 Add the chopped tomato, chipotle paste (not a fan of spice? Just add a little!) and honey and cook for a further 3-5 min or until the tomato begins to break down and the beef becomes crispy and sticky (no pink meat!) – this is your sticky chilli beef
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1640000245520-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Meanwhile, add your tortillas to a baking tray (or two!) and put the tray[s] in 
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1640000271536-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
 Tear your cheese flavour slice into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1640000276172-x200.jpg)
 
 ### Step 7
 

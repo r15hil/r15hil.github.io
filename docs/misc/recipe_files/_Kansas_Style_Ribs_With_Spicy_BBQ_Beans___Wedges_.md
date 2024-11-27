@@ -26,6 +26,7 @@ Introducing our KC-style slow cooked pork ribs. You’ll glaze that rack in swee
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1651575510492-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the sliced chilli (can't handle the heat? Remove the seeds!) to a small bowl
 
 Mix everything together and set aside – this is your quick-pickled chilli
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1651575669717-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Cut the potatoes (skins on) into thin wedges
 
 Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of salt and put the tray in the oven for 25-30 min or until golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1651575677802-x200.jpg)
 
 ### Step 3
 
 Add the slow cooked pork ribs to a separate baking paper-lined baking tray and put the tray in the oven for an initial 20 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1651575681185-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Add the remaining cider vinegar with the smoked sea salt flakes and give everyth
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651575688124-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ After an initial 20 min, remove the ribs from the oven and pour over half of the
 
 Return the ribs to the oven for a final 6-7 min until sticky – these are your Kansas-style ribs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1651575691917-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Meanwhile, heat a medium sized pot over a medium heat with a little drizzle of o
 
 Once hot, add the drained cannellini beans to the pot with the remaining smoked paprika and remaining tomato paste and cook for 1 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1651575697196-x200.jpg)
 
 ### Step 7
 

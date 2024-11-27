@@ -23,6 +23,7 @@ For this risotto, let your oven to do the hard work. You'll achieve fabulous fla
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644330402280-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Heat a large, wide-based pan with 1 tbsp <span class="text-purple">[1 1/2 tbsp]
 
 Once hot, add your bacon lardons and cook for 5-6 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644330413754-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ While the bacon is browning, chop your leek[s] in half lengthways, wash thorough
 
 Boil a full kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644330422130-x200.jpg)
 
 ### Step 3
 
@@ -46,11 +49,13 @@ Once the bacon is crisp, add the sliced leek to the pan
 
 Cook for 3-4 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644330433250-x200.jpg)
 
 ### Step 4
 
 Once the leek has started to soften, add your arborio rice and cook for 2 min, stirring to coat the grains in the oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644330470553-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Transfer the rice mixture to an oven-proof dish (or casserole dish!)
 
 Put the dish in the oven for an initial 20 min or until the rice is cooked – this is your baked risotto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644330491952-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Return the dish to the oven for 5 min to warm through
 
 Meanwhile, combine your white wine vinegar with a generous drizzle of olive oil and a small pinch of salt in a small bowl – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644330496959-x200.jpg)
 
 ### Step 7
 

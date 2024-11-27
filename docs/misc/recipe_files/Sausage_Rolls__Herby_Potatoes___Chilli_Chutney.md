@@ -29,6 +29,7 @@ These sausage rolls are the perfect picnic companion. You’ll wrap juicy sausag
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679566896563-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Add the pastry rectangles to a baking paper-lined baking tray (or two!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679566893804-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Combine your sausage meat (remove the paper if required!) with your panko breadc
 
 Divide the sausage mixture into 1 per person and press each into a sausage shape and lay in the middle of each pastry rectangle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679566901828-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Cut each sausage roll into 5, brush the tops of the pastry with a little cold wa
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for 20 min or until golden and puffed up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679566905748-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 15 min or until fork-tender, then drain and set aside to steam dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679566908626-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Dice your tomato[es]
 
 Heat a pot over a medium heat with a drizzle of olive oil and once hot, add the diced onion and cook for 3-4 min or until beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679566911594-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once the onion has softened, add the diced tomato with your tomato paste, half y
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and 50ml<span class="text-purple"><span class="text-danger"> [75ml]</span> [100ml] </span>boiled water, then cook for 6-8 min further or until thickened and sticky – this is your chunky tomato & chilli chutney
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679566915000-x200.jpg)
 
 ### Step 7
 

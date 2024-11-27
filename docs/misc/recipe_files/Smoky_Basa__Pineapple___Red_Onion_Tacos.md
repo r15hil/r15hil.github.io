@@ -32,6 +32,7 @@ Grab some napkins for these pineapple-topped tacos. You'll crisp up tender fish 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643618986513-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel your red onion[s] and slice into rings, 1 per person, then dice the remaini
 
 Add the onion rings and red wine vinegar to a shallow bowl and set aside to pickle until serving – these are your quick-pickled onion rings
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643618981967-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely chop (or grate) your garlic
 
 Add the chopped garlic to the softened onion and cook for 1 min further, then set aside until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643618992126-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Tip: Don’t chuck pineapple juice down the drain. Instead, add it to your smoot
 
 Combine the shredded lettuce, diced pineapple and chilli flakes (not a fan of spice? Just add a little!) in a bowl with plenty of black pepper – this is your pineapple salsa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643618994821-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Chop your coriander as finely as you can, including the stalks
 
 Combine your mayo with 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> cold water and the chopped coriander in a bowl – this is your herby mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643618998459-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add the chopped basa to a bowl with your soy sauce, ground smoked paprika, cayen
 
 Give everything a good mix until the basa is evenly coated – this is your coated basa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643619002346-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1663668182988-x200.jpg)
 
 ### Step 7
 

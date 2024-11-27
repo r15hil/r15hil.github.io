@@ -29,6 +29,7 @@ Skip the takeaway with this homemade stir fry. You'll sizzle aromatic five-spice
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1712069234544-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Tear the tofu into bite-sized pieces
 
 Add the torn tofu to a large bowl with most of your cornflour (save a little for later!), your five-spice mix and umami seasoning and give everything a good mix up until all the tofu is coated – this is your coated tofu
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1712069237771-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the coated tofu to the pan and cook for 8-10 min, turning occasion
 
 Once done, transfer the tofu to kitchen paper and set aside, reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1712069241920-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1712069245924-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then slice your spring onion[s] finely on the diagonal
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1712069249482-x200.jpg)
 
 ### Step 5
 
 Combine the remaining cornflour and your soy sauce in a bowl with your Chinese rice wine, red chilli relish, 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[130ml]</span> cold water and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar – this is your stir fry sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1712069254209-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once softened, reduce the heat to medium and add your ginger paste and cracked b
 
 Cook for a further 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1712069271708-x200.jpg)
 
 ### Step 7
 

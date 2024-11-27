@@ -24,6 +24,7 @@ In this silky vegetarian stroganoff, you'll smother smoky caramelised mushrooms 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-25-1698750886919-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="te
 
 Once hot, add the sliced onion with a pinch of salt and cook for 10 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-29-1698750890464-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Strip your thyme leaves from their stems and chop them finely, discard the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-31-1698750951690-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Season with salt and a generous amount of pepper
 
 Spread the mushrooms out as much as possible and allow to cook, without stirring, for 5-10 min or until caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-30-1698750961270-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-29-1698751005668-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ While the pasta is cooking, combine the remaining chopped thyme, crème fraîche
 
 Dissolve your vegetable stock mix in 200ml<span class="text-danger"> <span class="text-purple">[300ml] </span>[400ml] </span>boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-27-1698751029353-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once caramelised, add half of the vegetable stock (you'll use the rest later!) 
 
 Add the remaining ground smoked paprika and stir well
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-19-1698751038858-x200.jpg)
 
 ### Step 7
 

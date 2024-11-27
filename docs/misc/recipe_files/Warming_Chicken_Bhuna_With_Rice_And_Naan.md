@@ -30,6 +30,7 @@ For this easy curry house classic, you'll flavour rich tomato sauce with chicken
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1432.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add your basmati rice and 250ml <span class="text-purple">[320ml]</span> <span c
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1432.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop your cherry tomatoes in half, then peel and finely chop (or grate) your gar
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1432.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add the sliced onion with a generous pinch of salt and cook for 3-4 mi
 
 Once softened, add the halved cherry tomatoes to the pan and cook for 3-4 min further or until starting to break down
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632391169396-x200.jpg)
 
 ### Step 4
 
@@ -64,16 +68,19 @@ Chop your chicken breast strips into large bite-sized pieces
 
 Dissolve your chicken stock mix and tomato paste in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1432.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the tomatoes have broken down, add the chopped garlic, your garam masala, ground fenugreek and ground paprika and cook for 1 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1432.-step-6-x200.jpg)
 
 ### Step 6
 
 Increase the heat to high and add the chopped chicken to the pan with the tomato stock and cook for 10-15 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened – this is your warming chicken bhuna
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1677495914506-x200.jpg)
 
 ### Step 7
 

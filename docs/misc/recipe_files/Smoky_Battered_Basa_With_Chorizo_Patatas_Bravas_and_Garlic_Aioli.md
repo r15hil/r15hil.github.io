@@ -31,6 +31,7 @@ Bold Spanish flavours meet fish and chips in this twist on a seaside staple. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678800870620-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop your potatoes (skins on) into bite-sized cubes, then add them to a baking t
 
 Put the tray[s] in the oven for 20-25 min or until the potatoes are golden and crispy – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678800878568-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Peel and finely slice your shallot[s]
 
 Peel and grate (don't chop!) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678800886378-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once the chorizo is crispy, increase the heat to medium-high, then add the diced
 
 Cook for 5-6 min or until the tomato has broken down and the sauce has reduced – this is your chorizo bravas sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678800900731-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add your cornflour and 30g <span class="text-purple">[45g] </span><span class="t
 
 Add 90ml <span class="text-purple">[135ml]</span><span class="text-danger"> [180ml]</span> very cold water and give everything a good mix up – this is your smoky batter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678800930453-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Sprinkle both sides of the basa with flour until fully coated, then tap off any 
 
 Dip the floured basa into the smoky batter and turn it several times until fully coated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678800938761-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, add the coated basa to the pan and cook for 3-4 min on each side until
 
 Tip: Your fish is cooked once it turns opaque and flakes easily!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678800948027-x200.jpg)
 
 ### Step 7
 

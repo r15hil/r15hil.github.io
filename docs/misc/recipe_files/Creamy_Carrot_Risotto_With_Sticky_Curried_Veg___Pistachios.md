@@ -29,6 +29,7 @@ Curried carrots make this risotto a real winner. You’ll roast Chantenay carrot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690476502546-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Top, tail, peel and chop your parsnip[s] into bite-sized pieces
 
 Peel and finely dice your brown onion[s], then peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690476506441-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the halved Chantenay carrots and chopped parsnip to one side of a baking pap
 
 Add the foil parcel[s] to the other side of the tray[s] and put the tray[s] in the oven for an initial 25 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690476510186-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or unt
 
 While the onion is softening, dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L] </span>boiled water – this is your vegetable stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690476514687-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the onion has softened, add the chopped garlic, the remaining curry powder 
 
 Once fragrant, add your Chinese rice wine and your arborio rice and cook for 1 min, stirring to coat the grains in the oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690476519128-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ While the rice is cooking, chop your pistachio nuts roughly
 
 Chop your coriander finely, including the stalks (save some leaves for garnish!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690476522890-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Return the tray[s] to the oven for a further 2-3 min or until the pistachios are
 
 Tip: Watch the pistachios like a hawk to make sure they don't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690476526805-x200.jpg)
 
 ### Step 7
 

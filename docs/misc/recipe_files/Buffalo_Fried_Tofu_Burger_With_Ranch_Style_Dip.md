@@ -26,6 +26,7 @@ Take a trip across the pond with an American classic. You'll glaze crispy tofu w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-20-1696338829667-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until the fries are golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-22-1696338833659-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add 80ml<span class="text-purple"> [120ml] </span><span class="text-danger">[160
 
 Add the sliced tofu to the marinade and give everything a good mix up, then set aside until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-24-1696338837505-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the cucumber discs and the remaining cider vinegar to a bowl with a pinch of
 
 Stir everything together and set aside – this is your quick-pickled cucumber
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-23-1696338840953-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once melted, remove the pot from the heat and add your sriracha (can't handle th
 
 Stir everything together until fully combined with a sauce-like consistency – this is your buffalo sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-22-1696338844241-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your mayo to a small bowl with your dried oregano, grated garlic (not a big 
 
 Give everything a good mix up – this is your ranch-style dip
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-20-1696338847396-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add your ground smoked paprika and cornflour to the bowl with the marinated tofu
 
 Season with generous a pinch of salt and pepper and give everything a good mix up until the tofu is fully coated
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-9-1696338851287-x200.jpg)
 
 ### Step 7
 

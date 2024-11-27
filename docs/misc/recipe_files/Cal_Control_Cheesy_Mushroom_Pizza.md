@@ -22,6 +22,7 @@ This fungi fiesta is every mushroom lovers dream! You'll top your pizza with a m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681833721301-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Slice your chestnut mushrooms finely
 
 Peel and finely slice your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681833727611-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Grate your lighter cheese and Italian hard cheese finely and mix it all together
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681833731553-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Add your tomato paste to a bowl with the chopped garlic and a generous pinch of 
 
 Add 60ml <span class="text-purple">[90ml]</span> <span class="text-danger">[120ml]</span> cold water with 1/2 tsp <span class="text-purple">[1tsp]</span> <span class="text-danger">[11/2 tsp] </span>of sugar and stir it all together – this is your tomato sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681833736632-x200.jpg)
 
 ### Step 4
 
@@ -54,11 +58,13 @@ Remove the heated tray[s] from the oven and add your pizza base[s]
 
 Divide the tomato sauce between the pizza base[s] and spread it evenly all over them with the back of a spoon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681833742168-x200.jpg)
 
 ### Step 5
 
 Top with the sliced mushrooms and most of the sliced onion (save some for a garnish!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681833746726-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Sprinkle the pizzas with the grated cheese
 
 Put the tray[s] in the oven for 10-12 min or until the cheese has melted and the bases are crisp – this is your cheesy mushroom pizza
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681833751348-x200.jpg)
 
 ### Step 7
 

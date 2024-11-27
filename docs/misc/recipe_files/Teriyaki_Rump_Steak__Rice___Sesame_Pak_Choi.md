@@ -21,6 +21,7 @@ This Japanese steak recipe is simple to prepare and full of flavour. Honey and s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1749.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ This Japanese steak recipe is simple to prepare and full of flavour. Honey and s
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked<br /><br />Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1749.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Meanwhile, slice the pak choi in half, lengthways 
 
 Pat the rump steaks dry with kitchen towel, rub them with vegetable oil and season both sides with salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1749.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Heat a large, wide-based pan over a high heat and once very hot, add the steak
 
 Tip: don’t be tempted to move the steaks around too much in the pan – this will stop them from browning
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1749.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once brown, add a splash of boiled water and cook, covered, for 4-5 min further 
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1749.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once done, transfer the cooked steaks to a shallow plate and leave them to rest�
 
 Reserve the steak pan for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1749.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Tip: this will cool the pan down and prevent the honey from burning!
 
 Return the pan to a medium-low heat and cook for 3-4 min or until a thick and sticky sauce remains – this is your teriyaki sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1749.-step-7-x200.jpg)
 
 ### Step 7
 

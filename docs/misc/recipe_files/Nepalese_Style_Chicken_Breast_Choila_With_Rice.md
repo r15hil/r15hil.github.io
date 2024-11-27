@@ -31,6 +31,7 @@ Once you’ve shredded your chicken breast, you’ll simmer it in a fragrant tur
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1698392822862-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1698392826043-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1698392830046-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Peel and finely dice your red onion[s]
 
 Chop your tomato[es] into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1698392836476-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once hot, add your chicken breast portion[s] with a pinch of salt and pepper and
 
 Add the browned chicken to a tin foil-lined baking tray (or two!) and reserve the pan, then put under the grill for 10-12 min or until charred, caramelised and cooked through (no pink meat!) – this is your grilled chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1698392841615-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once hot, add the chopped garlic & ginger, diced onion, chopped chilli and chopp
 
 Once softened, add your ground turmeric, chicken stock mix and toasted mustard & coriander seeds with 100ml <span class="text-purple">[130ml] </span><span class="text-danger">[170ml]</span> cold water and cook for a further 1-2 min or until the sauce has thickened – this is your choila sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1698392846628-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Roll your lime[s] with your hand on a hard surface (to release more juice) and c
 
 Once cooked, transfer the grilled chicken to a clean board and shred it apart, using two forks - this technique is known as ‘pulling'
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1698392850018-x200.jpg)
 
 ### Step 7
 

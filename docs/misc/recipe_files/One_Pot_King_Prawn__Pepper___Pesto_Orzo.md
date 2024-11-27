@@ -27,6 +27,7 @@ For this easy one-pot pasta, you'll sauté king prawns with pepper and onion, th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622134208314-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Peel and chop your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1622134219762-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the pepper strips and onion wedges with a pinch of salt and cook for 3-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1622134230530-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add your sun-dried tomato pesto and tomato paste – this is your pesto stock
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1622134251205-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once boiling, reduce the heat to medium-low and cook, covered, for an initial 8-
 
 Tip: Stir the orzo occasionally to prevent it from sticking!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1622134263738-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Drain your king prawns
 
 Once the orzo has had an initial 8-10 min, increase the heat to medium and add the king prawns to the pan, then cook for 4-5 min further or until the prawns are cooked through and the orzo is tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1622134294455-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Season with salt and pepper – this is your king prawn, pepper & pesto orzo
 
 Tip: Add a splash more water if your pan's looking a little dry!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1622134303288-x200.jpg)
 
 ### Step 7
 

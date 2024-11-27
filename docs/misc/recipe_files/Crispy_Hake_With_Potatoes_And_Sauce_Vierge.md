@@ -23,6 +23,7 @@ This French-inspired dish is the perfect light bite. You'll top crispy hake with
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690801677757-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690801683567-x200.jpg)
 
 ### Step 2
 
 While the potatoes are boiling, dice your tomato[es] finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690801690082-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Chop your chives roughly
 
 Chop your basil finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690801695895-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Add the diced tomato, chopped chives, chopped basil and your ground coriander to
 
 Add a generous pinch of salt, 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>olive oil and the juice of half your lemon[s] (save the rest for garnish!) and give everything a good mix up – this is your sauce vierge
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690801705718-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Sprinkle your cornflour all over and rub it into both sides of the fish until fu
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690801711209-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once hot, add the coated hake and cook for 8-9 min, turning once halfway until g
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690801716269-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Serve up this tasty traybake in no time. You’ll top potatoes and carrots with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674560894759-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Peel and chop your red onion[s] into wedges
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1730896502090-x200.jpg)
 
 ### Step 2
 
 Wash your leek[s] thoroughly to remove any grit from between the leaves, then top, tail and chop into large rounds
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730896392832-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Chop your potatoes (skins on) into small bite-sized pieces
 
 Top, tail, peel and chop your carrot[s] into thin rounds
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1730896398396-x200.jpg)
 
 ### Step 4
 
@@ -53,16 +57,19 @@ Add the chopped carrot, chopped potato and leek rounds to a large baking tray (o
 
 Add a drizzle of olive oil, season with a pinch of salt and pepper and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1730896405005-x200.jpg)
 
 ### Step 5
 
 Top with your sausages and put the tray[s] in the oven for an initial 30 min or until the sausages are cooked through (no pink meat!) and the veg is tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1730896410671-x200.jpg)
 
 ### Step 6
 
 While the sausages and veg are cooking, dissolve your chicken stock mix and onion marmalade in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[175ml]</span> boiled water – this is your onion gravy stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730896416498-x200.jpg)
 
 ### Step 7
 

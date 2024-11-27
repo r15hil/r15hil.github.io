@@ -25,6 +25,7 @@ This comforting dish is inspired by the German classic, 'Königsberger Klopse'. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1524.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Massage thoroughly, with clean hands, until fully combined, then divide the mixt
 
 Tip: Massage the meat longer for more tender meatballs!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1524.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1524.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the meatballs to the pan and cook for 4 min, turning occasionally,
 
 Meanwhile, dissolve the chicken stock in 200ml<span class="text-danger"> [400ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1524.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Whisk the chicken stock into the flour
 
 Cook for 2-3 min or until it has thickened slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1524.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Return the meatballs to the pan
 
 Reduce the heat to medium-low and cook, covered, for 4-5 min further until the meatballs are cooked through and the sauce has thickened to a gravy-like consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1524.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Chop the parsley leaves roughly, discarding the stems
 
 Slice the lemon<span class="text-danger">[s]</span> into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1524.-step-7-x200.jpg)
 
 ### Step 7
 

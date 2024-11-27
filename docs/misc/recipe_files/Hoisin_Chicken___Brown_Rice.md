@@ -28,6 +28,7 @@ Fire up Asian flavours in no time. You'll sizzle chicken with mushrooms and crun
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623399418232-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2022.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add your diced chicken breast and mangetout
 
 Tear in your chestnut mushrooms with a pinch of salt and cook everything for 5 min or until starting to soften and brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2022.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Meanwhile, combine your cornflour, hoisin sauce and the soy sauce with 1 tsp
 
 Whisk until smooth – this is your hoisin sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2022.-step-4-x200.jpg)
 
 ### Step 4
 
 Add your ginger & garlic paste to the pan and cook for a further 2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/v2-x-2022-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,16 +76,19 @@ Tear the top corner of the pouch[es] (just a little!) and put the pouch in the�
 
 Tip: If you're cooking two packets, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727447404402-x200.jpg)
 
 ### Step 6
 
 Add your hoisin sauce to the pan and cook for 3 min or until the sauce has thickened and the chicken is cooked through (no pink meat!) - this is your hoisin chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727447413516-x200.jpg)
 
 ### Step 7
 
 Trim, then chop your spring onion[s]
 
+![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-8-1727447422517-x200.jpg)
 
 ### Step 8
 

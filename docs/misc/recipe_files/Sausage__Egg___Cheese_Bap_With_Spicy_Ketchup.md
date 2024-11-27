@@ -22,6 +22,7 @@ Kickstart your day with a spicy sarnie. You’ll load crusty ciabatta with sausa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073604972-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in or wrap up ready for your day!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727101442788-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Slice your cheddar cheese into 3 slices per person
 
 Slice your tomato[es] into rounds
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727101446791-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Divide your sausage meat into 1 piece per person (remove the paper if required!)
 
 Press down the thick patty[ies] to evenly flatten and sprinkle over a handful of flour to cover – this is your sausage patty[ies]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727101450783-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Tip: Press the patty down with a spatula to keep it nice and flat throughout coo
 
 Tip: Cooking for 3 or more? Use 2 pans!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1727101454531-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once cool, squeeze as much water out of the spinach as you can
 
 Combine your sriracha (can't handle the heat? Go easy!) and tomato ketchup in a small bowl with a small splash of cold water and a little drizzle of olive oil – this is your spicy ketchup
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727101458461-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the sausage has had 5 mins, flip over the patty[ies] and top with the slice
 
 Slice your ciabatta[s] in half and place in the toaster for 1-2 min or until toasted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727101462125-x200.jpg)
 
 ### Step 7
 

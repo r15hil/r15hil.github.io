@@ -23,6 +23,7 @@ Hearty and rich, this Mediterranean lamb stew is a simple and satisfying weeknig
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1513.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1513.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,11 +59,13 @@ Once hot, add the lamb mince and cook for 3-5 min or until browned all over,&nbs
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1513.-step-3.-x200.jpg)
 
 ### Step 3
 
 Once the lamb&nbsp;is browned, add the sliced onion and red pepper and cook for 3-5 min or until starting to soften&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1513.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,11 +83,13 @@ Dissolve the beef stock cube<span class="text-danger">[s]</span> in 500ml<span c
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1513.-step-5-x200.jpg)
 
 ### Step 5
 
 Once softened, add the sliced garlic and halved waxy potatoes and cook for 1-2 min <span class="text-highlight">or until</span> the garlic is fragrant and beginning to turn golden
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1513.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Once boiling, reduce the heat to medium-low and cook for 20-25 min or until the 
 
 Tip: if it's looking a little dry add a splash more water!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1513.-step-7-x200.jpg)
 
 ### Step 7
 

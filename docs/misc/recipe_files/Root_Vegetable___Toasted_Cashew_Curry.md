@@ -24,11 +24,13 @@ Originally from India, curry is now so popular in Britain that a mild version ha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/32.-step-1-x200.jpg)
 
 ### Step 1
 
 Peel the parsnips, carrots and potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/32.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Peel and finely chop (or grate) the garlic
 
 Peel and finely chop the onion<span class="text-danger">[s]</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/32.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Add a large, wide-based pan (preferably non-stick) over a medium-low heat
 
 Once hot, add the cashews and toast for 3 min until slightly darkened in colour then set the cashews aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/32.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Return the pan to a high heat with 1-2 tbsp vegetable oil
 
 Once hot, add the garlic and onion and cook for 2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/32.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -61,11 +66,13 @@ Add the chopped vegetables to the pan
 
 Cook for 4 min until the vegetables are starting to colour and caramelise
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/32.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the curry powder and stir for 1 min until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/32.-step-7-x200.jpg)
 
 ### Step 7
 

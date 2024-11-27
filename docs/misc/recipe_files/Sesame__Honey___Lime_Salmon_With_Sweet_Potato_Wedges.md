@@ -27,6 +27,7 @@ Butter up your crispy salmon with a mouthwatering honey, lime and sesame sauce. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1727182406852-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the sweet potato wedges to a baking tray (or two!) with a drizzle of vegetab
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1727182414502-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add 20g <span class="text-purple">[25g]</span> <span class="text-danger">[35g]</
 
 Add your toasted sesame seeds to the bowl with your honey and half your soy sauce (you'll use the rest later!) and stir it all together – this is your sesame butter mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1727182424148-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Trim, then slice your spring onion[s]
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in quarters
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727182431008-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Return the tray[s] to the oven and cook for a further 10-15 min or until the swe
 
 Add the chopped ginger, chopped garlic and a small splash of cold water to the remaining sesame butter mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727182437747-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Sprinkle your cornflour all over and rub it into both sides of the salmon until 
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727182444705-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, add your coated salmon and cook for 9-10 min, turning once halfway, or
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727182451452-x200.jpg)
 
 ### Step 7
 

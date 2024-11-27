@@ -23,6 +23,7 @@ These flavourful fish cakes are packed with smoked fish and zingy spring onion, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boiling-chopped-potatoes-1658835120573-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586949161837-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Once cooked, flake the cooked smoked basa roughly with a fork and reserve the tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586949165419-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, trim then slice your spring onions finely
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586949170397-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Combine your mayo with half the chopped mint, half your white wine vinegar (you'
 
 Reboil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586949174460-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Divide the mix then shape them into 2 fishcakes per person
 
 Press the fishcakes into your panko breadcrumbs until evenly coated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586949178911-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Put the tray in the oven for 15-20 min or until golden and crispy – these are 
 
 Wash your salad then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586949182974-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ This dish is inspired by karaage (pronounced kara-agg-eh), a Japanese cooking te
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701252724270-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701252730279-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Peel and finely chop (or grate) half of your garlic (you'll use the rest later!)
 
 Peel your ginger (scrape the skin off with a teaspoon) and chop (or grate) finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701252735168-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the chopped ginger, chopped garlic, soy sauce and 1 tsp <span class="text-pu
 
 Add the hake pieces and give everything a good mix up, then set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701252740163-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Peel and slice the remaining garlic<span class="text-danger"> </span>finely
 
 Add your mayo and rice vinegar to a bowl and combine – this is your Japanese-style mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701252745090-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once hot, add the pak choi white base, toasted sesame seeds and sliced garlic wi
 
 Transfer the cooked pak choi to a plate and reserve the pan for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701252750008-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add the marinated hake pieces, leaving most of the marinade behind
 
 Give everything a good mix up so the hake pieces are fully coated in cornflour
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701252754623-x200.jpg)
 
 ### Step 7
 

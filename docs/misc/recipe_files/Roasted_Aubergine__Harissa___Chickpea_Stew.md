@@ -29,6 +29,7 @@ This rich, spicy and satisfying plant-based stew is full of roast aubergine and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1416.-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the chopped aubergine to a baking tray (or two!) with a generous drizzle o
 
 Put the tray[s] in the oven for 25 min until the aubergine is soft and golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1416.-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Peel and finely chop your red onion[s]
 
 Dissolve your vegetable stock mix in 250ml <span class="text-purple">[350ml] </span><span class="text-danger">[450ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1416.-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and cook for 5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1416.-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Drain and return to the pot
 
 Once the onion has softened, add your ras el hanout to the pan with your tomato paste and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1416.-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, reboil a kettle, then drain and rinse your chickpeas
 
 Once the sauce has thickened, add the drained chickpeas and cook for a further 2-3 min or until combined – this is your harissa & chickpea stew
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1416.-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Squeeze as much water out of the spinach as you can and chop it roughly, the
 
 Season with a pinch of salt and pepper – this is your spinach bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1416.-Step-7-x200.jpg)
 
 ### Step 7
 

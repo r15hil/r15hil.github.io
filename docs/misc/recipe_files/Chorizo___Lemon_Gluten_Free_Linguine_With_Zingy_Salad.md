@@ -24,6 +24,7 @@ To add a smoky twist to creamy pasta, you'll sizzle chorizo until crispy, then t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1696243534054-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Cook the gluten free linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the gluten free linguine, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696243682321-x200.jpg)
 
 ### Step 2
 
 While the linguine is cooking, peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1696243685862-x200.jpg)
 
 ### Step 3
 
@@ -47,11 +50,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add your diced chorizo and cook for 2-3 min or until beginning to brown and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1696243689906-x200.jpg)
 
 ### Step 4
 
 Roughly chop your cherry tomatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1696243693378-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Wash your salad, then pat it dry with kitchen paper and add to a bowl with the c
 
 Add the zingy dressing and give it a gentle mix up – this is your zingy salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1696243696786-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Once the chorizo has crisped, reduce the heat to medium and add your ground smok
 
 Add the drained gluten free linguine with a few splashes of starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1696243699721-x200.jpg)
 
 ### Step 7
 

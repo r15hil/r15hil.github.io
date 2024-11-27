@@ -29,6 +29,7 @@ This plant-based chowder is so creamy you’ll think you’re dreaming. To rustl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670347691384-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pot with a drizzle of vegetable oil over a medium heat
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670347696023-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Top, tail and slice your carrot[s] on the diagonal into discs
 
 Chop your potatoes (skins on) into small bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670347700071-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the onion has softened, add the chopped leek, carrot discs and chopped pota
 
 Cook for a further 4-5 min or until the leek has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670347706157-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Chop your parsley finely, including the stalks
 
 Chop your chives finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670347711523-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once fragrant, add your Chinese rice wine with 350ml<span class="text-danger"> <
 
 Bring to the boil over a high heat and once boiling reduce to medium and cook for 18-20 min or until the potatoes are tender – this is your chowder
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670347716981-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Add the drained sweetcorn to a tin foil-lined baking tray
 
 Put the tray under the grill and cook for 8-10 min or until the corn is lightly charred – this is your charred corn
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670347721156-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Turn your fave home comfort into a banging burger. For this lasagne-inspired tak
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708533092244-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the fries to a baking paper-lined tray (or two!) with a drizzle of vegetable
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20-25 min or until golden and crisp – these are your garlic fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708533100374-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Add a pinch of salt and pepper and give everything a good mix up until thoroughl
 
 Divide and shape into 1 equal-sized patty per person and add to a separate baking paper-lined baking tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708533110497-x200.jpg)
 
 ### Step 3
 
 Put the tray in the oven and cook for 15-20 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708533124951-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Combine the grated cheese with your cornflour in a pot and mix until the cheese 
 
 Add 75ml<span class="text-purple"> [110ml] </span><span class="text-danger">[150ml]</span> milk to the pot and cook over a medium heat for 3-5 min, stirring frequently, or until the cheese has melted and the sauce has thickened – this is your cheesy sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708533130051-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Give everything a good mix up – this is your tomato sauce
 
 Wash your salad and pat dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708533134764-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Top each patty with the tomato sauce, then the cheesy sauce
 
 Return the tray to the oven for a final 4-5 min or until everything is bubbling – this is your lasagne-style pork & beef burger patty
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708533140623-x200.jpg)
 
 ### Step 7
 

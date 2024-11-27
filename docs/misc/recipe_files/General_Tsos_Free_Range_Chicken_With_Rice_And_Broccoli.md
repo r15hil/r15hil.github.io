@@ -27,6 +27,7 @@ It’s the USA’s favourite Chinese takeaway, yet no one knows if General Tso e
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2275-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1587738349940-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Lay the broccoli florets in the middle with your toasted sesame oil, 1 tbsp <sp
 
 Scrunch the edges of the foil around the broccoli to form a<span class="text-danger"> </span>sealed parcel[s], then put the tray in the oven for 15 min or until tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2275-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Whilst the broccoli is cooking, peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2275-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Combine 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp]</s
 
 Add your Chinese rice wine and honey and give everything a good mix up – this is your honey sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2275-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated chicken and cook for 6-7 min on each side or until golden and cooked through (no pink meat!) – this is your golden chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2275-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the chopped garlic, ginger and chilli flakes (can't handle the heat? Go easy
 
 Once fragrant, add the honey sauce and cook for 1-2 min or until thick and sticky
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2275-Step-7-x200.jpg)
 
 ### Step 7
 

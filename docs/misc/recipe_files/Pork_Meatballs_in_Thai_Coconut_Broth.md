@@ -26,6 +26,7 @@ Juicy pork meatballs served over Thai rice noodles with a lively coconut broth, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/775.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Slice half <span class="text-danger">[1]</span> onion, and grate the other half 
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/775.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Knead thoroughly with clean hands for 2-3 min or until fully combined, then shap
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/775.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Once hot, add the meatballs and sliced red onion and cook for 3 min, turning occasionally, until the meatballs are browned all over&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/775.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Add the drained noodles to a pot and cover with plenty of&nbsp;boiled&nbsp;water
 
 Once cooked, drain and run them under cold water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/775.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,6 +92,7 @@ Add the curry paste&nbsp;to the pan, cook for 1 min, then add the coconut stock,
 
 Cook for 3 min further or until beginning to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/775.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,6 +104,7 @@ Once thickened, add the browned&nbsp;meatballs,&nbsp;tenderstem&nbsp;broccoli an
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/775.-step-7-x200.jpg)
 
 ### Step 7
 

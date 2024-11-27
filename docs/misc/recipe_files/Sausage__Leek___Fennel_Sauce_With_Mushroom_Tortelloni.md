@@ -21,6 +21,7 @@ Fennel fans, right this way. For a speedy supper inspired by Tuscan flavours, yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1649234913285-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Sausage-meat-1727684129023-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add your fennel seeds and sausage meat (remove the paper if required!) to the pan and cook for 2-3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649234927656-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit, then t
 
 Peel and slice (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649234934854-x200.jpg)
 
 ### Step 4
 
 Add the sliced leek and sliced garlic to the pan with the sausage meat and cook for 4-5 min or until the leek is beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649234942644-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Cook the tortelloni for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tortelloni, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649234950424-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the leek is beginning to soften, add 1 tsp <span class="text-purple">[1 1/2
 
 Add the creamy stock to the pan and cook for 1-2 min further or until the sauce has thickened and the sausages are cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649234957404-x200.jpg)
 
 ### Step 7
 

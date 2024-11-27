@@ -24,6 +24,7 @@ Find your inner Scot with these tasty tatties. You’ll sizzle juicy lamb mince 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1692102661384-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1692102656506-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Chop your potatoes into bite-sized pieces, then add them to a heatproof bowl and
 
 Pierce a few holes in the top with a fork, then put the bowl in the microwave for 6-8 min<span class="text-danger"> </span>or until the potatoes are tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1692102670198-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add your lamb mince and sliced carrot and cook for 3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1692102679407-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the mince is browned, reduce the heat to medium-high
 
 Add your dried thyme to the pan with your tomato paste and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and stir with a wooden spoon for a further 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1692102685029-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once fragrant, add your Henderson's Relish and beef stock mix to the pan with 25
 
 Cook for a final 4 min or until the lamb is cooked through (no pink meat!) and the sauce has thickened to a gravy-like consistency – this is your lamb mince
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1692102691992-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add your blanched peas to a colander and pour boiled water all over them to refr
 
 Add the refreshed peas to a bowl with your mint sauce and a pinch of salt and give everything a good mix up – these are your minty peas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1692102694841-x200.jpg)
 
 ### Step 7
 

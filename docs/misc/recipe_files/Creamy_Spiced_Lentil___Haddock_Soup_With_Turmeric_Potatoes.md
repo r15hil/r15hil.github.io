@@ -29,6 +29,7 @@ This subtly spiced stew features a fragrant trio of cardamom, cumin and chilli. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681804968909-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681804972178-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced onion, chopped garlic and chopped ginger with a generous pinch of salt and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681804975970-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until the pota
 
 Once done, drain and return to the pot to steam dry and reboil a full kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681804979191-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Discard the outer green pods so you're left with the cardamom seeds
 
 Add the cardamon seeds, cumin seeds and half your chilli flakes (can't handle the heat? Go easy!) to the pan with a pinch of salt and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681804982600-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Once fragrant, add the rinsed red lentils to the pan with 700ml <span class="tex
 
 Bring to the boil over a high heat and cook for 12-15 min or until the lentils are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681804985698-x200.jpg)
 
 ### Step 6
 
 While the lentils are cooking, chop your coriander roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681805277376-x200.jpg)
 
 ### Step 7
 

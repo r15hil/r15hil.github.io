@@ -27,6 +27,7 @@ Bring home the Barcelona bar hop with picture-perfect paella, crispy patatas bra
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1627986481001-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ While the chorizo is cooking, cut each chicken breast into 6, so that you end up
 
 Dissolve the chicken stock mix and saffron in 500ml <span class="text-danger">[1L] </span>boiled water – this is your saffron stock
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1627986564479-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Add half the chicken strips, stir in the saffron stock and bring to the boil ove
 
 Once boiling, reduce the heat to low, then cover with a lid and cook for an initial 20 min or until the stock has almost absorbed and the rice is cooked with a slight bite
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1627986597419-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add the potato cubes to a baking paper-lined baking tray (cooking for 4? Use two
 
 Give everything a good mix up and put the tray<span class="text-danger">[s]</span> in the oven for an initial 20 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1627986634285-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Combine the mayo, chopped garlic and the juice of 1/2 <span class="text-danger">
 
 Season with both salt and pepper, add a drizzle of olive oil and whisk to combine – this is your aioli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1627986656542-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Chop the parsley finely, including the stalks
 
 Peel and finely slice (don't chop!) the remaining garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1627986689722-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Dollop the remaining tomato frito over the top with the remaining smoked paprika
 
 Add the smoky chicken strips to the other side of the tray<span class="text-danger">[s]</span> and return the tray<span class="text-danger">[s]</span> to the oven for a final 8-10 min or until the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1627986738251-x200.jpg)
 
 ### Step 7
 

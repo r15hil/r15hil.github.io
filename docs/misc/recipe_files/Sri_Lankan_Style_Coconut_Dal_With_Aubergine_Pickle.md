@@ -32,6 +32,7 @@ Add zing to your creamy coconut dal and rice with wambatu moju, a Sri Lankan pic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1582891568758-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1582891574383-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Dissolve your vegetable stock mix and chopped creamed coconut in 600ml<span clas
 
 Rinse your red lentils in a sieve under cold running water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1582891595227-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Once hot, add the aubergine strips with a pinch of salt and cook, covered, for 1
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1582891599180-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Once hot, add the sliced shallot, sliced garlic, curry powder and half your grou
 
 Add the coconut stock, bring to the boil over a high heat, and cook for 15-20 min or until the lentils are tender and starting to break down – this is your Sri Lankan-style coconut dal
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729761268685-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Peel and chop the remaining shallot[s] into wedges
 
 Peel and finely chop (or grate) the remaining garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1582891607321-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Chop your coriander finely, including the stalks (save a few leaves for garnish!
 
 Combine the chopped garlic with the chopped ginger, chopped coriander, cider vinegar, black mustard seeds and 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp]</span> [2 tbsp] </span>sugar in a bowl – this is your pickling liquid
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1582891611731-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ It’s not curry night without a classic balti. You’ll recreate this takeaway 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1732619539112-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely slice your brown onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into large bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1732619545985-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced onion and chopped pepper with a pinch of salt and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1732619552892-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1732619558850-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with 
 
 Crush your cardamom pod[s] open by squashing them with the side of a knife
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1732619581065-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Chop your chicken breast strips into bite-sized pieces
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[225ml] </span><span class="text-danger">[300ml] </span>boiled water – this is your chicken stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1732619585629-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once the vegetables have softened, add the chopped garlic, chopped chilli (can't
 
 Add your garam masala, ground paprika, crushed cardamom pod[s], ground coriander and ground cumin with a knob of butter and cook for 1-2 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1732619591842-x200.jpg)
 
 ### Step 7
 

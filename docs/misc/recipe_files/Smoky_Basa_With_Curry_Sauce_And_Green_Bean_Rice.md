@@ -23,11 +23,13 @@ Inspired by the flavours of kedgeree, we've made this easy twist with smoky fish
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1859.-step-1-x200.jpg)
 
 ### Step 1
 
 Trim, then chop your green beans into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1859.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -37,11 +39,13 @@ Once boiling, add the chopped green beans, reduce the heat to very low and cook
 
 Once cooked, add a generous pinch of salt and give everything a good mix up, remove from the heat and keep covered until serving – this is your green bean rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1859.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> butter to a bowl and mix together with your ground turmeric and curry powder, then season with a pinch of salt – this is your curry butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1859.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -51,6 +55,7 @@ Chop your coriander finely, including the stalks
 
 Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> of the curry butter (save the rest for later!) over a medium-high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1859.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Once done, transfer to a plate, set aside and reserve the pan – this is your s
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1859.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Add the halved cherry tomatoes and 50ml <span class="text-purple">[75ml]</span>
 
 Once boiling, reduce the heat to medium and cook for 4 min or until the tomatoes start to soften
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1859.-step-7-x200.jpg)
 
 ### Step 7
 

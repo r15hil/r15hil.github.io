@@ -27,6 +27,7 @@ For this plant-based curry, you'll stir up a silky sauce with creamy coconut, re
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1721.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ging
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely, keeping some aside for garnish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1721.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Once hot, add the onion wedges with a pinch of salt and cook for 3-4 min or
 
 Once starting to soften, add your butternut squash cubes and cook for a further 2-3 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1721.-step-3-x200.jpg)
 
 ### Step 3
 
 Dissolve your vegetable stock mix in 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water – this is your vegetable stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1721.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once fragrant, add the vegetable stock, and 1 tsp <span class="text-purple">[1 1
 
 Cook, covered, for 10-15 min or until the sauce has reduced and the vegetables are tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1721.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1721.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ While the rice is cooking, chop your coriander finely, including the stalks (k
 
 Chop your roasted peanuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1721.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Looking for an un-burger-lievable dinner? You'll top cheddar-stuffed pork burger
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602519081324-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop your potato[es] (skins on) and sweet potato[es] (skins on) into thin chips,
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1602519086765-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Finely dice half of the onion
 
 Slice the remaining onion finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602519103540-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Give everything a good mix up until fully combined (clean hands is the best way!
 
 Cut your cheddar cheese into 4 pieces per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1602519115143-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Top the middle of pork patty[ies] with 4 pieces of cheddar and seal them in with
 
 Add the cheddar-stuffed pork patty[ies] to a baking tray (or two!) lightly covered in vegetable oil and put the tray[s] in the oven for 15-20 min or until cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1602519147201-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add the sliced onion with a pinch of salt and sugar and cook for 6-7 m
 
 Once caramelised, add your balsamic vinegar, remaining grated apple and your onion marmalade then cook for 2-3 min further until sticky – this is your toffee apple & caramelised onion jam
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602519160385-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the chips have 5 min left, top them with the shredded kale
 
 Add a pinch of salt and a drizzle vegetable oil and return the tray[s] to the oven for 5 min, or until crispy – this is your crispy kale
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602519171077-x200.jpg)
 
 ### Step 7
 

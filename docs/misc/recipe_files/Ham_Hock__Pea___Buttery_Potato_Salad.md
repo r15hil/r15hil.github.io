@@ -19,6 +19,7 @@ This simple summery salad pairs crunchy sugar snap peas and buttery potatoes wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2190.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a full kettle
 
 Chop the waxy potatoes into large, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2190.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, cook for 15-20 min or until almost fork tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2190.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -46,11 +49,13 @@ Meanwhile, combine the Dijon mustard with the cider vinegar and 3 tbsp <span cl
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2190.-step-4-1-x200.jpg)
 
 ### Step 4
 
 Slice the sugar snap peas in half lengthways
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2190.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -59,11 +64,13 @@ Once the potatoes have been cooking for 15-20 min, add the shredded ham hock to 
 
 Put the tray in the oven for 5 min or until warmed through and lightly crisped – this is your crispy ham
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2190.-step-6-1-x200.jpg)
 
 ### Step 6
 
 <span class="text-highlight">Once the potatoes are fork tender, add the sliced sugar snap peas to the pot with the potatoes and cook for a further 30 sec</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2190.-step-7-1-x200.jpg)
 
 ### Step 7
 

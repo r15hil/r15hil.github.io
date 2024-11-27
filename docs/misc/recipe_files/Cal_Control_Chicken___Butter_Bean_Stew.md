@@ -24,6 +24,7 @@ This warm & inviting stew is packed with green veg and protein-rich butter beans
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_10h57m05s-APIC-1718879127863-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your chicken breast portion[s] and cook for 3 min on each side or until lightly browned, then remove from the heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638260184225-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Transfer the browned chicken to a baking tray (use tin foil to avoid mess!)
 
 Put the tray in the oven for 12-14 min or until the chicken is cooked through (no pink meat!) and the juices run clear
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638260187375-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Chop your potato[es] (skins on) into bite-sized pieces
 
 Dissolve your chicken stock mix in 400ml <span class="text-purple">[520ml]</span> <span class="text-danger">[680ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1638260191029-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once melted, add the sliced garlic and cook for 30 secs
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>flour and cook for 1-2 min further or until a sandy paste forms – this is your roux
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_11h10m03s-APIC-1718879148597-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the chicken stock, chopped potatoes, and a generous pinch of salt to the pot
 
 Once boiling, reduce the heat to medium and cook, covered, for an initial 10-12 min or until the potatoes are almost cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638260199122-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Trim, then chop your green beans in half
 
 Once the potatoes are almost cooked through, add the shredded kale and halved green beans to the pot and cook, covered, for a further 2-3 min or until tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638260203475-x200.jpg)
 
 ### Step 7
 
@@ -85,6 +92,7 @@ Drain and rinse your butter beans, then add them to the pan with the pulled chic
 
 Stir everything together – this is your chicken & butter bean stew
 
+![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/17-06-24_13h27m52s-APIC-1718879168049-x200.jpg)
 
 ### Step 8
 

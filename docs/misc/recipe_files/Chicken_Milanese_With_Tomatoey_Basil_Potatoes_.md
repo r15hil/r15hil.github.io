@@ -26,6 +26,7 @@ Our healthier twist on Milanese balances wholesome green beans, potatoes and red
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1638792342085-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Chop your tomatoes into wedges and trim your green beans
 
 Peel and cut your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638792345467-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Add the chopped potatoes, tomato wedges and onion wedges to a baking tray lined 
 
 Add your dried oregano with a drizzle of vegetable oil and a generous pinch of salt and pepper and put the tray[s] in the oven for an initial 25 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638792347799-x200.jpg)
 
 ### Step 3
 
 Meanwhile, cover your chicken breast portion[s] in cling film and bash them with a rolling pin until evenly flattened to approx. 1cm in thickness
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1638792350824-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the juice of half your lemon[s] to a bowl with 2 tbsp<span class="text-purpl
 
 Stir everything together until the lemon and oil have combined – this is your lemon oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1638792353501-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the coated chicken to one side of an oiled baking tray
 
 Put the tray in the oven for 25 min or until the chicken is cooked through (no pink meat!) – this is your chicken Milanese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638792356912-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Pour over the chicken stock and top with the trimmed green beans
 
 Return the tray to the oven for a final 12-15 min or until the beans are tender and the stock has reduced
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638792359103-x200.jpg)
 
 ### Step 7
 

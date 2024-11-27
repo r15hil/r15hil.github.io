@@ -24,6 +24,7 @@ If riffing on healthy salads is your game, then this twist is sublime. You'll si
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624609757007-x200.jpg)
 
 ### Step 1
 
@@ -31,16 +32,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Drain and rinse your butter beans
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624609757435-x200.jpg)
 
 ### Step 2
 
 Add the drained butter beans to the pan with a generous crack of black pepper and cook for 4-5 min stirring occasionally
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624609781217-x200.jpg)
 
 ### Step 3
 
 While the butter beans are cooking, chop your tomato[es] roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624609783113-x200.jpg)
 
 ### Step 4
 
@@ -48,6 +52,7 @@ Combine half your harissa paste (can't handle the heat? Go easy!) with your hone
 
 Season with a pinch of salt and give everything a good mix up – this is your honey harissa dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624609794625-x200.jpg)
 
 ### Step 5
 
@@ -55,11 +60,13 @@ Drain your king prawns, then add them to the pan with the remaining harissa past
 
 Mix everything together, increase the heat to medium-high and cook for 4-5 min or until cooked through – these are your juicy harissa king prawns
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624609795147-x200.jpg)
 
 ### Step 6
 
 Meanwhile, trim, then slice your spring onion[s]<span class="text-danger"> </span>finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624609798113-x200.jpg)
 
 ### Step 7
 

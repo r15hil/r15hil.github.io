@@ -29,6 +29,7 @@ This cheesy fusion is un-bao-lievable. For a double dose of flavour, you’ll to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1691059454569-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1691059457175-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the cucumber rounds to a bowl with your cider vinegar, 1 tbsp <span class="t
 
 Mix it all together and set aside – these are your quick-pickles
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1691059459673-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Slice your tomato[es] into rounds
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1691059462112-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Combine your mustard ketchup, mayo and tomato ketchup in a bowl with 1/2 tsp per
 
 Season with a pinch of salt and pepper – this is your burger sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1691059464844-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once hot, add your beef mince and cook for 3-4 min or until beginning to brown, 
 
 Add the chopped garlic and season with a generous pinch of salt and pepper and cook for a further 6 min or until cooked through (no pink meat) and slightly crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1691059468137-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Top the mince with the grated cheese and cook, covered, for a final 2-3 min or u
 
 Pierce your bao bun packet[s] with a few holes and microwave for 1-2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1691059470489-x200.jpg)
 
 ### Step 7
 

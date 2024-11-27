@@ -26,6 +26,7 @@ Harissa adds a warm, smoky flavour to delicate cod. You'll serve it with sweet r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1583502324318-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Pat your haddock bites dry with kitchen paper (unevenly sized haddock bites? Cho
 
 Add your haddock bites to a bowl with your harissa paste (can't handle the heat? Go easy!), a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> olive oil and give everything a good mix up then keep to one side – this is your harissa-marinated haddock
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1583502327930-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Peel and chop your red onion[s] into wedges
 
 Peel and finely slice your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583502331822-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with a gene
 
 Once hot, add the onion wedges with a generous pinch of salt and a pinch of sugar and cook for 4-5 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583502335747-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Meanwhile, heat a pot (with a matching lid) over a medium-low heat with a knob o
 
 Once the butter has melted, add the sliced garlic and ground cumin with your bulgur wheat and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1583502339603-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Meanwhile, wash your salad, then pat it dry with kitchen paper, then add to a bo
 
 Roughly chop your black olives
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583502343459-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the onion wedges start to soften, add the harissa-marinated haddock with a 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1583502347067-x200.jpg)
 
 ### Step 7
 

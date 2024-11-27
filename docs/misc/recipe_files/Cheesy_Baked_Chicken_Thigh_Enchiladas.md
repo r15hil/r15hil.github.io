@@ -28,6 +28,7 @@ These cheesy enchiladas will transport you to the bustling streets of Mexico Cit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655808509341-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh with a pinch of salt and cook for 3-4 min or until the chicken is starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655808512602-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Grate your cheddar cheese
 
 Drain and rinse your black beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655808515328-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once the chicken has started to brown, add the sliced onion and cook for 7-8 mi
 
 Meanwhile, dissolve your chicken stock mix and tomato paste in 180ml <span class="text-purple">[270ml]</span> <span class="text-danger">[360ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655808518951-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the onion has softened, add your ground cumin, chipotle paste (can't handle
 
 Once fragrant, add the tomato stock and drained black beans to the pan and cook for 4-5 min or until a thick sauce remains – this is your enchilada filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655808522404-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Divide 3/4 of the enchilada filling (save some for later!) between your tortil
 
 Roll up the tortillas tightly – these are your enchiladas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655808526451-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Top with the remaining enchilada filling and grated cheese
 
 Put the dish in the oven for 10-12 min or until the cheese is golden and melted – these are your cheesy baked chicken thigh enchiladas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655808531111-x200.jpg)
 
 ### Step 7
 

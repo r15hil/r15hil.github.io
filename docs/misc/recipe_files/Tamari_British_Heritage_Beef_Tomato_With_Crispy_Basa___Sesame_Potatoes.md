@@ -24,6 +24,7 @@ Discover a fusion taste explosion with heritage beef tomatoes – made mouthwate
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655801003389-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray in the oven for an initial 22 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655801014070-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> as finely 
 
 Peel and grate the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655801010404-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add most of the sliced spring onion (save some for garnish) and grated garlic to
 
 Add 3 tbsp <span class="text-danger">[6 tbsp] </span>olive oil with 1 tsp <span class="text-danger">[2 tsp]</span> sugar and give everything a good mix up – this is your tamari marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655801046384-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Tip: Cooking for 4? You may need to do this in batches!
 
 Add the warmed beef tomato slices to the tamari marinade and gently toss together, then set aside and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655801049343-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Sprinkle the cornflour all over and rub it into both sides of the fish until ful
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655801052179-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, add the coated basa and cook for 8-9 min, turning once halfway until g
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655801066902-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ Get a taste of Greek takeaway in 10 minutes. For this version of souvlaki, youâ€
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1688463402225-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688463540240-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add your lamb mince with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688463543950-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Cook the orzo for 6-8 min or until cooked with a slight bite
 
 Once done, drain the orzo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688463548035-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Cut the remaining red onion into quarters, then separate the wedges so you end u
 
 Chop your tomato[es]<span class="text-danger"> </span>roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688463552072-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once the lamb is browned, add the onion petals and chopped tomato to the pan and
 
 Peel and finely chop (or grate) your garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688463556191-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Give everything a good mix up
 
 Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[175ml]</span> boiled water with your beef stock mix and a very generous pinch of salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688463560516-x200.jpg)
 
 ### Step 7
 

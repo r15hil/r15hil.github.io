@@ -26,6 +26,7 @@ O Flower of Scotland, this Balmoral chicken burger is a matchday hero. You’ll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674830035789-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674830044314-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674830053715-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the panko breadcrumbs and mix it all together and cook for 1-2 min or until 
 
 Transfer to a bowl and set aside to cool, reserving the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674830061674-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Meanwhile, wrap each chicken breast portion in 3 rashers of smoked streaky bacon
 
 Add the wrapped chicken to a separate baking paper-lined baking tray and put in the oven for 15 min or until the bacon has crisped, the chicken is cooked through (no pink meat inside!) and the juices run clear – this is your Balmoral chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674830071508-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ While the chicken is cooking, combine the cracked black pepper and mayo in a sma
 
 Wash the gem lettuce, then pat it dry with kitchen paper and roughly shred
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674830080250-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, add the brioche halves to the pan, cut-side down, and cook for 3-4 min
 
 Once golden, transfer to a plate and set aside for later
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674830088588-x200.jpg)
 
 ### Step 7
 

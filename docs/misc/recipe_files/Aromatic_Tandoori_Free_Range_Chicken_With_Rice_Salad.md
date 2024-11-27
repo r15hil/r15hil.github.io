@@ -26,6 +26,7 @@ For a lighter twist on a tandoori takeaway, you'll coat chicken in a spiced yogh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1716560387716-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add your basmati rice, a pinch of salt and 300ml <span class="text-purple">[390
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then rinse the rice under cold running water until cool and set aside until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1716560442817-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Combine your curry powder, half of your natural yoghurt (you'll use the rest l
 
 Add the chicken strips and give everything a good mix up – this is your coated chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1716560459394-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Drizzle a baking tray with vegetable oil (to prevent the chicken from sticking)
 
 Add the coated chicken to the tray and put it under the grill for 10-12 min or until the chicken is cooked through and starting to char (no pink meat!) – this is your free range tandoori chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1716560468859-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel and finely grate (or chop) your garlic
 
 Add the chopped garlic (don't like raw garlic? Go easy!), lime zest and a generous pinch of both salt and pepper to the yoghurt – this is your lime & garlic yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1716560509792-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Slice your cucumber in half lengthways and scrape out the seeds using a teaspoon
 
 Slice the cucumber halves finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1716560513778-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Pick the coriander and mint leaves from their stems, discard the stems
 
 Roughly chop the mint and coriander leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1716560517546-x200.jpg)
 
 ### Step 7
 

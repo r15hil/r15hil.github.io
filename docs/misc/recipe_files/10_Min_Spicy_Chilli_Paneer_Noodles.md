@@ -25,6 +25,7 @@ For a speedy vegetarian delight, you'll stir-fry golden paneer, crisp vegetables
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2353Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2353Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once the pan is hot, add the paneer with the ginger & garlic paste and soy sauce and cook for 2-3 min or until beginning to golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2353Step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the medium egg noodles to a pot and cover them with boiled water until fully
 
 Bring to the boil over a high heat and cook for 5-6 min or until cooked with a slight bite
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2353Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ While the noodles are cooking, trim, then chop the spring onions roughly
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2353Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ When the noodles are almost cooked, add the sliced pepper to the noodles and c
 
 Once done, drain the noodles and red pepper and reserving a cup of the starchy noodle water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2353Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Stir until dissolved, then add the sriracha, tomato ketchup, rice wine vinegar a
 
 Stir it all together – this is your chilli sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2353Step-7-x200.jpg)
 
 ### Step 7
 

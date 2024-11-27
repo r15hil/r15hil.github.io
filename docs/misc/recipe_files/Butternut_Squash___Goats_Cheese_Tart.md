@@ -21,6 +21,7 @@ Sweet butternut squash is the perfect topper for smooth goats' cheese, aromatic 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2341-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Add your butternut squash cubes to a baking tray (or two!) with a drizzle of oli
 
 Put the tray[s] in the oven for an initial 10-15 min or until the butternut squash is starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2341-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Cook for 8-10 min or until the liquid has reduced
 
 Remove the pan from the heat and leave the pecans to harden – these are your candied pecans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2341-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the butternut squash is starting to soften, add the sliced onion to the tra
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2341-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once cool, squeeze as much water out of the spinach as you can
 
 Strip your rosemary leaves from their stems, discard the stems
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2341-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Line a baking tray (or two!) with non-stick baking paper, then add the pastry sq
 
 Tip: Prick the inside of the border all over with a fork (this will stop you getting a soggy bottom!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2341-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Top with the roasted butternut squash, half of the roasted onion (save the rest 
 
 Drizzle with a little olive oil and put the tray in the oven for 20 min or until the pastry is cooked through, golden and the edges have puffed up – this is your butternut squash & goats' cheese tart
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2341-Step-7-x200.jpg)
 
 ### Step 7
 

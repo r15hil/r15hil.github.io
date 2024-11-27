@@ -25,6 +25,7 @@ This vitamin-packed stir-fry is brimming with goodness. You're getting a hit of 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/573.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Chop the mushrooms finely
 
 Chop the spring onion<span class="text-danger">[s]</span>&nbsp;finely, keeping the green tops and white stems separate and discarding the root end<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/573.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) over a med
 
 Once hot, add the pak choi, cover and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/573.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Stir thoroughly to dissolve then cover and set aside
 
 Cover the vermicelli noodles with boiled water and set aside to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/573.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Peel and grate the carrot directly into the pan, discarding the root end<span cl
 
 Stir and continue to cook, covered, for a further 4-5 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/573.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,11 +85,13 @@ Cut the chilli<span class="text-danger">[es]</span>&nbsp;in half lengthways, de-
 
 Combine the hoisin sauce, ginger, red chilli (can't handle the heat? Go easy!) and 50ml <span class="text-danger">[100ml]</span>&nbsp;boiled water - this is your sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/573.-step-6-x200.jpg)
 
 ### Step 6
 
 Chop the cashew nuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/573.-step-7-x200.jpg)
 
 ### Step 7
 

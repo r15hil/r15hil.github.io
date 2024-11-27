@@ -30,6 +30,7 @@ Savour the flavours of Sri Lanka with this curry in a hurry. You'll oven-bake fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1688642907192-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have o
 
 Take your chicken out of the fridge, open the packet and let it air
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1688642910998-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Chop your chicken breast strips into smaller strips
 
 Once hot, add your chopped chicken with a pinch of salt and cook for 2-3 min or until very lightly browned, then transfer to a plate and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1688642917428-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Chop your creamed coconut roughly (if required!)
 
 Slice your green chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-2-1688642921604-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Add the chopped garlic, curry powder, tamarind paste, ground turmeric and chicke
 
 Put the dish in the oven and cook, uncovered, for an initial 25 min or until thickened – this is your curry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1688642930107-x200.jpg)
 
 ### Step 5
 
@@ -83,11 +88,13 @@ Cover tightly with tin foil and put the dish in the oven for 25-30 min or until 
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1688642934644-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1-1688642940670-x200.jpg)
 
 ### Step 7
 

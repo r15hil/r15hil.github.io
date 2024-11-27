@@ -24,6 +24,7 @@ Simple, classic and delicious, this easy dish is hearty with a fresh and flavour
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-brown-onion-on-a-board-1691480789034-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-6 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691163125197-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Dissolve your vegetable stock mix in 200ml<span class="text-purple"> [260ml]</sp
 
 Drain and rinse your green lentils
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/carrot-finely-chopped-1691480710892-x200.jpg)
 
 ### Step 3
 
 Top, tail, peel and finely chop your carrot[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691398739777-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Once the onion has softened, add the carrot, bay leaf[ves], drained green lentil
 
 Cook, covered, for 10-12 min or until the carrots are tender, stirring occasionally – this is your lentil stew
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691398724663-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Chop your parsley finely, including the stalks (save some leaves for garnish!)
 
 Grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691398710031-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Combine in a bowl your panko breadcrumbs, chopped parsley, lemon zest and grated
 
 Add a generous drizzle of vegetable oil and a pinch of salt and pepper – this is your lemon breadcrumb mixture
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691398717066-x200.jpg)
 
 ### Step 7
 

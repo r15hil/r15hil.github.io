@@ -23,6 +23,7 @@ For this hearty salad, you'll layer peppery sausages over crisp apple, sweet roa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1710.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Peel and cut your red onion[s] into wedges
 
 Cut your potato[es] (skin on) into small, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1710.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Tip: Cooking for 4 or more? Use 2 trays!
 
 Put the tray[s] in the oven for an initial 20-25 min or until the sausages and potatoes are golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1710.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine your wholegrain mustard, honey and cider vinegar in a large bowl with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil, a splash of cold water and a grind of black pepper – this is your honey mustard dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1710.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -55,11 +59,13 @@ Once the sausages are golden, remove the tray[s] from the oven and add the torn 
 
 Return the tray to the oven for 6-8 min or until the ciabatta is golden and crisp and the sausages are cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1710.-step-5-x200.jpg)
 
 ### Step 5
 
 Whilst everything is cooking, cut your apple[s] (skin on) into matchsticks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1710.-step-6.2-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Add the salad, apple matchsticks, croutons, roast potato and roasted onion to th
 
 Give everything a good mix up – this is your honey mustard & apple salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1710.-step-7-x200.jpg)
 
 ### Step 7
 

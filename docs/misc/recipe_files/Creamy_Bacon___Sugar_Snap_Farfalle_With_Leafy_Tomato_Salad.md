@@ -26,11 +26,13 @@ This creamy farfalle is simply delicious. You'll sizzle bacon lardons until cris
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1722931576580-x200.jpg)
 
 ### Step 1
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599058843164-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Once hot, add the bacon lardons and cook for 5-6 min or until golden and crispy
 
 Once crispy, remove half of the crispy bacon slices and set them aside until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599058862393-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once the pasta has been cooking for 8 min, add the sliced sugar snaps and cook 
 
 Once cooked, drain and reserve a cup of starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599058898895-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop your tomato[es]<span class="text-danger"> </span>into wedges
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water – this is your chicken stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599058926375-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the chicken stock and soft cheese and cook for 2-3 min or until starting 
 
 Season with a generous grind of black pepper – this is your creamy sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599058936817-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the salad and tomato wedges to a bowl with a drizzle of olive oil and a crack of black pepper and mix everything together – this is your leafy tomato salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599058959417-x200.jpg)
 
 ### Step 7
 

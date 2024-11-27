@@ -27,6 +27,7 @@ This coconutty dal is delightfully creamy. You’ll simmer lentils with garlic a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674830632899-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-4 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674830646636-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Rinse your red lentils in a sieve under cold running water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674830660271-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Cook for 1 min or until fragrant
 
 Once fragrant, add your chopped tomatoes, chopped pepper and chopped creamed coconut with a generous pinch of salt and pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674830669197-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add 450ml <span class="text-purple">[675ml]</span> <span class="text-danger">[90
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-20 min, stirring occasionally, until all the water is absorbed and the lentils are tender – this is your coconut curry dal
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674830678556-x200.jpg)
 
 ### Step 5
 
@@ -74,11 +79,13 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674830688608-x200.jpg)
 
 ### Step 6
 
 Meanwhile, trim your green beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674830698321-x200.jpg)
 
 ### Step 7
 

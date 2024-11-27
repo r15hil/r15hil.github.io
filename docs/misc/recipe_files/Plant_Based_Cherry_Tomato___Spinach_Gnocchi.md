@@ -26,6 +26,7 @@ This plant-based gnocchi is perfect in a pinch. You’ll simmer cherry tomatoes 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675778047816-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675778054043-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced shallot with a pinch of salt and cook for 2-3 min, or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675778066627-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once softened, add the halved cherry tomatoes and cook for 3-4 min or until star
 
 Dissolve your vegetable stock mix, balsamic vinegar and a generous pinch of sugar in 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> boiled water – this is your balsamic stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675778070989-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once fragrant, add your chopped tomatoes, balsamic stock, dried basil and a gene
 
 Stir it all together and cook for 3-4 min or until thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675778077641-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675778088765-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the tomato sauce has thickened, add the spinach to the pan and give everyth
 
 Cook for 1-2 min or until the spinach has just wilted – this is your cherry tomato & spinach sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675778092275-x200.jpg)
 
 ### Step 7
 

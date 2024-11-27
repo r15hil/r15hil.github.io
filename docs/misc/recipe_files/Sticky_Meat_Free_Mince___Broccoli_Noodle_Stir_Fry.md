@@ -29,6 +29,7 @@ Tuck into noodles and crisp greens in a sticky sauce. You'll sizzle garlic, ging
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632826695265-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop all of these together as finely as you can (can't handle the heat? Save so
 
 Trim, then slice your spring onion[s] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632826697667-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the chopped garlic, ginger and chilli and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632826702163-x200.jpg)
 
 ### Step 3
 
 Once fragrant, add your meat-free mince (remove the paper if required!) and your five-spice mix and cook for 4 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632826705064-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ While the meat-free mince is cooking, combine your cornflour with 125ml <span 
 
 Add your hoisin sauce, rice vinegar, soy sauce and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your sticky stir-fry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632826708447-x200.jpg)
 
 ### Step 5
 
 Chop your Tenderstem broccoli in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632826711759-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Bring to the boil and cook over a high heat for 5 min or until the noodles are c
 
 Once done, drain the noodles & broccoli, reserving a cup of the starchy noodle water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632826714259-x200.jpg)
 
 ### Step 7
 

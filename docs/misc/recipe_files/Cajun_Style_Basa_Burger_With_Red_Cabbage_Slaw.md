@@ -27,6 +27,7 @@ What's the o-cajun? You won't need one for this delicious Cajun burger, flavoure
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644331217947-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chips to a large baking tray (or two!) with a drizzle of vegetable oil 
 
 Put the tray[s] in the oven for 25-30 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644331228100-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, top, tail and grate your carrot[s] (no need to peel!)
 
 Trim, then slice your spring onion[s] finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644331239040-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add your shredded red cabbage, grated carrot and half the sliced spring onion 
 
 Combine your mayo and red chilli relish in a bowl – this is your chilli mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644331248377-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Combine your ground cumin, ground smoked paprika, cayenne pepper (can't handle 
 
 Mix all the spices together – this is your Cajun-style seasoning
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644331257106-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Pat your basa fillet[s] dry with kitchen paper and then slice in half
 
 Press the halved basa into the Cajun-style seasoning firmly to evenly coat all over
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644331267743-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once hot, add the coated basa halves and cook for 3-4 min on each side or until 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644331276676-x200.jpg)
 
 ### Step 7
 

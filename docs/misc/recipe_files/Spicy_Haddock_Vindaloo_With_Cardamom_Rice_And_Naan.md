@@ -33,6 +33,7 @@ This dish is a fusion of East and West, with the influence of Portugal shining t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686050980304-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Crush your cardamom pods open by squashing them with the side of a knife, then a
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving – this is your cardamom rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686050983399-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 7-8 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686050987126-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the haddock bites to a bowl with your cider vinegar, ground cumin, ground p
 
 Give everything a good mix up – this is your coated haddock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686050990804-x200.jpg)
 
 ### Step 4
 
@@ -71,11 +75,13 @@ Chop your cherry tomatoes in half
 
 Dissolve your vegetable stock mix and tamarind paste in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water – this is your tamarind stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686050993213-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add a knob of butter with the halved tomatoes and sliced garlic and cook for 6-8 min further or until the tomatoes are starting to break down
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686050997907-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the tamarind stock and cook for 4-5 min or until the sauce has thickened and
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686051008809-x200.jpg)
 
 ### Step 7
 

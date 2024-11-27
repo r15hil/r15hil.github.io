@@ -28,6 +28,7 @@ For a curry that'll really float your boat, you'll whizz up your own curry paste
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1715587994450-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1715587998354-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Roughly chop your tomato[es]
 
 Separate your coriander leaves from the stalks, then chop them both finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715588002477-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the chopped ginger, garlic, tomatoes, chilli (can't handle the heat? Go eas
 
 Add a pinch of salt and blitz until smooth – this is your curry paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1715588006007-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion with a pinch of salt and cook for 5-7 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1715588010256-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the onion has softened, add your garam masala and ground cumin and cook for
 
 Add your curry paste and cook for 2-3 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1715588013894-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Meanwhile, chop your hake fillet[s] into large bite-sized pieces
 
 Once the sauce has thickened, add the chopped hake and your sugar snap peas to the pan and bring to the boil over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715588020311-x200.jpg)
 
 ### Step 7
 

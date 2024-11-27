@@ -29,6 +29,7 @@ Take one bite of this crispy Turkish-style beef borek roll and you’ll never lo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-28-1713257488571-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add your beef mince to a bowl with the diced shallot, your ground cumin, ground
 
 Season with a generous pinch of salt and pepper and mix thoroughly to combine (clean hands is the best way!) – this is your beef filling
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-28-1713257495414-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Cut it, lengthways, into 1 rectangle per person then place the rectangle[s] end 
 
 Tip: Cooking for 4 or more? Make 2!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-34-1713257500502-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Fold the pastry over the filling and seal firmly together, then use a fork to cr
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-29-1713257504392-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Tip: Leave a 2 cm gap within the spiral so that it can puff up!
 
 Put the tray in the oven for 25-30 min or until golden and crisp and the beef is cooked through (no pink meat!) – this is your Turkish-style spiced beef borek
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-30-1713257517787-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once cooked, drain and return to the pot and stir through your chicken stock mix
 
 <span class="text-danger">Ordered extra halloumi? Slice and cook in a pan with a little oil for 4-6 min or until golden all over</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-30-1713257522430-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Top, tail, peel and grate your carrot[s]
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-30-1713257527293-x200.jpg)
 
 ### Step 7
 

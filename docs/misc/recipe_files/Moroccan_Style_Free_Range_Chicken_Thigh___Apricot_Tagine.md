@@ -30,6 +30,7 @@ Combining tender free range chicken thighs with sweet apricots, earthy ras el ha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-23-1697120799306-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Boil half a kettle
 
 Add your couscous to a heatproof bowl with 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> boiled water, cover and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-26-1697120803863-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-28-1697120808058-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-27-1697120812560-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the sliced onion with a pinch of salt to the pan and cook for 4-5 
 
 Reboil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-26-1697120816183-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml]</span
 
 Slice your free range chicken thighs into strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-24-1697120819996-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the onion has softened, add your ras el hanout, chilli flakes (can't handle
 
 Add your chopped tomato, pepper rounds, chicken stock and the juice of half your lemon[s] and cook, covered, for 8-10 min or until the chicken is cooked through (no pink meat!) – this is your Moroccan-style free range chicken thigh & apricot tagine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-14-1697120823555-x200.jpg)
 
 ### Step 7
 

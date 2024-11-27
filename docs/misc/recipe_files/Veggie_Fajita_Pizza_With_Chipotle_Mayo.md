@@ -28,6 +28,7 @@ Get set for the ultimate veggie pizza with sweetcorn, pepper and green chilli sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1584988034181-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon), then
 
 Peel and finely slice your shallot[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1584988039205-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Slice your green chilli[es] finely
 
 Grate your cheddar cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1584988044295-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the sliced shallot and chopped pepper with your ground smoked pap
 
 Cook for 2-3 min until the shallot has softened – this is your spicy pepper mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1584988047694-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Drain your mozzarella, then pat dry with kitchen paper (squeeze as much liquid o
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1584988051811-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Spread the tomato sauce evenly over the top of the pizza base[s] with the back 
 
 Top with the drained sweetcorn, torn mozzarella and spicy pepper mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1584988055718-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Put the tray[s] in the oven for 13-15 min or until the cheese has melted and th
 
 Tip: Cooking for 2 or more? Make sure the pizzas don’t overlap on the tray to avoid raw dough!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1584988059147-x200.jpg)
 
 ### Step 7
 

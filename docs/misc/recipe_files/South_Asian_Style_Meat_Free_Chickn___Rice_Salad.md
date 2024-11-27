@@ -29,6 +29,7 @@ This summery Burmese-inspired dish combines soy with zesty lime for a dressing w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657644334133-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain well and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657644339757-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Wash your lettuce, then pat dry with kitchen paper and shred finely
 
 Peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657644356037-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine your gluten free soy sauce and chopped garlic in a bowl with the juice o
 
 Give it a good mix up – this is your South Asian-style dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657644373470-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated meat-free chick'n and cook for 6-7 min or until browned and warmed through – this is your curried meat-free chick'n
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657644383646-x200.jpg)
 
 ### Step 5
 
 Once the curried meat-free chick'n has browned, add your roasted peanuts and toasted sesame seeds to the pan and cook for 1-2 min or until fragrant and lightly toasted – this is your curried meat-free chick'n and peanuts & sesame
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657644410619-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Meanwhile, chop your coriander finely, including the stalks
 
 Slice the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657644418929-x200.jpg)
 
 ### Step 7
 

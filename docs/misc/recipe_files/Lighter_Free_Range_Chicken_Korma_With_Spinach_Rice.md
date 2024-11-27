@@ -32,6 +32,7 @@ This free range chicken korma is lower in calories and fat but it tastes just as
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-37-1715931124865-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-36-1715931148951-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Chop your tomato[es] finely
 
 Dissolve your chicken stock mix and your tomato paste in 200ml <span class="text-purple">[275ml]</span><span class="text-danger"> [350ml]</span> boiled water – this is your tomato stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-42-1715931162043-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Once hot, add the chopped onion with a pinch of salt and cook for 5-7 min or unt
 
 Meanwhile, chop your free range chicken breast portion[s] into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-37-1715931165686-x200.jpg)
 
 ### Step 4
 
@@ -70,11 +74,13 @@ Once the onion has softened, add the chopped chicken and cook for 2-3 min or unt
 
 Once browned, add the chopped garlic, chopped ginger, your curry powder, ground turmeric and your ground almonds and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-38-1715931168802-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the chopped tomatoes and tomato stock and cook for 8-10 min or until the sauce has thickened to a curry-like consistency and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-37-1715931174058-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once cool, squeeze the water out of the spinach as much as you can, then chop it
 
 Stir the chopped spinach and a pinch of salt through the basmati rice – this is your spinach rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-37-1715931177801-x200.jpg)
 
 ### Step 7
 

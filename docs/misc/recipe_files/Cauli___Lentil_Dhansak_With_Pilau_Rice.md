@@ -27,6 +27,7 @@ Spicy and flavourful, this is the perfect ‘fakeaway’ for busy nights. Mango 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632736876576-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop the cherry tomatoes in half
 
 Cut the cauliflower<span class="text-danger">[s]</span> into small florets, discard the stem and leaves
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632736888975-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the sliced onion and halved cherry tomatoes with a pinch of salt a
 
 Once softened, add the garam masala, cayenne pepper (can't handle the heat? Go easy!) and ground turmeric and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632736924461-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Rinse the red lentils in a sieve under cold running water
 
 Cut the lemon<span class="text-danger">[s] </span>in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632736935440-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once fragrant, add the rinsed red lentils and vegetable stock to the pan and coo
 
 While the lentils are cooking, crush the cardamom pods open by squashing them with the side of a knife
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632736942203-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the basmati rice and 300ml <span class="text-danger">[600ml]</span> cold wat
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632736976574-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the lentils are almost tender, add the cauliflower florets and mango chut
 
 Once done, stir in the juice of 1/2<span class="text-danger"> [1] </span>lemon – this is your cauli & lentil dhansak
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632736998791-x200.jpg)
 
 ### Step 7
 

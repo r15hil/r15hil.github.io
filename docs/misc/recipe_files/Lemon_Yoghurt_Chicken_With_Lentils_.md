@@ -25,6 +25,7 @@ Cooking chicken in yoghurt keeps it perfectly moist and allows flavour to infuse
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/465.-step1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Rinse the lentils in a sieve under cold running water, then add them to a pot wi
 
 Once boiling, add the bay leaf<span class="text-danger">(ves)</span>, reduce to a medium heat and cook for 20-30 min or until tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/465.-step2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely chop (or grate) the garlic
 
 Cut the lemon<span class="text-danger">(s)</span> in half&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/465.-step3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the carrot and onion with a large pinch of salt
 
 Cook for 2 min, then reduce the heat to low and cook for 20 min or until softened&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/465.-step4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add the yoghurt, garlic, curry powder and chicken strips to a mixing bowl with t
 
 Reserve the remaining lemon for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/465.-step5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Spoon the remaining yoghurt over the strips
 
 Place the tray under the grill for 10 min, turning once
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/465.-step6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Meanwhile, chop the coriander finely, including the stalks
 
 Once cooked, drain &nbsp;the lentils and discard the bay leaf<span class="text-danger">(ves)</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/465.-step7-x200.jpg)
 
 ### Step 7
 

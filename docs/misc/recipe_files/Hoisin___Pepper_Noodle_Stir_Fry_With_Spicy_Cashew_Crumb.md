@@ -29,6 +29,7 @@ Feed the fam with these slurp-worthy Cantonese-style veg noodles. You’ll stir-
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688483151917-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Trim, then slice your spring onion[s]
 
 Chop your broccoli into small florets, discard the stem[s] and leaves
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688483155510-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Crush your cashew nuts with a rolling pin
 
 Tip: If you don’t have a rolling pin, just chop them roughly!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688483159502-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Combine your hoisin sauce, umami seasoning, and soy sauce in a bowl
 
 Add your toasted sesame oil, cornflour, a pinch of salt and 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[8 tbsp]</span> water and stir it all together – this is your stir-fry sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688483163271-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Boil half a kettle
 
 Combine the crushed cashews in a separate bowl with the sliced spring onion and chilli flakes (can't handle the heat? Go easy!) – this is your spicy cashew crumb
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688483168283-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the sliced onion and cook for 3-4 min or until beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688483176103-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Meanwhile, add your udon noodles to a large bowl, cover them with boiled water a
 
 Tip: Gently separate the noodles with a fork!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688483181837-x200.jpg)
 
 ### Step 7
 

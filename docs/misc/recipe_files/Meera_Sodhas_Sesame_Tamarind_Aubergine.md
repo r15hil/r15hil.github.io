@@ -25,11 +25,13 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/566.-step-1-x200.jpg)
 
 ### Step 1
 
 Peel and finely slice the onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/566.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat with 2 tb
 
 Once hot, add the onions with a pinch of salt and cook for 10-12 min until soft and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/566.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Blitz the whole garlic, tomatoes, sesame seeds, tamarind paste, cayenne, ground 
 
 Tip: if you don't own a food processor, just chop the garlic and tomatoes finely and combine them with the other ingredients&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/566.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Slice&nbsp;the aubergines into 4, lengthways&nbsp;
 
 Cut&nbsp;the slices into batons&nbsp;(see picture)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/566.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Add the aubergine, season with pepper and stir thoroughly to coat the aubergine 
 
 Cover and cook for 15 min or until soft and tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/566.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add the bulgur to a pot with plenty of boiled water (the same as you would for pasta) and cook over a high heat for 10-15 min or until tender with a slight bite, then drain and return to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/566.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ Take this classic combo al fresco! You’ll stuff these regal wraps with coronat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1626261548094-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the chicken strips to a tin foil-lined baking tray with a drizzle of vegetab
 
 Put the tray in the oven for 15-16 min or until cooked through (no pink meat!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1626261600236-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Slice each cheddar triangle into 4 so that you're left with 4 slices per person
 
 Slice the ciabatta[s] into 4<span class="text-danger"> </span>slices per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1626261663703-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once the tortillas are warmed through, remove them from the oven and transfer th
 
 Add the ciabatta slices to the tray with a drizzle of olive oil and put them in the oven for 3-4 min or until crisp and lightly golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1626261726865-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Combine your cider vinegar with 2 tbsp<span class="text-danger"> <span class="te
 
 Slice your spring onion[s] finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1626261749383-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add the pulled chicken to a large bowl with your mayo, half your mango chutney (
 
 Give everything a good mix up – this is your speedy coronation chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626261779617-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Fill the warmed tortillas with a small handful of salad (you'll use the rest lat
 
 Tip: Wrap them up using tin foil or baking paper to take them on your picnic!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626261832016-x200.jpg)
 
 ### Step 7
 

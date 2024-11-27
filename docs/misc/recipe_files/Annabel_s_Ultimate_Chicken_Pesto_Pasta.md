@@ -22,6 +22,7 @@ Family favourite alert! The combination of pesto, soy, balsamic and sweet cherry
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1060.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cook the fusilloni for 12-14 min or until cooked with a slight bite
 
 Once done, drain the fusilloni, reserving a cup of the starchy pasta water&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1060.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1060.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the&nbsp;sliced onion with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1060.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,11 +76,13 @@ Meanwhile, cut the cherry tomatoes in half
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1060.-step-5-x200.jpg)
 
 ### Step 5
 
 Once softened, add the garlic and diced chicken to the<span class="text-highlight"> onion&nbsp;and</span> cook for 4-5 min or until the chicken is cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1060.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the chopped cherry tomatoes to the pan and cook for 2 min, stirring gently u
 
 Meanwhile, grate the Italian hard cheese&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1060.-step-7-x200.jpg)
 
 ### Step 7
 

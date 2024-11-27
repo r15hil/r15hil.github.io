@@ -25,6 +25,7 @@ We’re making magic with two fast-food favourites. Load crispy tortilla chips w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634041127757-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Break your meat-free sausages into rough pieces
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of olive oil over a medium-high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634041132016-x200.jpg)
 
 ### Step 2
 
 Once hot, add the meat-free sausage pieces and cook for 7-8 min or until browned all over, breaking them up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634041137863-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Give everything a good mix up, then spread them out and put the tray[s] in the o
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634041147964-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Whilst the nachos are cooking, peel and finely dice your shallot[s]
 
 Peel and grate (don't chop!) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634041158637-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add half your grated garlic (save the rest for later!) with your chilli flakes 
 
 Add your chopped tomatoes, 200ml<span class="text-purple"> [300ml] </span><span class="text-danger">[400ml]</span> water and a pinch of salt and cook for 4-5 min or until the sauce has reduced – this is your spicy meat-free sausage sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634041165944-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Combine the sliced green chilli and half your white wine vinegar (save the rest
 
 Mix well and set aside – this is your quick-pickled chilli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634041179066-x200.jpg)
 
 ### Step 7
 

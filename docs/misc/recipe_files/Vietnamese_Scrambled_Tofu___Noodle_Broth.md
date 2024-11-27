@@ -27,6 +27,7 @@ This aromatic noodle bowl is inspired by a dish called Mì Quảng from the Qu�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1613498354760-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Tip: Alternatively, add the ingredients to a food processor and blitz!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1613498409698-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the ground turmeric, gently stir together and set aside to soak for 10-15 mi
 
 Reboil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1613498415232-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the sliced shallot and cook for 1-2 min or until slightly soften
 
 Once slightly softened, add the chopped garlic and chopped ginger and cook for 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1613498469600-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the vegetable stock mix into the pan with 500ml <span class="text-danger">[1
 
 Bring to the boil over a high heat and once boiling, reduce the heat to low and cook for 7-8 min further – this is your spicy broth
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1613498476658-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Stir it all together and cook for 6-7 min, turning occasionally until golden and
 
 Tip: Different shapes and sizes are good for texture!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1613498502090-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Cut the white bases into bite-sized pieces
 
 Bash the roasted peanuts roughly with a rolling pin (keep them in the bag so you don't lose any!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1613498513321-x200.jpg)
 
 ### Step 7
 

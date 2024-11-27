@@ -27,6 +27,7 @@ Prep a creamy stew in 5 minutes, full of juicy chicken thigh, potato and tangy s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1.-jpg-1610553336408-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606133227936-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Crush your garlic open by squashing with the side of a knife, remove the skin and chop roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606133236469-x200.jpg)
 
 ### Step 3
 
 Add your diced chicken thigh to the dish with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour and cook until very lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606133244162-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Meanwhile, chop your potatoes (skins on) into small bite-sized pieces
 
 Add the chopped potatoes and crushed garlic to the dish and stir it all together
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606133266204-x200.jpg)
 
 ### Step 5
 
 Add your cherry tomatoes, dried oregano and tomato paste to the dish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606133270674-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Tip: Nestle the potatoes into the stock as much as you can!
 
 Bring to the boil over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606133282007-x200.jpg)
 
 ### Step 7
 

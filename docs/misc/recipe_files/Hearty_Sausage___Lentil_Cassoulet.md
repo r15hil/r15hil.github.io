@@ -24,6 +24,7 @@ This simple & hearty one-pot cassoulet is a great twist on a family classic and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1379.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once hot, add the Cumberland sausages and cook for 4-5 min or until browned all 
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1379.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1379.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Once the&nbsp;sausages have browned, transfer them to a plate and reduce the hea
 
 Add the chopped onion, carrot and pepper with a pinch of salt and cook for 4-5 min or until&nbsp;softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1379.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Meanwhile, dissolve the chicken stock cube<span class="text-danger">[s]</span> i
 
 Rinse the puy-style lentils&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1379.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Once the vegetables have softened, add the balsamic vinegar, chopped garlic&nbsp
 
 Add the puy-style lentils and chicken stock and cook, covered, for 25-30 min or until the lentils are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1379.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Meanwhile, preheat the oven to 200&deg;C/ 180&deg;C (fan)/ 400&deg;F/ Gas 6
 
 Once the lentils have been cooking for 10 min, return the sausages to the pan and cook, covered, for the remaining 10-15 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1379.-step-7-x200.jpg)
 
 ### Step 7
 

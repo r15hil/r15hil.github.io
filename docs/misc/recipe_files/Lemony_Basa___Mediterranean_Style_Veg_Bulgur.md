@@ -27,6 +27,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684849701765-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop your cherry tomatoes in half
 
 Peel and roughly chop your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684849705562-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the chopped tomatoes and onion to a baking tray (or two) with a drizzle of 
 
 Put the tray[s] in the oven for 10-15 min or until the onion is cooked and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684849711070-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Cook, covered for 5-7 min or until almost all the water has absorbed
 
 Once done, remove the pot from the heat, fluff with a fork and set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684849716567-x200.jpg)
 
 ### Step 4
 
 Meanwhile, chop your basa fillet[s] in half width ways
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684849720906-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Give everything a good mix up – this is your herb marinade
 
 Dip the chopped basa in the herb marinade (reserve the remaining marinade)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684849724394-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Season with a pinch of salt and pepper and give everything a good mix up –
 
 Once the tomatoes and onions are crisp, add them to the cooked bulgur with the chopped parsley and give it a good mix up – this is your Mediterranean-style veg bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684849727598-x200.jpg)
 
 ### Step 7
 

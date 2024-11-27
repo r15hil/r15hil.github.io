@@ -25,6 +25,7 @@ What makes this delicious lamb lasagne Moroccan is the addition of ras el hanout
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/781.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,6 +46,7 @@ Peel and finely chop (or grate) the garlic
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/781.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,6 +58,7 @@ Once hot, add the chopped&nbsp;onion,&nbsp;chopped carrot,&nbsp;a generous pinch
 
 Meanwhile, dissolve the chicken&nbsp;stock cube<span class="text-danger">[s]</span>&nbsp;in 300ml&nbsp;<span class="text-danger">[600ml]</span>&nbsp;boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/781.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Cover with a lid and cook for 5 min&nbsp;
 
 Season generously with salt and pepper &ndash;&nbsp;this is your meat sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/781.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Meanwhile, add 30g <span class="text-danger">[60g]</span>&nbsp;butter to a pot o
 
 Once melted, add 30g <span class="text-danger">[60g]</span>&nbsp;flour and stir for 2-3 min until a sandy coloured paste is formed &ndash; this is your roux
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/781.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Whisk&nbsp;constantly for 5 min or until a smooth, thick sauce remains, then rem
 
 Season with salt and pepper and set aside &ndash; this is your b&eacute;chamel sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/781_step-6-x200.jpg)
 
 ### Step 6
 
@@ -106,6 +112,7 @@ Tip: scattering from up high ensures even distribution!
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/781.-step-7-x200.jpg)
 
 ### Step 7
 

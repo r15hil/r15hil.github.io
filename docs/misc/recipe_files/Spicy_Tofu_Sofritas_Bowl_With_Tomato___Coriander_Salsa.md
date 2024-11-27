@@ -30,6 +30,7 @@ This spicy plant-based sofritas bowl combines crispy tofu with rice, sweetcorn a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652175032517-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729166028728-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Crumble the tofu into small bite-sized pieces
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729166043977-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the crumbled tofu to a bowl with half your soy sauce (you’ll use the rest 
 
 Once hot, add your coated tofu to the pan, and cook for 8-9 min, turning occasionally until golden and crisp – this is your crispy tofu
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729166048630-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once hot, add the drained sweetcorn to the pan with your ground cumin, ground sm
 
 Cook for 30 secs or until the spices are fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729166053637-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Once fragrant, add your tomato paste to the pan with the remaining soy sauce and
 
 Stir it all together and cook for 2-3 min or until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729166057854-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add the cooked rice to the pan with the sweetcorn and a splash of water (if look
 
 Stir everything together and cook for 3-4 min or until the rice has warmed through – this is your spiced rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729166083256-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ This aubergine tart is perfect for the whole family. You’ll load pastry square
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679568176902-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Trim the green stalk[s]<span class="text-danger"> </span>off your aubergine[s] a
 
 Chop your potatoes into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679568179132-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Put the tray in the oven for 10-12 min or until slightly softened
 
 Add the chopped potatoes to a separate tray (or two!) with a small drizzle of vegetable oil and a generous pinch of salt and put the tray[s] in the oven for 20-25 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679568182136-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Combine your tomato paste with half the chopped garlic and half your balsamic vi
 
 Add your dried basil with a generous pinch of salt, a pinch of sugar, 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp]</span> [2 tbsp] </span>olive oil and 3 tbsp<span class="text-danger"> <span class="text-purple">[4 1/2 tbsp]</span> [6 tbsp]</span> cold water and give everything a good mix up – this is your tomato base
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679568184841-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Score a 1cm border around the edge of the pastry rectangle[s] with a knife
 
 Prick the inside of the border all over with a fork (this will stop you getting a soggy bottom!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679568187390-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Line the reserved baking tray with baking paper and add the pastry rectangle[s]
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679568190707-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Divide the softened aubergine equally between the pastry
 
 Put the tray[s] in the oven for 12-15 min or until the pastry is golden and cooked through and the edges have puffed up – this is your aubergine tart[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679568193828-x200.jpg)
 
 ### Step 7
 

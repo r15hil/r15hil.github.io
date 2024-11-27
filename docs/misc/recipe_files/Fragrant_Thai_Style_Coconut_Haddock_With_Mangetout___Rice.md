@@ -27,6 +27,7 @@ Put a Thai-inspired twist on your fish supper with this coconutty red curry. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1725446946461-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1725446950691-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop your tomato[es] into wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1725446955928-x200.jpg)
 
 ### Step 3
 
@@ -52,11 +55,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the tomato wedges and sliced pepper and cook for 2-3 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1725446960954-x200.jpg)
 
 ### Step 4
 
 Once softened, add your ginger & garlic paste and red Thai curry paste with 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1725446968003-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once fragrant, add the coconut stock
 
 Cut the remaining lime[s] into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1725446972864-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Add the seasoned haddock bites to the pan and cook, covered, for an initial 2-3 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1725446977340-x200.jpg)
 
 ### Step 7
 

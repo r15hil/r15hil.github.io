@@ -30,6 +30,7 @@ Our twist on this mustard-baked basa, known as Macher Paturi, hails from the Ben
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1824.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1824.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with 
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1824.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[
 
 Tip: Alternatively blitz together in a food processor!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1824.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Leave for 1 min, then remove from the mug
 
 Add your ground turmeric and the softened creamed coconut to the mustard mixture and give everything a good mix up – this is your Bengali-style mustard paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1824.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your basa fillet[s] to the middle of each piece of paper/foil
 
 Spoon the Bengali-style mustard paste evenly over your fillet[s] and scrunch the edges of the baking paper together around the basa to form a sealed parcel[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1824.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Chop your coriander finely, including the stalks
 
 Top, tail, peel and grate your carrot[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654524800526-x200.jpg)
 
 ### Step 7
 

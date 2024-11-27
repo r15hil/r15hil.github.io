@@ -21,6 +21,7 @@ Wrapping most things in bacon is good, right? This chicken is no exception. We'v
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/542.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Boil a kettle
 
 Separate the sage leaves from their stalks, keep a few whole leaves aside for later and chop the remaining finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/542.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Peel the garlic
 
 Add both the potatoes and garlic to a pot of salted boiled water and cook over a high heat for 10-20 min or until fork tender&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/542.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Tip: ripping the mushrooms creates texture and saves time!
 
 Add the ripped mushrooms to a baking tray lined with tin foil, drizzle with olive oil and season with salt and pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/542.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Place your hand flat on the chicken breast<span class="text-danger">[s]</span>
 
 Carefully, slice the chicken in half as if you were cutting a burger bun, so you are left with two thinner pieces&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/542.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the wrapped chicken to the tray with the mushrooms
 
 Put the tray directly under the grill and cook for 10-15 min or until the bacon has cooked and crisped and the chicken is cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/542.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the remaining&nbsp;chopped sage and cook for 1 min, then add the potatoes, a
 
 Mash until smooth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/542.-step-7-x200.jpg)
 
 ### Step 7
 

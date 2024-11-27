@@ -26,6 +26,7 @@ Try your hand at traditional Sardinian cooking with this spicy spaghetti. You’
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-3-1728897554473-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1711453014506-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Boil a kettle
 
 Once hot, add your lamb mince to the pan with a pinch of salt and cook for 4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1711453017363-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Dissolve your tomato paste, red wine paste and beef stock mix in 150ml <span cla
 
 Add your dried oregano and most of your chilli flakes (can’t handle the heat? Go easy!) – this is your spicy stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1711453022426-x200.jpg)
 
 ### Step 4
 
 Once the lamb has begun to brown, add the sliced shallot to the pan and cook for 1-2 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1711453026770-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1711453047390-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the shallot has softened, add your roasted garlic paste to the pan and cook
 
 Once fragrant, add the spicy stock to the pan, reduce the heat to medium and cook for a final 3 min or until thickened and the lamb is cooked through (no pink meat!) – this is your spicy lamb & chilli sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1711453052218-x200.jpg)
 
 ### Step 7
 

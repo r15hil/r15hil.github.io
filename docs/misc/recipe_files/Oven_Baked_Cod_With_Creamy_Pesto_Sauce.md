@@ -20,6 +20,7 @@ This creamy oven-baked cod requires hardly any prep! You'll combine pesto and so
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1500._step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut the potatoes (skins on) into wedges, then cut each wedge in half
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1500._step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the potatoes to a baking tray with a generous drizzle of vegetable oil and a
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1500._step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,16 +53,19 @@ Meanwhile, dissolve 1/2 <span class="text-danger">[1]</span>&nbsp;vegetable stoc
 
 Add the classic basil nut pesto and soft cheese and mix to combine &ndash; this is your creamy&nbsp;pesto sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1500._step-4-x200.jpg)
 
 ### Step 4
 
 Top, tail and dice the courgette<span class="text-danger">[s]</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1500._step-5-x200.jpg)
 
 ### Step 5
 
 Cut the cherry tomatoes in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1500._step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Top with the diced courgette, chopped cherry tomatoes, and cod fillets&nbsp;
 
 Drizzle the cod fillets with olive oil and season with a pinch of salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1500._step-7-x200.jpg)
 
 ### Step 7
 

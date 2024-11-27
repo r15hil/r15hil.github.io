@@ -23,6 +23,7 @@ Get the best of both worlds with this Middle-Eastern-meets-Mediterranean dinner.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1637149787897-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Tip: Be careful! Drizzle the knife with a little vegetable oil for easier choppi
 
 Scoop out the seeds with a spoon and discard
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1637149791527-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Cut narrow slices (about 1cm apart) into the butternut squash halves, making sur
 
 Combine the ras el hanout and dried oregano with 2 tbsp <span class="text-danger">[4tbsp]</span> olive oil and a pinch of salt and pepper in a small bowl – this is your spiced marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1637149795614-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Put the tray in the oven for an initial 40 min or until the butternut squash is 
 
 After 40 min, remove the tin foil and cook for a further 5-10 min or until golden – this is your spiced hasselback butternut squash
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1637149799228-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Squeeze the water out of the cooled spinach, then chop it roughly
 
 Reboil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1637149802215-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Once hot, add the bulgur wheat and cook for 1 min or until it's lightly toasted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1637149806363-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once boiling, reduce the heat to low and cook, covered, for 10-15 min or until a
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1637149809801-x200.jpg)
 
 ### Step 7
 

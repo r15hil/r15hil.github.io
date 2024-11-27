@@ -25,6 +25,7 @@ To make this tasty dish at lightning speed, you'll toss our rainbow veg mix with
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1615910155443-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once hot, drain the tofu and crumble it with your fingers directly into the pan
 
 Add the ground turmeric and the small soy sauce<span class="text-danger">[s]</span> (save the larger one<span class="text-danger">[s] </span>for later) to the tofu and cook for 3-4 min or until starting to crisp – this is your crispy scrambled tofu
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1615910177600-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Return the pan to a medium-high heat with a drizzle of vegetable oil
 
 Add the ginger & garlic paste to the pan with the chilli flakes (can't handle the heat? Go easy!) and cook for 1 min until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1615910197419-x200.jpg)
 
 ### Step 3
 
 Once fragrant, add the rainbow veg mix and cook for 2-3 min further until the veg has started to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1615910217564-x200.jpg)
 
 ### Step 4
 

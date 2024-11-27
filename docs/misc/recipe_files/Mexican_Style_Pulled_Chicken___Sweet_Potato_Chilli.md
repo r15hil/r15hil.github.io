@@ -27,6 +27,7 @@ Mexico meets the Caribbean in this flavour-packed fusion chilli. For the rich, a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1647001165018-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely dice the shallot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1647001178916-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Pat the chicken thighs dry with kitchen paper and season them with a pinch of sa
 
 Once hot, add the seasoned chicken thighs and cook for 3 min on each side or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1647001181974-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Combine the tomato paste and soy sauce with 250ml <span class="text-danger">[400
 
 Drain and rinse the black beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1647001185622-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once the chicken has browned, add the diced shallot, ground cumin, ground alls
 
 Once fragrant, add the chopped garlic and cook for a further 1-2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1647001189354-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the chopped sweet potato, chopped pepper, tomato stock and drained black bea
 
 After an initial 15-20 min, remove the lid and cook for a further 3-4 min, or until the sauce has started to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1647001192730-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1647001196258-x200.jpg)
 
 ### Step 7
 

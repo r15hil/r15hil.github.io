@@ -28,6 +28,7 @@ The tangy, sweet taste of tamarind is what gives this creamy curry a unique, del
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632830235096-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632830238258-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and grate your garlic
 
 Chop your chicken breast strips into large, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632830242116-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the diced shallot with a pinch of salt and cook for 2-3 min or unt
 
 Once soft, increase the heat to high and add the chopped chicken breast, chopped ginger, grated garlic and your curry powder and cook for 3-4 min further or until the chicken is starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632830247566-x200.jpg)
 
 ### Step 4
 
@@ -70,16 +74,19 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chopped creamed coconut, tamarind paste, vegetable stock mix and rice vinegar in 150ml <span class="text-purple">[225ml]</span><span class="text-danger"> [300ml]</span> boiled water – this is your tamarind stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632830251566-x200.jpg)
 
 ### Step 5
 
 Once the chicken has started to brown, add the chopped tomato to the pan and cook for 3-4 min or until soft
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632830255267-x200.jpg)
 
 ### Step 6
 
 Once soft, add the tamarind stock to the pan and cook, on a medium-high heat, for 4-5 min until sauce has reduced to curry like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632830260039-x200.jpg)
 
 ### Step 7
 

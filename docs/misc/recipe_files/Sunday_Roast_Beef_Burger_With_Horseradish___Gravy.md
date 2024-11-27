@@ -26,6 +26,7 @@ It shouldn’t work…but it does. For this dish, you'll sandwich a beef patty i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1653316823944-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel the potatoes and chop them into quarters, then add to a pot with plenty of 
 
 Once boiling, reduce the heat to medium and cook for 10-12 min, then drain (save the pot!) and shake them around the colander to fluff up the edges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1653316833046-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the diced onion, beef mince and half of the dried sage (you'll use the rest 
 
 Mix thoroughly until fully combined, then shape into 2<span class="text-danger"> [4]</span> patties and refrigerate until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653316859282-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the drained potatoes to a baking tray with a drizzle of vegetable oil, the c
 
 Put the tray in the oven for 35-40 minutes or until golden and crispy – these are your herby roasties
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1653316866966-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the sliced onions with a pinch of salt and cook for 5-6 min or unt
 
 Once the potatoes have had 10 min, add the carrot batons to one side of a separate baking tray with a drizzle of olive oil and put in oven for an initial 10 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1653316871673-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once the onions have softened, add 2 tsp<span class="text-danger"> [4 tsp]</span
 
 Add the beef stock, bring to the boil over a high heat and cook for 4-5 min or until thickened – this is your onion gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1653316878123-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Reboil half a kettle
 
 Once the carrots have had an initial 10 min, add the beef patties to the other side of the tray and return the tray to the oven for a further 15 min or until the carrots are tender and the patties are cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653316885465-x200.jpg)
 
 ### Step 7
 

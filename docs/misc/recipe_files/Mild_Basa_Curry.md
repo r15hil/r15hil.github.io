@@ -31,6 +31,7 @@ This mild basa curry packs in flavour, no punches needed. Mild isn't a byword fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586956352126-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once hot, add your basmati rice with a pinch of ground turmeric (save the rest 
 
 Cook for 30 secs or until the grains are coated in the spices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1586956356822-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add 300ml<span class="text-purple"> [390ml]</span><span class="text-danger"> [60
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your sultana rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1586956360797-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686315388839-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your tomato[es] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1586956368322-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once the onion is beginning to soften, add the chopped basa and cook for 1-2 min
 
 Add the chopped garlic, ginger paste, chopped tomato, remaining ground turmeric, tomato paste and garam masala to the pan and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1586956372289-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once boiling, reduce the heat to medium and cook for 5-6 min further or until th
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1586956375773-x200.jpg)
 
 ### Step 7
 

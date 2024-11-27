@@ -28,6 +28,7 @@ Ready for a picnic-perfect feast? Then grab the blankets, and stuff a cool box w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625564265059-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Line a baking tray (or two!) with non-stick baking paper
 
 Add the pastry squares to the tray[s] and score a 1cm border around the edge of the pastry with a knife
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625564268872-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Fold the pastry over the mixture and press it together with your fingers to seal
 
 Crimp the seal edges with a fork – these are your plant-based sausage rolls
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625564274545-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Cut each plant-based sausage roll into 5, brush the tops of the pastry with a li
 
 Put the tray[s]<span class="text-danger"> </span>in the oven for 20 min or until golden and cooked through and puffed up at the edges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625564445478-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 15 min or until fork-tender, then drain and set aside to steam dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625564464091-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Dice your tomato[es]
 
 Heat a pot over a medium heat with a drizzle of olive oil and once hot, add the diced onion and cook for 3-4 min or until beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625564497809-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the onion has softened, add the diced tomato with your tomato paste, half y
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp]</span> sugar and 50ml <span class="text-purple">[75ml] </span><span class="text-danger">[100ml] </span>boiled water, then cook for 6-8 min further or until thickened and sticky – this is your chunky tomato & chilli chutney
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1625564599934-x200.jpg)
 
 ### Step 7
 

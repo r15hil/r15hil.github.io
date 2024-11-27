@@ -24,6 +24,7 @@ This easy stir-fry is packed with umami. You’ll sizzle chicken with green bean
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675431896660-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Take your chicken out of the fridge, open the packet and let it air, then add yo
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675431900629-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Top, tail, peel and chop your carrot[s] into quarters lengthways, then into thin
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675431905243-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh with a pinch of salt to the pan and cook for 2 min on each side or until golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675431909202-x200.jpg)
 
 ### Step 4
 
@@ -54,16 +58,19 @@ Meanwhile, combine your cornflour and hoisin sauce in a bowl with your soy sauce
 
 Give everything a good mix up – this is your stir-fry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675431913760-x200.jpg)
 
 ### Step 5
 
 Once the chicken is golden, add the halved green beans and carrot batons to the pan and cook for 8-10 min or until the veg has softened and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675431917202-x200.jpg)
 
 ### Step 6
 
 Once the veg has softened, add the chopped garlic to the pan and cook for 1-2 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675431920905-x200.jpg)
 
 ### Step 7
 

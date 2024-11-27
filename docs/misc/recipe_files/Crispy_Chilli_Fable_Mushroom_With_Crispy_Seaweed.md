@@ -29,6 +29,7 @@ Here’s a classic takeaway with a sweet chilli fable twist. You’ll crisp up f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-42-1717076483482-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the shredded kale to a large baking tray (or two!) with a pinch of salt, 1 t
 
 Give everything a good mix up, then put the tray[s] in the oven for 25-30 min or until crispy – this is your crispy 'seaweed'
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-41-1717076492312-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add the coated Fable mushrooms and cook for 5-6 min or until browned �
 
 Once browned, transfer to a plate with kitchen paper, reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-47-1717076496202-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-42-1717076500862-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal (peeling is 
 
 Slice your red chilli[es] finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-43-1717076509410-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Return the reserved pan to a medium-high heat with any remaining oil
 
 Once hot, add the sliced onion and carrot discs and cook for 4-5 min or until the onion has softened and is starting to brown
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-42-1717076518410-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Combine the remaining soy sauce and rice vinegar in a bowl with your toasted ses
 
 Once the onion is starting to brown, add the chilli sauce to the pan and cook for 2-3 min further or until the sauce has slightly thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-42-1717076554021-x200.jpg)
 
 ### Step 7
 

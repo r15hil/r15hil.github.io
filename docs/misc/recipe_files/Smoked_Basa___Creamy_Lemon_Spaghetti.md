@@ -20,6 +20,7 @@ This speedy spaghetti comes together in minutes. You'll add pan-fried smoked fis
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612884817633-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1608131491756-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once the pan is hot, add your roasted garlic paste, blanched peas and smoked ba
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1608131500627-x200.jpg)
 
 ### Step 3
 
@@ -49,21 +52,25 @@ Whilst your fish is cooking, add your quick cook spaghetti to a pot of boiled 
 
 Cook the spaghetti for 2-3 min or until cooked with a slight bite, then drain and keep to one side, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2025.-step-4-x200.jpg)
 
 ### Step 4
 
 Drizzle some olive oil through the drained spaghetti and give it a good mix up (this stops the pasta from sticking together!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1608131567729-x200.jpg)
 
 ### Step 5
 
 Once the fish is cooked, break it apart into bite-sized pieces with a wooden spoon, then add your soft cheese and the juice of half your<span class="text-danger"> </span>lemon[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1608131572531-x200.jpg)
 
 ### Step 6
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1608131579116-x200.jpg)
 
 ### Step 7
 

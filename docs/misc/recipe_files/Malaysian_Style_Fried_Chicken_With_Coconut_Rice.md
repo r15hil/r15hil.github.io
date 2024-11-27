@@ -30,6 +30,7 @@ Inspired by Malaysia's favourite fried chicken, this is a real show-stealer. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691060748092-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Remove the tough outer layers of the lemongrass and set aside for later, then ch
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691060750701-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and discard the outer lemongrass layers – this is your coconut rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691060753252-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ While the rice is cooking, add the chopped inner lemongrass core and curry powde
 
 Add the chicken thighs to the bowl and give everything a good mix up – this is your marinated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691060755823-x200.jpg)
 
 ### Step 4
 
 Add your cornflour to the marinated chicken and mix it all together until the chicken is completed coated – this is your coated chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691060758943-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated chicken and cook for 8-9 min on each side or until the chicken is crispy and cooked through (no pink meat!) – this is your Malaysian-style fried chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691060761992-x200.jpg)
 
 ### Step 6
 
 While the chicken is cooking, combine your carrot & cabbage slaw mix with half your rice vinegar (you'll use the rest later!), a pinch of sugar and salt and mix it all together – this is your quick-pickled slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691060765124-x200.jpg)
 
 ### Step 7
 

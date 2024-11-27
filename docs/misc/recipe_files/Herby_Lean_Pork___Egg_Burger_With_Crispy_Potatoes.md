@@ -28,6 +28,7 @@ This decadent sandwich is the breakfast, lunch and dinner of champions. You'll s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670939071575-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the cubed potatoes to a baking tray (or two!) with your smoked paprika, a d
 
 Put the tray[s] in the oven and cook for 20-25 min or until the potatoes are brown and crispy – these are your crispy paprika potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670939074014-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Divide the mixture into 1 per person, shape into patties, press them down with y
 
 Tip: Chilling the patty helps it hold its shape whilst cooking
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670939078375-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the lettuce quarters to a bowl with your cider vinegar, a drizzle of olive
 
 Give everything a good mix up – these are your dressed lettuce quarters
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670939082073-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the herby lean pork patty[ies] and cook for 5 min on one side th
 
 Tip: Keep pressing the patty down with a spatula to keep flat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670939086547-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Meanwhile, remove the tray with the potatoes from the oven and push the potatoes
 
 Slice your brioche bun[s] in half and add, cut side down, to the other side of the tray and put back in the oven for 4-5 min to warm through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670939089039-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the herby lean pork patty[ies] are cooked, transfer to a plate and cover 
 
 Keep the pan (and any remaining oil from the burger!) for the next step
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670939091302-x200.jpg)
 
 ### Step 7
 

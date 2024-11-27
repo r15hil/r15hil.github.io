@@ -22,6 +22,7 @@ This fish dish has all the flavour and none of the faff. You'll coat basa fillet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1671036314548-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Boil a kettle
 
 Cut the waxy potatoes in half (skins on)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1671036316890-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Cook for 12-15 min or until almost fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1671036320298-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Crack the egg<span class="text-danger">[s]</span> into a shallow bowl with a spl
 
 Add the panko breadcrumbs to another plate
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1671036323067-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Coat the basa fillets in the flour, tap off the excess, then add them into the b
 
 Finally press them into the panko breadcrumbs firmly to evenly coat all over – this is your breaded fish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1671036326355-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Once hot, add the breaded fish and cook for 4-5 min on each side or until golden
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1671036329238-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Cut the lemon<span class="text-danger">[s]</span> into quarters
 
 Combine the chopped garlic (don't like raw garlic? Go easy!), chopped parsley, clotted cream and the juice of 1 <span class="text-danger">[2]</span> lemon quarter<span class="text-danger">[s]</span> in a small bowl with a pinch of salt – this is your garlic butter
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1671036334991-x200.jpg)
 
 ### Step 7
 

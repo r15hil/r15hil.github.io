@@ -26,6 +26,7 @@ Japanese flavours are often deep, salty, sweet and hot but always balanced. This
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-3-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut the aubergine<span class="text-danger">(s)</span> in half lengthways
 
 Score the flesh quite deeply (in a diamond pattern) taking care not to cut through the skin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Fill the empty honey pot<span class="text-danger">(s)</span> with boiling water,
 
 Add the honey liquid to the paste and mix thoroughly for the miso dressing
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-4-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Spread half the miso dressing over the aubergines, cut side up (reserve the rest
 
 Put them in the oven for 25-30 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-1-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Add the potatoes and salt (optional) to a pot of boiled water and bring to the b
 
 Boil for 15 min or until you can pierce them easily with a fork
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,6 +92,7 @@ Heat a wide-based pan with 1/2 tbsp <span class="text-danger">(1 tbsp)</span> of
 
 When hot, add the pepper and cook on a medium heat for 10 min until softened and slightly charred
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-7-x200.jpg)
 
 ### Step 6
 
@@ -101,6 +107,7 @@ Mix well and season to taste&nbsp;
 
 Add a lid to keep warm until ready to serve
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-6-x200.jpg)
 
 ### Step 7
 
@@ -115,6 +122,7 @@ Remove the peppers from the heat and stir in the chopped coriander and spring on
 
 Add the rice vinegar and sesame oil to the pan and toss to combine
 
+![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/373-step-8-x200.jpg)
 
 ### Step 8
 

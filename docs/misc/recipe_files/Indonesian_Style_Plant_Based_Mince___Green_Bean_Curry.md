@@ -31,6 +31,7 @@ This comforting meat-free curry combines tangy tamarind, fragrant cardamom and c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1633089191745-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1633089195390-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the sliced onion[s] and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1633089198590-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Peel and finely chop (or grate) your garlic
 
 Break your cardamom pods open with the side of a knife, discarding the outer green pods
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1633089202358-x200.jpg)
 
 ### Step 4
 
 Once the onion has started to soften, add your plant-based mince (remove the paper if required!) to the pan and cook for 6-7 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633089205379-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Dissolve the chopped creamed coconut, vegetable stock mix, tamarind paste and
 
 Trim then cut your green beans in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633089208083-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once the plant-based mince has browned, add the chopped garlic, chopped ginger a
 
 Add your ground turmeric, ground coriander and ground cumin with a very generous grind of black pepper and cook for 1 min further
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1633089211213-x200.jpg)
 
 ### Step 7
 

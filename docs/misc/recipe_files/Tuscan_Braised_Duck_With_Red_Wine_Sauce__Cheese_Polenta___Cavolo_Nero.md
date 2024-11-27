@@ -26,6 +26,7 @@ This dish is a luxurious, yet comforting, example of the beauty of Italian cuisi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1480.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -46,6 +47,7 @@ Once browned, transfer the duck legs&nbsp;to a plate and reserve the dish for la
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1480.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -60,6 +62,7 @@ Strip the rosemary leaves&nbsp;from the stems and chop finely. Discard the stems
 
 Dissolve the beef stock cube<span class="text-danger">[s]</span>&nbsp;and Just Add Wine sachet<span class="text-danger">[s]</span> in 250ml <span class="text-danger">[400ml]</span> boiled&nbsp;water.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1480.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -74,6 +77,7 @@ Once hot,&nbsp;add the diced onion, carrot, garlic and rosemary with a pinch of 
 
 Once softened, add the tomato paste,&nbsp;chopped tomatoes, beef stock and a pinch of sugar and cook for 3-4 minutes.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1480.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -88,6 +92,7 @@ Put the dish in the oven&nbsp;for an initial 1 hour 20 minutes or until the duck
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1480.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -105,6 +110,7 @@ Add the pine nuts to a baking tray and put the tray in the oven for 5-6 minutes 
 
 Re-boil a kettle.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1480.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -122,6 +128,7 @@ Once boiling,&nbsp;gradually&nbsp;whisk the&nbsp;polenta&nbsp;into the&nbsp;wate
 
 Reduce the heat to medium and continue to whisk the polenta&nbsp;for 2-3 minutes or until thickened&nbsp;to a mashed potato-like consistency.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1480.-step-7-x200.jpg)
 
 ### Step 7
 

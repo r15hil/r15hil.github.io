@@ -23,6 +23,7 @@ This slightly unusual Lebanese-inspired pasta dish uses a smoky aubergine purée
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/453.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once the walnuts are toasted, set them aside for serving and reserve the pan
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/453.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Cook for 5 min until the flesh is a deep golden colour, stirring minimally
 
 Meanwhile, peel and finely slice the onion<span class="text-danger">(s)</span> for step 3 and boil a kettle for step 4
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/453.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Return the pan to a medium heat with 1 tbsp <span class="text-danger">(2 tbsp)</
 
 Once hot, add the onion with a pinch of salt and cook for 5 min, or until translucent and softened, stirring occasionally
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/453.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Cook on a high heat for 8-10 min, or until cooked but with a slight bite&nbsp;
 
 Reserve 200ml <span class="text-danger">(300ml)</span> of pasta water for step 7 and drain thoroughly for serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/453.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Once the onion is soft, add 1 tbsp <span class="text-danger">(2 tbsp)</span> of 
 
 Turn the heat down to the lowest setting and simmer the onions gently for a further 10-15min, or until they're sticky and most of the water is absorbed
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/453.-step6-x200.jpg)
 
 ### Step 6
 
@@ -98,6 +104,7 @@ Cut the lemon<span class="text-danger">(s)</span> into wedges
 
 Reserve the dill and lemon for serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/453.-step-7-x200.jpg)
 
 ### Step 7
 

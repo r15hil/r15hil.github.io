@@ -24,6 +24,7 @@ This recipe will have you cooking an Italian classic that any nonna would be pro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2252.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion, chopped garlic and dried chilli flakes (can't handle the heat? Go easy!) and cook for 3-4 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2252.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2252.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Whilst the linguine is cooking, add the chopped tomatoes and tomato paste to th
 
 Season with a grind of black pepper and bring to the boil over a high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2252.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Tear the smoked mackerel into rough pieces 
 
 Slice the black olives finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2252.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,11 +87,13 @@ Crumble 1/2 <span class="text-danger">[1]</span> Knorr vegetable stock cube 
 
 Give everything a stir, reduce the heat to medium and cook for 5-6 min or until a thick pasta sauce remains
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2252.-step-6-x200.jpg)
 
 ### Step 6
 
 Once thickened, add the sliced black olives and torn mackerel to the pan and stir it all together – this is your smoked mackerel arrabbiata sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2252.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ These enchiladas are easy cheesy. You’ll whip up a black bean and spinach fill
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688467381743-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Drain and rinse your black beans
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688467404258-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion to the pan with a pinch of salt and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688467414520-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Whilst the onion is cooking, dissolve your vegetable stock mix and tomato paste 
 
 Grate your cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688467430309-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Cook for a further 1 min or until fragrant
 
 Tip: Add a drizzle more oil if your pan is looking a little dry!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688467437999-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once boiling, reduce the heat to medium-high and cook for 4-5 min or until thick
 
 Once thickened, mash half the black beans in the pan, then add the spinach with a pinch of salt and a splash of boiled water and cook for a further 1 min or until just wilted – this is your enchilada filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688467445990-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Divide 3/4 of the enchilada filling (save some for later!) between your tortil
 
 Roll up the tortillas tightly – these are your enchiladas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688467451798-x200.jpg)
 
 ### Step 7
 

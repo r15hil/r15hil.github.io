@@ -27,6 +27,7 @@ Succulent beef and zingy citrus are the stars of this low-carb recipe. You'll to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623401402420-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary, and if you like your steak well-done, it may take you a little longer than 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2161.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Pat your rump steak[s] dry with kitchen paper
 
 Drizzle with vegetable oil and season all over with salt, pepper, ground cumin and dried oregano – this is your spice-crusted steak
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2161.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak is cooked, transfer to a plate to rest
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2161.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add 3 tbsp <span class="text-purple">[4 tbsp]</span> <span class="text-danger">[
 
 Tip: Taste the dressing and add a pinch of sugar if it needs it
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2161.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Chop your cherry tomatoes in half and season them with a pinch of salt
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2161.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the steak is done, wipe out the steak pan with kitchen paper and return it 
 
 Add the drained black beans and soy sauce and cook for 1-2 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2161.-step-7-x200.jpg)
 
 ### Step 7
 

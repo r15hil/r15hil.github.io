@@ -25,6 +25,7 @@ This nutritious black rice salad is tossed in a punchy chilli-lime dressing. Ser
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Brown-rice-in-pan-1680093050851-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580806220314-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Put the tray in the oven for 12-15 min or until cooked through – this is your 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580806224916-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Slice the cucumber finely
 
 Cut the sugar snap peas in half lengthways
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580806230906-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cut the lime<span class="text-danger">[s]</span> in half
 
 Cut 1/2 <span class="text-danger">[1]</span> lime into 2 <span class="text-danger">[4]</span> wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580806255546-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Combine the grated garlic (don't like raw garlic? Use half!) with the juice of 
 
 Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and stir it all together – this is your chilli & lime dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580806266419-x200.jpg)
 
 ### Step 6
 
 Chop the coriander roughly, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580806295772-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ This do-it-yourself twist on takeaway pizza is all you knead. You’ll smother p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675780916809-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the dried yeast to a large bowl with 100ml <span class="text-danger">[200ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675780925560-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the sliced onion with a pinch of salt to the pan, then reduce the 
 
 Cook for 8-10 min or until the onion has softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675780937590-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine the chopped garlic and soft cheese in a separate bowl with half the grat
 
 Stir it all together – this is your white sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675780946464-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Tip the dough ball out onto a floured work surface and cut into 2 <span class="
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675780956074-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Keep going until your base is approx. 18-20cm in diameter – these are your pi
 
 Remove the baking tray<span class="text-danger">[s]</span> from the oven (careful the tray<span class="text-danger">[s]</span> will be hot!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675780965604-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Tear over the sausage meat (remove the paper if required!) in very small pieces,
 
 Drizzle the crusts with a little olive oil, then put the tray<span class="text-danger">[s]</span> in the oven for 12-15 min or until the crust has puffed up and browned and the sausage is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675780974921-x200.jpg)
 
 ### Step 7
 

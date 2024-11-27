@@ -26,6 +26,7 @@ This dish is inspired by the tasty Chinese staple, mapo tofu, in which tofu is c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1507.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Boil a kettle
 
 Drain the tofu and pat it dry with kitchen paper<br /><br />Cut the dried tofu into cubes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1507.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once browned all over, remove the pan from the heat and add the soy sauce and gi
 
 Transfer to a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1507.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Peel and finely slice (don't chop!) the garlic 
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1507.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Return the pan to a medium heat
 
 Once hot, add the chopped Romano pepper, sliced garlic and chopped ginger and cook for 3-4 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1507.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Bring to the boil over a high heat and cook for an initial 2-3 min
 
 After 2-3 min, add the broccoli florets and cook for 3-4 min further or until tender with a slight bite, then drain and return <span class="text-highlight">everything</span> to the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1507.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Meanwhile, combine the miso paste, tomato paste, hoisin <span class="text-highli
 
 Once softened, return the tofu to the pan with the spicy sauce and cook for 2-3 min further or until thick and rich
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1507.-step-7-x200.jpg)
 
 ### Step 7
 

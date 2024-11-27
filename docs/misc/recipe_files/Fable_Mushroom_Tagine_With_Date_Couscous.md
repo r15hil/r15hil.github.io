@@ -30,6 +30,7 @@ This plant-based tagine is an instant classic. You’ll simmer Fable mushrooms a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1689684769648-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689684779365-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your Fable pulled mushrooms to the pan and cook for an initial 3-4 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689684784813-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Cover and set aside until all of the liquid has been absorbed – this is your d
 
 Fluff with a fork before serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1689684789625-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Grate the remaining carrot
 
 Drain and rinse your chickpeas
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689684813976-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the Fable pulled mushrooms have started to brown, add your ras el hanout an
 
 Give everything a good mix up and cook for 1-2 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1689684829594-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once fragrant, add the grated carrot and chickpeas to the pan with your vegetabl
 
 Add 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water and cook for 3-4 min or until the sauce has thickened – this is your Fable mushroom tagine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1689684847748-x200.jpg)
 
 ### Step 7
 

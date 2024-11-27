@@ -30,6 +30,7 @@ Give this plant-based twist on paella a try! It's an easy, smoky one pot, filled
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661869821760-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thick strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661869826471-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or unti
 
 Once starting to soften, add the chopped garlic, ground cumin, ground turmeric and half of your ground smoked paprika (you'll use the rest later!) and cook for a further 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661869830539-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Add a generous drizzle of olive oil and a pinch of salt and pepper
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661869834156-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add your white long grain rice to the pan with a pinch of salt and stir everythi
 
 Add the saffron stock and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661869838086-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Whilst the rice is cooking, chop your parsley finely, including the stalks
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661869842459-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add the chopped pepper and mint to a bowl with your red wine vinegar, 1 tsp <spa
 
 Give everything a good mix up – this is your pepper salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661869847405-x200.jpg)
 
 ### Step 7
 

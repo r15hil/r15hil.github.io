@@ -25,6 +25,7 @@ Taste the flavours of Seoul in 10 minutes. You’ll pan-fry carrot, mangetout an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1731655804301-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681918766029-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with a driz
 
 Once hot, add the carrot batons and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681918775148-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Tip: Be careful – the rice will sizzle from the heat of the oil!
 
 Return the pan to the heat and cook for 3-4 min or until warmed through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-11-1731656389652-x200.jpg)
 
 ### Step 4
 
 Trim, then slice your spring onion[s] finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1711458098861-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add your ginger & garlic paste and tomato paste with 1 tsp <span class="text-pur
 
 Tip: Be careful – the ginger and garlic will sizzle from the heat of the oil!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681918807669-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once fragrant, add your soy sauce with 150ml<span class="text-purple"> [200ml]</
 
 Drain and add your king prawns to the pan and cook for 4-5 min or until the prawns are cooked through – this is your king prawn & mangetout stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681918812394-x200.jpg)
 
 ### Step 7
 

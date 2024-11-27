@@ -28,6 +28,7 @@ For our delicious twist on a keema, sizzle meat-free mince with sweet potato and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1628676258319-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until tender w
 
 Once cooked, drain and return to the pot, then keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1628676266419-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Chop your sweet potato[es] (skin on) into bite-sized pieces
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1628676270834-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add your ground cinnamon, ground cumin and curry powder and cook for 
 
 Add the sliced onion and a pinch of salt and cook for 3 min, then add the chopped garlic and cook for a further 2 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1628676275318-x200.jpg)
 
 ### Step 4
 
@@ -64,16 +68,19 @@ Add the chopped sweet potato and meat-free mince (remove the paper if required!
 
 Add your vegetable stock mix to the pan with 250ml <span class="text-purple">[375ml]</span><span class="text-danger"> [500ml] </span>boiled water and cook, covered, for 10 min or until the potatoes are fork-tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1628676281263-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop most of your coriander finely, including the stalks (save some leaves for garnish!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1628676286426-x200.jpg)
 
 ### Step 6
 
 Once the potatoes are tender, remove the lid from the pan and cook until the liquid is reduced by half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1628676290803-x200.jpg)
 
 ### Step 7
 

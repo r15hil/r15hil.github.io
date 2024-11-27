@@ -26,6 +26,7 @@ Our healthier peri peri still packs a whollop. You'll stuff juicy, spicy seasone
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629813997349-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1/2
 
 Once hot, add the sliced onions with a pinch of salt and 1 tsp<span class="text-danger"> [2 tsp]</span> sugar and cook for 10-12 min or until softened and caramelised
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629814002378-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the wedges to a large baking tray with a drizzle of vegetable oil and a gene
 
 Put the tray in the oven for 20-25 min or until the wedges are tender and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629814003757-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Combine the smoked paprika, dried oregano, chopped garlic and chilli flakes (can
 
 Add the juice of the lemon<span class="text-danger">[s]</span>, soy sauce and 1/2 tbsp <span class="text-danger">[1 tbsp]</span> vegetable oil and mix to form a paste – this is your peri peri paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629814007609-x200.jpg)
 
 ### Step 4
 
 Brush the peri peri paste evenly all over the portobello mushrooms until fully coated – these are your coated mushrooms
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629814010219-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Return the reserved pan to a medium-high heat
 
 Once hot, add the coated mushrooms to the pan and cook, covered, for 3-4 min on each side or until cooked through – these are your peri peri mushrooms
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629814014864-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ While the mushrooms are cooking, wash the gem lettuce, then pat it dry with kit
 
 Slice the tomato<span class="text-danger">[es] </span>into rounds
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629814018210-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Think barbecue, think pulled pork! You'll make a leaner, quicker version of the 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1172_step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cook the&nbsp;baby gammon<span class="text-danger">&nbsp;</span>for 35 min or un
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1172_step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the chips to a large baking tray with a drizzle of vegetable oil and a gener
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1172_step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Cut the&nbsp;apple<span class="text-danger">[s]</span>&nbsp;(skins on) into matc
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1172_step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Combine the mayonnaise,&nbsp;grated carrot&nbsp;and&nbsp;apple matchsticks in a 
 
 Separate&nbsp;the little gem leaves&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1172_step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, combine the brown sauce, honey,&nbsp;smoked paprika&nbsp;and apple&nb
 
 Use the next 15 min to clear up, set the table, have a cup of tea....
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1172.step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the&nbsp;brioche rolls to a baking tray
 
 Put the tray in the oven for 5 min or until the brioche is warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1172_step-7-x200.jpg)
 
 ### Step 7
 

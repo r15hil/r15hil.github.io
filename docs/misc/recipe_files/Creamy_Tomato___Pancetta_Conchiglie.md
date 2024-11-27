@@ -22,6 +22,7 @@ This tasty one-pot pasta dish marries crisp, golden-fried pancetta lardons with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/500.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once hot, add the pancetta lardons
 
 Cook for 4 min or until crispy and starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/500.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Dissolve the chicken&nbsp;stock cube<span class="text-danger">[s]</span>&nbsp;in 500ml <span class="text-danger">[1L]</span>&nbsp;boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/500.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the chopped garlic, dried oregano, chopped tomatoes, conchiglie and chicken stock to the pancetta with 1 tsp <span class="text-danger">[2 tsp]</span>&nbsp;sugar
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/500.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Cook for 7 min
 
 Tip:&nbsp;stir occasionally to ensure that the pasta has not stuck to the base of the pot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/500.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop the chives finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/500.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Stir continuously for 4-5 min or until a sauce has formed and the pasta is cooke
 
 Tip: stirring the sauce releases the starch from the pasta making it naturally creamier!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/500.-step-7-x200.jpg)
 
 ### Step 7
 

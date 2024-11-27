@@ -20,6 +20,7 @@ Don't let gratin's fancy name fool you, because this is so quick to prepare. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1410.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Boil half a kettle
 
 Slice your potatoes (skins on) into discs, approx. 1cm thick
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1410.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ Add the potato discs to a baking tray (or two!), drizzle with vegetable oil, the
 
 Put the tray[s] in the oven for 20-30 min or until the potatoes are cooked through and crispy – these are your crispy potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1410.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -43,21 +46,25 @@ While the potatoes are in the oven, dissolve your vegetable stock mix and soft 
 
 Grate your cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1410.-step-4-x200.jpg)
 
 ### Step 4
 
 Wash your spinach, then pat it dry with kitchen paper and add to an oven-proof dish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1410.-step-5-x200.jpg)
 
 ### Step 5
 
 Pour the creamy stock all over the spinach
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1410.-step-6-x200.jpg)
 
 ### Step 6
 
 Place the cod fillet[s] on top of the spinach and season with a pinch of salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1410.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ After a busy day, this hearty hotpot is just what the doctor ordered. In moments
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1659883743412-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1659883755679-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of v
 
 Once hot, add your diced beef and bacon lardons to the dish with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and a generous grind of black pepper and cook for 2 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1659883764288-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Peel and chop your shallot[s] in half
 
 Top, tail and chop your carrot[s] into rounds
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659883771731-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the crushed garlic, chopped shallot and carrot rounds to the dish
 
 Add in your beef stock mix with your tomato paste, Henderson's Relish and 350ml <span class="text-purple">[525ml]</span> <span class="text-danger">[700ml]</span> boiled water then bring to the boil over a high heat – this is your beef & bacon mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1659883777710-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Season with a grind of black pepper, dot with a couple of small knobs of butter
 
 After 15 min, remove the lid, then return the dish to the oven for 45 min further or until the potatoes are golden and the meat is tender – this is your one pot beef & bacon hotpot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1659883784809-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659883790059-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ This classic sandwich is as messy as it is delicious. Rustle up a warm ciabatta 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655798630041-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Slice your potatoes (skins on) into discs, then add to a baking paper-lined tray
 
 Put the tray[s] in the oven for 20-25 min or until golden and cooked through – these are your smoky potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655798632806-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Slice half your cucumber into rounds
 
 Cut the remaining cucumber into batons lengthways
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655798636541-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the grated radishes to a bowl with your mayo, wholegrain mustard, diced shal
 
 Give everything a good mix up – this is your creamy slaw
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655798649224-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the radish quarters and cucumber rounds to a small bowl with the cucumber sl
 
 Add your white wine vinegar, chopped dill, a drizzle of olive oil and a pinch of salt and sugar, then give everything a good mix up – these are your dill, cucumber & radish pickles and quick-pickled cucumber rounds
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655798652360-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Pat your rump steak[s] dry with kitchen paper, then drizzle them with vegetable oil and season with a pinch of salt on both sides
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655798655528-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak is cooked, transfer to a clean chopping board to rest for 5 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655798659797-x200.jpg)
 
 ### Step 7
 

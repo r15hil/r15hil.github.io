@@ -30,6 +30,7 @@ For this delicious twist on two Mediterranean favourites, you'll top melty, vega
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1641309658300-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Trim the green stalks off your aubergine[s] and discard, then chop into bite-siz
 
 Then top, tail and chop your courgette[s] into quarters lengthways, then chop into large bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1641309658745-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the chopped aubergine, courgette and pepper to a baking tray (or two!) with 
 
 Sprinkle over your dried oregano, give everything a good mix up and put the tray[s] in the oven for an initial 20 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1641309643419-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1641309662337-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ While the onion is cooking, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 700ml <span class="text-purple">[1.05L] </span><span class="text-danger">[1.4L]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1641309662557-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your Chinese rice wine and cook for a further 30 secs or until evaporated
 
 Once evaporated, add the vegetable stock mix a ladle at a time, stirring continuously for 25-30 min or until all the stock has absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1641309664387-x200.jpg)
 
 ### Step 6
 

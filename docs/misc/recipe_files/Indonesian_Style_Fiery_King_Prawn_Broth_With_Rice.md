@@ -30,6 +30,7 @@ For an easy twist on Indonesian sambal udang, you'll simmer prawns and edamame b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585748043024-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[600ml]</span> boiled water – this is your coconut stock
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585748046591-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your coconut rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585748051440-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Chop your red chilli[es] roughly (not a fan of spice? Remove the seeds!)
 
 Chop your lime leaf[ves] roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585748057562-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Blitz into a paste – this is your fiery sambal
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585748061645-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the fiery sambal and cook for 2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1585748065673-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Rinse your blanched edamame beans under cold running water
 
 Drain your king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1585748074894-x200.jpg)
 
 ### Step 7
 

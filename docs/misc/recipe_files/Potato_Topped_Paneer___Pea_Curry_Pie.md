@@ -29,6 +29,7 @@ What could be more comforting than curry in a pie? You'll cook paneer with spice
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602247307526-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Slice your potatoes (skins on) into discs and add them to a baking tray (or two!
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602247325316-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add the paneer cubes and cook for 3-5 min until golden, turning occasi
 
 Once cooked, transfer the golden paneer to a plate and reserve the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602247337209-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Dice your tomato[es]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602247348688-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add the chopped ginger and garlic and cook for 1-2 min or until softened
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602247357055-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, dissolve your vegetable stock mix and tomato paste in 200ml <span cla
 
 Once the tomato has softened, add 2 tsp <span class="text-purple">[3 tsp] </span><span class="text-danger">[4 tsp]</span> flour to the pan and cook for a further 30 secs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602247387454-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the tomato stock, golden paneer, mango chutney and blanched peas and give ev
 
 Cook for 1-2 min or until the sauce has thickened slightly, then transfer the paneer & pea curry to an oven-proof dish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602247417944-x200.jpg)
 
 ### Step 7
 

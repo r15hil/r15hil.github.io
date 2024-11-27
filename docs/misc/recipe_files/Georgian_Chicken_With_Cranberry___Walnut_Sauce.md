@@ -25,6 +25,7 @@ Georgian food is the new on-trend cuisine. Located between Europe and Western As
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1212.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Place your hand flat onto the chicken breast<span class="text-danger">[s]</span>
 
 Slice in half as if you were cutting a burger bun, so you are left with two thinner pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1212.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the sliced chicken breast and cook for 4-5 min on each side or unt
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1212.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the potatoes to a pot of boiled water with a large pinch of salt and cook ov
 
 Re-boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1212.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Dissolve&nbsp;1/2&nbsp;<span class="text-danger">[1]</span> chicken stock cube in 200ml <span class="text-danger">[350ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1212.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once hot, add the sliced shallot, fenugreek, ground&nbsp;coriander&nbsp;&amp;&nb
 
 Once fragrant, add 1 tbsp <span class="text-danger">[</span><span style="color: #e86754;">2 tbsp]</span>&nbsp;flour and stir with a wooden spoon for 1 min or until a sandy paste forms&nbsp;&ndash; this is your roux&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1212.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -100,6 +106,7 @@ Return the chicken to the pan for 1-2 min or until warmed through
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1212.-step-7-x200.jpg)
 
 ### Step 7
 

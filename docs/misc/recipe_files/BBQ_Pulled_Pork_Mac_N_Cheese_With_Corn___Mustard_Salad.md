@@ -27,6 +27,7 @@ Double up on some good ol’ American classics with creamy mac ‘n’ cheese an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687534240298-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Transfer your BBQ pulled pork and any juices to an oven-proof dish
 
 Cover with tin foil and put the dish in the oven for an initial 30 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687534243147-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once done, drain the macaroni and set aside until later, reserving 150ml <span c
 
 Add your sweetcorn cobette[s] to a baking tray with a drizzle of olive oil and put the tray in the oven for 25-30 min or until charred and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687534246579-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Grate your cheddar cheese
 
 Combine the grated cheese with your cornflour in a bowl and mix until the cheese is fully coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687534250394-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the coated cheese to a pot with the chopped garlic, 100ml <span class="text-
 
 Once boiling, reduce the heat to medium-low and cook for 2-3 min, stirring frequently, or until the cheese has melted and thickened – this is your cheese sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687534253829-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Transfer the BBQ pulled pork and any cooking juices to a bowl, reserving the dis
 
 Add your BBQ sauce to the bowl and give everything a good mix up – this is your shredded BBQ pulled pork
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687534257504-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Transfer the mac 'n' cheese mixture to the reserved dish and top with the shredd
 
 Return the dish to the oven for 5-6 min or until golden and bubbling – this is your BBQ pulled pork mac 'n' cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687534261864-x200.jpg)
 
 ### Step 7
 

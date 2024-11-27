@@ -28,6 +28,7 @@ This easy twist on Peking duck is an oven-roasted dream. You’ll marinate duck 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1685529987982-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Separate your duck legs and add to a tin foil-lined baking tray
 
 Put the tray in the oven for an initial 15 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1685529993663-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ While the duck is cooking, cut your pak choi in half lengthways
 
 Top, tail and slice your carrots into batons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1685529997837-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Scrunch the foil around the vegetables to form a tightly sealed parcel and add t
 
 Put the tray in the oven for an initial 15 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1685530001631-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Combine your soy sauce, five-spice mix, rice vinegar and 1 tbsp <span class="te
 
 After the duck has been in the oven for 15 min, top with half the five-spice marinade (you'll use the rest later!) and return the tray to the oven for a further 15 min or until golden and crispy – this is your five-spice roasted duck
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1685530005441-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1685530009656-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add your toasted sesame oil and sprinkle over the toasted sesame seeds
 
 Return the tray to the oven and cook for a further 5-6 min or until the vegetables are tender – this is your sesame roasted veg
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1685530013132-x200.jpg)
 
 ### Step 7
 

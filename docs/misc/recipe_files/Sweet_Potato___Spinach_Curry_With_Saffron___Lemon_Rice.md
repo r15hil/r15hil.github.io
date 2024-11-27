@@ -28,6 +28,7 @@ For an extra special plant-based curry, you’ll whip up an aromatic coconut sau
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/755.step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 2 t
 
 Once hot, add the sliced onion with a pinch of salt and cook for 10-12 min or until slightly softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/755.step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Reduce the heat to very low and cook, covered, for 10-12 min or until all the wa
 
 Cut the remaining lemon into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/755.step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Once the onion has softened, add the chopped sweet potato, chopped garlic and your curry powder to the pan and cook for 5 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1650388545867-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Dissolve the chopped creamed coconut and vegetable stock mix in 150ml <span clas
 
 Cut your tomato[es] into wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/755.step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,11 +82,13 @@ Add the coconut stock and tomato wedges to the pan
 
 Increase the heat to medium-high and cook, covered, for 10 min or until the sweet potato is fork-tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/755.step-6-x200.jpg)
 
 ### Step 6
 
 Wash your spinach, then add it to the curry and cook, covered, for 2 min or until the spinach has wilted – this is your sweet potato & spinach curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/755.step-7-x200.jpg)
 
 ### Step 7
 

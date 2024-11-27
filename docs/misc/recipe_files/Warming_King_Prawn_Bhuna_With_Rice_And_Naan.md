@@ -32,6 +32,7 @@ For this easy curry house classic, you'll flavour rich tomato sauce with king pr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629281540979-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629281545505-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Chop your cherry tomatoes in half, then peel and finely chop (or grate) your gar
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629281549845-x200.jpg)
 
 ### Step 3
 
@@ -59,21 +62,25 @@ Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or unti
 
 Once softened, add the halved cherry tomatoes to the pan and cook for 4-5 min further or until starting to break down
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629281553500-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your vegetable stock mix and tomato paste in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml] </span>boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629281558109-x200.jpg)
 
 ### Step 5
 
 Once the tomatoes have broken down, add the chopped garlic to the pan with your garam masala, ground fenugreek and ground paprika and cook for 1 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629281562141-x200.jpg)
 
 ### Step 6
 
 Drain your king prawns, then add them to the pan with the tomato stock and cook for 6-7 min or until the prawns are cooked through and the sauce has thickened – this is your warming king prawn bhuna
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629281566609-x200.jpg)
 
 ### Step 7
 

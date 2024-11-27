@@ -27,6 +27,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2009.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop the courgette<span class="text-danger">[s]</span> into rounds
 
 Peel and roughly chop the red onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2009.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Drizzle everything with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive o
 
 Put the dish in the oven for 20-25 min or until everything is starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2009.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Dissolve 1/2 <span class="text-danger">[1]</span> Knorr vegetable stock cube in 
 
 Add the tomato paste – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2009.-step-4-x200.jpg)
 
 ### Step 4
 
 Drain and rinse the chickpeas
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2009.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ When the vegetables have softened, add the cherry tomatoes, tomato stock, whole
 
 Return to the oven and cook for 10-15 min or until the tomatoes are bursting and the sauce is bubbling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2009.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Sprinkle the feta with the dried oregano and chilli flakes
 
 Return to the oven for a further 10 min or until the feta is starting to brown – this is your roasted veg & feta bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2009.-step-7-x200.jpg)
 
 ### Step 7
 

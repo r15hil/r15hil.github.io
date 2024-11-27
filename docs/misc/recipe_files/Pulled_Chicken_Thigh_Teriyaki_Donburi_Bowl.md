@@ -30,6 +30,7 @@ Donburi is a Japanese rice bowl with an array of umami-rich toppings. To make ou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1001.step1.new-x200.png)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until it's tender with a slight bite, then drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1001.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Whilst the rice is cooking, peel your ginger (scrape the skin off with a teaspoo
 
 Slice your cucumber[s] finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1001..-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Combine 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-d
 
 Add your red wine vinegar, ginger matchsticks and sliced cucumber and set aside to pickle until serving – these are your quick-pickled vegetables
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609324589475-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Cook for 3 min on both sides or until lightly browned
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609324593731-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the chicken has browned, reduce the heat to medium and add the chopped garl
 
 Cook, covered, for 10 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened and is sticky in consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1001.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Slice your mangetout in half lengthways
 
 Add the sliced mangetout to a large bowl, cover with boiled water and set aside to soften
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1001.-step-7-x200.jpg)
 
 ### Step 7
 

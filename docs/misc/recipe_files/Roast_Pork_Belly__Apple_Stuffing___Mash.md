@@ -22,6 +22,7 @@ Succulent pork belly, homemade apple and sage stuffing and thick, luscious gravy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1602585665030-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) over a very high heat
 
 Once hot, add the pork belly, fat side down and cook for 4 min, then flip and cook for 1 min further
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1602585670991-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely slice 1/2 <span class="text-danger">[1] </span>red onion, then g
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1602585676033-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Give everything a good mix up until fully combined, then roll the mixture into 6
 
 Return the tray to the oven for the remaining cooking time
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1602585680561-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once done, drain and return to the pot to steam dry
 
 Reboil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1602585686141-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Rip the leaves off the spring greens, discard the tough stalks, then layer the l
 
 Peel and finely chop (or grate) the garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1602585690768-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add the sliced spring greens to the middle with the chopped garlic, a knob of bu
 
 Scrunch the edges of the foil around the greens to form a sealed parcel, then add to a baking tray and put in the oven for 8-10 min or until they're tender – these are your garlicky greens
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1602585695035-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Say allez and try this French onion soup-inspired burger. You’ll load patties 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675767889145-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a pot over a low heat with a generous drizzle of vegetable oil and once hot
 
 Cook for 20-25 min, stirring frequently, or until the onions have halved in size and caramelised – these are your caramelised onions
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675767893803-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the potato matchsticks to a baking tray with a drizzle of vegetable oil and 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your matchstick fries
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675767974386-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Give everything a good mix up until thoroughly combined (clean hands are the bes
 
 Divide into 2<span class="text-danger"> [4]</span> and shape into equal-sized patties and refrigerate until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675767979548-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once golden, transfer to a plate and set aside for later
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675767996114-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Return the remaining caramelised onions in the pot to the heat with 1/2 tbsp <sp
 
 Add the beef stock mix and 250ml <span class="text-danger">[450ml]</span> boiled water and cook for 4-5 min or until the sauce has begun to thicken to a gravy-like consistency – this is your onion gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675768001027-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Meanwhile, grate the cheddar cheese
 
 Wash the rocket then pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675768006777-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Crispy pork belly chicharrones are some of Colombia’s most loved savoury treat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1702992253735-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut the scored pork in half, lengthways
 
 Season with a very generous pinch of salt and rub it deep into the fat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702992256963-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the sliced pork belly, fat-side down and cook for 4 min or until g
 
 Once done, transfer the pork to a tin foil-lined baking tray (reserve the pan!) and put the tray in the oven for 30-35 min or until cooked through – this is your pork chicharron
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1702992259819-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with 
 
 Chop your coriander very finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1702992262985-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Combine the sliced spring onion with the chopped chilli (can't handle the heat? 
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp] </span>olive oil and a generous pinch of salt – this is your aji verde
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1702992266372-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Peel and slice your brown onion[s] into thin wedges
 
 Peel and chop your garlic finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1702992269640-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702992272325-x200.jpg)
 
 ### Step 7
 

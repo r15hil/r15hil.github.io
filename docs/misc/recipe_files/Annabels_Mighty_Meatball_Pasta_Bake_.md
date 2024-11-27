@@ -25,6 +25,7 @@ Annabel’s Mighty Meatball Pasta Bake is the perfect ‘smiles all round’ sup
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1046.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Strip the thyme leaves from their stems and chop them&nbsp;finely
 
 Grate the Italian hard cheese&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1046.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the grated apple, chopped thyme leaves, grated cheese, panko breadcrumbs and
 
 Divide the mixture into 12 <span class="text-danger">[24]</span> and shape them into meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1046.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Peel and&nbsp;finely chop (or grate) the&nbsp;garlic&nbsp;
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1046.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,6 +85,7 @@ Once softened, add the&nbsp;chopped garlic&nbsp;and cook for 1 min further&nbsp;
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1046.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -95,6 +100,7 @@ Cook the&nbsp;pasta twists&nbsp;for 8-10 min or until cooked with a slight bite
 
 Once cooked, drain the&nbsp;pasta twists, reserving a cup&nbsp;of the&nbsp;starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1046.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -106,6 +112,7 @@ Season with a generous pinch of salt and pepper&nbsp;and add the browned meatbal
 
 Reduce the heat to medium-low and cook, covered, for 10-12 min or until the sauce has thickened and the meatballs are cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1046.-step-7-x200.jpg)
 
 ### Step 7
 

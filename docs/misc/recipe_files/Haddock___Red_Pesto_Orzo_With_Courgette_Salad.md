@@ -29,6 +29,7 @@ Whip up this summery dish packed with flavours of the Med. Top tasty sun-dried t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1716981954627-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop the remaining inner courgette stem[s]<span class="text-danger"> </span>into
 
 Chop your tomato[es] roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1716981957459-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add the chopped courgette to the pan with a pinch of salt and cook for
 
 Once softened, add the chopped tomato[es] and cook for 4-5 min further or until tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1716981961138-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ While the vegetables are softening, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 550ml <span class="text-purple">[825ml] </span><span class="text-danger">[1.1L]</span> boiled water – this is your stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1716981972097-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Once boiling, reduce the heat to medium-low and cook, covered, for an initial 10
 
 Tip: Stir the orzo occasionally to prevent it from sticking!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1716981978229-x200.jpg)
 
 ### Step 5
 
 Once the orzo is almost cooked, stir through half of your pesto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1716982010295-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add your haddock bites to the pan and cook, covered, for a further 4-5 min or un
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1716982016238-x200.jpg)
 
 ### Step 7
 

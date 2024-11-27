@@ -26,6 +26,7 @@ Add fast, savoury flavour to this luxurious risotto with not one, but two variet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/619.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Trim and finely slice your spring onion[s] and chop your chives finely, then pee
 
 Dissolve your vegetable stock mix in 750ml<span class="text-purple"> [975ml]</span> <span class="text-danger">[1.4L] </span>boiled water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/619.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, roughly tear and crumble both your flat white and chestnut mushrooms 
 
 Cook over a high heat for 3-5 min or until starting to brown and caramelise – these are your caramelised mushrooms
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/619.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Return the pan to a medium heat and add the sliced spring onion and half of the 
 
 Cook for 30 secs or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1628670537981-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add your arborio rice and chopped garlic to the pan and cook for 1 min, stirrin
 
 Add your Chinese rice wine and cook for 30 secs or until it's evaporated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1628670547466-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Add 1/3 of the vegetable stock and stir continuously with a wooden spoon until i
 
 Add the remaining vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/619.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/619.-step-7-x200.jpg)
 
 ### Step 7
 

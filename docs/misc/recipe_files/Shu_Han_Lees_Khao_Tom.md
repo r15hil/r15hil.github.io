@@ -26,6 +26,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/548-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Bash the lemongrass stem<span class="text-danger">[s]</span> with a rolling pin,
 
 Peel and finely chop (or grate) the garlic&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/548.-step--2-x200.jpg)
 
 ### Step 2
 
 Combine the pork mince, ginger, garlic, inner lemongrass stems, cornflour, soy sauce and sesame oil in a large mixing bowl with clean hands
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/548.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once combined, pick up the mixture and slam it down forcefully back into the bow
 
 Repeat until the mixture comes together and becomes sticky and dense
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/548.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Tip: chilling the meatballs helps them firm up for cooking&nbsp;
 
 Boil a kettle for the next step
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/548.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Meanwhile, dissolve the stock cube<span class="text-danger">[s]</span> in 1L <sp
 
 Once boiling, add the rice and outer lemongrass leaves, then reduce the heat to medium-low and cook for 10 min or until the rice is tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/548.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Chop the coriander roughly, including the stalks&nbsp;
 
 Slice the spring onion<span class="text-danger">[s]</span> finely, discarding the root end<span class="text-danger">[s]</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/548.-step--7-x200.jpg)
 
 ### Step 7
 

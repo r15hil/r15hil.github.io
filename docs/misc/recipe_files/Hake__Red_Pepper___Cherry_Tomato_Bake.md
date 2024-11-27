@@ -25,6 +25,7 @@ For a colourful tray bake that's bursting with flavour, you'll roast hake fillet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1729593434511-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potatoes to an oven-proof dish with a drizzle of vegetable oil a
 
 Put the dish in the oven and cook for an initial 25 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1729593450907-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Pick your basil leaves from the stalks (you'll be using both)
 
 Cut your cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1729593466603-x200.jpg)
 
 ### Step 3
 
 Cut your pepper[s]<span class="text-danger"> </span>in half (scrape the seeds and pith out with a teaspoon) and slice into long strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1729593475668-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp<span class="text
 
 Once hot, add the onion wedges, sliced pepper and chopped garlic to the pan with a pinch of salt and cook for 4-5 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1729593488008-x200.jpg)
 
 ### Step 5
 
@@ -68,11 +73,13 @@ Add in your vegetable stock mix and season with a good grind of pepper
 
 Cook for a further 2 min, stirring regularly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1729593495710-x200.jpg)
 
 ### Step 6
 
 Once the potatoes have had an initial 25 min, add the vegetables and any remaining juices from the pan into the oven-proof dish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1729593512202-x200.jpg)
 
 ### Step 7
 

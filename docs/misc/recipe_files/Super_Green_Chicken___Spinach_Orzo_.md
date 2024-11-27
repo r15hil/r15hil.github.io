@@ -27,6 +27,7 @@ Show Popeye how it's done with a super green chicken orzo, made with blitzed spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1584989554505-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Boil a kettle
 
 Peel and roughly chop your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1584989558998-x200.jpg)
 
 ### Step 2
 
@@ -51,11 +53,13 @@ Once wilted, add the cooked spinach to a food processor and blitz until smooth
 
 Reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-2-1732028774289-x200.jpg)
 
 ### Step 3
 
 Whilst the spinach is cooking, dissolve your chicken stock mix in 400ml <span class="text-purple">[520ml]</span> <span class="text-danger">[680ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1584989565592-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Return the reserved pan to a high heat with 1/2 tbsp <span class="text-purple">[
 
 Once hot, add the chopped chicken with a pinch of salt and pepper and cook for 3-4 min or until browned all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1732028780365-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add your orzo to the browned chicken and cook for 30 secs
 
 Add the chicken stock, reduce the heat to low and cook, covered, for 10-15 min, stirring occasionally, until the chicken is cooked through (no pink meat!), the orzo is tender with a slight bite and most of the liquid has been absorbed
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1732028792510-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the cherry tomatoes and tomato wedges to a baking tray with your oregano, a 
 
 Put the tray in the oven for 10-15 min or until softening and starting to burst
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1732028797801-x200.jpg)
 
 ### Step 7
 

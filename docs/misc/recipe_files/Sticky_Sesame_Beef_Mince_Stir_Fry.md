@@ -27,6 +27,7 @@ This sticky sesame beef stir-fry is simple to prepare and packed full of flavour
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636979858108-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636979860524-x200.jpg)
 
 ### Step 2
 
@@ -45,16 +47,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped pepper with a pinch of salt and cook for 4-5 min or until softened slightly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1732028117532-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636979865497-x200.jpg)
 
 ### Step 4
 
 Once the peppers have softened, transfer them to a clean plate and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636979868249-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Return the reserved pan to a high heat
 
 Once very hot, add your beef mince and cook for 4-5 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636979870960-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Once the beef has browned, add your cornflour, chilli flakes (can't handle the h
 
 Once fragrant, add your soy sauce and maple syrup, then return the softened pepper to the pan and cook for 2-3 min or until sticky and the beef is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636979873393-x200.jpg)
 
 ### Step 7
 

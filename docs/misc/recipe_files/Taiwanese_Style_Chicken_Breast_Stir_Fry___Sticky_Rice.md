@@ -29,6 +29,7 @@ This mouthwatering meal is inspired by San Bei Ji, a Taiwanese sauce that's equa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686047750511-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686048873506-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
 Wash your pak choi, then pat it dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686048952892-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Wash, then chop the roots from your pak choi and separate the leaves, and slice 
 
 Chop your basil stalks finely, keeping the leaves and chopped stalks separate
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686048956780-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Tap off any excess
 
 Tip: The chicken should just have a light flour coating!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686048960688-x200.jpg)
 
 ### Step 5
 
@@ -78,11 +83,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated chicken and cook for 10-12 min, turning once halfway, until golden and cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686048964567-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked, add the chopped ginger, garlic and basil stalks to the pan with your chilli flakes (can't handle the heat? Go easy!) and cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686048967431-x200.jpg)
 
 ### Step 7
 

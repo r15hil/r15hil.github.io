@@ -25,6 +25,7 @@ This chilli's packed with punchy flavour, and perfect for busy schedules. You'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1673.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Slice the tortillas into triangles (layer them up for speedy chopping!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1673.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once done, remove from the oven and set aside – these are your tortilla chip
 
 Tip: Watch the chips like a hawk, or they may burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1673.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ While the tortilla chips are cooking, heat a large, wide-based pan (preferably 
 
 Once hot, add the turkey mince and cook for 4 min or until crisp, breaking it up with a wooden spoon up as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1673.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Dissolve the chicken stock mix, tomato paste and chipotle paste (can't handle th
 
 Drain and rinse the sweetcorn
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1673.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the turkey mince is crisp, add the smoked paprika, ground coriander, ground cumin and cayenne pepper (not a fan of spice? Just add a little!) to the pan and cook for 1-2 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1673.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Reduce the heat to medium-low and cook for 5-7 min or until you have a thick ste
 
 Season very generously with black pepper – this is your turkey & corn chilli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1673.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ For this plant-based twist on risotto, you'll swap rice for orzo, and top it wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1806.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once done, transfer to a plate to cool (save the tray for later!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1806.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ While the pine nuts are toasting, trim the green stalk[s] off your aubergine[s],
 
 Peel and chop your red onion[s] into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1806.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Drizzle generously with olive oil and season with a generous pinch of salt
 
 Give everything a good mix up and put the tray[s] in the oven for 30-35 min or until everything is cooked through and tender – this is your roasted aubergine & tomato
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1806.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Dissolve your vegetable stock mix in 300ml <span class="text-purple">[450ml]</sp
 
 Peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1806.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add your orzo to an oven-proof dish
 
 Add the chopped tomatoes, chopped garlic and vegetable stock to the dish and gently stir it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1806.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Put the dish in the oven and cook for 20-25 min or until the liquid has been abs
 
 Meanwhile, wash your rocket, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1806.-step-7-x200.jpg)
 
 ### Step 7
 

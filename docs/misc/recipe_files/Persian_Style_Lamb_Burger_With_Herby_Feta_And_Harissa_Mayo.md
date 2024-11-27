@@ -26,6 +26,7 @@ To add a Middle Eastern twist to these burgers, you'll top cumin-spiced lamb pat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2366Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2366Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Massage the meat with clean hands for 1 min (this helps the patty hold its shape
 
 Add to a baking tray (use tin foil to avoid mess!) and put into the oven for 15-20 min or until cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2366Step-3-x200.jpg)
 
 ### Step 3
 
 Chop your coriander roughly, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2366Step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the chopped coriander to a bowl and crumble in your feta
 
 Add a drizzle of olive oil and a generous pinch of pepper and stir it all together – this is your herby feta
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2366Step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add the chopped sultanas and grated carrot to a separate bowl with your red wine
 
 Give everything a good mix up – this is your zingy carrot & sultana slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2366Step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat
 
 Once hot, add the ciabatta halves, cut side down, and cook for 2-3 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2366Step-7-x200.jpg)
 
 ### Step 7
 

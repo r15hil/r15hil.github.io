@@ -32,6 +32,7 @@ Explore the divine flavours of a North Indian-style dinner, with chickpeas cooke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632473976770-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspo
 
 Add the chopped paneer, chopped pepper and onion wedges to a bowl with 1/3 of your ground turmeric, 1/4 of your garam masala, 1/4 of your ginger & garlic paste and 1/3 of your natural yoghurt (save the rest for later!), then give everything a good mix up and then set aside to marinate
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632474091494-x200.jpg)
 
 ### Step 2
 
@@ -58,6 +60,7 @@ Tip: Squeezing the mix will release the natural moisture in the onion! Add an ex
 
 Scoop out 2 handfuls per person of the mixture, shape into rough bhaji shapes and add to the tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632474157657-x200.jpg)
 
 ### Step 3
 
@@ -71,6 +74,7 @@ Drain and rinse your chickpeas and chop your coriander finely, including the sta
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632474178920-x200.jpg)
 
 ### Step 4
 
@@ -80,6 +84,7 @@ Once boiling, reduce the heat to very low, sprinkle over the remaining ground tu
 
 Once cooked, remove from the heat and keep covered until serving – this is your turmeric rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632474192501-x200.jpg)
 
 ### Step 5
 
@@ -91,6 +96,7 @@ Dissolve your vegetable stock mix in 200ml<span class="text-danger"> <span class
 
 Once fragrant, add the tomato stock to the pan with the onions and cook, covered, for 8-10 min or until thickened slightly – this is your curry base
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632474229576-x200.jpg)
 
 ### Step 6
 
@@ -102,6 +108,7 @@ Add the marinated paneer & veg to a large baking tray (or two!), spacing the pie
 
 Put the tray[s] under the grill for 8-12 min, turning everything halfway, or until everything is cooked through and starting to char – this is your paneer tikka
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632474240714-x200.jpg)
 
 ### Step 7
 

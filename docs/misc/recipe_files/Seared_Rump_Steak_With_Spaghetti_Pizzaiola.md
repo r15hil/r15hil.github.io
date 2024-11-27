@@ -28,6 +28,7 @@ This Italian-American inspired dish takes less than 30 minutes, so it's perfect 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2015.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with 2 tbsp <span class="tex
 
 Pat the rump steak[s] dry with kitchen paper and season generously on both sides with salt and pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2015.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely chop (or grate) your garlic
 
 Cut your black olives in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2015.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Transfer the cooked rump steak[s] to a clean plate to rest, and keep the tomatoes in the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2015.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once done, drain the cooked spaghetti, reserving a cup of the starchy pasta wa
 
 Add a drizzle of olive oil to the spaghetti and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2015.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Cook for 3-4 min or until fragrant
 
 Tip: Add a drizzle of olive oil if your pan is looking a little dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2015.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your dried oregano, halved olives, chilli flakes (can't handle the heat? Go 
 
 Add the drained spaghetti to the pizzaiola sauce and cook for 1 min further or until warmed through – this is your spaghetti pizzaiola
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2015.-step-7-x200.jpg)
 
 ### Step 7
 

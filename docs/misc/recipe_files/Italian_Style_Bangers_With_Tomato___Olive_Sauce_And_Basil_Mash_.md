@@ -24,6 +24,7 @@ Sausages and mash are as quintessentially British as you can get, but we've take
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/470_.step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Put the tray in the oven for 20-25 min or until the sausages are cooked through
 
 Whilst the sausages are cooking, peel and finely slice the onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/470_.step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add the sliced onions with a pinch of sugar and salt
 
 Cook for 3 min, then reduce the heat to low and cook for a further 8-10 min or until softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/470_..step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Tear the basil into a pestle & mortar and grind to a paste – this is your basi
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/470_.step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once done, drain and return to the pot to steam dry
 
 Meanwhile, chop the black olives coarsely and dice the tomatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/470_.step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Season with a little pinch of salt and cook, covered, for a further 10-12 min or
 
 Once thickened, add the chopped black olives – this is your tomato & olive sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/470_.step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Heat a separate, wide-based pan (preferably non-stick with a matching lid), with
 
 Once hot, add the sliced spring greens and remaining chopped garlic and cook for 1 min, then add 2 tbsp <span class="text-danger">[4 tbsp]</span> cold water and cook, covered, for 3-4 min or until tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/470_.step-7-x200.jpg)
 
 ### Step 7
 

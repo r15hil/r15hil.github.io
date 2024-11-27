@@ -26,6 +26,7 @@ This hearty hotpot is our twist on a classic. You’ll simmer cannellini beans a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708528238398-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the sliced potatoes to a heatproof bowl, then cover the bowl with cling film
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708528242235-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid,
 
 Once hot, use scissors to chop your sausages into thirds into the dish and cook for 5-6 min or until beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708528246310-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Tip: Hold the top of the herb sprigs firmly and slide your fingers down their le
 
 Drain and rinse your cannellini beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708528250387-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once slightly browned, add the diced onion and chopped garlic and cook for 2-3 m
 
 Once slightly softened, add the drained cannellini beans with your tomato paste and 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708528254779-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add 300ml <span class="text-purple">[400ml]</span> <span class="text-danger">[50
 
 Season with a pinch of sugar and salt and mix it all together – this is your sausage and bean filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708528258261-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Put the dish in the oven, lid off, for 20-25 min or until the potatoes and sausa
 
 <span class="text-danger">Tip: Cooking for kids? Leave out the dried thyme or only use a little!</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708528262572-x200.jpg)
 
 ### Step 7
 

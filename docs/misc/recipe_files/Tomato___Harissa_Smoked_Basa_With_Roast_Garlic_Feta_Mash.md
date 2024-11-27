@@ -22,6 +22,7 @@ Big flavour fans, it’s time to take your taste buds to new spicy heights. For 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667903995217-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1667903998884-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Whilst the potatoes are cooking, peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667904002363-x200.jpg)
 
 ### Step 3
 
@@ -47,11 +50,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp]</span> [2 tsp] </span>sugar and cook for 3-4 min or until softened and starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1667904006181-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add the chopped pepper and cook for a further 2-3 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667904010157-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Once the pepper has softened, add your harissa paste (can't handle the heat? Go 
 
 Season with salt and pepper and cook for 3-4 min or until the sauce has started to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1667904013767-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Gently add the basa into the pan and cook, covered for 5 min, or until the basa 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1667904017176-x200.jpg)
 
 ### Step 7
 

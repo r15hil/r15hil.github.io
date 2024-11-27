@@ -27,6 +27,7 @@ This spiced basa shawarma is a takeaway treat. You’ll coat basa in aromatic ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681381372112-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop your potatoes (skins on) into bite-sized pieces, then add the chopped potat
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your spiced potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681381375895-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Chop your tomato[es] roughly
 
 Wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681381383031-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine the sliced shallot and half your white wine vinegar in a large bowl with
 
 Combine the grated garlic (not a big garlic fan? Try using less!) and chopped coriander in a small bowl with your mayo, the remaining white wine vinegar and a pinch of salt – this is your coriander mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681381387319-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add your cornflour to a plate with the remaining baharat and a pinch of salt and
 
 Firmly press the chopped basa into the cornflour mixture, making sure to evenly coat on both sides – this is your coated basa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681381391446-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add the coated basa with a pinch of salt to the pan and cook for 4 min
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681381400812-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Return the tray[s] to the oven for 3 min further or until warmed through
 
 Meanwhile, add the shredded lettuce, chopped tomato and a drizzle of olive oil to the bowl with the quick-pickled shallot and give everything a good mix up – this is your tomato salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681381408260-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Whip out your wok and serve up sticky-sweet meat-free mince, crisp greens and fl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1715598676593-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Trim, then cut your green beans in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1715598707458-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Cut a large piece of tin foil (or two!) and lay your mangetout and green beans i
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and scrunch the edges up to form a tightly sealed parcel[s],  then put the parcel[s] on a baking tray and put the tray in the oven for 10-12 min or until cooked
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715598712637-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1715598716663-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free mince (remove the paper if required!) and cook for 6-7 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715598722702-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Finely slice half your red chilli[es] into rounds and set aside for garnish
 
 Chop the remaining chilli in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1715598726130-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the meat-free mince has browned, add the chopped garlic, ginger paste and c
 
 Add your hoisin sauce, cornflour and soy sauce with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml]</span> water and cook for a further 4 min or until the sauce becomes sticky – this is your spicy hoisin meat-free mince
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715598729580-x200.jpg)
 
 ### Step 7
 

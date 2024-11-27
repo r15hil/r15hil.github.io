@@ -26,6 +26,7 @@ Leave the knife and fork behind, because this one's meant to be messy! You'll sm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1694438685094-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and cut your sweet potato[es] into fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694438691047-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the sweet potato fries to a baking tray with a drizzle of vegetable oil and 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694438694706-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add your cornflour and a pinch of salt to a bowl
 
 Add the basa pieces to the cornflour and give everything a good mix up so the basa pieces are fully coated – this is your coated basa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694438699516-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once done, transfer the golden basa to a plate covered with kitchen paper and 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694438705204-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once melted, remove the pot from the heat and add the sriracha (can’t handle t
 
 Stir everything together until it combines and becomes a sauce-like consistency – this is your buffalo sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694438709236-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Combine your natural yoghurt, Dijon mustard, grated garlic (not a big garlic fan
 
 Add a drizzle of olive oil and season with a pinch of salt and pepper and give everything a good mix up – this is your ranch dip
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694438714300-x200.jpg)
 
 ### Step 7
 

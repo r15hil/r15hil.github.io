@@ -28,6 +28,7 @@ Healthy salads don't get speedier than this. In 10 minutes, you'll whip up warm 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623407270447-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581508116261-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Peel and roughly chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581508120324-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once the pan is hot, add the chopped shallot with a large pinch of salt and coo
 
 Add your diced chorizo and roasted garlic paste with a generous grind of black pepper and cook for 2-3 min further or until the shallot has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581508125161-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Meanwhile, slice your sweet pointed pepper[s] into rings
 
 Drain and rinse your green lentils and cannellini beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581508129853-x200.jpg)
 
 ### Step 5
 
 Add the sliced pepper to the pan along with the drained lentils & beans and cook for 2-3 min or until everything is warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581508134454-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Chop your cherry tomatoes in half
 
 Cut your lemon[s] into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581508138588-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ This Japanese-style okonomiyaki is the ultimate DIY dinner. You’ll infuse your
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674558470889-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Combine your egg[s] with 70g <span class="text-purple">[100g]</span> <span class
 
 Put the pancake batter in the fridge to rest
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674558479879-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add your smoked streaky bacon to a baking paper-lined baking tray (or two!)
 
 Put the tray[s] in the oven for an initial 12 min or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674558492903-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Peel and grate your garlic
 
 Squeeze the juice of the grated ginger into a small bowl
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674558502820-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Remove the rested pancake batter from the fridge and add the grated garlic, grat
 
 Give everything a good mix up – this is your okonomiyaki pancake mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674558516801-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once hot, add the okonomiyaki pancake mix to the pan and cook for 3-4 min on eac
 
 Tip: Cooking for 3 or more? Make 2 pancakes!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674558525778-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ While the pancake[s] are cooking, shred your spring onion[s] finely, lengthways
 
 Combine half your honey (you'll use the rest later!) with your tomato ketchup, Henderson's Relish and a small pinch of salt – this is your cheats okonomiyaki sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674558543713-x200.jpg)
 
 ### Step 7
 

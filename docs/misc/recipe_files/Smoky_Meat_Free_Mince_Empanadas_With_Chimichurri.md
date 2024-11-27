@@ -27,6 +27,7 @@ Empanadas are small, stuffed turnovers found across Latin America. For our twist
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633348066549-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
 Once hot, add the chopped shallot and meat-free mince to the pan and cook for 5-6 min<span class="text-danger"> </span>or until the mince is browned, breaking it up with a wooden spoon as you go
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633348074269-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cut the potatoes (skins on) into chips
 
 Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of salt and pepper, give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633348088523-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Divide the smoky meat-free mince mixture into 4 <span class="text-danger">[8]</s
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633348099200-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Press the pastry together with your fingers to seal in the meat-free mince with 
 
 Tip: Don't worry if they look messy, they'll be tidied up later!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633348106553-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Use a fork to crimp the edges of the pastry and prick air holes in the top
 
 Put the empanadas in the oven for 15-20 min or until golden brown – these are your smoky meat-free empanadas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1633348114862-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Peel and finely chop (or grate) the garlic
 
 Combine the chopped chilli (not a fan of spice? Just add a little!), parsley and garlic with the dried oregano, red wine vinegar and 2 tbsp <span class="text-danger">[3 tbsp]</span> olive oil – this is your chimichurri
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633348126102-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Easy, creamy, dinnertime dreamy. You’ll pop your chicken and gnocchi in the ov
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1690525452073-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Add a drizzle of olive oil to a large oven-proof dish, then add your diced chick
 
 Coat your gnocchi in a little olive oil and add it to the other side of the dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1690525459208-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Put the dish in the oven for an initial 30 min or until the chicken is cooked th
 
 Tip: Check your gnocchi after 20 min and give it a stir for even crispiness!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1690525466570-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1690525473318-x200.jpg)
 
 ### Step 4
 
@@ -56,11 +60,13 @@ Heat a large, wide-based pan with a drizzle of vegetable oil over a medium-hig
 
 Once hot, add the sliced leek, diced carrot and chopped garlic to the pan and cook for 5-6 min until the leek is softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1690525481711-x200.jpg)
 
 ### Step 5
 
 Dissolve your chicken stock mix in 350ml <span class="text-purple">[450ml]</span> <span class="text-danger">[550ml]</span> boiled water, then add your soft cheese and a very generous grind of pepper – this is your creamy stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1690525491207-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Put the tray in the oven for 15 min or until the greens are tender
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1690525498032-x200.jpg)
 
 ### Step 7
 

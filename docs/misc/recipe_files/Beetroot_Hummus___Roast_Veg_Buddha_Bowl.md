@@ -26,6 +26,7 @@ With food, more colour means more vitamins, minerals and flavour – which is wh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1593439055746-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Drain your beetroot in a colander over the sink
 
 Chop the drained beetroot into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1593439066303-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Drizzle with olive oil and season with a pinch of salt
 
 Put the tray[s] in the oven for an initial 10-15 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1593439081471-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1593439087246-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Meanwhile, drain and rinse your chickpeas
 
 Cut your lemon[s] into quarters
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1593439149463-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the remaining beetroot wedges to a food processor with half the drained chic
 
 Add 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp]</span> [2 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold<span class="text-danger"> </span>water and a generous pinch of salt and blitz until smooth – this is your beetroot hummus
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1593439169086-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add your Tenderstem broccoli to the tray[s], drizzle with 1 tsp <span class="tex
 
 Return the tray[s] to the oven for a further 10-15 min or until everything is cooked through and golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1593439182034-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Fish sandwiches are found all over Scandinavia. For our version, you'll fill cia
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1012.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Put the tray[s] in the oven for 20-25 min or until the chips are golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Sliced-finely-spring-onions-1632406086833-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, trim, then slice your spring onion[s] finely
 
 Chop<span class="text-danger"> </span>your capers finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1012.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine the sliced spring onion, mayo, chopped capers, Dijon mustard, chopped di
 
 Wash your lettuce and pat dry with kitchen paper, separate the leaves and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1012.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Crack your egg[s] into a shallow bowl and whisk
 
 Add your panko breadcrumbs to a separate large bowl with a pinch of salt and mix it up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1012.-step-5-x200.jpg)
 
 ### Step 5
 
 Coat your basa fillet[s] in the flour, tap off any excess, then add to the beaten egg and finally press it into your panko breadcrumbs firmly to coat everything evenly – this is your breaded basa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1620751214722-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, add the ciabatta half[ves], cut-side-down and cook for 3 min or until 
 
 Once toasted, transfer the ciabatta to a plate and reserve the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1012.-step-7-x200.jpg)
 
 ### Step 7
 

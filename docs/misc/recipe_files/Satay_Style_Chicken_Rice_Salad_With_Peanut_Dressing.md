@@ -25,6 +25,7 @@ Chicken and broccoli who? This creamy satay-style winner is loaded with protein 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721313304717-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721313308202-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with a driz
 
 Once hot, add your chicken breast strips with a generous pinch of salt and pepper and cook for 5-6 min on each side or until golden and cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721313312311-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Slice your cucumber into discs on the diagonal
 
 Slice each individual cucumber disc into matchsticks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721313317247-x200.jpg)
 
 ### Step 4
 
@@ -59,16 +63,19 @@ Slice your red chilli[es] into rounds
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721313321038-x200.jpg)
 
 ### Step 5
 
 Combine your peanut butter with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> boiled water and stir it all together until smooth
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721313334324-x200.jpg)
 
 ### Step 6
 
 Add your gluten free soy sauce and red chilli relish to the peanut butter with a squeeze of lime juice and give everything a good mix up – this is your peanut dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721313331253-x200.jpg)
 
 ### Step 7
 

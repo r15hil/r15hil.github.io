@@ -23,6 +23,7 @@ For this punchy sandwich, you'll fill ciabatta rolls with spicy free range chick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1703070061629-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1703070064611-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Add the chopped potatoes to a baking tray (or two!), drizzle with 1 tbsp <span c
 
 Put the tray[s] in the oven for 25 min or until golden and crisp – these are your herby potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1703070067830-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ Add your free range chicken breast portion[s] to a plate with your cayenne pepp
 
 Refrigerate until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1703070071327-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Peel and finely chop (or grate) your garlic
 
 Add the sliced spring onion to a small bowl with your mayo, chopped garlic (don't like raw garlic? Go easy!), white wine vinegar, salt, pepper and a drizzle of olive oil – this is your garlic mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1703070074858-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once hot, add the spiced free range chicken and cook for 3 min on each side or u
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1703070079308-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Add your ciabatta[s] to a separate baking tray (or two!) and put the tray[s] in 
 
 Carefully slice the toasted ciabatta in half before serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1703070081676-x200.jpg)
 
 ### Step 7
 

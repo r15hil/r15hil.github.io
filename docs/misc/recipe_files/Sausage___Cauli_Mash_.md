@@ -21,6 +21,7 @@ This dish is a lighter version of bangers & mash that leaves taste fully intact.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/409.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Oil a baking tray (to avoid sticking) and distribute the sausages evenly&nbsp;
 
 Put the tray in the oven for 25-30 min or until the sausages are golden and cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/409.-step-2-new-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Cut the florets from the stem into bite-size pieces with a small knife
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/409.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Tip: The milk keeps the cauliflower white!
 
 Cover, bring to the boil on a high heat and boil uncovered for 8-10 min or until you can pierce the cauliflower with a knife
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/409.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Heat a large pan (with a matching lid) on a medium heat with 1 tbsp <span class=
 
 When hot, add the onion and cook for 7 min or until softened, stirring occasionally&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/409.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,11 +84,13 @@ Once softened, reduce the heat to low and add the balsamic vinegar, Henderson's 
 
 Cook for 10 min or until the onions are sticky and caramelised
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/409.-step-6-new-x200.jpg)
 
 ### Step 6
 
 Break up the Cheddar into small pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/409.-step-7-x200.jpg)
 
 ### Step 7
 

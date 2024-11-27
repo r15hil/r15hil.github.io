@@ -22,6 +22,7 @@ Yasai translates to ‘vegetable’ in Japan - in this case, meaty golden auberg
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/305.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Trim the green stalk<span class="text-danger">[s]</span> off the&nbsp;aubergine<
 
 Heat a large, wide-based pan (preferably non-stick) with 2-4 tbsp&nbsp;vegetable oil over a high heat, and swirl it around the pan&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/305.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Transfer the browned aubergine to a baking tray and keep the pan for later&nbsp;
 
 Put the tray in the oven for 20-25 min or until the aubergine has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/305.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/305.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Continue to peel lengths off the carrot until you end up with a pile of carrot '
 
 Once you've peeled as far as you can, grate the inner stem&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/305.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once hot, add the grated carrot, onion, curry powder and a pinch of salt
 
 Cook for 5-10 min or until starting to brown and caramelise
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/305.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Stir in the stock and a large pinch&nbsp;of sugar, mixing well to combine
 
 Reduce the heat to low and cook for 5-10 min over a low heat or until thickened - this is your curry sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/305.-step-7-x200.jpg)
 
 ### Step 7
 

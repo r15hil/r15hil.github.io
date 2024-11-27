@@ -29,6 +29,7 @@ Burritos with no meat in sight. Instead you'll fill them with coriander rice and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2363Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut your pepper[s] in half (scrape the seeds and pith out with a teaspoon) and c
 
 Once softened, remove from the oven and leave to cool for a few min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2363Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2363Step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced onion with a generous pinch of salt and cook for 4-5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2363Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Slice your flat white mushrooms finely
 
 Chop your chestnut mushrooms in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2363Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the juice of half your lime[s] with your pumpkin seeds and a generous pinch
 
 Blitz until you have a chunky sauce – this is your red pepper salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2363Step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the onions have softened, add the sliced flat white mushrooms and halved c
 
 Cook for 4-5 min further or until the mushrooms have started to soften – these are your chipotle mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2363Step-7-x200.jpg)
 
 ### Step 7
 

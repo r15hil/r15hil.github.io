@@ -28,6 +28,7 @@ Based on the silky Thai soup, tom kha gai, you’ll infuse succulent meat-free c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1-1616588099202-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Chop the softer inner core<span class="text-danger">[s] </span>finely
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1616588092371-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once cooked, remove from the heat and keep covered until serving
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1616588113520-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add the sliced onion with a pinch of salt and cook for 4-5 min or until softened
 
 Dissolve the vegetable stock mix, sriracha (can't handle the heat? Go easy!), 1/2 tsp <span class="text-danger">[1 tsp] </span>sugar and the chopped creamed coconut in 600ml<span class="text-danger"> [1.2L] </span>boiled water – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1616588118432-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the coconut stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook, covered, for 6-7 min or until the mushrooms have softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1-1616588124302-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Whilst everything is cooking, pick the coriander leaves from their stalks
 
 Chop the coriander stalks finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1616588129057-x200.jpg)
 
 ### Step 6
 
 Add the meat-free chick'n to a clean board and shred apart using two forks – this technique is known as 'pulling'
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1-1616588134305-x200.jpg)
 
 ### Step 7
 

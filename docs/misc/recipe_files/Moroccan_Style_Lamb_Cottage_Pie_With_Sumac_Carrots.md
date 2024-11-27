@@ -29,6 +29,7 @@ Fan of cottage pie? Then you'll love our Moroccan twist. You'll simmer lamb minc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1648550276239-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel your potatoes and chop them into large, bite-sized pieces, then add them to
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1648550279280-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your parsley roughly, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1648550283965-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and chopped garlic with a pinch of salt and cook for 3-4 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1648550285064-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once softened, turn the heat up to high, then add your lamb mince and cook for 3
 
 Meanwhile, dissolve your beef stock mix and tomato paste in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water with your Henderson's Relish – this is your tangy tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1648550287573-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once fragrant, add the tangy tomato stock with half the chopped parsley (save th
 
 Once boiling, reduce the heat to medium-low and cook for 3-4 min or until the sauce has slightly thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1648550290993-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Sprinkle over your ground sumac and half your chilli flakes (can't handle the he
 
 Put the tray[s] in the oven for 25-30 min or until tender and slightly charred – these are your sumac carrots
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1648550294038-x200.jpg)
 
 ### Step 7
 

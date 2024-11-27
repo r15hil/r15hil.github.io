@@ -26,6 +26,7 @@ Master the zingy, spicy flavours of Southeast Asia with our wholewheat noodle sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609257704479-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the pork loin steaks to the bowl and give everything a good mix up
 
 Set aside for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609257710489-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Bring to the boil over a high heat and cook for 5-7 min or until tender with a s
 
 Once cooled, set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609257726241-x200.jpg)
 
 ### Step 3
 
 Whilst the noodles are cooking, transfer the pork loin steaks to a baking tray (use tin foil to avoid mess) and cook for 10-12 min or until cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609257735084-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Combine the chopped ginger, rice vinegar, remaining soy sauce, toasted sesame oil, chilli flakes (can't handle the heat? Go easy!) and 1 tsp <span class="text-danger">[2 tsp]</span> sugar in a small bowl – this is your spicy dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609257746219-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Wash the little gem lettuce, then tear into rough bite-sized pieces
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, de-seed (scrape the seeds out with a teaspoon) and chop into thin strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609257761037-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Cover with a clean tea towel and leave to rest for 2 min
 
 Meanwhile, pick the coriander and mint leaves from the stalks and chop them roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1609257769767-x200.jpg)
 
 ### Step 7
 

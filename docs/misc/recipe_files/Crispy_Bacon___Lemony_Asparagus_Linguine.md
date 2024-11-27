@@ -23,6 +23,7 @@ This linguine is the perfect celebration of springtime. You'll toss pasta with a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1585746815281-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your smoked streaky bacon to a tin foil-lined baking tray
 
 Put the tray in the oven for 12-15 min or until golden and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1585746821713-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Meanwhile, trim the woody ends off your asparagus, then chop them in half
 
 Tip: Alternatively, bend the woody ends of the asparagus until they snap!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1585746827466-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add your linguine to a pot of boiled water with a large pinch of salt and bring 
 
 Cook the pasta for an initial 7 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1585746835966-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Roll your lemon[s] with your hand on a hard surface (to release more juice) and 
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1585746846225-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Once the pasta has been cooking for 7 min, add the halved asparagus and sliced g
 
 Once tender, drain and return to the pot, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1585746859629-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Squeeze in the juice of half your lemon[s] and add half the chopped basil with h
 
 Add a splash of the starchy pasta water and stir it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1585746865202-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This fragrant Middle Eastern dish features baked fish on a bed of sliced onion a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2548Step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the potatoes to a pot of boiled water with a pinch of salt, bring to th
 
 Once cooked, drain and set aside to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2548Step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ While the potatoes are cooking, peel and slice the onion<span class="text-danger
 
 Peel and finely slice (don't chop!) the garlic<br /><br />Slice 1/2 <span class="text-danger">[1]</span> lemon into rounds then slice the rounds into semi-circles (save the rest for later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2548Step-3-x200.jpg)
 
 ### Step 3
 
 Add 3 tbsp <span class="text-danger">[6 tbsp]</span> olive oil to a jug with the ground paprika and a generous pinch of salt and stir it all together – this is your paprika oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2548Step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,16 +66,19 @@ Add the onion rounds to a baking tray in 2 <span class="text-danger">[4]</span>�
 
 Layer each row with some tomato rounds<br /><br />Top with half the garlic slices (save the rest for later!) and finally the basa fillets
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2548Step-5-x200.jpg)
 
 ### Step 5
 
 Pour the paprika oil all over the basa fillets then top with the lemon slices<br /><br />Put the tray in the oven for 12-15 min or until the fish is cooked through<br /><br />Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2548Step-6-x200.jpg)
 
 ### Step 6
 
 Whilst the fish is cooking, heat a large, wide-based pan (preferably non-stick) with a generous drizzle of olive oil over a medium-high heat<br /><br />Once hot, add the remaining sliced garlic, cayenne pepper (can't handle the heat? Go easy!), coriander seeds, drained potatoes and a large pinch of salt and cook for 3-4 min or until beginning to crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2548Step-7-x200.jpg)
 
 ### Step 7
 

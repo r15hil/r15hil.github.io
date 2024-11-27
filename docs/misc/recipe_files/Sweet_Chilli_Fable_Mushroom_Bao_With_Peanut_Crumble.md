@@ -29,6 +29,7 @@ One bite of these baos will take you straight to the heart of Hanoi. You’ll co
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-6-1678455543985-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut your potatoes (skins on) into chips, then add them a baking tray (or two!) w
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-3-1678455550756-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Slice each individual cucumber disc into matchsticks
 
 Chop your coriander finely, including the stalks (save some leaves for a garnish!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1678455560497-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine your rice vinegar with 1 tsp <span class="text-purple">[1 1/2 tsp] </spa
 
 Bash your Fable pulled mushrooms with a rolling pin to flatten them
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1678455585479-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the bashed Fable pulled mushrooms and cook for 5-6 min or until browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1678455592501-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Meanwhile, chop your peanuts very finely – this is your peanut crumble
 
 Combine your tamarind paste and vegan mayo in a bowl – this is your tamarind mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1678455601809-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Combine your cornflour and red chilli relish in a bowl with the juice of half yo
 
 Once the fable mushrooms are browned, add your sweet chilli sauce with a small splash of cold water and cook for 2-3 min or until the fable mushrooms are glazed and sticky – these are your sweet chilli fable mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1678455612022-x200.jpg)
 
 ### Step 7
 

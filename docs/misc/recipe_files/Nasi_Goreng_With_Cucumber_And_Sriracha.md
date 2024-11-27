@@ -28,6 +28,7 @@ Fire up your wok for an Indonesian street food favourite. Smoky stir-fried brown
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612884375116-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1654Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1654.-step-3.n-x200.jpg)
 
 ### Step 3
 
 Top, tail, peel and grate your carrot[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1654.-step-4.n-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Wash your shredded kale, then pat it dry with kitchen paper
 
 Trim, then slice your spring onion[s] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1654.-step-5.n-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the pan is hot, remove it from the heat, then add the brown rice with your
 
 Return the pan to the heat, then add your toasted sesame oil, soy sauce, chilli flakes (can't handle the heat? Go easy!) and 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp] </span>sugar and cook for 2-3 min or until fully combined
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1654.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once hot, crack your egg[s] into the pan and cook, covered, for 3 min or until c
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1654.-step-7-x200.jpg)
 
 ### Step 7
 

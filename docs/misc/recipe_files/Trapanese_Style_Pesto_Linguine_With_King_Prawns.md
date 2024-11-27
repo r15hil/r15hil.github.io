@@ -20,6 +20,7 @@ Hailing from Trapani, this pesto is as bright and vibrant as its Southern Italia
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2130.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Add the blanched almonds to a baking tray and put the tray in the oven for 4-5 m
 
 Tip: Watch these like a hawk to make sure they don't burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2130.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2130.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Chop the remaining basil roughly, including the stalks
 
 Cut the lemon<span class="text-danger">[s]</span> into quarters
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2130.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the juice of 1 <span class="text-danger">[2]</span> lemon quarter<span class
 
 Tip: This sauce will season the whole dish, so taste it and add a pinch more salt if needed
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2130.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Once hot, add the king prawns to the pan and cook for 4-5 min or until the prawn
 
 While the prawns are cooking, chop the remaining toasted almonds
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2130.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the Trapanese-style pesto to the pan and cook for 1 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2130.-step-7-x200.jpg)
 
 ### Step 7
 

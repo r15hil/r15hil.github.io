@@ -27,6 +27,7 @@ Put the takeaway menu back in the draw, this recipe takes less time than a deliv
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1709818956082-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709818959710-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and chop (or grate) your garlic
 
 Roll your lime[s] with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709818962791-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Chop your coriander roughly, including the stalks
 
 Roughly chop your roasted peanuts
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1709818965823-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh and cook for an initial 5-6 min or until beginning to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1709818969594-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the chicken has browned, add the pepper strips to the pan and cook for 3-4 
 
 Meanwhile, combine your soy sauce, tamarind paste and fish sauce in a bowl with the juice of half the lime[s], 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> water – this is your pad Thai sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709818973252-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once fragrant, push the chicken and pepper to one side of the pan and crack your
 
 Stir the egg[s] with a wooden spoon to break the yolk[s] and cook for 1-2 min until it resembles scrambled egg
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709818977000-x200.jpg)
 
 ### Step 7
 

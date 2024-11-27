@@ -33,6 +33,7 @@ Want to try more plant-based plates? Well this one's a winner. For a mouthwateri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1668446703092-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add your butternut squash cubes to a baking tray with half of your garam masala 
 
 Give everything a good mix up and put the tray into the oven for 18-20 min or until the squash is tender with a slight bite – this is your roasted butternut squash
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1668446706891-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Chop your coriander roughly, reserving some leaves for garnish
 
 Peel and finely slice your brown onion[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1668446715058-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Add the peeled ginger, peeled garlic, chopped coriander, red chilli halves (can�
 
 Add your tomato paste, ground paprika, ground turmeric and remaining garam masala with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>vegetable oil and blitz until smooth – this is your bhuna curry paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668446720398-x200.jpg)
 
 ### Step 4
 
 Slice your tomatoes into wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1603118507520-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of<span class
 
 Once the pan is hot, add the tomato wedges and remaining sliced onion with a pinch of salt and cook for 4-5 min or until the onion has softened and the tomatoes have started to break down
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1603118513275-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1603118541105-x200.jpg)
 
 ### Step 7
 

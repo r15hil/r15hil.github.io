@@ -29,6 +29,7 @@ Ain’t no ‘cue finer than North Carolina, where you’ll recreate their spice
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650990884344-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel and finely dice half you<span class="text-danger"> </span>brown onion, then finely slice the remaining onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650990887948-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Sprinkle over your ground cumin and ground smoked paprika with 2/3 of your cider
 
 Pour in 100ml<span class="text-danger"> <span class="text-purple">[130ml]</span> [180ml]</span> boiled water with half your vegetable stock mix (save the rest for later!) and give everything a good mix up, then put the dish in the oven for 25 min or until most of the liquid has been absorbed and the mushrooms are slightly crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650990892127-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ While the macaroni is cooking, melt 15g <span class="text-purple">[22g]</span> <
 
 Reboil half a kettle and grate your cheddar flavour block[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650990896213-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once softened, add 15g <span class="text-purple">[22g]</span> <span class="text-
 
 Gradually whisk 300ml<span class="text-danger"> <span class="text-purple">[450ml]</span> [600ml]</span> milk into the roux and cook for 4-5 min or until a smooth, thick sauce remains
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1651054744219-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the drained macaroni to the béchamel sauce with a grind of pepper and a pin
 
 Transfer the cheezy macaroni to an oven-proof dish, reserving the pan (use individual ones for fancy presentation!) and top with the remaining grated cheeze and half your cayenne pepper (can't handle the heat? Go easy!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650990904130-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, add the sliced onion and remaining chopped garlic and cook for 3-4 min
 
 Wash your shredded spring greens, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650990907865-x200.jpg)
 
 ### Step 7
 

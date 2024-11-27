@@ -28,6 +28,7 @@ This vibrant dinner is inspired by the Mediterranean sun. While the chicken and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729063567720-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the potato pieces to one side of a baking paper-lined baking tray (or two!) 
 
 Put the tray[s] in the oven for 20-25 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729063570542-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ While the potatoes are cooking, add your chicken breast portions to a chopping b
 
 Bash the chicken breast portions with a rolling pin until evenly flattened and pat them dry with kitchen paper – these are your chicken escalopes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729063576021-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Grate your cheddar cheese into a bowl, add your panko breadcrumbs and season w
 
 Add a drizzle of vegetable oil and give everything a good mix up – this is your cheesy breadcrumb mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729063579004-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Put the tray[s] in the oven for 20 min further or until the chicken is cooked th
 
 Once everything is in the oven, boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729063582465-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Dissolve your vegetable stock mix in 50ml<span class="text-purple"><span class="
 
 While the chicken is cooking, heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729063585719-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the vegetable stock and cook for 1-2 min further
 
 Season generously with salt and pepper – this is your mixed veg
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729063588843-x200.jpg)
 
 ### Step 7
 

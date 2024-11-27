@@ -25,6 +25,7 @@ Celebrate the classic pairing of pork and apple in this hearty potato-topped pie
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678199845008-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Slice the potatoes (skins on) into discs and add them to a baking tray with a ge
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until tender and lightly golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678199855620-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced onion and cook for 4-5 min or until the onion is starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678199869035-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Slice the remaining apple finely
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678199879550-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Dissolve half the chicken stock mix in 200ml <span class="text-danger">[350ml] <
 
 Once the pork has browned, add the chopped garlic, diced apple, dried sage and Chinese rice wine and cook for 2-3 min or until the apple is starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678199892790-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Transfer the cooked pork (reserve the pan) to an oven-proof dish and carefully t
 
 Put the dish in the oven for 15-20 min or until bubbling and the potatoes are golden – this is your pork, apple & sage potato-topped pie
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678199928603-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the pie is nearly ready, return the reserved pan to a medium-high heat with
 
 Once the spring greens are tender, add the blanched peas and cook, uncovered, for a further 1-2 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678199933349-x200.jpg)
 
 ### Step 7
 

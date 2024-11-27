@@ -24,6 +24,7 @@ This Christmas cracker will start your day in style. You’ll load up creamy yog
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-Jpeg-1731326885989-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cover and store in the fridge, ready to finish in the morning and enjoy within 2
 
 Skim through these steps and get all your equipment ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1731326893530-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Now, let’s get started
 
 Combine your ground cinnamon with 3 tsp <span class="text-purple">[4 1/2 tsp]</span><span class="text-danger"> [6 tsp]</span> sugar in a bowl – this is your cinnamon sugar
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731326899952-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once toasted, transfer to a bowl and set aside – these are your toasted nuts
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731326904681-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cut the top and bottom off your orange[s], then carefully cut the skin away from
 
 Chop the orange flesh into small bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1731326909514-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Repeat the layering until your yoghurt pots are full, then top with your honey �
 
 Tip: Whip this up the night before! Refrigerate and enjoy within 24 hours for a ready to go breakfast
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1731326914350-x200.jpg)
 
 ### Step 6
 
 Place your brioche halves in the toaster for 1-2 min or until lightly toasted through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1731326920522-x200.jpg)
 
 ### Step 7
 

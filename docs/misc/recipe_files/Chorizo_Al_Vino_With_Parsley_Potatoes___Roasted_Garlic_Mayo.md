@@ -28,6 +28,7 @@ Turn this tapas classic into your new go-to main course with juicy chorizo, pepp
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1718959246545-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1718959256811-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your diced chorizo and cook for 4-5 min or until crisped
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1718959265233-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add your chopped potatoes to a heatproof bowl, then cover the bowl with cling fi
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1718959269571-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Peel and finely slice (don't chop!) your garlic
 
 Chop your parsley finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1718959274899-x200.jpg)
 
 ### Step 5
 
@@ -77,11 +82,13 @@ Once the chorizo has started to crisp, add the sliced onion, sliced pepper and s
 
 Cook for a further 2-3 min or until the sauce has slightly thickened – this is your chorizo al vino
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1718959278935-x200.jpg)
 
 ### Step 6
 
 Once the potatoes are fork-tender, add most of the chopped parsley (save some for garnish!), a knob of butter and a small pinch of salt and pepper – these are your parsley potatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1718959282979-x200.jpg)
 
 ### Step 7
 

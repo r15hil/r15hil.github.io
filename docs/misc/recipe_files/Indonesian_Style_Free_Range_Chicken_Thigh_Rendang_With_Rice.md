@@ -30,6 +30,7 @@ Originating from West Sumatra, our take on the classic rendang is rich in flavou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1726831507773-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Trim, then cut your green beans in half
 
 Bash your lemongrass with a rolling pin, cut down the middle lengthways, remove the tough outer layers and set aside for later, then roughly chop the softer inner core[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1726831510688-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Cook, covered, for 10-12 min or until all the water has absorbed and the rice an
 
 Once done, remove from the heat and keep covered until serving – this is your green bean rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1726831518103-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Crush your garlic open by squashing it with the side of a knife and discard the 
 
 Crush your cardamom pods open by squashing them with the side of a knife and discard the outer green skins
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1726831523427-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add your cardamom seeds, soft innner core of the lemongrass and chopped shallot 
 
 Add half your chilli flakes (can't handle the heat? Go easy!) with your ground cinnamon (not a fan of cinnamon? Only add a little!) and 1 tsp <span class="text-purple">[1 ½ tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and blitz until smooth – this is your rendang paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1726831527186-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once hot, add your free range chicken thighs with a pinch of salt and cook for 4
 
 Once browned, flip the thighs and add the rendang paste and your lime leaves and cook for a further 4-5 min or until the thighs are evenly browned and the paste is fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1726831530752-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ While the chicken is cooking, chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 250ml <span class="text-purple">[325ml]</span><span class="text-danger">[425ml]</span> boiled water with your chicken stock mix and fish sauce– this is your coconut stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1726831534983-x200.jpg)
 
 ### Step 7
 

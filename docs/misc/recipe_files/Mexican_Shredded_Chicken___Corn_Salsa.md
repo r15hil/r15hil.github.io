@@ -26,6 +26,7 @@ Spicy and smoky shredded chicken is a Mexico City street food staple. Here, we'v
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/867.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving, then boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/867_.step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Cook for 3-4 min on each side or until they've browned
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/867_.step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add 150ml <span class="text-danger">[300ml]</span> boiled water and cook, covere
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/867.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,6 +83,7 @@ Trim and chop the spring onion<span class="text-danger">[s]</span> finely
 
 Cut the lime<span class="text-danger">[s]</span> in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/867.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,11 +95,13 @@ Squeeze over the juice of 1/2 <span class="text-danger">[1]</span> lime and 1 tb
 
 Season with salt and pepper&nbsp;&ndash;&nbsp;this is your corn salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/867.-step-6-x200.jpg)
 
 ### Step 6
 
 Combine the mayonnaise, the juice of the remaining 1/2 <span class="text-danger">[1]</span>&nbsp;lime and&nbsp;a drizzle of olive oil &ndash;&nbsp;this is your lime mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/867.-step-7-x200.jpg)
 
 ### Step 7
 

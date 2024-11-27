@@ -25,6 +25,7 @@ Ever preserved your own lemons? Try soaking them in sugar and salt before tossin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681486947077-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and chop your red onion[s] into wedges
 
 Slice half your lemon[s] as thinly as you can into rounds (save the rest for later!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681486950363-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once softened, add the lemon rounds to a small bowl with a pinch of sugar and a 
 
 Cover with boiled water then set aside until later – this is your speedy preserved lemon
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681486954839-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Pat the chicken thighs dry with kitchen paper and season them generously on both
 
 Once hot, add the seasoned chicken thighs, skin-side down, and cook for 10 min or until the skins have browned and crisped
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681486962009-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ After an initial 12 min, add your flaked almonds to the opposite side of the tra
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681486965770-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Tip: Cooking for 4 or more? Use 2 trays!
 
 Whilst the chicken is cooking, strip your mint leaves from their stems and chop them roughly, discard the stems and reboil a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681486970162-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681486973844-x200.jpg)
 
 ### Step 7
 

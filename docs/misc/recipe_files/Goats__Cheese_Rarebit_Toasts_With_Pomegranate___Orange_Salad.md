@@ -26,6 +26,7 @@ This cheesy rarebit toast is the G.O.A.T. You’ll smother crispy ciabatta with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1688738987916-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your wedges to a baking tray with a drizzle of vegetable oil and a pinch of 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688738993093-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Tip: This helps prevent mess and makes separating the pith easier!
 
 Separate the pomegranate seeds from the white pith and discard the pith, then drain the pomegranate seeds in a fine sieve and return to the large bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688738996638-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Strip your thyme leaves from their stems and chop them roughly, discard the stem
 
 Combine the chopped thyme leaves and honey in a small bowl – this is your thyme honey
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688739000469-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the goats' cheese mixture to a pot with 100ml <span class="text-purple">[150
 
 Cook for 1-2 min, stirring frequently, or until the cheese has melted and thickened, then set aside for later – this is your goats' cheese rarebit sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688739004959-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add your pumpkin seeds to the other side of the baking tray (or two!) with a dri
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688739009649-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Top the toasted ciabattas with the goats' cheese rarebit sauce
 
 Return the tray[s] to the oven and cook for 6-8 min or until the rarebit sauce is lightly browned – these are your goats' cheese rarebit toasts
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688739013717-x200.jpg)
 
 ### Step 7
 

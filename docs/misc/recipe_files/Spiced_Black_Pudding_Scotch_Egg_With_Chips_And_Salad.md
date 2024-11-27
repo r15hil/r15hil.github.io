@@ -24,6 +24,7 @@ Recreate Dad’s favourite pub grub with this meaty masterpiece. You’ll take s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1646735757949-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add your egg[s] to a pot of boiled water with a pinch of salt (salt prevents the
 
 Once boiling, cook for exactly 5 min, then fill a bowl of very cold water (use the Gousto ice packs to chill the water!) and add the cooked egg[s] to the bowl to cool down quickly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1646735768062-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the chips to a baking paper-lined baking tray (or two!) with a  drizzle of o
 
 Give everything a good mix up and set the tray[s] aside until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1646735778907-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add a sheet of baking paper to your chopping board and sprinkle over a very gene
 
 Combine your sausage meat (remove the paper if required!) to form 1 giant meatball per person, then flatten the giant meatball[s] into a circle (big enough to coat an egg) onto the floured baking paper until you have 1 sausage meat circle per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1646735790120-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add a peeled egg to the centre of each sausage meat circle
 
 Wrap the sausage meat around each egg and seal it tightly on all sides so that there aren't any gaps – this is your sausage-coated egg
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1646735804803-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add a generous drizzle of olive oil to a separate plate
 
 Turn the sausage-coated egg[s] in the olive oil, shake off the excess, then add to the spiced breadcrumbs and press firmly until evenly coated all over – this is your breaded egg
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1646735813394-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add the breaded egg[s] to a baking paper-lined baking tray and put the tray in t
 
 Meanwhile, combine your ketchup and sriracha (can't handle the heat? Go easy!) in a small bowl – this is your spicy ketchup
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1646735823207-x200.jpg)
 
 ### Step 7
 

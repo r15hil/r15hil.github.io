@@ -29,6 +29,7 @@ Some days, nothing beats nuggets. For this plant-based treat, you'll serve crunc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1733.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Slice your cucumber into discs, then slice each individual cucumber disc into ma
 
 Add the cucumber matchsticks to a bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> boiled water to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1733.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Put the tray[s] in the oven for 30 min or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1733.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, drain your tofu and cut into 6 nuggets per person
 
 Pat each tofu nugget dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1733.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Combine your mayo and soy sauce in a bowl – this is your mayo mix
 
 Combine your panko breadcrumbs and toasted sesame seeds in a separate bowl – this is your breadcrumb mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1733.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the tofu nuggets to a baking tray and drizzle each one with vegetable oil
 
 Put the tray in the oven for 20-25 min or until golden and crispy – these are your sesame tofu nuggets
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1733.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Trim, then finely slice your spring onion[s]
 
 Add all of the vegetables to a bowl with your rice vinegar and a pinch of salt and give everything a good mix up – this is your cucumber slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1733.-step-7-x200.jpg)
 
 ### Step 7
 

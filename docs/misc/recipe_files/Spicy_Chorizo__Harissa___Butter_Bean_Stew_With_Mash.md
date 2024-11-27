@@ -26,6 +26,7 @@ It’s all about the chorizo in punchy Spanish-style stew. Crisp it up before ad
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1729861549365-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729861552217-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your diced chorizo and cook for 4-5 min or until crisped
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729861557940-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel and finely slice your red onion[s]
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729861560793-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml]</span
 
 Drain and rinse your butter beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729861566434-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once the chorizo has crisped, add the sliced onion and pepper strips and cook fo
 
 Once softened, add the sliced garlic with your ground smoked paprika and a pinch of sugar and cook for a further 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729861569580-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Bring to the boil over a high heat, then cook for 4-5 min or until the sauce has
 
 Meanwhile, chop your parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729861574533-x200.jpg)
 
 ### Step 7
 

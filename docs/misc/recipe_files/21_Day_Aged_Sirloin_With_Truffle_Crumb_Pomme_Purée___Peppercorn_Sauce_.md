@@ -23,6 +23,7 @@ Fancy all-out flavour? You can’t go wrong with 100% British sirloin. Served wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1631617245983-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a generous pin
 
 Once boiling, reduce the heat to medium and cook for 14-16 min or until very tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631617317867-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cook for 6-8 min or until golden, stirring frequently – these are your crumbs
 
 Once golden, transfer the crumbs to a bowl until ready to serve and reserve the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631617351441-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Tip: For extra smooth pomme purée add to a food processor and blitz until very 
 
 Set the pomme purée aside (keep it in the pot!), ready to reheat later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631617383898-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the chopped cavolo nero to the middle of the foil with a few small knobs of 
 
 Scrunch the edges of the foil around the cavolo nero to form a sealed parcel then put the tray in the oven for 15 min or until tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631617418105-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min o
 
 Once the steaks are cooked, transfer them to a plate to rest (reserve the pan)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631617431053-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Add the remaining double cream, beef stock mix, cracked black pepper, Chinese ri
 
 Cook for 4-5 min or until thickened – this is your peppercorn sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631617448802-x200.jpg)
 
 ### Step 7
 

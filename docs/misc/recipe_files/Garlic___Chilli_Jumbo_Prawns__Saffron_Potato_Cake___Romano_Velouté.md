@@ -27,6 +27,7 @@ Impress your loved ones with this sophisticated celebration of Spanish flavours.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1631.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Add the pepper to a baking tray, drizzle with olive oil and put the tray in the 
 
 Boil a kettle.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1631.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Boil the potatoes
 
 Meanwhile, peel and chop the potatoes into rough, bite-sized pieces.<br /><br />Add the chopped potatoes to a pot of boiling water with a pinch of salt over a high heat and cook for 10-15 minutes or until fork-tender.<br /><br />Once cooked, drain and leave them to steam dry.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1631.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,6 +72,7 @@ Add the grated cheddar, chopped parsley, saffron and panko breadcrumbs and seaso
 
 Mix thoroughly or until the breadcrumbs are fully incorporated.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1631.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -86,6 +90,7 @@ Add the potato cakes to the tray and drizzle them all over with vegetable oil.
 
 Return the tray to the oven for 20-25 minutes or until golden and crisp, turning once halfway – these are your saffron potato cakes.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1631.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -100,6 +105,7 @@ Slice the cherry tomatoes in half.
 
 Re-boil a kettle.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1631.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -114,6 +120,7 @@ Peel the skin from the roasted Romano pepper<span class="text-danger">[s] </spa
 
 Add the Romano pepper and creamy stock to a food processor (or blender!) and blitz until smooth – this is your Romano velouté.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1631.-step-7-x200.jpg)
 
 ### Step 7
 

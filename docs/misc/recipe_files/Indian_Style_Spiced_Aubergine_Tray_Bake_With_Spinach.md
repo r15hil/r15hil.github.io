@@ -26,6 +26,7 @@ For this easy, one-pan traybake, you'll smother scored aubergine in ginger, yogh
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643123124353-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut the aubergines in half lengthways (including the stalks), then score the flesh in a criss-cross pattern, taking care not to cut through to the skin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643123129717-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Add the chopped ginger to a large bowl with the curry powder, half the natural yoghurt (save the rest for later!), a drizzle of vegetable oil and a generous pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643123134707-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put the tray<span class="text-danger">[s]</span> in the oven for an initial 10 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643123141168-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Crush the garlic with the side of a knife, keeping the skins on
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643123156814-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Sprinkle over the ground turmeric and yellow mustard seeds
 
 Season with a generous pinch of salt and pepper and stir it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643123162241-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add in the reserved curry marinade and give everything a good mix up
 
 Return the tray<span class="text-danger">[s]</span> to the oven for a further 30 min or until everything is cooked through and tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643123170218-x200.jpg)
 
 ### Step 7
 

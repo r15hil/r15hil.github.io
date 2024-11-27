@@ -28,6 +28,7 @@ Korean-style fried chicken in a bao bun? You better bao-lieve it. You’ll load 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684491698358-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684491702830-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Combine your gochujang paste (can't handle the heat? Go easy!), chopped garlic, 
 
 Give everything a good mix up – this is your Korean-style sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684491707071-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add the chopped chicken to a bowl with 1 tbsp <span class="text-purple">[1 1/2 t
 
 Add your cornflour and give everything a good mix up until all the chicken is coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684491711458-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated chicken and cook for 5-6 min on each side until golden and crispy and the chicken is cooked through (no pink meat!) – this is your crispy chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684491715485-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ While the chicken is cooking, add your carrot & cabbage slaw mix, rice vinegar a
 
 Give everything a good mix up and set aside – this is your quick-pickled sesame slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684491719250-x200.jpg)
 
 ### Step 6
 
 Once the chicken is crispy and cooked through, add 3/4 of the Korean-style sauce (you'll use the rest later!) to the pan and cook for 1-2 min or until thickened – this is your Korean-style fried chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684491722849-x200.jpg)
 
 ### Step 7
 

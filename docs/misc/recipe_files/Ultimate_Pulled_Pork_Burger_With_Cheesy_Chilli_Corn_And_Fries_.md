@@ -30,6 +30,7 @@ Ready your taste buds for the ultimate BBQ experience. You'll load soft brioche 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1647942014758-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add your ketchup, half your ground smoked paprika (you'll use the rest later!) a
 
 Cover with tin foil and place the dish on a baking tray
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1647942020510-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add your sweetcorn cobettes to a large piece of tin foil with a drizzle of olive
 
 Add the foil-wrapped cobettes to a baking tray with the pulled pork and put the tray in the oven for an initial 20 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1647942024536-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the fries to a separate baking tray with a drizzle of olive oil, the remaini
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your smoky fries
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1647942027912-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Chop your chives finely
 
 Combine your mayo with the chopped chives, half your cider vinegar (save the rest for later!) and a grind of black pepper in a bowl – this is your ranch dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1647942033788-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Pull the BBQ pulled pork apart using two forks (this technique is known as ‘pu
 
 Return the dish to the oven for 8-10 min further or until the sauce has been absorbed, the pork has started to crisp and the corn is tender – this is your BBQ pulled pork and roasted sweetcorn cobettes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1647942036268-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the chopped chilli (can't handle the heat? Go easy!) to a bowl with the rema
 
 Set aside for a couple of minutes, then drain the quick-pickled chilli, discard the liquid then return to the bowl and mix with your feta – this is your feta & quick-pickled chilli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1647942042360-x200.jpg)
 
 ### Step 7
 

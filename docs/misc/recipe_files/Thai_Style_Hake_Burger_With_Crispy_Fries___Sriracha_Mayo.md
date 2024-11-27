@@ -24,6 +24,7 @@ This twist on a classic burger incorporates Thai flavours to create the ultimate
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1718793688772-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add a drizzle of vegetable oil and a pinch of salt and pepper and give everythin
 
 Put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1718793692374-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Chop your hake fillet[s] in half widthways
 
 Coat the chopped hake evenly in your red Thai curry paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1718793697305-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile, peel and dice half your shallot[s]
 
 Finely slice the remaining shallot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1718793701346-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the remaining sliced shallot and cook for 2-3 min or until crispy 
 
 Once crispy, transfer them to a small bowl or plate and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1718793705985-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add the grated carrot, chopped coriander and chopped roasted peanuts to the quic
 
 Combine your mayo and sriracha (can't handle the heat? Go easy!) in a small bowl – this is your sriracha mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1718793714178-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once hot, add the brioche bun halves, cut-side down, and cook for 3 min or unt
 
 Once charred, remove and set aside until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1718793719265-x200.jpg)
 
 ### Step 7
 

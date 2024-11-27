@@ -22,6 +22,7 @@ Save on washing up with this fuss-free tray bake. You’ll marinate chicken thig
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1390.-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,16 +34,19 @@ Peel and cut your red onion[s] into wedges
 
 Cut your waxy potatoes into small pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1390.-Step-2-x200.jpg)
 
 ### Step 2
 
 Add your honey, wholegrain mustard and red wine vinegar to a bowl – this is your honey mustard marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1390.-Step-3-x200.jpg)
 
 ### Step 3
 
 Add your chicken thighs (skin side up) to one side of a tin foil-lined baking tray (or two!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1390.-step-4-new-x200.jpg)
 
 ### Step 4
 
@@ -52,11 +56,13 @@ Drizzle everything with olive oil and season with a pinch of salt and pepper
 
 Put the tray[s] in the oven for an initial 20 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1390.-step-5-new-x200.jpg)
 
 ### Step 5
 
 After 20 min drizzle half of the honey mustard marinade over the chicken thighs (you'll use the rest later!) and return the tray[s] to the oven for a further 25 min or until the veg is softened and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1390.-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -64,6 +70,7 @@ Meanwhile wash your spring greens then pat it dry with kitchen paper
 
 Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1390.-step-7-new-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ This quick-prep tomato, chicken and chilli tortiglioni is cooked in the oven wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1653406532512-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1639392228094-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add the diced chicken thigh to the dish with a pinch of salt and cook for 3-4 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1639392228835-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Top, tail and cut your courgette[s] in half lengthways, then chop into large chu
 
 Peel and chop your red onion[s] into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1639392231595-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the chopped pepper, courgette chunks and onion wedges to a baking tray (or t
 
 Put the tray[s] on the bottom shelf of the oven and cook for 30 min or until golden and cooked through – this is your roasted veg
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1639392235465-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Meanwhile, crush your garlic open by squashing them with the side of a knife and
 
 Add the crushed garlic and chilli flakes (can't handle the heat? Go easy!) to the dish with the chicken and cook for 30 secs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1639392238493-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Stir through your tortiglioni
 
 Tip: Nestle as much of the pasta as you can into the sauce to help it cook evenly!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-17-1732016147556-x200.jpg)
 
 ### Step 7
 

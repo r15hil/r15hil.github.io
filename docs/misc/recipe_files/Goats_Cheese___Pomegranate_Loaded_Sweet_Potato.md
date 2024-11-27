@@ -26,6 +26,7 @@ Crank your salad into high gear with our Middle Eastern twist. You'll season roa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1658235324224-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Pierce your sweet potatoes with a fork, and add them to a large heat-proof bowl
 
 Cook in the microwave for 5-7 min or until slightly softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1658235328910-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Peel and chop your red onion[s] into wedges
 
 Drain and rinse your<span class="text-danger"> </span>chickpeas
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1658235337773-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add a generous pinch of salt and a generous drizzle of olive oil and give everyt
 
 Put the tray in the oven for 20-25 min or until the chickpeas are crunchy and the onion is roasted – these are your crunchy spiced chickpeas & roasted onion
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1658235340320-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Sprinkle over your ground coriander and season with a generous pinch of salt
 
 Put the tray in the oven for an initial 15 min or until the skins are crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1658235345178-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Tip: This helps prevent mess and makes separating the pith easier!
 
 Separate the pomegranate seeds from the white pith and discard the pith, then drain the pomegranate seeds in a fine sieve and set them aside for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658235348790-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Combine the chopped parsley with your natural yoghurt, white wine vinegar and a 
 
 Wash your salad and pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1658235357830-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Our finger food is perfect for adding the wow-factor to your festive celebration
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1896.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Strip the thyme leaves and chop finely, discarding the stems 
 
 Slice the cherry tomatoes <span class="text-highlight">in half</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1896.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Sprinkle with the chopped thyme and put the tray into the oven for 10–12 min o
 
 Once softened, remove from the oven and keep aside to cool down
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1896.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Unroll the puff pastry and cut into halves lengthways, then into three pieces ea
 
 Score along the sides of each square with a knife to create a border (be careful not to cut all the way through!) and prick the centres lightly with a fork
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1896.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Put the tray into the oven for 10–15 min or until golden and crispy and the pa
 
 Once cooked, transfer to a clean board
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1896.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,11 +79,13 @@ Meanwhile, peel and grate the garlic
 
 Strip the basil leaves and slice roughly, discarding the stems
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1896.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the black olives, capers, dried oregano, Dijon mustard, 3/4 sliced basil (save the rest for <span class="text-highlight">later), </span>garlic (Don't like raw garlic? Go easy!) with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil to the food processor and blitz into a coarse paste – this is your black olive tapenade
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1896.-step-7-x200.jpg)
 
 ### Step 7
 

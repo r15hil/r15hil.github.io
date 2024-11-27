@@ -22,6 +22,7 @@ This dish'll teach you how to crisp tofu like a pro. Once golden brown, you'll s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1382.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1382.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Drain the tofu, then pat it dry with kitchen paper
 
 Cut the tofu into 12 <span class="text-danger">[24] </span>strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1382.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Once very hot, add the tofu strips and cook for 5-6 min, turning occasionally un
 
 Once the tofu is crisp, transfer it to kitchen paper and set aside (reserve the pan for later!) – this is your crispy tofu
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1382.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Dissolve the chopped creamed coconut, peanut butter, chilli relish and soy sauc
 
 Stir it all together – this is your peanut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1382.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the cucumber ribbons to a large bowl and set aside
 
 Add the rice vinegar to the cucumber ribbons and season with a generous pinch of salt – this is your cucumber salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1382.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Carefully wipe the reserved pan clean and return it to a medium-low heat
 
 Add the peanut stock to the pan and cook for 2-4 min or until thickened slightly – this is your satay sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1382.-step-7-x200.jpg)
 
 ### Step 7
 

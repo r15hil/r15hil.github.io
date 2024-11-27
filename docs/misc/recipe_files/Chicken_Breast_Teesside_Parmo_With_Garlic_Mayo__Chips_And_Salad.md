@@ -25,6 +25,7 @@ Ey up chicken parmo. For this Teesside takeaway classic, you’ll pan-fry chicke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679050051669-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Give everything a good mix up and put the tray in the oven for 20-25 min or unti
 
 Grate your cheddar cheese finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679050060637-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add a handful of flour to a plate, a splash of vegetable oil to a shallow bowl a
 
 Season the flattened chicken with a generous pinch of salt, coat them in flour, tap off any excess, then add them to the oil and finally press them into the panko breadcrumbs firmly or until evenly coated all over – this is your breaded chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679050068539-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the breaded chicken and cook for 5-6 min on each side, pressing down firmly with a spatula until the outside is golden and the chicken is cooked through (no pink meat!) – this is your crispy chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679050074520-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once melted, add 2 tsp<span class="text-purple"> [3 tsp]</span> <span class="tex
 
 Gradually whisk 100ml<span class="text-purple"> [150ml]</span> <span class="text-danger">[200ml]</span> milk into the roux, a little at a time, and cook for 3-4 min or until a smooth, very thick sauce remains, then set aside – this is your béchamel sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679050085125-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Transfer the crispy chicken to a tin foil-lined baking tray and top with the bé
 
 Put the tray in the oven and cook for 3-5 min or until the cheese is melted and golden – this is your Teesside parmo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679050088571-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Wash your salad, then pat it dry with kitchen paper
 
 Combine the chopped tomato and salad in a bowl with half your white wine vinegar (you'll use the rest later!) and a little drizzle of olive oil – this is your salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679050095522-x200.jpg)
 
 ### Step 7
 

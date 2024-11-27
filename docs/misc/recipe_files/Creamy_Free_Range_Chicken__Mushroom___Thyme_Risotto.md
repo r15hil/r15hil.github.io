@@ -24,6 +24,7 @@ Relax and enjoy the luxurious, comforting flavours of a classic free range chick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1699978342180-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Chop your free range chicken breast portion[s] into bite-sized pieces
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a high heat, once hot, add the chopped chicken and cook for 4 min on each side or until browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1699978346655-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ While the chicken is cooking, peel and finely dice your brown onion[s]
 
 Chop your chestnut mushrooms in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1699978350435-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Return the pan to a medium heat with a drizzle of olive oil
 
 Once hot, add the diced onion and halved mushrooms and cook for 7-8 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1699978353909-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix in 750ml<span class="text-purple"> [975ml] </span><span class="text-danger">[1.4L] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1699978359344-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Once the vegetables have softened, add the chopped garlic, chopped thyme and arb
 
 Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1699978364682-x200.jpg)
 
 ### Step 6
 
 While the rice is cooking, grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1699978367845-x200.jpg)
 
 ### Step 7
 

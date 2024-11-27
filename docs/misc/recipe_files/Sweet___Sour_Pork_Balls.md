@@ -26,6 +26,7 @@ To make this takeaway classic in your own kitchen, you'll batter pork meatballs 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1589292515529-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the panko breadcrumbs and mix thoroughly until fully combined – this is yo
 
 Divide the pork mixture into 10 <span class="text-danger">[20]</span> and shape into small meatballs – these are your pork balls
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1589292521625-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add 60g <span class="text-danger">[120g]</span> flour and the white wine vinegar
 
 Add 80ml <span class="text-danger">[160ml] </span>very cold water and mix thoroughly – this is your batter
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1589292528082-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the battered pork balls to the pan and cook for 8-10 min, turning regularly, until your pork is cooked through (no pink meat!) and the batter is crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1589292533606-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Meanwhile, add the basmati rice and 300ml <span class="text-danger">[600ml]</spa
 
 Once boiling, reduce the heat to low and cook, covered, for 8-10 min or until most of the water has been absorbed and the rice is almost cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1589292539759-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the tomato ketchup, rice vinegar, chilli jam and remaining soy sauce and mix
 
 Chop the pineapple roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1589292545509-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Return the pan to a medium heat, add the remaining ginger and garlic and cook fo
 
 Once fragrant, add the sweet & sour sauce and chopped pineapple and cook for 2-3 min until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1589292550648-x200.jpg)
 
 ### Step 7
 

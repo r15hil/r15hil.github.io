@@ -25,6 +25,7 @@ Our healthier twist on Milanese balances wholesome green beans, potatoes and red
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695718530636-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop your tomato[es] into wedges and trim your green beans
 
 Peel and cut your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695718534997-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Add the dried oregano with a drizzle of vegetable oil and a generous pinch of sa
 
 Tip: Cooking for 3 or more? Use two trays!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695718540611-x200.jpg)
 
 ### Step 3
 
 Meanwhile, cover your free range chicken breast portion[s] in cling film and bash them with a rolling pin until evenly flattened to approx. 1cm in thickness
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695718546606-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add the juice of half your lemon to a bowl with 2 tbsp <span class="text-purple"
 
 Stir everything together until the lemon and oil have combined – this is your lemon oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695718551037-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the coated chicken to one side of an oiled baking tray
 
 Put the tray in the oven for 25 min or until the chicken is cooked through (no pink meat!) – this is your chicken Milanese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695718564662-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Pour over the chicken stock and top with the trimmed green beans
 
 Return the tray to the oven for a final 12-15 min or until the beans are tender and the stock has reduced
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695718572831-x200.jpg)
 
 ### Step 7
 

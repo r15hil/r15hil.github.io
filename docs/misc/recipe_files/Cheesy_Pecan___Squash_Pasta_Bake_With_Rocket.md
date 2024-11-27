@@ -23,6 +23,7 @@ Roasted butternut squash adds sweetness to this creamy, satisfying pasta bake. B
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602248526363-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop half of the butternut squash into 8 <span class="text-danger">[16]</span> w
 
 Cut the remaining butternut squash into bite-sized cubes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602248539085-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Whilst the squash is cooking, add the tortiglioni to a pot of boiled water with 
 
 Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602248555957-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Dissolve the vegetable stock mix in 250ml<span class="text-danger"> [500ml] </sp
 
 Chop basil roughly, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602248608593-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once the butter has melted, add the sliced onion with a pinch of salt and cook f
 
 Add the chopped garlic and cook for 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602248616449-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Gradually whisk in the stock, a little at a time, and cook for 5 min or until a 
 
 Add half of the grated Italian hard cheese (save the rest for later!) and stir through until melted – this is your white sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602248638835-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Transfer to an oven-proof dish
 
 Top with the remaining grated Italian hard cheese, snap the pecan nuts in half and sprinkle them over
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602248658515-x200.jpg)
 
 ### Step 7
 

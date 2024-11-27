@@ -27,6 +27,7 @@ This Indian-inspired vegetable pie needs minimal prep. You'll tear naan bread ov
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683887427717-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and 
 
 Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and roughly chop
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1683887516973-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add the sliced onion, chopped aubergine and chopped pepper with a pin
 
 Cook for 5-7 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683887520223-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Dissolve the vegetable stock mix, tomato paste and mango chutney in 300ml <span class="text-danger">[600ml]</span> boiled water – this is your stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683887523684-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the onions have softened, add the garam masala, cayenne pepper (can't hand
 
 Once fragrant, add the tomato wedges and stock and give everything a good mix up - this is your vegetable rogan josh
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683887526986-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Transfer the vegetable rogan josh to an oven-proof dish
 
 Put the dish in the oven and cook for an initial 10-15 min or until the stock is starting to thicken and the tomatoes have softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1683887530104-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ While the oven works its magic, roughly tear the naan bread
 
 Pick the coriander leaves from their stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1683887533297-x200.jpg)
 
 ### Step 7
 

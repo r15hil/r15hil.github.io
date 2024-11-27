@@ -31,6 +31,7 @@ Nothing beats a cheeseburger, except one topped with crispy bacon and mouthwater
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1723811527792-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1723811547375-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ While the fries are cooking, add your beef mince to a bowl with your panko brea
 
 Give everything a good mix up until fully combined (clean hands is the best way!) then shape into 1 patty per person – this is your burger patty[ies]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1723811587607-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the burger patty[ies] to an oiled baking tray (or two!) with your streaky 
 
 Put the tray[s] in the oven for 15-20 min or until the burgers are cooked through (no pink meat!) and the bacon is crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1723811686761-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Chop a large knob of butter into small cubes
 
 Peel your Italian hard cheese with a peeler until you end up with a pile of cheese shavings
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1723811697305-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Slice your brioche bun[s] in half and add them to the tray[s]
 
 Return the tray[s] to the oven for 2-3 min or until the butter has melted and the brioche is warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1723811900893-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Return to the oven for 2-3 min until the cheese has melted – this is your chee
 
 Tip: If your bacon is already crispy at this point, add it to a plate and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1723811786695-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ Double up on your weekly cheese fix. You’ll sizzle pepper and black beans in g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1731598475702-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Skim through these steps, then wash your fruit and veg, take your chicken out of
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1-chicken-breast-in-pan-1731598540472-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid), over a
 
 Add a couple of splashes of water to the pan and cover with a lid and cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1731598551834-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Heat a seperate large, wide-based pan (preferably non-stick) with a drizzle of v
 
 Once hot, add the sliced pepper and cook for 2-3 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1731598555354-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once the pepper has slightly softened, add the drained black beans to the pan wi
 
 Give everything a good mix up, season with a pinch of salt and pepper and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1731598558508-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add your tomato paste to the pan with 80ml <span class="text-purple">[105ml]</sp
 
 Mix it all together and cook for 3-4 min or until the rice is warmed through – this is your taco rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1731598562256-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Trim, then slice your spring onion[s] roughly
 
 Top the taco rice with the crumbled feta and grated cheese and cook for a final 1 min or until the cheese has slightly melted – this is your double cheese taco rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1731598565139-x200.jpg)
 
 ### Step 7
 

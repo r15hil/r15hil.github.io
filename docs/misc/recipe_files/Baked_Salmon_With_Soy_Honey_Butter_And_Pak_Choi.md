@@ -24,6 +24,7 @@ Cooking ‘en papillote’ (meaning in a sealed envelope) is a brilliantly simpl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1725447366898-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1725447374025-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cut 2 long rectangles of tin foil (approx. the size of A3 sheets of paper), over
 
 Tip: Overlapping the foil ensures that the fish is completely encased for cooking
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1725447379506-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Scatter with the chopped ginger and dot the butter evenly over
 
 Drizzle your soy sauce, honey and rice vinegar evenly over the salmon
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1725447383439-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Put the tray[s] in the oven for 15 min or until the fish is cooked through – t
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1725447388547-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Whilst the salmon is cooking, wash your pak choi, then pat dry with kitchen pape
 
 Slice the pak choi in half lengthways
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1-1725447393361-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Season with a pinch of salt
 
 Once brown, add a splash of water and cook, covered, for 4-5 min further or until soft
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1-1725447397914-x200.jpg)
 
 ### Step 7
 

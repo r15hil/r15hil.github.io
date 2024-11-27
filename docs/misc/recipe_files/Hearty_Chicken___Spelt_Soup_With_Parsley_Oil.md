@@ -27,6 +27,7 @@ Have a wholesome night in with this souped-up bowlful. You’ll simmer spelt and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1693405438029-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your parsley finely, including the stalks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1693405443717-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add the diced onion and diced carrot with a pinch of salt and pepper a
 
 Dissolve your chicken stock mix and soy sauce in 600ml <span class="text-purple">[900ml]</span> <span class="text-danger">[1.2L]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1693405454664-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once fragrant, add your spelt and bay leaf[ves] to the pot with the chicken stoc
 
 Bring to the boil over a high heat and cook, covered, for 30 min or until tender (it will still have a slight bite when cooked)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1693405458979-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Meanwhile, add your chicken breast strips to a baking paper-lined tray with a dr
 
 Put the tray in the oven for 15-18 min or until cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1693405462889-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the sliced ciabatta to a separate baking tray (or two!) with a drizzle of ol
 
 Put the tray[s] in the oven for 5-6 min or until the ciabatta is starting to brown – these are your ciabatta toasts
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1693405468467-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once the chicken is cooked through, transfer the chicken to a clean board and sh
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1693405475071-x200.jpg)
 
 ### Step 7
 

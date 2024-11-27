@@ -23,6 +23,7 @@ Gyros (pronounced yee-ros) is the ultimate Greek street food. Chicken is cooked 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1041.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Slice in half as if you were cutting a burger bun, so you are left with two thin
 
 Lay a sheet of cling film or greaseproof paper over the&nbsp;chicken breast&nbsp;halves&nbsp;and bash the chicken with a rolling pin to an even thickness throughout&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1041.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Combine half of the Greek-style yoghurt (you'll use the rest later!), dried oreg
 
 Add the chicken and give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1041.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the chicken to a baking tray (use tin foil to avoid mess!) and roll each fla
 
 Put the tray in the oven for 20-25 min or until the chicken is cooked through - this is your chicken gyros&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1041.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add them to a baking tray with a drizzle of vegetable oil and a generous pinch o
 
 Put the baking tray in the oven and cook for 20-25 min or until they're golden and crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1041.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Peel and finely chop (or grate) the garlic
 
 Cut the remaining lemon into&nbsp;wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1041.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Combine the remaining Greek-style yoghurt with the grated cucumber and&nbsp;chop
 
 Add 1 tbsp<span class="text-danger"> [2 tbsp]</span> olive oil and season with a generous pinch of salt and pepper - this is your tzatziki&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1041.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ This springtime casserole is sure to please a crowd. While the chicken crisps in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1718105998702-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ This recipe takes around 5 -10 min<span class="text-danger"> </span>to prep, so 
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1718105992990-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Chop your potatoes (skins on) into bite-sized pieces and add to the dish
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1718106006093-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Top, tail and slice your leek[s] into rounds, then wash thoroughly to remove any
 
 Add the sliced leek to the potatoes with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour, give everything a good mix up and cook for 30 secs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718106010651-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Add your chicken stock mix to the dish with 350ml <span class="text-purple">[450
 
 Stir it all together and bring to the boil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1718106019299-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Meanwhile, add your chicken thighs (skin-side up) to a tin foil-lined baking tra
 
 Put the tray[s] on the bottom shelf of the oven for 25 min or until cooked through (no pink meat!) and the skin is crispy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1718106028550-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ At the same time, put the dish with the potatoes and leek into the oven, covered
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1718106033541-x200.jpg)
 
 ### Step 7
 

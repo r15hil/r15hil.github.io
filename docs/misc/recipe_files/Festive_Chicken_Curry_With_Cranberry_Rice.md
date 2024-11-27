@@ -32,6 +32,7 @@ Deck your dining table with a festive curry that's ready in just 20 minutes. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728644373593-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Add your basmati rice, cloves, dried cranberries, ground turmeric and 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[600ml]</span> cold water with a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728644377046-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Boil a kettle
 
 Peel and finely chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728644380225-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped shallot with a pinch of salt and pepper and cook for 3-4 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728644383285-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your chicken stock mix with 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml]</span> boiled water - this is your chicken stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728644388921-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Chop your chicken breast portion[s] into bite-sized pieces
 
 Once the shallot has softened, add your chopped chicken to the pan with a pinch of salt and pepper and cook for an initial 3-4 min or until beginning to brown
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728644395627-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once beginning to brown, add your curry powder and ground cinnamon to the pan wi
 
 Once fragrant, add the chicken stock with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and cook for 8-10 min or until the sauce has thickened and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728644398806-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ By combining roasted portobello mushroom with melted Italian hard cheese in deli
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/134.step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chopped potatoes to a baking tray with a generous drizzle of olive oil a
 
 Give everything a good mix up and put the tray in the oven for an initial 25 min or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/134.step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Chop the basil coarsely, including the stalks
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/134.step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once softened, add half of the grated Italian hard cheese
 
 Return the tray to the oven for a further 4-5 min or until the cheese has melted – these are your cheesy portobello mushrooms
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/134.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Once lightly toasted, add the chopped garlic and cook for a further 1-2 min or u
 
 Once fragrant, transfer the toasted walnuts and garlic to a food processor, set aside and reserve the pan for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/134.step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once hot, add the sliced onion with the balsamic vinegar, 2 tsp <span class="tex
 
 Meanwhile, add the chopped basil to the food processor with half of the grated Italian hard cheese, 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil and a pinch of salt and pepper and blitz together – this is your walnut pesto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/134.step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Return the tray to the oven for a further 3 min or until the ciabattas are warme
 
 Combine the mayo and half of the walnut pesto in a small bowl with a grind of pepper – this is your pesto mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/134.step-7-x200.jpg)
 
 ### Step 7
 

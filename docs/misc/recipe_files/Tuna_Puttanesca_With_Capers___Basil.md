@@ -25,6 +25,7 @@ This simple, satisfying supper combines punchy capers, black olives, fresh basil
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1384.-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop the red onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1384.-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped red onion with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1384.-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Cook the linguine for 8-10 min or until it's cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1384.-Step-4-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add the chopped garlic, dried oregano, chilli flakes (can't handle the heat? Go easy!) and tomato paste and cook for 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1384.-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the chopped tomatoes and a pinch of sugar, salt and pepper 
 
 Crumble 1/2 <span class="text-danger">[1]</span> Knorr vegetable stock cube into the pan and cook for 6-7 min or until a thick pasta sauce remains
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1384.-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Slice the black olives in half 
 
 Drain the tuna
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1384.-Step-7-x200.jpg)
 
 ### Step 7
 

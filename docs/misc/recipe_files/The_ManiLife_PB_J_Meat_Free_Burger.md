@@ -24,6 +24,7 @@ Kitchen rebels, get ready to smother ManiLife peanut butter and chilli jam all o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619779797590-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Cut the potatoes (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619779873528-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Add the potato wedges to a baking tray with a drizzle of vegetable oil, a pinch 
 
 Put the tray in the oven and cook for 25-30 min or until the wedges are golden and crispy – these are your smoky wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619779901740-x200.jpg)
 
 ### Step 3
 
@@ -47,11 +50,13 @@ Add the sliced shallot to a bowl with the red wine vinegar and a pinch of sugar 
 
 Set aside to pickle – these are your pickled shallots
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648481785585-x200.jpg)
 
 ### Step 4
 
 Wash the lettuce, separate the leaves and set aside for serving then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1619779951790-x200.jpg)
 
 ### Step 5
 
@@ -59,11 +64,13 @@ Line a separate baking tray with baking paper
 
 Add the ultimate vegan burger patties to the lined tray and put the tray in the oven for 10-12 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619779961042-x200.jpg)
 
 ### Step 6
 
 Meanwhile, slice the plant-based brioche buns in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1619779991045-x200.jpg)
 
 ### Step 7
 

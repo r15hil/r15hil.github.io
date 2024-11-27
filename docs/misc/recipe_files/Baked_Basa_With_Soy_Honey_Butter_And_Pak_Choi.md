@@ -24,6 +24,7 @@ Cooking ‘en papillote’ (meaning in a sealed envelope) is a brilliantly simpl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1619018132487-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/746.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cut 2 long rectangles of tin foil (approx. the size of A3 sheets of paper), over
 
 Tip: Overlapping the foil ensures that the fish is completely encased for cooking
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/746.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Scatter with the chopped ginger and dot the butter evenly over
 
 Drizzle your soy sauce, honey and rice vinegar evenly over the basa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/746.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Put the tray[s] in the oven for 15 min or until the fish is cooked through – t
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/746.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Whilst the basa is cooking, wash your pak choi, then pat dry with kitchen paper
 
 Slice the pak choi in half lengthways
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1636543352804-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Season with a pinch of salt
 
 Once brown, add a splash of water and cook, covered, for 4-5 min further or until soft
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/746.-step--7-x200.jpg)
 
 ### Step 7
 

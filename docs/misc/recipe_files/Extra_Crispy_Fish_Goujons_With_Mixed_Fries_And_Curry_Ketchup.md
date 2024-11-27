@@ -25,6 +25,7 @@ This is fish and chips, the easy way. You’ll bake breaded basa until delicious
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1708618165822-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Peel and cut your potato[es] and sweet potato[es] into fries – these are your mixed fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1708618169442-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the mixed fries to a large baking tray (or two!) with a drizzle of vegetable
 
 Put the tray[s] in the oven for 20-25 min or until the fries are tender and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1708618173655-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Meanwhile, slice your basa fillet[s] in half lengthways
 
 Slice each half into 2 pieces (roughly the size and shape of fish fingers) so that you are left with 4 basa strips per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1708618179802-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Add your panko breadcrumbs to another plate with your ground paprika, a generous
 
 Coat the basa strips in the flour, tap off any excess, then add it into the milk and finally press it into the breadcrumbs firmly to evenly coat all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1708618184299-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Boil a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1708618188564-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Whilst everything is cooking, combine your tomato ketchup in a bowl with your cu
 
 <span class="text-danger">Tip: Cooking for kids? Only use half of the ketchup and save the rest for later!</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1708618192319-x200.jpg)
 
 ### Step 7
 

@@ -32,6 +32,7 @@ To give this shepherd’s pie an Indian twist, we've livened up the lamb mince w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2066.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -45,6 +46,7 @@ Add the chopped potatoes to a pot of boiling water with a pinch of salt ov
 
 Once cooked, drain and return them to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2066.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -58,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped onion, carrot and garlic with a pinch of salt and cook for 3-5 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2066.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ While the vegetables are cooking, dissolve your chicken stock mix in 250ml <span
 
 Once the onions have softened, add your ground cumin, tomato paste, chilli flakes (can't handle the heat? Go easy!) and lamb mince and cook for 4-5 min further, breaking the lamb up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2066.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ While the lamb mince is cooking, add your ground turmeric to the drained potato
 
 Mash until smooth then season generously with salt – this is your turmeric mash
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2066.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Wash your spring greens then pat it dry with kitchen paper
 
 Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2066.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Tip: Gently run a fork over the mash to create a crispy top!
 
 Put the dish in the oven for 15-20 min or until golden and crispy – this is your Indian-style shepherd's pie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2066.-step-7-x200.jpg)
 
 ### Step 7
 

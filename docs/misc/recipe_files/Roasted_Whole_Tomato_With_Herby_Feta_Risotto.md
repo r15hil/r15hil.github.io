@@ -26,6 +26,7 @@ Bring sunshine to the table with a seasonal dish featuring ripe, vibrant tomato.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1658226810550-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your tomatoes to a baking tray with a generous drizzle of olive oil
 
 Put the tray in the oven and cook for 35-40 min or until softened – these are your roasted whole tomatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1658226813635-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped shallot and garlic and cook for 2-3 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1658226825513-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ While the shallot and garlic are softening, dissolve your vegetable stock mix in
 
 Once softened, add your arborio rice and Chinese rice wine to the pan and cook for 1 min or until the Chinese rice wine has evaporated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1658226840595-x200.jpg)
 
 ### Step 4
 
 Add the vegetable stock to the pan a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked – this is your risotto
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1658226845917-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Crumble your feta into rough bite-sized pieces, then chop your black olives fine
 
 Combine the chopped olives in a bowl with half of your red wine vinegar (save the rest for later!), 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> olive oil and a good grind of black pepper – this is your olive tapenade
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658226861340-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Wash the lettuce under cold running water and cut away the core, then pat dry wi
 
 Tear the lettuce leaves from the stem until you are left with a pile of leaves and add to a large bowl with the remaining red wine vinegar and a drizzle of olive oil and give it a gentle mix – this is your dressed salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1658226870533-x200.jpg)
 
 ### Step 7
 

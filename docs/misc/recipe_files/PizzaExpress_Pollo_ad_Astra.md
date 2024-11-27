@@ -25,6 +25,7 @@ Master the art of PizzaExpress at home with restaurant favourite Pollo Ad Astra.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1666190739984-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Dice the mozzarella into small bite-sized pieces and add to some kitchen paper, 
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1666190744087-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Transfer half the Cajun seasoning to a bowl and set aside for later – this is 
 
 Add half the chopped garlic (save the rest for later!) to the Cajun seasoning, then drizzle olive oil over the chicken breast portions and press them into the Cajun seasoning until evenly coated - this is your coated chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1666190750676-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the coated chicken and chopped pepper to a baking paper-lined baking tray wi
 
 Once cooked through, transfer the cooked chicken to a clean board (reserve the tray) and shred apart using two forks – this is your pulled chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1666190760903-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cut the PizzaExpress pizza dough in half
 
 Shape the dough into 2 <span class="text-danger">[4]</span> balls and set aside for 15 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1666190758203-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Peel and finely slice the red onion<span class="text-danger">[s] </span>into rin
 
 Combine the remaining chopped garlic with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt – this is your garlic oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1666190767207-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Repeat with the other dough ball<span class="text-danger">[s]</span> – these a
 
 Transfer the pizza bases to a baking paper-lined baking tray
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1666190769313-x200.jpg)
 
 ### Step 7
 

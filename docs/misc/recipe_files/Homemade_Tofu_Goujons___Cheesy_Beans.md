@@ -25,6 +25,7 @@ When the craving for tofu goujons hits, skip the freezer staple and make your ow
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648030324588-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the potato wedges to a baking tray with a drizzle of vegetable oil and a pin
 
 Give everything a good mix up and put the tray in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648030326909-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop the tofu into 8 <span class="text-danger">[16]</span> strips
 
 Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648030329642-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the panko breadcrumbs to another plate with the smoked paprika, dried oregan
 
 Add a generous drizzle of olive oil and mix together (this will make your breadcrumbs golden!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648030332556-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Season the tofu strips generously with salt, then coat them in the flour, tap of
 
 Add the breaded tofu strips to a separate baking tray and put the tray in the oven for 15-18 min or until cooked through and golden – these are your homemade tofu goujons
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648030334820-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Meanwhile, drain and rinse the cannellini beans
 
 Dissolve the vegetable stock mix in 150ml <span class="text-danger">[250ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648030337896-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the onion has softened, add the drained cannellini beans to the pot with th
 
 Bring to the boil over a high heat and cook for 4-5 min or until thickened – these are your beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648030340739-x200.jpg)
 
 ### Step 7
 

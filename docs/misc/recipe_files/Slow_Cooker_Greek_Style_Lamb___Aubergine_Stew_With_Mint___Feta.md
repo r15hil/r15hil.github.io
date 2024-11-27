@@ -25,6 +25,7 @@ Slow-cook this moreish moussaka-inspired stew to perfection. You’ll sizzle lam
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1667303657800-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your slow cooker and all your ingredients ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667303660632-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Boil half a kettle
 
 Turn on your slow cooker to high
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667303664139-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a little drizzle of veg
 
 Add your lamb mince to the pan with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 2-3 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667303667773-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Trim the green stalk[s] off your aubergine[s] and chop into bite-sized pieces
 
 Add the chopped aubergine to the pan and cook for 1-2 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667303670702-x200.jpg)
 
 ### Step 5
 
@@ -66,11 +71,13 @@ Add 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[25
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a generous pinch of salt and pepper, then cover and cook on high for 4 hours (no pink meat!) – this is your Greek-style lamb stew
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667303674156-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667303677623-x200.jpg)
 
 ### Step 7
 

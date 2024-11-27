@@ -30,6 +30,7 @@ This vibrant Kerala-inspired curry is filled with bright colours and bold flavou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1630426304760-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add your butternut squash cubes to a baking tray (or two!) with a generous drizz
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until tender and golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630426308596-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add your coriander seeds and fennel seeds and cook for 1-2 min or unti
 
 Once toasted, transfer to a food processor and reserve the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630426312058-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Peel (scrape the skin off with a teaspoon) and roughly chop your ginger
 
 Peel and roughy chop your garlic and chop your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630426314931-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix and chopped creamed coconut in 200ml<span class="text-purple"> [260ml] </span><span class="text-danger">[340ml]</span> boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1630426318203-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630426321784-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Once fragrant, add the halved green beans and coconut stock and cook for 6-8 min
 
 Once thickened, add the roasted butternut squash cubes – this is your Keralan-style squash curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1630426325250-x200.jpg)
 
 ### Step 7
 

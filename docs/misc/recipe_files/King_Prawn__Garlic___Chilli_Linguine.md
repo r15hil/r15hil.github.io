@@ -26,6 +26,7 @@ Create a classic Sicilian pasta with chilli, garlic, parsley and juicy king praw
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599558393156-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Trim, then chop your spring onion[s] roughly
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599558400100-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599558413582-x200.jpg)
 
 ### Step 3
 
 Mix the chopped chilli (can't handle the heat? Go easy!) and spring onion together and chop them until you are left with a finely chopped mixture – this is your chilli & spring onion mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599558420188-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once hot, add the chilli & spring onion mixture to the pan with a generous pin
 
 Drain your king prawns, then add them to the pan along with the chopped garlic and cook for 4-5 min or until the prawns are cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599558432077-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Chop your parsley finely, including the stalks
 
 Chop your cherry tomatoes in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599558438557-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Season with a generous pinch of salt and pepper
 
 Squeeze in the juice of half your lemon and stir until the sauce sticks to the linguine – this is your king prawn, garlic & chilli linguine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599558451597-x200.jpg)
 
 ### Step 7
 

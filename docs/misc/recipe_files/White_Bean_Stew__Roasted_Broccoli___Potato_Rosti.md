@@ -23,6 +23,7 @@ This warming butter bean and tomato stew is real plant-based comfort food! Serve
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2406Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the grated potato to the middle of a tea towel and bring the four corners
 
 Add the squeezed potato to a bowl with 1/2 tsp<span class="text-danger"> [1 tsp]</span> of salt and a pinch of pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2406Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the grated potato to one side of the baking paper and shape into a recta
 
 Drizzle with vegetable oil and put the tray in the oven for 20-25 min or until golden brown and crispy – this is your potato rosti
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2406Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Strip the thyme leaves from their stems and chop them roughly, discard the ste
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2406Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Peel and finely chop (or grate) the garlic
 
 Once hot, add the chopped onion, thyme and garlic to the pan with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2406Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once the rosti has had 10-12 min, add the Tenderstem broccoli to the other side 
 
 Season with a pinch of salt, drizzle with olive oil and return the tray to the oven for 10-12 min further or until the broccoli is golden and tender and the rosti is cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2406Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add the chopped tomatoes with the red wine vinegar and reduce the heat to low
 
 Cook, covered, for 5-6 min further or until the tomatoes have broken down to create a sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2406Step-7-x200.jpg)
 
 ### Step 7
 

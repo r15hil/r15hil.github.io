@@ -21,11 +21,13 @@ Harissa is a North African spice paste sometimes described as the ‘national co
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/286.-step-1-x200.jpg)
 
 ### Step 1
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/286.-step2-x200.jpg)
 
 ### Step 2
 
@@ -34,6 +36,7 @@ Chop the potatoes roughly into small pieces
 
 Peel&nbsp;the ginger (scrape the skin off with a teaspoon) and finely chop (or grate)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/286.-step3-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Once&nbsp;hot, add the potatoes and cook for 2-3 min or until browned lightly on
 
 Meanwhile, slice the spring onions finely, discarding the root ends and keeping the whites and greens separated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/286.-step4-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Coat the chicken with half of the harissa paste in a small bowl, then season gen
 
 Add the chicken to the pot and cook for 2 min or until the chicken is brown and seared all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/286.-step5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Stir well&nbsp;and bring to a boil over a high heat
 
 Tip: scrape the bottom of the pot to prevent sticking!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/286.-step6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add the red lentils, ginger, 1 tbsp <span class="text-danger">[2 tbsp]</span>&nb
 
 Reduce to a medium-low heat and cook with a lid on for 7 min or until the lentils and potatoes are cooked through and most of the water has been absorbed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/286.-step7-x200.jpg)
 
 ### Step 7
 

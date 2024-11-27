@@ -26,6 +26,7 @@ Take to the streets of Kolkata with this hearty curry. You’ll simmer fragrant 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666093888472-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop the waxy potatoes in half
 
 Add the chopped potatoes to a pot of boiled water, bring to the boil over a high heat and cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666093892522-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a 
 
 Once hot, add the cubed paneer and cook for 4-5 min or until starting to brown, then transfer to a plate and set aside until later, reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666093896264-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Slice the green chilli<span class="text-danger">[es]</span> finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666093901348-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the sliced onion and grind of black pepper and cook for 4-5 min or
 
 Dissolve the vegetable stock mix and tomato paste in 200ml <span class="text-danger">[350ml] </span>boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666093905321-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Once fragrant, add the chopped tomato, tomato stock, drained potatoes and the br
 
 Reduce the heat to low and cook, covered, for 5-6 min or until the sauce has thickened to a curry-like consistency and the potatoes are cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666093909813-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add the mini garlic & coriander naans to a toaster for 1-2 min or until warmed through, then butter once out of the toaster
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666093914239-x200.jpg)
 
 ### Step 7
 

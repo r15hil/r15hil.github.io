@@ -26,6 +26,7 @@ This week, we've got a warming, wintry and divinely decadent brie and leek risot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636549269109-x200.jpg)
 
 ### Step 1
 
@@ -39,11 +40,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636549272573-x200.jpg)
 
 ### Step 2
 
 Dissolve the vegetable stock mix in 700ml <span class="text-danger">[1.3L]</span> boiled water and add the Chinese rice wine
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636549276051-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Then top, tail and slice finely
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636549279211-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the onion has started to soften, add the chopped leek, garlic and dried or
 
 Cook for 5 min further or until the leek has softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636549282546-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Grate the brie coarsely (or roughly chop into small cubes)
 
 Roughly chop the dried cranberries
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636549286240-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Put the tray in the oven for 3 min or until golden and crunchy – these are you
 
 Tip: Watch them like a hawk so they don't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636549289060-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ For this all-American cheeseburger, you'll top beef patties with oozing cheddar 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1619.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cut your potatoes (skins on) into wedges, then add them to a large baking tray 
 
 Put the tray[s] in the oven for 20-25 min or until the wedges are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1619.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the cucumber wedges to the bowl and give everything a good mix up, then s
 
 Tip: Give the cucumber the occasional shake while pickling!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1619.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the brioche halves, cut-side down, and cook for 2-3 min or until 
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1619.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Knead thoroughly until fully combined (kneading the patty[ies] for longer will m
 
 Shape into 1<span class="text-danger"> </span>burger patty per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1619.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip the patty[ies] and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1619.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Meanwhile, combine your mayo, tomato ketchup and mustard ketchup in a small bowl
 
 Grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1619.-step-7-x200.jpg)
 
 ### Step 7
 

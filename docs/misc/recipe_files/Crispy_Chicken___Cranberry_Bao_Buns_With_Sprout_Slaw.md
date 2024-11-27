@@ -26,6 +26,7 @@ Sleigh baos ring...are you hungry? This festive mash-up is stuffed with crispy c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1696938043001-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Chop your waxy potatoes in half, lengthways
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696938046915-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil, half 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden – these are your herby potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696938050901-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add a splash of milk to a shallow bowl and add 2 tbsp<span class="text-danger"> 
 
 Coat the flattened chicken in the flour, tap off the excess, then add them to the milk and then firmly press into the breadcrumbs to evenly coat all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696938055464-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once hot, add the breaded chicken and cook for 5 min on each side or until the c
 
 On a clean board, slice the breaded chicken finely into strips – this is your crispy chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696938059624-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ While the chicken is cooking, trim the ends from your Brussels sprouts, then add
 
 Tip: Don't have a food processor? Chop them up as finely as you can!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696938063768-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add the chopped sprouts to a medium bowl with your dried cranberries, half your 
 
 Mix it all together – this is your sprout slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696938067954-x200.jpg)
 
 ### Step 7
 

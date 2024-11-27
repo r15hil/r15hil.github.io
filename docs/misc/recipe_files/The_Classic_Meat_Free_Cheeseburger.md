@@ -24,6 +24,7 @@ These juicy meat-free burgers make for a perfect family meal. You'll pack your p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1625658838833-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Chop your potatoes into chips and add them to a baking tray with a drizzle of ve
 
 Put the tray in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-08-21_17h10m26s-APIC-1628083252549-x200.jpg)
 
 ### Step 2
 
 Peel your red onion[s] and slice finely into rounds
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-08-21_16h42m49s-APIC-1628083274487-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Add the onion rounds to a separate tin foil-lined baking tray (or pop them on th
 
 Put the tray in the oven for 20-25 min or until softened and lightly golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-08-21_16h30m15s-APIC-1628083308526-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Mix together until really well combined (clean hands is the best way!)
 
 Divide and shape the meat-free mixture into 1 patty per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1625658854460-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Tear the remaining lettuce into rough, bite-sized pieces
 
 Slice your cheddar cheese into 3 slices per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-08-21_16h40m46s-APIC-1628083324940-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once hot, add the meat-free patty[ies] and cook for 5 min on one side, then flip
 
 Mix the torn lettuce and roughly chopped tomato together – this is your salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625658861461-x200.jpg)
 
 ### Step 7
 

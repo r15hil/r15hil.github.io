@@ -30,6 +30,7 @@ Bring on the bold flavour of veg with our hearty, nutty and super satisfying cur
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-16-1731059717926-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your sweet potato[es] (skin on) into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-17-1731059722233-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the chopped sweet potato to a baking tray with 1/2 tbsp <span class="text-pu
 
 Put the tray in the oven for 15-20 min or until the sweet potato is cooked and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-18-1731059726452-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 t
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-19-1731059731344-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Dissolve your vegetable stock mix in 600ml <span class="text-purple">[800ml]</s
 
 Add your chicken breast portion to a baking paper-lined tray with a drizzle of vegetable oil and a pinch of salt and pepper, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!) – this is your cooked chicken breast
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-18-1731059736024-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once the onion has softened, add your curry powder, chilli flakes (can't handle 
 
 Rinse your red lentils, then add them to the pan with the vegetable stock and bring to the boil over a high heat, once boiling, reduce the heat and cook, covered, for 10-15 min or until the lentils are cooked and tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-19-1731059739709-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Wash your shredded kale, then pat it dry with kitchen paper
 
 Once the lentils are cooked, add the shredded kale to the pan and cook, covered, for a further 3-5 min or until the kale has wilted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-16-1731059742807-x200.jpg)
 
 ### Step 7
 

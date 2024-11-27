@@ -26,6 +26,7 @@ For this fusion twist, you'll coat plant-based patties with sesame seeds to give
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1615910496246-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1615910500544-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ While the chips are cooking, trim, then slice your spring onion[s]
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1615910504985-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add your meat-free burger patty[ies], grated ginger and sliced spring onion to 
 
 Using clean hands, give everything a very good mix up until fully combined – this is your meat-free burger mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1615910509619-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Sprinkle the toasted sesame seeds evenly over the burger patty[ies]
 
 Lightly oil a baking tray with vegetable oil and add the sesame meat-free burger patty[ies], put the tray in the oven for 10-12 min or until cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1615910515395-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Peel lengths off the cucumber until you end up with a pile of cucumber ribbons
 
 Add the grated carrot and cucumber ribbons to the bowl, give everything a good mix up and set aside – this is your quick-pickled slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1615910521577-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat and 
 
 Tip: Cooking for 3 or more? You might need to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1615910526891-x200.jpg)
 
 ### Step 7
 

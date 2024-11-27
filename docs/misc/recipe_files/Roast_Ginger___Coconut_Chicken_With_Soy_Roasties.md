@@ -28,6 +28,7 @@ An Indonesian twist on a traditional roast chicken dinner. Rustle up soy-glazed 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1648543611478-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel the potatoes and chop them into large bite-sized pieces, then add them to o
 
 Put the tray in the oven for an initial 20 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1648543614410-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the chicken breast portions with a pinch of salt and pepper and co
 
 Once browned, transfer to an oven-proof dish and reserve the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1648543616985-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and finely chop (or grate) the garlic
 
 Slice the red chilli<span class="text-danger">[es]</span> in half lengthways
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1648543619078-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Dissolve the chicken stock mix, chopped creamed coconut, tamarind paste and grou
 
 Stir in the lime leaves – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1648543622309-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once fragrant, add the coconut stock and cook for 2 min or until thickened sligh
 
 Once thickened, transfer to the dish with the chicken and put it in the oven for an initial 15 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1648543624881-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Return the tray<span class="text-danger">[s] </span>to the oven for 20 min further or until crispy and fork-tender – these are your soy roasties and roasted carrots
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1648543627903-x200.jpg)
 
 ### Step 7
 

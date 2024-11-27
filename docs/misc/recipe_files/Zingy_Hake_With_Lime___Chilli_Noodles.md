@@ -28,6 +28,7 @@ Want a fast dinner that packs a punch? Easy. Just pan-fry tender fish fillets in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611671399658-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2490Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add your wholewheat noodles to a large bowl, cover them with boiled water and st
 
 Set aside to soak for 4 min, then drain the soaked noodles
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2490Step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add your hake fillet[s] to the pan and cook for 3-4 min on each side or until c
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624293477307-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Trim, then roughly chop your spring onion[s]
 
 Trim, then chop your green beans in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624293485362-x200.jpg)
 
 ### Step 5
 
@@ -81,11 +86,13 @@ Once hot, add your ginger & garlic paste and cook for 30 secs or until fragrant
 
 Once fragrant, add the chopped spring onion, chopped green beans and half of your chilli flakes (not a fan of spice? Just add a little!) and cook for 30 secs further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624293492520-x200.jpg)
 
 ### Step 6
 
 Add the lime & chilli sauce and cook for 1 min or until the green beans have softened slightly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624293497380-x200.jpg)
 
 ### Step 7
 

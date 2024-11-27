@@ -26,6 +26,7 @@ Spaghetti and meatballs, meet our creamy, comforting twist. You'll roll lean bee
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1732539456444-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Combine your lean beef mince in a large bowl with the lemon zest, soy sauce, hal
 
 Season with a grind of black pepper, give everything a good mix up and shape into 3 meatballs per person
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1732539461509-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the meatballs to the pan and cook for 2 min on each side or until 
 
 Once the meatballs have browned, transfer them to a plate and set aside, these will finish cooking in the sauce later (reserve the pan!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1732539473771-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cook for 1-2 min or until softened
 
 Meanwhile, dissolve your beef stock mix in 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1732539484097-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once fragrant, add 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span clas
 
 Once boiling, reduce the heat to medium-high then add the browned meatballs and cook, covered, for 12-15 min or until the meatballs are cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1732539490594-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain and return to the pot, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1732539496111-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Wash your spinach and pat dry with kitchen paper
 
 Once the meatballs are cooked through, add the spinach to the pan and cook for a further 2 min or until wilted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1732539502180-x200.jpg)
 
 ### Step 7
 

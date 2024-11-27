@@ -23,6 +23,7 @@ Transform meat-free sausages into juicy, succulent burgers. You'll serve them in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624621392875-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of
 
 Put them in the oven for 25-30 min or until crisp and browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624621397559-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Meanwhile, combine the onion marmalade, Dijon mustard, mayo and a drizzle of oli
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624621401663-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the brioche halves, cut-side down, to the pan and cook for 1-2 min or until
 
 Once browned, transfer them to a plate and reserve the pan for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624621406285-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Using clean hands, break it apart and give it a good mix up until fully combined
 
 Divide the meat-free sausage meat into 4 <span class="text-danger">[8]</span> and shape into patties
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624621410780-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Once hot, add the meat-free sausage patties, cover with a lid and cook for 4-6 m
 
 Tip: Press the patties down with a spatula to keep them nice and flat throughout cooking
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624621414871-x200.jpg)
 
 ### Step 6
 
 Combine the red wine vinegar, dried oregano, chopped garlic (not a big garlic fan? Try using less!) and 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil in a small bowl with a pinch of sugar, salt and pepper – this is your vinaigrette
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624621418951-x200.jpg)
 
 ### Step 7
 

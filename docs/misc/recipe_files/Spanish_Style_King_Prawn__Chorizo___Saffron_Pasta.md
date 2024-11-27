@@ -24,6 +24,7 @@ If you love a paella, this 10 minute twist is for you! You'll take the smoky pap
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623405758913-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595340787196-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Cut the yellow pepper<span class="text-danger">[s] </span>in half (scrape the seeds and pith out with a teaspoon) and chop into rough bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595340794118-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once the pan is hot, add the diced chorizo and chopped pepper
 
 Cook for 2-3 min or until the pepper starts to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595340800178-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cook the pasta for 2-3 min or until cooked with a slight bite
 
 Once done, drain the cooked amorini, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595340816572-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Give everything a good mix up, then drain the king prawns and add them to the pa
 
 Cook for 4-5 min further or until the prawns are cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595340825558-x200.jpg)
 
 ### Step 6
 
 Once the king prawns are done, add the drained amorini to the pan with a splash of the starchy pasta water and give everything a good mix up – this is your Spanish-style king prawn, chorizo & saffron pasta
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595340835870-x200.jpg)
 
 ### Step 7
 

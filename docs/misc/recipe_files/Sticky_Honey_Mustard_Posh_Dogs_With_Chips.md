@@ -26,6 +26,7 @@ What's more classic than a hotdog in the summer? Make this crowdpleaser with Jol
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624274472871-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop your potatoes into chips and add them to a baking tray (or two!) with a dri
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624274479810-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Once hot, add the sliced onion with a pinch of sugar and cook for 15 min, stirri
 
 Once done, remove the pan from the heat and set aside for serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624274484430-x200.jpg)
 
 ### Step 3
 
 Add your sausages to a separate baking tray (or two!) (use tin foil to avoid mess!) and put the tray[s] in the oven for an initial 15 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624274492334-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Slice your apple[s] into matchsticks and discard the core[s]
 
 Top, tail and grate your carrot[s]<span class="text-danger"> </span>(no need to peel!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624274497796-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Remove the base of your lettuce, then wash under cold running water and cut away
 
 Tear the lettuce leaves from the stem until you are left with a pile of leaves
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624274502807-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Return the tray to the oven for 10 min further or until the sausages are cooked 
 
 Tip: Turn the sausages a couple of times in the sauce to get them nicely coated!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624274508319-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ This French twist on the humble fish finger sarnie is seriously posh nosh. Fill 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1658226056060-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Cut your potatoes (skins on) into chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1658226059590-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the chips to the other side of the tray[s]
 
 Drizzle everything with vegetable oil and season with a pinch of salt and pepper, then give it a good mix up and put the tray[s] in the oven for an initial 15 min or until the pepper is tender and slightly charred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1658226062975-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Chop your dill finely, including the stalks
 
 Combine your mayo and chopped garlic (not a fan of raw garlic? Try using less!) in a small bowl with the chopped dill, a pinch of salt and 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span><span class="text-danger"> [1 tbsp]</span> olive oil – this is your herby aioli
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1658226067252-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Transfer the tender pepper to the bowl and set aside to marinate
 
 Return the tray[s] to the oven for 10-15 min further, or until the chips are golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1658226070951-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your cornflour, ground smoked paprika and a pinch of salt to a plate and giv
 
 Add your basa pieces to the plate and press them into the cornflour mix until completely coated – this is your coated basa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658226074835-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once hot, add the coated basa and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1658226078952-x200.jpg)
 
 ### Step 7
 

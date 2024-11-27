@@ -33,6 +33,7 @@ For a tasty take on a curry classic, try this fragrant spinach masala spiced wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/996-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion and cook for 5 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/996-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Squeeze as much water out of the spinach as you can, then chop it roughly
 
 Reboil the kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599121002866-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add the sliced garlic, ground fenugreek, garam masala and chilli flakes (can't 
 
 Increase the heat to high and add the chicken breast strips to the pan and cook for 3 min on each side or until they are lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599121013602-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add the tomato stock and chopped spinach to the pan
 
 Reduce the heat to medium-low and cook, covered, for 15-20 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/996-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Melt a knob of butter in a pot with a matching lid over a medium heat
 
 Once melted, add the crushed cardamom pods and star anise to the pot and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/996-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your pilau rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/996-v2-Step-7-x200.jpg)
 
 ### Step 7
 

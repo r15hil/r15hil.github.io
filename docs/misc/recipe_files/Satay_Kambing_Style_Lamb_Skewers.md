@@ -27,6 +27,7 @@ Take your taste buds to Sabang Street for Jakarta’s favourite streetside skewe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723204945757-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723204949063-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Combine half your soy sauce (you'll use the rest later!) with 1 tsp <span class=
 
 Soak your skewers in cold water to prevent them from burning
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723204953069-x200.jpg)
 
 ### Step 3
 
 Divide your lamb mince into 2 per person and press onto each skewer to form a long sausage shape – these are your lamb skewers
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723204957840-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Press the lamb to flatten it slightly and drizzle over the marinade (reserve the
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723204961418-x200.jpg)
 
 ### Step 5
 
 Put the tray in the oven and cook for 15 min, turning once, or until golden and cooked through (no pink meat!) – these are your Kambing-style lamb skewers
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723204964651-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add the remaining soy sauce with the juice of half your lime[s] (you'll use the 
 
 Season with a pinch of pepper and give everything a good mix up until well combined – this is your satay sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723204970492-x200.jpg)
 
 ### Step 7
 

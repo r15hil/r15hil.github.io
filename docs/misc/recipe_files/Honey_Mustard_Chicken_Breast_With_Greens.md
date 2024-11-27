@@ -23,6 +23,7 @@ The best part about preparing chicken en papillote (meaning in a closed parcel) 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680687092607-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut your waxy potatoes (skins on) into wedges
 
 Trim, then cut your green beans in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680687098671-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Chop each chicken breast portion into thirds
 
 Add the chicken breast pieces to the honey mustard mixture and give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680691653764-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once hot, add the coated chicken breast pieces to the pan, shaking any excess ho
 
 Cook for 3 min on each side or until lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680691656706-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Lay the browned chicken in the middle of the foil and pour the reserved honey mu
 
 Scrunch the edges of the foil around the chicken to form a sealed parcel (or two!) and place on a baking tray
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680691659981-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Place the tray in the oven for 15-20 min or until the chicken is cooked through 
 
 While the chicken is in the oven, trim, then finely slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680691663924-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once done, drain everything and add your cider vinegar, a drizzle of olive oil a
 
 Season generously with salt and pepper and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680691752864-x200.jpg)
 
 ### Step 7
 

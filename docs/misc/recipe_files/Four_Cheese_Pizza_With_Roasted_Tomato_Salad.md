@@ -25,6 +25,7 @@ Take pizza night to even cheesier heights with the ultimate four cheese special.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691151710776-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your cherry tomatoes to a tin foil-lined baking tray, then scrunch the sides
 
 Add your balsamic vinegar, a drizzle of olive oil and a pinch of salt and give everything a good mix up
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691151719276-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Put the tray in the oven and cook for 15 min or until softened
 
 Once softened, remove the tray from the oven and set aside to cool in the tin foil parcel – these are your roasted tomatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691151723120-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Combine the grated garlic and 1/3 of your soft cheese (save the rest for later!)
 
 Give everything a good mix up – this is your creamy tomato sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691151729319-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Tear the drained mozzarella into small bite-sized pieces
 
 Grate your Italian hard cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691151734034-x200.jpg)
 
 ### Step 5
 
@@ -74,11 +79,13 @@ Top with the grated cheddar, grated Italian hard cheese and torn mozzarella
 
 Dollop the remaining soft cheese evenly on top, then sprinkle the remaining dried oregano all over
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691151738616-x200.jpg)
 
 ### Step 6
 
 Put the tray[s] in the oven for 13-15 min or until the cheese has melted and the bases are crisp – these are your four-cheese pizzas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691151742749-x200.jpg)
 
 ### Step 7
 

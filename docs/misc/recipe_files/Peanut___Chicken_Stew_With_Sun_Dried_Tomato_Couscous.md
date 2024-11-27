@@ -26,6 +26,7 @@ Nut lovers, this one's for you. It's our punchy peanut and chicken stew with ten
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623400768123-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2044.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add your diced chicken breast with a generous pinch of salt and cook for 4 min or until golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2044.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,21 +60,25 @@ Meanwhile, add your couscous and sun-dried tomatoes to a heatproof bowl with 200
 
 Fluff with a fork before serving – this is your sun-dried tomato couscous
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2044.-step-4-x200.jpg)
 
 ### Step 4
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[195ml] </span><span class="text-danger">[255ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2044.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the chicken is golden, add your baharat, ground cumin and your cayenne pepper (can't handle the heat? Go easy!) to the pan and cook for 2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2044.-step-6-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add your peanut butter to the pan with your chopped tomatoes, chicken stock and a pinch of salt, then cook for 2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2044.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ Get out your grill for an Indian-inspired answer to skewered food. Packed with m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720444183273-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and dice your sweet potato[es] into small bite-sized pieces
 
 Soak your skewers in water (this prevents them from burning whilst cooking)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720444206807-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the diced sweet potato to the pan and cook for 5 min for until lightly brown
 
 Once lightly browned, add the sliced shallot and cook for 3-4 min further or until slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720444215203-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add your basmati rice with 350ml <span class="text-purple">[525ml]</span> <span 
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-14.11.12-1720444515534-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add the chopped paneer and courgette discs to a large bowl with the mango chutne
 
 Give everything a good mix up – this is you marinated paneer & courgette
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-14.11.12-1720444546030-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Thread the marinated paneer & courgette onto the soaked skewers and add them to 
 
 Put the tray under the grill for 8-12 min, turning once halfway, or until slightly charred – these are your mango paneer & courgette skewers
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1720444550074-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Chop your coriander finely, including the stalks (save some leaves for garnish!)
 
 Add half the chopped coriander (you'll use the rest later!) to a bowl with your natural yoghurt and a pinch of salt and pepper and give everything a good mix up – this is your coriander yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-14.11.12-1720444565799-x200.jpg)
 
 ### Step 7
 

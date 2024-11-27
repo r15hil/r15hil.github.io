@@ -23,6 +23,7 @@ Big on flavour yet easy to make, this satisfying chicken noodle fix is all about
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/372.step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Strip the thyme leaves from the stalks and chop them finely (or if your stalks a
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/372__step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Combine the chicken stock,&nbsp;honey, soy sauce,&nbsp;chopped thyme, chopped&nb
 
 Chop the&nbsp;Tenderstem broccoli into rough, bite-sized pieces &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/372.step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Mix well and set aside
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/372.step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Once hot, add the chicken strips and cook for 5 min or until they're coloured
 
 Tip:&nbsp;don't overcrowd the pan with the&nbsp;chicken or it will sweat instead of brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/372.step-6-x200.jpg)
 
 ### Step 5
 
@@ -90,6 +95,7 @@ Boil over a high heat for 5-7 min until cooked, then drain and set aside
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/372__step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,6 +104,7 @@ Stir half of the super&nbsp;marinade and 70ml <span class="text-danger">[100ml]<
 
 Add the chopped Tenderstem broccoli and cook, covered, for a further 2-3 min or until the chicken is cooked through and the broccoli is tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/372__step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/817.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and finely dice your red onion[s]<span class="text-danger"> </span>and ch
 
 Peel and chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/817.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the diced onion with a generous pinch of salt and cook for 4 min or until soft
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/817.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/817.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ When the onion has softened, add the chopped pepper, chopped tomatoes and half
 
 Add your tomato paste and a pinch of sugar, salt and pepper with 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiled water to the pan and cook, covered, for 15 min or until reduced to a stew-like consistency – this is your Provençal-style sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/817.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Grind the chopped black olives, remaining chopped garlic and a pinch of salt i
 
 Add a generous drizzle of olive oil and give it a good mix up – this is your black olive tapenade
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/817.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Put the tray in the oven for 12-15 min or until the basa is cooked through – t
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/817.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ This pasta-free lasagne is as delicious and hearty as the classic. You'll layer 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657012924576-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the sweet potato discs to a baking tray with a drizzle of olive oil and a pi
 
 Put the tray in the oven and cook for 10-12 min until softened slightly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657012926493-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the chopped onion and diced carrot and cook for 4 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657012929163-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once the onion and carrot have softened, add your lean beef mince to the pan a
 
 Cook for 3-4 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657012940250-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your beef stock mix, tomato paste, dried oregano and a pinch of sugar in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657012943877-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once the lean beef mince has browned, add the chopped garlic to the pan and c
 
 Meanwhile, add a pot to a medium heat with 2 tbsp<span class="text-danger"> <span class="text-purple">[3 tbsp]</span> [4 tbsp]</span> vegetable oil, once hot, add 20g <span class="text-purple">[30g] </span><span class="text-danger">[40g]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657012945423-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ While the béchamel is cooking, combine your balsamic vinegar with 2 tbsp <spa
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657012947888-x200.jpg)
 
 ### Step 7
 

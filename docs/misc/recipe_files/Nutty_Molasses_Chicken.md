@@ -22,6 +22,7 @@ This recipe is inspired by a Persian chicken dish made from ground walnuts and p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/428.step-1-new-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Rinse the freekeh in a sieve under the tap, then add it to a pot with 500ml <spa
 
 Once boiling, reduce the heat to medium and cook for 20 min or until tender, but with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/428.step-2-new-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Meanwhile, peel and finely slice the red onion<span class="text-danger">[s]</spa
 
 Boil a little kettle water (for step 4)&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/428.step-3-new-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Line a baking tray with tin foil and transfer the onions and chicken to the tray
 
 Drizzle the onions with the pomegranate molasses, season with pepper and put the tray in the oven for 10-15 min, or until the chicken is cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/428.step-4-new-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Gradually add 3 tbsp <span class="text-danger">[6 tbsp]</span>&nbsp;boiled water
 
 Season generously with salt - this is your tahini sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/428.step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Put them in the oven for 4 min, or until the walnuts have slightly darkened in c
 
 Once toasted, leave the nuts to cool
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/428.step-6-new-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Chop the cooled, toasted walnuts coarsely
 
 Drain the cooked freekeh, return it to the cooking pot and season it with a pinch of&nbsp;salt and pepper&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/428.step-7-new-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Karaage (pronounced kara-agg-eh) is a Japanese cooking technique that makes chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Brown-rice-in-pan-1653053519889-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/839.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely chop (or grate) half of your garlic (you'll use the rest later!)
 
 Peel your ginger (scrape the skin off with a teaspoon) and chop (or grate) finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/839.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add the chopped ginger, chopped garlic, soy sauce and 1 tsp <span class="text-pu
 
 Add the chicken strips and give everything a good mix up, then set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/839.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Peel and slice the remaining garlic finely
 
 Add your mayo and rice vinegar to a bowl and combine – this is your Japanese-style mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/839.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, add the pak choi white bases, toasted sesame seeds and sliced garlic w
 
 Transfer the cooked pak choi to a plate and keep the pan for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/839.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the marinated chicken strips, leaving most of the marinade behind
 
 Give everything a good mix up so the chicken strips are fully coated in cornflour
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/839.-step-7-x200.jpg)
 
 ### Step 7
 

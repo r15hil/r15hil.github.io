@@ -23,6 +23,7 @@ This mild curry is one for the whole family to enjoy! You'll make a rich base wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/824.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop (or grate) the garlic
 
 Peel the ginger (scrape the skin off with a teaspoon) and finely chop (or grate)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/824.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and cover to keep warm
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/824.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Meanwhile, heat a large, wide-based pan (preferably <span class="text-highlight"
 
 Once hot, add the chopped onion with a pinch of salt and cook for 6-8 min or until softened but not browning
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/824.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Crumble in 1/2 <span class="text-danger">[1]</span> <span class="text-highlig
 
 Increase the heat to medium and cook for 3 min or until reduced to a curry-like consistency
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/824.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Cover with a lid and cook for 2-3 min or until your haddock is cooked through
 
 Tip: <span class="text-highlight">Your</span> fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/824.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once the haddock is cooked, remove the pan from the heat and stir the clotted 
 
 Tip: <span class="text-highlight">Stir</span> gently so that your fish doesn't break apart!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/824.-step--7-x200.jpg)
 
 ### Step 7
 

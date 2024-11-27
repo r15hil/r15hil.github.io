@@ -24,6 +24,7 @@ This curry pie's a million times tastier than one you'll find at a football grou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1711456448811-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely slice your brown onion[s]
 
 Peel and roughly chop your potato[es]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1711456498272-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until starting to caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-33-1713257138527-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Transfer the pastry to a non-stick baking paper-lined tray (or two!) and score a
 
 Sprinkle your nigella seeds over the pastry and put the tray[s] in the oven for 15-20 min or until golden and cooked through – this is your pie lid[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-28-1713257141846-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once the onion has caramelised, add the chopped potatoes, curry powder and 1 ts
 
 Meanwhile, dissolve your tomato paste and vegetable stock mix in 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-29-1713257150009-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Whilst the potatoes are cooking, wash your spring greens then pat it dry with ki
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-29-1713257154626-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once hot, add your mustard seeds and cook for 1-2 min or until fragrant and sta
 
 Add the sliced spring greens with a pinch of salt and cook for 3-4 min or until tender with a slight bite – these are your mustardy greens
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-29-1713257159438-x200.jpg)
 
 ### Step 7
 

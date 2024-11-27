@@ -26,6 +26,7 @@ Take fakeaway night to new heights with this twist on a Chinese classic. You’l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675272404032-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675272410652-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Chop your orange[s] in half
 
 Cut your broccoli into small florets, discard the stem and leaves
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675272413935-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the broccoli florets and onion petals to the air fryer basket with a generou
 
 Cook for 4-5 min, shaking the basket occasionally, or until the veg is slightly charred and cooked through, then set aside for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675272418241-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Tear the drained tofu into large bite-sized pieces
 
 Add the tofu pieces to a large bowl with half your soy sauce and 3/4 of your cornflour (you'll use the rest later!) and give everything a good mix up until all the tofu is coated – this is your coated tofu
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675272422397-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ While the tofu is cooking, combine the the juice of your orange[s] in a small bo
 
 Add the remaining cornflour, 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp]</span> [2 tsp]</span> sugar and 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml] </span>cold water and mix until fully combined – this is your orange sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675272426523-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, add your ginger & garlic paste to the pan and cook for 30 secs or unti
 
 Once fragrant add the orange sauce and cook for 2-3 min or until the sauce has slightly thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675272432332-x200.jpg)
 
 ### Step 7
 

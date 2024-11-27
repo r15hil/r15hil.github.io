@@ -28,6 +28,7 @@ Switch up your daily sarnie with our take on this Vietnamese favourite. You’ll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684228898367-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684228908710-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ While the chips are cooking, peel (scrape the skin off with a teaspoon) and fine
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684228914513-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide and shape into 1 equal-sized patty per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684228920628-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the pork patties, press them down firmly with a spatula and cook f
 
 Reduce the heat to medium-high, flip each patty and cook for a further 5 min or until charred and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684228929326-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Combine your rice vinegar, remaining soy sauce and 1 tsp <span class="text-purpl
 
 Add your mooli slaw mix, chopped coriander and chilli rounds (can't handle the heat? Go easy!) to the bowl and give it a good mix up – this is your zingy slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684228936050-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your ciabatta[s] to a separate baking tray (or two!) and put the tray[s] in 
 
 Carefully slice them in half before serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684228939759-x200.jpg)
 
 ### Step 7
 

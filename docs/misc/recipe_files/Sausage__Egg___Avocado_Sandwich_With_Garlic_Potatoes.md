@@ -21,6 +21,7 @@ Who says sandwiches are just for lunch? You’ll add smashed avocado, sausage pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721060464772-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Peel your potatoes and chop them into bite-sized pieces
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721060469030-x200.jpg)
 
 ### Step 2
 
@@ -37,11 +39,13 @@ Add chopped potatoes to a baking paper-lined baking tray (or two!) with the chop
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crispy – these are your crispy garlic potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721060472304-x200.jpg)
 
 ### Step 3
 
 Whilst the potatoes are in the oven, shape your sausage meat into 1 patty per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721060485948-x200.jpg)
 
 ### Step 4
 
@@ -51,6 +55,7 @@ Combine your cider vinegar with a drizzle of<span class="text-danger"> </span>ol
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721060491676-x200.jpg)
 
 ### Step 5
 
@@ -58,6 +63,7 @@ Once hot, add the sausage patty[ies] to the pan and cook for 5 min on each side 
 
 Once the patty[ies] is almost cooked through, heat a separate large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium-low heat, once hot, crack your egg[s] into the pan, cover with a lid and cook for 2-3 min or until done to your liking (give your egg a little shake before you crack for a perfectly centred yolk!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721060495241-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Add the salad to the bowl of dressing and toss until fully coated – this is yo
 
 Season the fried egg[s] with a grind of black pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721060508928-x200.jpg)
 
 ### Step 7
 

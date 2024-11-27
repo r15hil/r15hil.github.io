@@ -31,6 +31,7 @@ Whip up an easy, colourful stir-fry in no time. You'll sear succulent diced chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636541613882-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636541617981-x200.jpg)
 
 ### Step 2
 
@@ -51,11 +53,13 @@ Top, tail, peel and cut your carrot[s] into discs on the diagonal
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and roughly chop into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1636541623074-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636541634434-x200.jpg)
 
 ### Step 4
 
@@ -65,16 +69,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the carrot discs with the soy chicken to the pan and cook for an initial 5-6 min or until the chicken has browned all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636541642669-x200.jpg)
 
 ### Step 5
 
 Once the chicken has browned, add the chopped pepper and garlic to the pan and cook for 2-3 min or until the pepper has slightly softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1-1636541650570-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine your honey, red chilli relish, toasted sesame oil, remaining soy sauce, rice vinegar and half your chilli flakes (can't handle the heat? Go easy!) in a bowl – this is your sesame chilli sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636541663627-x200.jpg)
 
 ### Step 7
 

@@ -21,6 +21,7 @@ Picture this. Aromatic brown rice, packed with dates, full of green beans and to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2329-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2329-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Peel and finely slice your red onion[s]
 
 Trim, then chop your green beans in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2329-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the sliced onion and halved beans and cook for 3-4 min or until slightly softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2329-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Heat a separate large, dry, wide-based pan (preferably non-stick) over a high he
 
 Once hot, add the sliced halloumi to the pan and cook for 2-3 min on each side or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2329-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,11 +69,13 @@ Wash your spinach and shake off the excess water
 
 Squeeze your pouch[es] of cooked brown long grain rice to separate the grains
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2329-Step-6-x200.jpg)
 
 ### Step 6
 
 Once the onion and beans are slightly softened, add your ras el hanout and cook for 30 secs or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2329-Step-7-x200.jpg)
 
 ### Step 7
 

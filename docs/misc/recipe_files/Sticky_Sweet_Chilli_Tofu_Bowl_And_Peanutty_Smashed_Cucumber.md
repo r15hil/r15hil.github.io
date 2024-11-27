@@ -26,6 +26,7 @@ Try your hand at plant-based protein with this sticky, sweet tofu bowl. You’ll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1719917029658-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1719917040665-x200.jpg)
 
 ### Step 2
 
 Drain your tofu and tear it into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1719917056602-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Combine the torn tofu and half your soy sauce (you'll use the rest later!) in a 
 
 Give everything a good mix up until all the tofu is coated – this is your coated tofu
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1719924826669-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated tofu to the pan, reserve the bowl and cook for 10-12 min or until golden – this is your umami tofu
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1719924837819-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ While the tofu is cooking, combine your carrot, mooli & pink cabbage slaw mix wi
 
 Add a small pinch of salt and pepper and give everything a good mix up – this is your creamy slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1719924853115-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Bash your cucumber with a rolling pin and chop it into bite-sized pieces – th
 
 Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the water is drawn out more easily!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1719924866930-x200.jpg)
 
 ### Step 7
 

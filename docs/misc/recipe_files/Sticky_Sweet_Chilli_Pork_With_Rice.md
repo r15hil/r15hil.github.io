@@ -29,6 +29,7 @@ Whip up a steaming bowl of sweet and sour pork, fluffy rice, peppers and green b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644936107386-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until a
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644936109915-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add your pork mince (remove the paper if required!) with a pinch of sa
 
 Tip: Add a drizzle of vegetable oil if the pan is looking a little dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644936113173-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, trim, then chop your green beans into small pieces
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644936115292-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the chopped green beans and diced pepper to the pork mince and cook for 4-5 
 
 Trim, then slice your spring onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644936117988-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Combine the chopped garlic, chopped ginger, Chinese rice wine, soy sauce, a splash of cold water, your red chilli relish and a generous pinch of sugar in a bowl – this is your sweet chilli sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644936120453-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add the sweet chilli sauce, most of the sliced spring onion (save the rest for g
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644936122691-x200.jpg)
 
 ### Step 7
 

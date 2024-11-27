@@ -29,6 +29,7 @@ This is Chinese New Year, the plant-based way. You’ll coat fable mushrooms in 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1704803038641-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Trim, then slice your spring onions in half, then into thin strips
 
 Slice your cucumber in half lengthways and scoop out the seeds with a spoon then slice into matchsticks, discard the seeds
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1704803041325-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the bashed Fable pulled mushrooms to an oven-proof dish with your five-spice
 
 Put the dish in the oven for an initial 18 min or until most of the liquid has been absorbed and the mushrooms are slightly crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1704803044341-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ While the fable mushrooms are in the oven, wash, then cut your pak choi in half,
 
 Add your hoisin sauce to a small bowl with a tiny splash of cold water to loosen it
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1704803047523-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add the sliced spring greens to a large baking tray (or two!) and sprinkle with 
 
 Set aside for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1704803049935-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Drain the soaked noodles, reserving 80ml <span class="text-purple">[100ml]</span
 
 Combine the remaining soy sauce, ginger & garlic paste and reserved starchy noodle water with a pinch of sugar – this is your soy stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1704803053012-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the pak choi white base[s] and cook for a 1-2 min or until slightly softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1704803056046-x200.jpg)
 
 ### Step 7
 

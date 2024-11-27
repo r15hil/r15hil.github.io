@@ -28,6 +28,7 @@ This mornay is so cheesy you’ll keep coming back for more. Smother your cod an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1689685515129-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, cook for 12-15 min or until fork-tender
 
 Once the potatoes are fork-tender, drain, reserve the pot and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1689685518416-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Drain your king prawns, then pat dry with kitchen paper
 
 Sprinkle a little flour over the chopped cod and king prawns, then toss until lightly floured
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1689685522914-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Combine the grated cheese and cornflour in a pot with a pinch of salt and pepper
 
 Add your Dijon mustard, soft cheese and half the grated garlic (you'll use the rest later!) to the pot with 125ml<span class="text-purple"> [190ml]</span> <span class="text-danger">[250ml] </span>milk – this is your mornay base
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689685527786-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Cook for 1-2 min, stirring frequently, or until the cheese has melted and the sa
 
 Add the floured cod & king prawns to the mornay sauce with a pinch of salt and pepper and give everything a good mix up – this is your mornay fish mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689685531909-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Put the dish[es] in the oven and cook for 18-22 min or until bubbling and golden
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689685536254-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add your dried oregano with the remaining grated garlic and cook for 3
 
 Once fragrant, add the drained potatoes to the pot with a pinch of salt and pepper and a little drizzle of olive oil and cook for 1-2 min or until very fragrant – these are your garlic & oregano potatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689685540993-x200.jpg)
 
 ### Step 7
 

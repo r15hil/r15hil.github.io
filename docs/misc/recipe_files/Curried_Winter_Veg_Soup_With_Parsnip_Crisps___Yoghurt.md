@@ -32,6 +32,7 @@ Warm your cockles with this winter wonder. Simmer roasted butternut squash and s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1702994276318-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Peel your parsnip[s], then continue to peel lengths until you end up with a few 
 
 Dice the remaining parsnip[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1702994279575-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Add a little drizzle of olive oil and give everything a good mix up
 
 Put the tray in the oven for an initial 20 min or until tender – this is your smoky roast veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1702994282434-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Peel and chop your brown onion[s] into wedges
 
 Crush your garlic cloves open by squashing them with the side of a knife and discard the skins
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1702994286427-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Meanwhile, chop your potato[es] into bite-sized pieces
 
 Top, tail and chop your carrot[s] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1702994289769-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once fragrant, add the chopped potato and carrots with 800ml <span class="text-p
 
 Bring to a boil over a high heat, then reduce the heat to medium and cook for 15 min or until the potato is tender – this is your soup base
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1702994294168-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Return the tray[s] to the oven for 3-5 min or until the ribbons are crisp
 
 Once the ribbons are crisp, remove the tray[s] from the oven and set aside – this is your smoky roast veg and parsnip crisps
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1702994296679-x200.jpg)
 
 ### Step 7
 

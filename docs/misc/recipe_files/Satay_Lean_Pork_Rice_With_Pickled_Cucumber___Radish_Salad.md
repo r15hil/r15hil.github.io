@@ -30,6 +30,7 @@ A speedy rice one-pot that’s full of flavour. You’ll combine tasty ginger le
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687256587867-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your lean pork mince (remove the paper if required!) and cook for 4-6 min or until browned and starting to caramelise, breaking it up with a wooden spoon as you go
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687256592657-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, boil half a kettle
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687256595354-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the soy sauce and the juice of half your lime[s] and give everything a goo
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687256599287-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add your basmati rice with 300ml <span class="text-purple">[390ml]</span> <span 
 
 Cover with a lid, reduce the heat to low and cook for 10-12 min or until the water is absorbed, the rice is cooked and the mince is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1687256632473-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Trim, then slice your spring onion[s] finely
 
 Top, tail and slice your radishes (as finely as you can)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687256610644-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add your rice vinegar and a generous pinch of salt
 
 Mix well and set aside to pickle – this is your pickled cucumber & radish salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687256613549-x200.jpg)
 
 ### Step 7
 

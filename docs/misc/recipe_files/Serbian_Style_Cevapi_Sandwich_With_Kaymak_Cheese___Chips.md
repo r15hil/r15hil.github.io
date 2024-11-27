@@ -28,6 +28,7 @@ Step into Serbian sandwich heaven with this twist on cevapi. You’ll load papri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1658227979432-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1658227982253-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and roughly chop your garlic
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and slice finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1658227989591-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add your beef mince to a large bowl with the chopped shallot
 
 Add half your ground smoked paprika with a generous pinch of salt and a drizzle of olive oil and mix thoroughly until fully combined – this is your cevapi mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1658227994373-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the patties to a baking tray (or two!) with a little drizzle of vegetable o
 
 Put the tray[s] in the oven[s] for 12-15 min or until cooked through and browned (no pink meat!) – this is your cevapi
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1658227997516-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Blitz until combined – this is your chilli dressing
 
 Once done, set aside until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658228001149-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your soft cheese to a medium bowl with your feta, a pinch of salt and the re
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1718716509009-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ This Thai national favourite is packed with carrot, onion and crab. Toss the lot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1707212027391-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the rice to a plate and spread it out flat to help cool down
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1707212030378-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1707212033517-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the diced onion, diced carrot, chopped garlic and half of your chi
 
 Cook for<span class="text-danger"> </span>5-6 min<span class="text-danger"> </span>or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1707212037343-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add a squeeze of your lime juice and give everything a good mix up – this is y
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1707212040069-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Slice your cucumber finely
 
 Trim, then slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1707212042381-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once combined, push the rice to one side of the pan and crack your egg[s] into t
 
 Stir the egg[s] with a wooden spoon to break the yolk[s] and cook for 1-2 min until it resembles scrambled egg, then mix it all through the rice – this is your Thai-style crab & egg fried rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1707212045620-x200.jpg)
 
 ### Step 7
 

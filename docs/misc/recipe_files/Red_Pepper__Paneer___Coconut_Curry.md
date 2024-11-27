@@ -25,6 +25,7 @@ Paneer is a mild Indian cheese, similar in texture to halloumi, but without the 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/740.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and&nbsp;slice the onion<span class="text-danger">[s]</span>&nbsp;finely
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/740.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add the paneer and cook for 2-3 min, turning occasionally until golden
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/740.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Return the pan to a medium-high heat - if it's looking a little dry add a drizzl
 
 Once hot, add the pepper,&nbsp;onion and a large pinch of salt and sugar and cook for 3 min, then reduce the heat to low and cook for 15 min or until softened and caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/740.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once hot, add the pepper,&nbsp;onion and a large pinch of salt and sugar and coo
 
 <span class="text-highlight">Bash the lemongrass, cut it down the middle lengthways, remove the tough outer leaves (keep for step 5) and chop the innards finely&nbsp;</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/740.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add the rice,&nbsp;350ml <span class="text-danger">[700ml]</span> water and the 
 
 Once boiling, reduce the heat to very low&nbsp;and cook, covered,&nbsp;for 10-15 min or until the water is absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/740.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add 300ml <span class="text-danger">[600ml]</span> boiled water&nbsp;to the pan 
 
 Cover and cook&nbsp;for 3-4 min or until a curry sauce forms&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/740__step-7-x200.jpg)
 
 ### Step 7
 

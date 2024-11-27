@@ -31,6 +31,7 @@ Close your eyes and think of Spain. We're taking you on holiday with every bite 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1631104984738-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop your potatoes (skins on) into small pieces
 
 Dissolve your chicken stock mix, tomato paste and a pinch of sugar in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml] </span>boiled water – this is your tomato stock
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1631104988100-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the chopped potatoes with the tomato stock and cook, covered, for an initial 6-7 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1631104992104-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and dice your brown onion[s]
 
 Peel and grate (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1631104996047-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Once the potatoes have had an initial 6-7 min, add your ground smoked paprika to
 
 Once fragrant, add the diced pepper and onion, half the grated garlic (you'll use the rest later!) and your diced chorizo and cook for 7-8 min further or until starting to crisp – this is your smoky chorizo hash
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1631105001223-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine your soured cream and remaining grated garlic (don't like raw garlic? Just add a little!) in a bowl and mix well – this is your garlic soured cream
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1631105005137-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the salad to the bowl and gently mix together – this is your dressed salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1631105009153-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ You'll learn, with a few simple steps how to make sweet chilli king prawns, serv
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1653403096332-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once the rice is cooked, remove from the heat and lay flat on a plate to cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1653403104704-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653403144938-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine your cornflour with 50ml <span class="text-purple">[75ml]</span> <span c
 
 Stir in your red chilli relish – this is your sweet chilli sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1085.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the sliced spring greens to a large baking tray (or two!) and sprinkle with 
 
 Give everything a good mix up and put the tray[s] in the oven for 8-10 min or until crispy – this is your crispy 'seaweed'
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1653403156673-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced spring onion, half the chopped garlic and half the chopped ginger (save the rest for later!) and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1085.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once fragrant, add the cooled rice, soy sauce and toasted sesame oil and cook fo
 
 Transfer the fried rice to a plate and return the pan to a medium-high heat with a drizzle of vegetable oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1085.-step-7-x200.jpg)
 
 ### Step 7
 

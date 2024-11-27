@@ -20,6 +20,7 @@ Fresh pasta is the key to this quick and easy dinner. You’ll whip up a creamy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1711449379043-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1711449382665-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Top, tail and chop your courgette[s] in half lengthways, then slice finely
 
 Peel and finely slice your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1711449387038-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Once hot, add the sliced courgette and shallot with a generous pinch of pepper a
 
 Cook for 5-6 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1711449390354-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your double cream with your vegetable stock mix and 150ml<span class="text-danger"> <span class="text-purple">[200ml]</span> [250ml]</span> boiled water – this is your creamy stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1711449393734-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1711449397050-x200.jpg)
 
 ### Step 6
 
 Add the creamy stock to the pan with your salmon flakes and a pinch of salt and cook for 2-3 min or until the sauce has slightly thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1711449400400-x200.jpg)
 
 ### Step 7
 

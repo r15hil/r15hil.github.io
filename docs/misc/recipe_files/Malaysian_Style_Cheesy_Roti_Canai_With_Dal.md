@@ -28,6 +28,7 @@ Take Malaysia’s favourite bread to the next level with chilli, fresh coriander
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695654478638-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Rinse your red lentils in a sieve under cold running water
 
 Drain and rinse your chickpeas
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695654495457-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix and chopped creamed coconut in 450ml <span class="text-purple">[675ml]</span> <span class="text-danger">[900ml]</span> boiled water – this is your coconut stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695654508781-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once fragrant, add the coconut stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-20 min, stirring occasionally, until all the water is absorbed and the lentils are tender – this is your lentil & chickpea dal
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695654528799-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Slice your cucumber into discs
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695654547826-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add the sliced cucumber and half the chopped chilli (can't handle the heat? Go e
 
 Give everything a good mix up and and set aside to pickle – this is your quick-pickled chilli cucumber
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695654561161-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Grate your cheddar cheese
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695654569739-x200.jpg)
 
 ### Step 7
 

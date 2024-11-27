@@ -21,6 +21,7 @@ In just 10 minutes, you'll flash-fry succulent rump steak, and whip up a rosemar
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583491448925-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583491452839-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a dry, large, wide-based pan (preferably non-stick) over a high heat
 
 Pat the rump steaks dry with kitchen paper, drizzle with olive oil and season both sides with salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583491456003-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ For medium-rare, cook for 2-3 min on each side
 
 For medium, cook for 3-4 min on each side
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583491459521-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once boiling, gradually whisk the polenta into the water in a steady stream
 
 Reduce the heat to medium and cook for 3-4 minutes, whisking occasionally, until thickened to a mashed potato-like consistency
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1583491462963-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Chop some of the cherry tomatoes in half
 
 Strip the rosemary leaves from their stems, discard the stems
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583491466337-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the chopped cherry tomatoes and remaining whole cherry tomatoes to the pan a
 
 Once softened, add 50ml <span class="text-danger">[50ml]</span> boiled water and a large knob of butter and mix it all together  – this is your pan sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583491469925-x200.jpg)
 
 ### Step 7
 

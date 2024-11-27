@@ -21,6 +21,7 @@ We can't get enough of this smoky burger with chipotle mayo, lettuce and a butte
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599207910130-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until the chips are golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599207918928-x200.jpg)
 
 ### Step 2
 
@@ -43,16 +45,19 @@ Once hot, add the sliced onion with a pinch of salt and sugar
 
 Reduce the heat to very low and cook the onions, stirring frequently, until ready to serve or until they have softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599207931008-x200.jpg)
 
 ### Step 3
 
 Add your meat-free patty[ies] to one side of a tin foil-lined tray and put the tray in the oven for 10-12 min or until cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599207939926-x200.jpg)
 
 ### Step 4
 
 While the burger is cooking, combine your mayo with your chipotle paste (can't handle the heat? Go easy!) in a bowl and season with salt and pepper – this is your chipotle mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599207956847-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Remove the outer lettuce leaves for one per person and set them aside for servin
 
 Tear the remaining lettuce into bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599207961372-x200.jpg)
 
 ### Step 6
 
 Add the torn lettuce to a bowl, mix with a drizzle of olive oil and season lightly with salt and pepper – this is your crisp lettuce salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599207966581-x200.jpg)
 
 ### Step 7
 

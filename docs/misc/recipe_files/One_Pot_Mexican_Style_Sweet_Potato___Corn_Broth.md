@@ -32,6 +32,7 @@ This spicy broth is prepped in a flash. Just toss sweet potatoes and red onion i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1632474523459-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632474567597-x200.jpg)
 
 ### Step 2
 
@@ -54,11 +56,13 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Peel and chop your red onion[s] into quarters
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632474584054-x200.jpg)
 
 ### Step 3
 
 Peel and chop your sweet potato[es] into large pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632474592875-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Drain and rinse your black beans and sweetcorn
 
 Crush your garlic open by squashing them with the side of a knife and discard the skins
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632474616302-x200.jpg)
 
 ### Step 5
 
 Add your ground cumin, ground smoked paprika, dried oregano and crushed garlic to the dish and stir it all up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632474632916-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your vegetable stock mix and soy sauce and bring to the boil over a high hea
 
 Cover with the lid and put the dish in the oven for 25 min – this is your one-pot Mexican-style sweet potato & corn broth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632474661413-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ For this easy twist on classic lasagne, you'll simmer chicken in tomato sauce an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chicken-breasts-on-baking-tray-no-foil-1699372527771-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Put the tray in the oven for 18-20 min or until cooked through (no pink meat!)
 
 Once cooked, remove the tray from the oven and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1699372530644-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1699372532951-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ While the onion is softening, peel and finely chop (or grate) your garlic
 
 Dissolve your chicken stock mix, Henderson's Relish, dried oregano, dried basil and tomato paste in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water – this is your stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1699372535822-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add your chopped tomatoes and stock with a pinch of sugar and bring to the boil 
 
 Once boiling, reduce the heat to low and cook for 10-15 min or until thickened slightly – this is your sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1699372539189-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add 350ml <span class="text-purple">[525ml]</span><span class="text-danger"> [7
 
 Remove from the heat and season generously with pepper – this is your béchamel sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1699372542523-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Once cooked, transfer the chicken to a clean board and shred it apart, using two
 
 Add the pulled chicken to the sauce – this is your chicken mixture
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1699372545847-x200.jpg)
 
 ### Step 7
 

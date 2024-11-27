@@ -25,6 +25,7 @@ A mouthwatering tagine, doable any night of the week. First you'll bake delicate
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1685097252756-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1681820050129-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a generous drizzle of olive oil over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716390827298-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the chicken is starting to brown, add your ginger & garlic paste and ras el
 
 Wash your spinach, then shake off any excess water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716390834425-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Once fragrant, add your chicken stock mix, butternut squash cubes and 150ml <spa
 
 Bring to the boil over a high heat, cover with a lid, then put the dish in the oven for 25-30 min or until the chicken is cooked through (no pink meat!) – this is your tagine
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Cup-of-tea-1716390776061-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716390841361-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add your couscous to a heatproof bowl with your sultanas, a pinch of salt, a dri
 
 Fluff your couscous with a fork before serving – this is your sultana couscous
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716390845425-x200.jpg)
 
 ### Step 7
 

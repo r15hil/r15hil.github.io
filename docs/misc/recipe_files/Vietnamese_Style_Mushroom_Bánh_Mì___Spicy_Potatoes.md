@@ -25,6 +25,7 @@ If you love sandwiches, our Vietnamese-style bánh mì is for you. You’ll load
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1705335249927-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1705335255317-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add your waxy potatoes to a heatproof bowl, cover with cling film and pierce a f
 
 Put the bowl in the microwave and cook for 6-8 min or until the potatoes are fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1705335258700-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once hot, crumble your chestnut mushrooms directly into the pan
 
 Cook for 2-3 min or until slightly softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1705335263355-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Whilst the mushrooms are cooking, add your carrot & cabbage slaw mix to a bowl w
 
 Give everything a good mix up – this is your quick-pickled slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1705335267294-x200.jpg)
 
 ### Step 5
 
@@ -66,11 +71,13 @@ Once the mushrooms have softened, add your pho broth paste to the pan
 
 Cook for a further 2-3 min or until fragrant and most of the liquid has evaporated – these are your Vietnamese-style mushrooms
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1705335273552-x200.jpg)
 
 ### Step 6
 
 Meanwhile, cut a slit into the top of your hot dog bun[s] and add to a plate
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1705335278310-x200.jpg)
 
 ### Step 7
 

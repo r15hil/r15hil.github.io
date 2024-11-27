@@ -29,6 +29,7 @@ Wait 'til you've tried our best plant-based lasagne yet, with layers of hearty l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1607954852381-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Slice the chestnut mushrooms finely
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607954859099-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add the chopped onion and sliced mushrooms with a pinch of salt and co
 
 Once softened, add the chopped garlic and cook for 1 min further or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607954868196-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Heat a pot over a medium heat
 
 Add the creamy single soy to the pot and cook for 4-5 min or until thickened to a white sauce-like consistency – this is your plant-based béchamel
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607954882859-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Drain and rinse the green lentils
 
 Once the garlic is fragrant, add the tomato stock, chopped tomatoes and drained green lentils and cook for 2-3 min further or until thickened slightly – this is your lentil & mushroom ragù
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607954902851-x200.jpg)
 
 ### Step 5
 
 While the sauce is thickening, grate the cheddar flavour block
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607954908137-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Repeat this process twice until you end up with a final layer of lasagne sheets 
 
 Cover with the plant-based béchamel, top with the grated cheeze and a grind of black pepper, then cook in the oven for 25-30 min or until the pasta is cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607954912700-x200.jpg)
 
 ### Step 7
 

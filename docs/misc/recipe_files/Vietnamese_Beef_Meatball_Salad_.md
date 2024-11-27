@@ -25,6 +25,7 @@ This Vietnamese style salad is one big crunch-fest. Cucumber, carrots and little
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/869.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop the stalks finely, keep the leaves separate&nbsp;
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/869.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Refrigerate the mixture until later&nbsp;
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/869.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Slice the cucumber&nbsp;into rounds, then slice the disks into matchsticks&nbsp;
 
 Shred the little gem lettuce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/869.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Once hot, add the chilled meatballs&nbsp;
 
 Cover with a lid and cook for 4-6 min, shaking occasionally so that the meatballs cook evenly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/869.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Chop the roasted&nbsp;peanuts roughly
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice!) and cut into wedges&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/869.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Squeeze the juice of 1/2 <span class="text-danger">[1]</span>&nbsp;lime into the
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/869.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Time for a cheeky Chinese fakeaway. You’ll fry succulent chicken breast with s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695122949200-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add your diced chicken breast with a pinch of salt and cook for 6-7 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1731934720587-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695122956565-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Trim, then slice your spring onion[s] lengthways into batons
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695122961501-x200.jpg)
 
 ### Step 4
 
@@ -56,16 +60,19 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain the noodles and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695122971968-x200.jpg)
 
 ### Step 5
 
 Once the chicken has browned, add the chopped garlic, ginger paste, spring onion batons and sliced pepper to the pan and cook for 4-5 min or until beginning to soften and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1695122978104-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add your toasted sesame oil to the drained noodles and give everything a good mix up – these are your sesame noodles
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695122988495-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Rich, creamy and tangy, ranch is a classic American dressing. For a lighter take
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1719.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a <span class="text-highlight">large,</span> wide-based pan<span class="tex
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 10-15 min or until softened and caramelised
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1719.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, place your hand flat onto the chicken breast<span class="text-danger
 
 Slice in half as if you were cutting a burger bun, so you are left <span class="text-highlight">with 2 <span class="text-danger">[4]</span> thinner pieces</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1719.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Drizzle with 1 tsp <span class="text-danger">[2 tsp]</span> olive oil and season
 
 Put the tray in the oven and cook for 15-20 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1719.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,16 +70,19 @@ Combine the natural yoghurt with the white wine vinegar, dried oregano and cho
 
 Add a pinch of salt and pepper and give it a good mix up – this is your ranch-style dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1719.-step-5-x200.jpg)
 
 ### Step 5
 
 Drain and rinse the canned lentils
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1719.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the chicken is almost done, add the pumpkin seeds to the tray and cook for 2-3 min or until toasted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1719.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ This sticky sesame meat-free stir-fry is simple to prepare and packed full of fl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636990439476-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636990444336-x200.jpg)
 
 ### Step 2
 
@@ -44,16 +46,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped peppers with a pinch of salt and cook for 4-5 min or until softened slightly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636990452246-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636990465004-x200.jpg)
 
 ### Step 4
 
 Once the peppers have softened, transfer them to a plate and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636990470502-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Return the pan to a high heat with a generous drizzle of vegetable oil
 
 Once very hot, add your meat-free mince (remove the paper if required!) and cook for 5-6 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636990475727-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Once the mince has browned, add your cornflour, chilli flakes (can't handle the 
 
 Once fragrant, add your soy sauce and agave, then return the softened peppers to the pan and cook for 1-2 min or until sticky and the meat-free mince is cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636990482939-x200.jpg)
 
 ### Step 7
 

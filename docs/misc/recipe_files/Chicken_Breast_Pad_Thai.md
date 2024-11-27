@@ -28,6 +28,7 @@ This street food favourite will take your taste buds straight to Bangkok. You’
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723809563481-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once hot, add your diced chicken breast and cook for 5 min or until starting to 
 
 Tip: Cooking for 3 or more? Use 2 pans!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723809584675-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once the chicken is starting to brown, add the chopped pepper to the pan[s]
 
 Cook for a further 6-7 min or until the pepper is tender and the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723809618563-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Bring to the boil over a high heat and cook for 4-5 min or until cooked with a s
 
 Once cooked with a slight bite, drain the noodles and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723809628874-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add your ketjap manis and the juice of half your lime[s] (save the rest for a ga
 
 Give everything a good mix up until well combined – this is your pad Thai sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723809644692-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop the remaining lime[s] into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723809661001-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Push the chicken and pepper to one side of the pan[s] and crack your egg[s] into
 
 Stir the egg[s] with a wooden spoon to break the yolk[s] and cook for 1-2 min until it resembles scrambled egg, then mix it all through the chicken and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723809674912-x200.jpg)
 
 ### Step 7
 

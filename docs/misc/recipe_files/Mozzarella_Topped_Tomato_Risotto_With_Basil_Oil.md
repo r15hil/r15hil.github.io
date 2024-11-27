@@ -23,6 +23,7 @@ Rich, creamy and vibrant, this tomato risotto is a stunning weeknight hero. You'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/340.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a kettle
 
 Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/340.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/340.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -44,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="te
 
 Once hot, add the diced onion with a pinch of salt and cook for 3 min until soft but not coloured
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/340.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Mix well to make sure the rice is evenly coated in the onion and oil
 
 Add your chopped tomatoes and stir continuously until the rice has absorbed most of the tomato juice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/340.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min o
 
 Meanwhile, chop your basil finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/340.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Add 3-4 tbsp olive oil or enough to loosen and mix well – this is your basil 
 
 Tip: If you don't have a pestle & mortar, chop the basil leaves very finely and mix with salt and olive oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1581009749873-x200.jpg)
 
 ### Step 7
 

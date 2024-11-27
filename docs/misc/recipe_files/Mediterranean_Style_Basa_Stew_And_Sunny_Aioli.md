@@ -32,6 +32,7 @@ Head to the Med for this sumptuous stew, with perfectly-poached basa in a tomato
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650382666405-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Top, tail, peel and dice the carrot<span class="text-danger">[s]</span> and peel and finely chop the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650382676294-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Add the star anise and cook for 8-10 min, or until the onion has started to soft
 
 Meanwhile, boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650382687238-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Once the vegetables have softened, add the tomato paste and cook for 1 min, sti
 
 Add the turmeric stock and bring to the boil over a high heat, once boiling, reduce the heat to low and cook for 5-6 min or until reduced by half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650382699619-x200.jpg)
 
 ### Step 4
 
@@ -72,11 +76,13 @@ Add the mayo, remaining chopped garlic and white wine vinegar
 
 Whisk in a drizzle of olive oil with a pinch of black pepper – this is your sunny aioli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/431.-step-5.new-x200.jpg)
 
 ### Step 5
 
 Slice the ciabattas in half and place in the toaster for 1-2 min or until toaster
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650382715602-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Gently add the basa to the pan and cook, covered, for 5 min or until the basa is
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650382725296-x200.jpg)
 
 ### Step 7
 

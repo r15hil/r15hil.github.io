@@ -25,6 +25,7 @@ Baked basa sits on top of luxurious lemon mashed potato. You'll roast cherry tom
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652110013603-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Add them to a pot, cover with boiled water and a pinch of salt and bring back
 
 Once boiling, cook for 12-15 min until the potatoes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652110035912-x200.jpg)
 
 ### Step 2
 
 Meanwhile, cut your cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652110041684-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Drizzle with olive oil and season with a pinch of salt and pepper, then put the
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652110051679-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Chop your parsley and basil roughly, including the stalks
 
 Cut your lemon[s] in half, then slice off 1 wedge per person and set aside for garnish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652110052770-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Drizzle over enough olive oil to loosen the mix, then add a squeeze of lemon 
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652110054347-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Drain the cooked potatoes and leave them to steam-dry for 5 min
 
 Tip: This allows the potatoes to dry out, making them perfect for mashing later!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1652110060794-x200.jpg)
 
 ### Step 7
 

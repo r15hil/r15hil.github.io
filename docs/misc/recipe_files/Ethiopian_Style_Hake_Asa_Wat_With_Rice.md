@@ -27,6 +27,7 @@ Simmer this stew to veg-packed perfection. You’ll pan-fry courgette and onion 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680168748947-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680168756202-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Top, tail and chop your courgette[s] in half lengthways, then slice finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680168762053-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced courgette and diced onion and cook for 3-4 min or until softened and starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680168777827-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Once fragrant, add your chopped tomatoes and your vegetable stock mix with 1 tsp
 
 Give everything a good mix up and cook for 2-3 min or until the sauce has slightly thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680168790810-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your hake fillet[s] into large, bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680168798942-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once boiling, reduce the heat to medium and cook for 4-5 min further or until th
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680168810608-x200.jpg)
 
 ### Step 7
 

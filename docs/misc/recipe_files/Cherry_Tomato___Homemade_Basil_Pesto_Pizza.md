@@ -23,6 +23,7 @@ When it comes to the perfect pizza, there's no combo more classic than melty moz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1783.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Put 1 <span class="text-danger">[2]</span> large baking tray<span class="text-da
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1783.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the tomato paste to a bowl with the chopped garlic and a generous pinch 
 
 Add 5 tbsp<span class="text-danger"> [10 tbsp] </span>cold water and give everything a good mix up – this is your tomato sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1783.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Drain the mozzarella, then pat it dry with kitchen paper (squeeze as much li
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1783.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Chop the cherry tomatoes in half
 
 Wash the baby leaf salad, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1783.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Remove the heated tray<span class="text-danger">[s]</span> from the oven and add
 
 Divide the tomato sauce between the pizza bases and spread it evenly all over them with the back of a spoon
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1783.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Sprinkle over the dried oregano
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 12-15 min or until the cheese has melted and the bases are crisp – these are your cherry tomato pizzas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1783.-step-7-x200.jpg)
 
 ### Step 7
 

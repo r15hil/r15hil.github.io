@@ -26,6 +26,7 @@ Here's a twist on two French classics. Spread the ratatouille base over puff pas
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1658234645129-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop i
 
 Dice your tomato[es]<span class="text-danger"> </span>finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1658234649143-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and finely dice your brown onion[s]
 
 Dissolve your vegetable stock mix in 50ml<span class="text-purple"> [75ml]</span><span class="text-danger"> [100ml] </span>boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1658234652417-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add the diced onion with a pinch of salt and cook for 3-4 min or until
 
 Once starting to soften, add the chopped garlic and dried oregano and cook for a further 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1658234657293-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once boiling, reduce the heat to medium and cook for 8-9 min or until starting t
 
 While the sauce is cooking, chop your basil finely, including the stalks (save a few whole leaves for garnish!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1658234661837-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Dust your work surface with a generous sprinkling of flour and unwrap your puff 
 
 Add the rolled pastry to the tray, then prick the inside of the pastry all over with a fork (this will stop you from getting a soggy bottom!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1658234666589-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Tip: Start from one corner and work around in one direction, overlapping the pas
 
 Put the tray[s] in the oven for 25-30 min or until the pastry is cooked through and puffed up – this is your ratatouille galette
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1658234669984-x200.jpg)
 
 ### Step 7
 

@@ -21,6 +21,7 @@ With hardly any washing up, this hearty roast lamb is made for the midweek. Youâ
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1709039578778-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Top, tail and slice your carrot[s] into discs on the diagonal
 
 Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then top, tail and chop into large chunky rounds
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709039589696-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Scrunch the foil around them to form a tightly sealed parcel[s] and add to a bak
 
 Put the tray[s] in the oven and cook for an initial 10 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709039592921-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the chopped potatoes to a large heat-proof bowl covered with cling film
 
 Put the bowl in the microwave for 5-8 min or until slightly tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1709039597320-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Remove the string from your boneless lamb leg joint[s], then pat dry with kitche
 
 Rub over your Dijon mustard, dried thyme, 1 tsp<span class="text-purple"> [2 tsp]</span> <span class="text-danger">[3 tsp]</span> sugar and a generous pinch of salt and pepper â€“ this is your coated lamb
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1709039600815-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Return the tray[s] to the oven and cook for 25 min or until the lamb is cooked t
 
 Tip: Prefer no pink meat? Cook your lamb for 3-5 min longer!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709039604261-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the lamb has had 25 min, remove it from the oven, transfer to a clean chopp
 
 Return the tray[s] to the oven for a final 3 min or until the potatoes are roasted and golden and the veg is tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709039607508-x200.jpg)
 
 ### Step 7
 

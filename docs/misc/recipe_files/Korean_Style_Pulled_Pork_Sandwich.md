@@ -29,6 +29,7 @@ This sandwich is bursting with Seoul-inspired flavour. You'll spice pork with go
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1656238123230-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Transfer your BBQ pulled pork to an oven-proof dish, draining away half of the j
 
 Top with your gochujang paste (can't handle the heat? Go easy!) and a 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar, then cover with tin foil and put the dish in the oven for an initial 30 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1656238127953-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Drizzle with your toasted sesame oil and a pinch of salt, give everything a good
 
 Once cooked, sprinkle over your black sesame seeds – these are your sesame roasted potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1726061034285-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Bash your cucumber with a rolling pin and chop it into large, bite-sized piece
 
 Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the water is drawn out more easily!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1656238137014-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add your shredded red cabbage and bashed cucumber to a large bowl with a drizzle
 
 Give everything a good mix up – this is your quick-pickled salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1656238141455-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the sliced spring onion to a bowl along with your ginger & garlic paste and 
 
 Add the remaining rice vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and a grind of black pepper then mix well – this is your spring onion & ginger mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656238145638-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Pull the pork apart using two forks and mix everything through the juices
 
 Return the dish to the oven for 5-6 min further or until the sauce has been absorbed and the pork has started to crisp – this is your Korean-style pulled pork
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1656238149142-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ These Turkish lamb Kofta are beautifully spiced with sticky honey, cumin and gar
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/351.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the bulgur wheat to a pot with 180ml <span class="text-danger">(360ml)</span
 
 Simmer for 5 min or until almost all the water is absorbed
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/351.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Meanwhile, peel and finely dice the red onion<span class="text-danger">(s)</span
 
 Peel and grate or finely chop the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/351.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add 3 tbsp <span class="text-danger">(6 tbsp)</span> of cooked bulgur
 
 Mix thoroughly (use your hands for ease)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/351.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ These are your kofta
 
 Refrigerate the kofta until step 7 to help them firm up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/351.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,11 +92,13 @@ Chop the parsley finely, including the stalks
 
 Combine the tomato, mint, parsley and remaining red onion in a bowl and set aside until step 8
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/351.-step-6-x200.jpg)
 
 ### Step 6
 
 Mix the yoghurt with 1 tbsp <span class="text-danger">(2 tbsp)</span> of olive oil and season generously with salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/351.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -20,6 +20,7 @@ This simple, wholesome freekeh salad marries soft mild goats' cheese with roast 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/467_step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Rinse the freekeh, then add it to a pot with 500ml <span class="text-danger">[1L
 
 Once boiling, reduce the heat to medium and cook for 20 min or until tender but with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/467_step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Place on a baking tray and sprinkle with a pinch of salt
 
 Place the tray in the oven for 25 min or until they are tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/467_step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Put it in the oven for 6 min or until the nuts have turned a darker golden colou
 
 Once golden, remove them from the oven and leave them to cool
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/467_step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Meanwhile, add the diced&nbsp;apricots&nbsp;to a large mixing bowl with the red 
 
 Season generously with salt and pepper, mix well and set aside &ndash; this is your apricot dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/467_step-5-x200.jpg)
 
 ### Step 5
 
 Once the freekeh is tender, drain it and allow to steam dry in a sieve for a few min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/467_step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Meanwhile, chop the basil finely, including the stalks
 
 Chop the cooled cashew nuts coarsely&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/467_step-7-x200.jpg)
 
 ### Step 7
 

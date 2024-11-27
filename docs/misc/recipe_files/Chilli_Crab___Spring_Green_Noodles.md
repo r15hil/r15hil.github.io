@@ -25,6 +25,7 @@ These punchy crab noodles bring some serious zingy heat. You'll toss fine egg no
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622804518790-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Kettle-1627380095454-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Now, let's get started!
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1572.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Reboil a full kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1572.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your soy sauce and toasted sesame oil with the juice of half your lime[s] a
 
 Reduce the heat to low – this is your crab sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1572.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Wash, then rip the leaves off your spring greens, discard the tough stalks, then
 
 Add the sliced spring greens to a colander and pour boiled water all over until bright green and wilted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1572.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Give everything a good mix up until fully combined – these are your chilli cra
 
 Tip: Add a splash of the starchy noodle water if your sauce is looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1572.-step-7-x200.jpg)
 
 ### Step 7
 

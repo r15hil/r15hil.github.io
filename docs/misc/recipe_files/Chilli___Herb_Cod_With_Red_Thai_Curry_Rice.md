@@ -29,6 +29,7 @@ A dish guaranteed to warrant the phrase, "cod, that's good." For this easy delic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661184350892-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661184436074-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add the diced onion and diced pepper and cook for 2-3 min or until sta
 
 Dissolve your vegetable stock mix, creamed coconut and red Thai curry paste in 300ml <span class="text-purple">[390ml] </span><span class="text-danger">[600ml] </span>boiled water – this is your Thai stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661184438745-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once the onion has softened, add your basmati rice and the Thai stock to the pot
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until the water has absorbed and the rice is cooked – this is your red Thai curry rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661184441811-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Chop your basil finely, including the stalks
 
 Top, tail, peel and grate your carrot[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661184444758-x200.jpg)
 
 ### Step 5
 
 Combine your soy sauce and chilli flakes (can't handle the heat? Go easy!) in a bowl with the chopped basil, chopped garlic and the juice of half your lime[s] – this is your chilli & basil dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661184447938-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once hot, add the cod fillet[s] to the pan and cook for 4-5 min on each side or 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661184451194-x200.jpg)
 
 ### Step 7
 

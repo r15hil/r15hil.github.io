@@ -28,6 +28,7 @@ To give this paella-inspired dish a wholesome twist, we've swapped rice for quin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618245928226-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Top, tail, peel and grate your carrot[s]
 
 Peel and finely chop your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1618245941201-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion and grated carrot with a pinch of salt and cook for 4-5 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1618245952759-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Rinse your quinoa in a sieve under cold running water, then add it to the pan wi
 
 Once boiling, reduce the heat to medium and cook, covered, stirring occasionally, for 6-8 min or until the quinoa has absorbed most of the liquid and is cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1618245958095-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Whilst the quinoa is cooking, chop your cherry tomatoes in half
 
 Chop your parsley roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618245972783-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Heat a separate wide-based pan with 1 tbsp<span class="text-purple"> [1 1/2 tbsp
 
 Once hot, add the halved cherry tomatoes and cook for 4-5 min or until starting to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1618245993759-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the juice of half your<span class="text-danger"> </span>lemon[s], half of th
 
 Cut the remaining lemon[s] into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1618246001921-x200.jpg)
 
 ### Step 7
 

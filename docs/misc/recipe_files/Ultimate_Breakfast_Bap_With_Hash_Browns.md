@@ -22,6 +22,7 @@ Whether you have 'em for breakfast or dinner, these more-ish baps are the ultima
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1606304162299-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Add the Cumberland sausages to a tin foil-lined baking tray
 
 Put the tray in the oven and cook for 25-30 min or until the sausages are cooked through (no pink meat!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606304173163-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Grate the potatoes (skins on)
 
 Add the grated potato and sliced shallot to the middle of a tea towel with a pinch of salt and bring the four corners together to form a ball, twist the ball and squeeze out as much liquid as you can – this is your potato mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606304181978-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the potato mixture to a bowl with half the chives (save the rest for garnis
 
 Separate the mixture into 4 <span class="text-danger">[8]</span> and shape into rough potato cakes, about 1cm thick
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606304190443-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once done, add them to a plate and set aside – these are your hash browns
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1606304198352-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once done, add them to the plate with the hash browns and set aside
 
 Reserve the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606304211524-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Slice the ciabatta rolls in half, then add them to a baking tray and put the tra
 
 Grate the cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1606304223038-x200.jpg)
 
 ### Step 7
 

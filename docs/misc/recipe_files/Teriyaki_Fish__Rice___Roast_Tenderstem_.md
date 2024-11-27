@@ -21,6 +21,7 @@ Made with soy sauce, mirin & honey, the lightly sweet, umami-rich flavour of ter
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1441.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1441.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Add the Tenderstem broccoli to a baking tray with a drizzle of vegetable oil and
 
 Give everything a good mix up and put the tray in the oven for 10-15 min or until crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1441.-step-3-x200.jpg)
 
 ### Step 3
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1441.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,16 +63,19 @@ Once hot, add the basa fillets and cook for 3-4 min on each side or until cooked
 
 Tip: your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1441.-step-5-x200.jpg)
 
 ### Step 5
 
 Once done, remove the pan from the heat, transfer the basa fillets to a plate and cover in tin foil until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1441.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the soy sauce, mirin and honey to the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1441.-step-7-x200.jpg)
 
 ### Step 7
 

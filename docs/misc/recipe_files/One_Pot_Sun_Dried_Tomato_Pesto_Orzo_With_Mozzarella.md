@@ -25,6 +25,7 @@ This dish is the ultimate easy dinner, you'll cook your orzo, pepper and tomato 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721812569807-x200.jpg)
 
 ### Step 1
 
@@ -38,11 +39,13 @@ Set them aside and reserve the pot
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721812572842-x200.jpg)
 
 ### Step 2
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721812576355-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Bring to the boil over a high heat
 
 Cook the orzo for 6-8 min or until cooked with a slight bite
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721812579399-x200.jpg)
 
 ### Step 4
 
@@ -59,16 +63,19 @@ Meanwhile, drain your mozzarella, then pat and squeeze as much liquid out as you
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721812582826-x200.jpg)
 
 ### Step 5
 
 Chop your basil finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721812590485-x200.jpg)
 
 ### Step 6
 
 Once your orzo is cooked, drain and then return it to the pot, reserving a cup of the starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721812597296-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This light, summery dish brings out the best in fabulous British hake. A hot pan
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1630.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Boil a kettle.
 
 Chop the parsley and basil finely (including the stalks).
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1630.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the remaining ingredients 
 
 Add the pine nuts, capers and sultanas to the chopped herbs and chop everything together as finely as you can.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1630.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the mix to a bowl with the juice of 1/4 <span class="text-danger">[1/2]</spa
 
 Season with a pinch of salt and give everything a good mix up – this is your salsa verde.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1630.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Dissolve 1/2<span class="text-danger"> [1]</span> Knorr vegetable stock cube i
 
 Peel and chop the garlic roughly.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1630.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Blitz until smooth – this is your butter bean pureé.
 
 Tip: If you don't have a food processor, you can mash the beans instead.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1630.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Flip the fish and cook for 1-2 minutes further or until cooked through. Tip: Your fish is cooked when it turns opaque and flakes easily.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1630.-step-7-x200.jpg)
 
 ### Step 7
 

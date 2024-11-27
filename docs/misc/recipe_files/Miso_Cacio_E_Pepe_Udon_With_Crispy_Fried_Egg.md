@@ -25,6 +25,7 @@ Japanese flavour meets Italian comfort food in this umami-packed fusion. You’l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-5-1720431861400-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676305698758-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Slice your chestnut mushrooms finely
 
 Once the butter has melted, add the sliced mushrooms to the pan and cook for 3 min or until tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676305707178-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then slice your spring onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676305716876-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Add your cracked black pepper – this is your miso cacio e pepe sauce
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676305725097-x200.jpg)
 
 ### Step 5
 
 Once the mushrooms are tender, add your cornflour and the chopped garlic to the pan and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676305733654-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Tip: Gently separate the noodles with a fork!
 
 Cook for 2-3 min or until the udon noodles are coated in sauce – this is your miso cacio e pepe udon
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676305744853-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ I love making chilli and I am a massive fan of one-pot cooking. Not only because
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/612.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and chop the onion<span class="text-danger">[s]</span> finely
 
 Peel and finely chop (or grate) the garlic&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/612.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the onions and the garlic and cook for 10 min or until softened
 
 Once done, transfer the onion and garlic to a bowl (reserve the pan for a later step!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/612.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile, add the rice, 175ml <span class="text-danger">[350ml]</span> water an
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/612.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the beef mince and cook for 5 min or until starting to brown, brea
 
 Meanwhile, drain and rinse the kidney beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/612.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add the beans, tomatoes, cumin, smoked paprika and a generous pinch of salt and 
 
 Stir&nbsp;and cook for a further 10-15 min, until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/612.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Meanwhile, grate the cheese
 
 Chop the coriander roughly, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/612.-step-7-x200.jpg)
 
 ### Step 7
 

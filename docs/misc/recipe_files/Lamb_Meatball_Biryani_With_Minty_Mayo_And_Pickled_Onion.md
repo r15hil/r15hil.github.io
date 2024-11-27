@@ -28,6 +28,7 @@ Get your taste buds going with our take on lamb biryani. You’ll pan-fry minty 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683046804599-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your lamb mince to a large bowl with half your mint sauce, half the choppe
 
 Mix thoroughly until fully combined, divide and roll into 3 meatballs per person (clean hands is the best way!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683046811150-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the lamb meatballs and cook for an initial 5-6 min or until starti
 
 Once brown, transfer the meatballs to a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683046815098-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Slice the remaining red onion
 
 Dissolve your chicken stock mix in 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[510ml] </span>boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683046819250-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add the diced onion and a small pinch of salt and cook for 1-2 min or until star
 
 Once the onion is soft, add your curry powder, ground turmeric and remaining chopped garlic to the pan and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683046823900-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the browned meatballs, then bring to the boil over a high heat
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until the lamb is cooked through (no pink meat!) and the water has absorbed  – this is your biryani
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683046827667-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ While the biryani is cooking, add the sliced onion to a bowl with your white win
 
 Combine your mayo and remaining mint sauce in a bowl with 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>cold water – this is your minty mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683046832163-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Whip up dinner in a flash with this smoky traybake. You’ll roast potatoes, red
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678876651376-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Chop your potato[es] (skins on) into small bite-sized pieces
 
 Peel and chop your sweet potato[es] into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678876661152-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Peel and chop your red onion[s] into wedges
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678876683827-x200.jpg)
 
 ### Step 3
 
 Add your chopped potato, sweet potato and onion wedges to a baking paper-lined tray (or two!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678876702437-x200.jpg)
 
 ### Step 4
 
@@ -55,11 +59,13 @@ Add a generous drizzle of olive oil with a generous pinch of pepper and give eve
 
 Put the tray[s] in the oven for an initial 18-20 min or until everything's golden and crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678876728008-x200.jpg)
 
 ### Step 5
 
 Wash your salad, then pat dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678876736938-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Combine your mayo, remaining garlic (not a big garlic fan? Try using less!) and 
 
 Season with a generous crack of black pepper – this is your garlic mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678876750072-x200.jpg)
 
 ### Step 7
 

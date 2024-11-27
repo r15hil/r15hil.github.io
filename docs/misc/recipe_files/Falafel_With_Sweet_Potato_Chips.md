@@ -25,6 +25,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/625.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut the sweet potatoes (skin on) into&nbsp;chips&nbsp;
 
 Add the chips to&nbsp;a large bowl with 1 tbsp <span class="text-danger">[2 tbsp]</span> vegetable oil and a generous pinch of salt and pepper and toss to coat evenly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/625.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the chips to a baking tray, skin-side down (use tin foil to avoid mess!)
 
 Put the tray in the oven&nbsp;for 30-35 min or until the chips are tender and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/625.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Chop the parsley roughly, including the stalks
 
 Drain and discard a little&nbsp;liquid from the chickpeas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/625.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the chickpeas (and remaining liquid) to a food processor with the garlic, pa
 
 Blitz until smooth, scraping down the sides of the mixer midway - this is your falafel batter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/625.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Heat a wide-based pan (preferably non-stick) with 2 tbsp <span class="text-dange
 
 Once hot, add the falafel batter to the pan, one large spoonful at a time, making 6 <span class="text-danger">[12]</span> even portions (work in batches if your pan isn't big enough)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/625.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Tip: gently press with a spatula after turning to flatten out and help cook even
 
 Cook&nbsp;until golden brown on each side
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/625.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ This softly-spiced dish is a warming, delicious treat. You'll roast aubergine sl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1596538611894-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Top, tail and slice your aubergine[s] lengthways into roughly 1cm thick slices
 
 Chop any leftover pieces of aubergine roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1596538617631-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Put the tray[s] in the oven for 15 min or until the aubergine slices are tender
 
 Once cooked, remove from the oven and set aside to cool (reserve the tray[s]!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1596538637657-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the chopped onion, any remaining roughly chopped aubergine and a p
 
 Once softened, add your curry powder and cook for a further 2 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1596538655165-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Rinse your red lentils in a sieve under cold running water
 
 Add the rinsed lentils to the softened onion with the vegetable stock and cook for 15-20 min or until all the stock is absorbed, the lentils are tender and starting to break down – this is your dal
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1596538678620-x200.jpg)
 
 ### Step 5
 
 Meanwhile, slice your paneer into thin strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1596538686385-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Return the aubergine rolls, seam-side down, to the reserved baking tray[s]
 
 Put the tray[s] in the oven for a further 10 min or until the paneer has started to brown – these are your paneer-stuffed aubergine rolls
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1596538710579-x200.jpg)
 
 ### Step 7
 

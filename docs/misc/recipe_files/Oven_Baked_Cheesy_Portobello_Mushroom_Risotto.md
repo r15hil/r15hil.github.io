@@ -23,6 +23,7 @@ This one-pot dish is the easiest thing to prep. You'll make a simple leek and mu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610731363320-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ This recipe takes around 5 min<span class="text-danger"> [10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606305200419-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Boil a kettle
 
 Heat a large, wide-based oven-proof casserole dish with a matching lid with a drizzle of olive oil over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606305205644-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Sprinkle half of the grated Italian hard cheese (you'll use the rest later!) int
 
 Set the tray aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606305211082-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Wash the leek<span class="text-danger">[s]</span> thoroughly to remove any grit 
 
 Once hot, add the leek rounds to the casserole dish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606305216889-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Crush the garlic cloves open by squashing them with the side of a knife
 
 Remove the skins and chop the crushed garlic roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606305224334-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the chopped garlic with the Chinese rice wine and white wine vinegar
 
 Add the vegetable stock mix with 600ml <span class="text-danger">[1.2L]</span> boiled water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606305231421-x200.jpg)
 
 ### Step 7
 

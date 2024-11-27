@@ -26,6 +26,7 @@ Our take on Sicily's sunny caponata is full of sweet, tangy Italian flavours lik
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662457605554-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Trim the green stalk<span class="text-danger">[s]</span> off the aubergine<span 
 
 Peel and slice the red onion<span class="text-danger">[s] </span>into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662457609673-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chopped aubergine and onion wedges to a baking tray with a drizzle of ve
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until softened and starting to brown – this is your roast veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662457613994-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the vegetable stock mix in 150ml <span class="text-danger">[250ml]</span> boiled water and add the sultanas, capers, red wine vinegar, chilli flakes (can't handle the heat? Go easy!) and dried basil – this is your sultana stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662457619316-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once hot, add half the chopped garlic (you'll use the rest later!) and cook for 
 
 Add the chopped tomatoes and sultana stock and cook for 10 min or until thickened – this is your tomato sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662457624078-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Combine the chopped parsley and remaining chopped garlic with the softened butte
 
 Put the tray in the oven for 5-7 min or until crusty and golden – this is your garlic bread
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662457629127-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Melt a knob of butter alternative in a pot (with a matching lid) and add the cho
 
 Put the lid on and cook for 2 min or until wilted – this is your buttery cavolo nero
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662457633108-x200.jpg)
 
 ### Step 7
 

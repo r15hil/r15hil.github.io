@@ -20,6 +20,7 @@ Whether or not you love peanut butter, you'll definitely go nuts for this dish! 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2245-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2245-Step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, remove the coconut cream from the sachet<span class="text-danger">[s]</span> and chop it roughly, then dissolve in 250ml <span class="text-danger">[500ml]</span> boiled water – this is your coconut stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2245-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Add the broccoli quarters to the pan with a pinch of salt and cook for 2-3 min on both sides or until golden brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2245-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Reserve the pan
 
 Whilst the broccoli is cooking, pat the pork loin steaks dry with kitchen paper and season with a pinch of salt and pepper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2245-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once hot, add the pork loin steaks and cook for 3-4 min on each side or until th
 
 Once done, transfer the cooked steaks to a clean chopping board, cover with a clean tea towel and set aside to rest for 2 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2245-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ While the steaks are cooking, add the coconut stock, peanut butter, soy sauce 
 
 Cook for 3-4 min or until thickened, stirring more or less continuously, then remove the pot from the heat – this is your peanut sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2245-Step-7-x200.jpg)
 
 ### Step 7
 

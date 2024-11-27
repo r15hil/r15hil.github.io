@@ -24,6 +24,7 @@ For a fresh take on an easy dinner, you'll infuse spiced lentils and carrots wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1663060368124-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Top, tail, peel and slice the carrots in half lengthways and then chop roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663060373324-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the drained lentils and sliced onion to a bowl with the ras el hanout and 2 
 
 Season with salt and pepper and give it a good mix – this is your spiced lentils & carrot mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663060377824-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the spiced lentils & carrot mix to a baking paper-lined baking tray
 
 Put the baking tray in the oven for 20-25 min or until the lentils have started to crisp and the carrots are cooked through – these are your crispy spiced lentils & carrots
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663060381640-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Cut the orange<span class="text-danger">[s]</span> in half
 
 Peel 1/2 <span class="text-danger">[1]</span> orange and slice into segments
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663060385814-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Chop the coriander finely, including the stalks
 
 Wash the rocket, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663060390508-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Add the rocket and orange segments to the dressing with the chopped coriander
 
 Crumble in the Greek cheese – this is your orange & Greek cheese salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663060394660-x200.jpg)
 
 ### Step 7
 

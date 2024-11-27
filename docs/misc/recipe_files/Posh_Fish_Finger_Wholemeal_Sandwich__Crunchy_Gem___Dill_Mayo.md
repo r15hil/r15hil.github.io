@@ -22,6 +22,7 @@ If you love a fish finger sarnie, this posh twist is right up your street. You'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603213140557-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603213150881-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Once the pan's hot, add the sliced rolls, cut-side down, and cook for 3 min or u
 
 Reserve the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603213160474-x200.jpg)
 
 ### Step 3
 
 Meanwhile, combine the cornflour and ground turmeric with a generous pinch of salt and pepper in a large bowl – this is your cornflour mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603213167813-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Cut the basa fillets into strips
 
 Add the basa strips to the cornflour mixture and stir together until they're fully coated in the mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603213173664-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once hot, add the coated basa strips and cook for 3-4 min on each side or until 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603213184174-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Chop the dill finely
 
 Combine the mayonnaise with the white wine vinegar, chopped dill and a generous pinch of salt and pepper – this is your dill mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603213201320-x200.jpg)
 
 ### Step 7
 

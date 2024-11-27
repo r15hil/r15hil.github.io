@@ -30,6 +30,7 @@ This Vietnamese-style pork dish has it all. You'll pair warm, sticky rice with a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1635254958632-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml<span class="text-purple"> [300ml] </span><span class="text-danger">[400ml] </span>cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1635254964756-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1635254969505-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Peel and grate (don't chop!) your garlic
 
 Peel (scrape the skin off with a teaspoon) and grate (don't chop!) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1635254978243-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Pat your pork loin steak[s] dry with kitchen paper
 
 Trim the fat from the pork loin steak[s] and chop into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1635255002849-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1635255009107-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Combine the halved cherry tomatoes, sliced cucumber and carrot ribbons in a bowl
 
 Add the remaining Vietnamese-style marinade and chopped pork to a bowl and mix until fully combined
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1635255015624-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ To give this classic a Southeast Asian twist, you'll marinate chicken in soy, gi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597739050693-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your gin
 
 Cut your chicken thighs into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1503.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the chopped ginger, chopped garlic and soy sauce to a medium bowl –
 
 Add the chicken strips and give everything a good mix up, then set aside until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1503.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a 
 
 Put the tray[s] in the oven for 20-25 min or until they're cooked through and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1503.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Cut your cucumber in half lengthways and slice finely
 
 Top, tail, peel and grate your carrot[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1503.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your rice vinegar and mix to combine – this is your zingy slaw
 
 Combine your mayo with your hoisin sauce in a separate bowl – this is your hoisin mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1503.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the marinated chicken strips, leaving most of the marinade behind, disc
 
 Stir it all together so the chicken strips are fully coated in cornflour – this is your coated chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1503.-step-7-x200.jpg)
 
 ### Step 7
 

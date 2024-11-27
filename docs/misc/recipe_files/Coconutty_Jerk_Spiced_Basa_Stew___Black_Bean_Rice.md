@@ -26,6 +26,7 @@ This Caribbean-inspired jerk stew will spice up your night in. You’ll simmer b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1719215650178-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1709224861320-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Chop your tomato[es] into small bite-sized pieces
 
 Peel and cut your brown onion[s] into thin wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1709224865069-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the onion wedges and chopped tomato to the pan with a pinch of sal
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1709224869059-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Chop your creamed coconut roughly (if required)
 
 Drain and rinse your black beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1709224872680-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once the onion and tomato have softened slightly, add half the chopped garlic (y
 
 Cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1709224876472-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the chopped basa to the pan and bring to the boil over a high heat, then red
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1709224879919-x200.jpg)
 
 ### Step 7
 

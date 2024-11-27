@@ -30,6 +30,7 @@ Mild yet aromatic, this Persian-style beef and lentil stew is spiced with a comf
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-14-1731507113788-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 6-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-15-1731507125432-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop your tomato[es] finely
 
 Drain and rinse your green lentils
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-15-1731507164115-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-14-1731507181587-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the onion has softened, increase the heat to medium-high and add your beef 
 
 Cook for 3-4 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-14-1731507200743-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Crush your cardamom pod[s] open by squashing with the side of a knife
 
 Once the beef mince has browned, add the crushed cardamom pod[s], ground coriander, ground cinnamon, ground allspice, chopped garlic and chopped tomatoes and cook for 2-3 min or until the tomatoes begin to break down
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-14-1731507220018-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the drained green lentils, tomato stock and a generous pinch of salt  to the
 
 Once boiling, reduce the heat to medium-low and cook for 6-8 min or until thickened and the beef mince is cooked through (no pink meat!) – this is your warming Persian-style beef & lentil stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-14-1731507663950-x200.jpg)
 
 ### Step 7
 

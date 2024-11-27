@@ -22,6 +22,7 @@ Taste chasers, you asked for it. This is the Henderson's burger, featuring your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1730110973190-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a g
 
 Put the tray[s] in the oven for 30-35 min or until golden and crispy – these are your black pepper chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619786303360-x200.jpg)
 
 ### Step 2
 
@@ -44,16 +46,19 @@ Tip: Cook the onion over a really low heat so it doesn’t burn!
 
 Once golden, add 3/4 of your Henderson's Relish (save the rest for later!) and cook for 3-4 min further or until dark and soft – this is your Henderson's caramelised onion
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619786347287-x200.jpg)
 
 ### Step 3
 
 While the onion is caramelising, combine the remaining Henderson's Relish and your mayo in a small bowl – this is your Henderson's mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619786372662-x200.jpg)
 
 ### Step 4
 
 Wash your lettuce, then pat dry with kitchen paper and shred finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1619786388838-x200.jpg)
 
 ### Step 5
 
@@ -61,11 +66,13 @@ Line a separate baking tray (or two!) with baking paper
 
 Add your meat-free burger patty[ies] to the lined tray[s] and put in the oven for 10-12 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619786398327-x200.jpg)
 
 ### Step 6
 
 Meanwhile, cut your brioche bun[s] in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1619786417440-x200.jpg)
 
 ### Step 7
 

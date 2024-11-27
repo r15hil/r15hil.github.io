@@ -25,6 +25,7 @@ This speedy Sausage Bolognese is perfect for when you want a hearty meal in a fl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/777.-step-2-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cook for 5 min until the sausagemeat is brown and crispy, breaking it up into sm
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/777.-step-1-x200.jpg)
 
 ### Step 2
 
@@ -59,6 +61,7 @@ Tip: alternatively bung everything in a food processor for speedier results!
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/777.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Season with a generous pinch of salt
 
 Cook for 4 min until soft and caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/777.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Meanwhile, add the linguine&nbsp;to a pot of boiled water with a pinch of salt, 
 
 Once cooked, drain and reserve 150ml <span class="text-danger">[300ml]</span> of the starchy pasta&nbsp;water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/777.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Once the vegetables have softened, stir the brown sauce, tomato paste, dried&nbs
 
 Cook for 1 min further&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/777.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Meanwhile, grate the cheese
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/777.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ If you love a classic lamb keema, then this curry in a hurry won’t disappoint.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-8-1657538763005-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-8-1657538771598-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the chips to the baking tray (or two!) with your cumin seeds, a drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your cumin chips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-7-1657538804211-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your lamb mince with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-7-1657538816991-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Roughly chop your tomato[es]
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-7-1657538835101-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the lamb has slightly browned, add your curry powder, garam masala, half th
 
 Cook for 3-4 min or until the onion has started to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-7-1657538845900-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the onion is beginning to soften, add your tomato paste and ginger & garlic
 
 Cook for a further 4-5 min or until the curry has thickened to a bolognese-like consistency and the lamb is cooked through (no pink meat!) – this is your fragrant lamb curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-7-1657538860536-x200.jpg)
 
 ### Step 7
 

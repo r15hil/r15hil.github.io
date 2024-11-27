@@ -22,6 +22,7 @@ The secret to adding big flavour in minutes is caramelising your mushrooms in ga
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622806032594-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1632.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Once hot, add your pine kernel & seed mix and cook for 2-3 min or until toasted 
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1632.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, strip your sage leaves from their stalks and chop them finely, discard the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1632.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Heat a large, wide-based pan (preferably non-stick) with 30g <span class="text-p
 
 Once hot, crumble your chestnut mushrooms into the pan and cook for 2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1632.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi, reserving a cup of the starchy cooking water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1632.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Meanwhile, grate your cheddar cheese
 
 Combine your white wine vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper in a bowl – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1632.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This take on a cottage pie is still hearty and wholesome, just a little lighter.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1623678510951-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes and carrots to a pot of boiled water, bring to the b
 
 Once done, drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1623678516573-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Top, tail, and dice the remaining carrot<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1623678522127-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the chopped onion, carrot and garlic and cook for 3-4 min or
 
 Meanwhile, dissolve the chicken stock mix and tomato paste in 250ml <span class="text-danger">[400ml] </span>boiled water and add the Henderson's relish and dried basil – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1623678530066-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the turkey is browned, add the tomato stock to the pan and bring to the 
 
 Season with a grind of black pepper and cook for 4-5 min or until slightly thickened – this is your turkey mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1623678551723-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Mash until smooth
 
 Tip: Don't worry if your carrot doesn't get completely smooth, it will add a nice texture to your mash!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1623678562698-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Top with the mashed potato & carrot and sprinkle over the grated cheese
 
 Put the dish in the oven for 15-20 min or until golden brown and bubbling – this is your turkey bake with cheesy carrot mash
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1623678582873-x200.jpg)
 
 ### Step 7
 

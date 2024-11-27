@@ -30,6 +30,7 @@ While your rainbow veg skewers roast in the oven, you'll whip up a quick satay s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/688_step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Top, tail and slice your courgette[s] into 4 rounds per person
 
 Chop your peppers into large chunks (scrape the seeds and pith out with a teaspoon), then peel and cut your red onion[s] into large wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/688_step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the chopped veg to a large bowl, drizzle with 2 tbsp <span class="text-pur
 
 Add your curry powder to the bowl and give everything a good mix up – this is your coated veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1666714973163-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the veg skewers (and any remaining veg) to a baking tray (or two!) (use tin 
 
 Put the tray[s] in the oven for 10-15 min or until everything has browned and is starting to char - these are your roasted veg skewers
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Rice-in-pot-with-water-1646667907911-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once cooked, remove from the heat and keep covered until serving
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/688.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Dissolve the chopped creamed coconut with your peanut butter in 200ml <span clas
 
 Add the peanut stock to a small pot with your agave, soy sauce and chilli flakes (can't handle the heat? Go easy!) then bring to the boil over a medium-high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/688.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cook for 2-4 min or until the sauce has reduced by half and thickened – this 
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/688.-step-7-x200.jpg)
 
 ### Step 7
 

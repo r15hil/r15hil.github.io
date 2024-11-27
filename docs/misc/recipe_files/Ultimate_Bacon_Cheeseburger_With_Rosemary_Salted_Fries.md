@@ -30,6 +30,7 @@ Our ultimate cheeseburger is back. You'll roast succulent beef patties, and top 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2120.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Strip your rosemary leaves off their stems, then chop them as finely as possible
 
 Combine the chopped rosemary with a pinch of salt – this is your rosemary salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2120.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Sprinkle the rosemary salt over the fries with a drizzle of vegetable oil and a 
 
 Put the tray[s] in the oven for 20-25 min or until crisp, golden and cooked through – these are your rosemary salted fries
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2120.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ While the fries are cooking, add your beef mince to a bowl with your panko bread
 
 Season with a pinch of salt and pepper, mix it all together (clean hands is the best way!), then shape into 1 burger patty per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2120.-step-4-1-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray[s] in the oven for 15-20 min or until the burger[s] is cooked through (no pink meat!) and the bacon is crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2120.-step-5-1-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Grate your cheddar cheese
 
 Slice your brioche bun[s] in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1619432547605-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Wash your lettuce and pat dry with kitchen paper, then remove 1 whole outer leaf
 
 Chop the remaining lettuce into quarters, then add to a bowl and toss with a drizzle of olive oil and season lightly with salt and pepper – these are your dressed lettuce wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2120.-step-7-1-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ To recreate crispy, German-style schnitzel at home, you'll pan-fry breaded chick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721133880480-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a baking tray (or two!) with a generous drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721133895141-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your basil finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721133917229-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Cover your free range chicken breast portion[s] with cling film and bash them wi
 
 Season the flattened chicken with a generous pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721133923784-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add your panko breadcrumbs to another plate
 
 Coat the flattened chicken in the flour, tap off any excess, then add it into the beaten egg and finally press it into the breadcrumbs firmly to evenly coat all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721134248506-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the coated chicken and cook for 5-6 min on each side or until gold
 
 Tip: Cooking for 5? You may need to do this in batches!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721134288083-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once hot, add the chopped cherry tomatoes with a pinch of salt and cook for 3-4 
 
 Add the chopped garlic and cook for 30 secs, then add 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[150ml]</span> water with a pinch of pepper and sugar and cook for 4-5 min further or until thickened – this is your tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721134293811-x200.jpg)
 
 ### Step 7
 

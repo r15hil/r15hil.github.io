@@ -28,6 +28,7 @@ Pump up the flavour of your prawns with chermoula, a smoky, parsley-packed paste
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2429Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your lemon[s] in half
 
 Peel your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2429Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Tip: If you don’t have a food processor, use a pestle & mortar!
 
 Blitz until smooth – this is your chermoula
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2429Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Roughly chop your sultanas
 
 Add the chopped sultanas to a bowl, cover them with boiled water and set them aside to soak
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Couscous-1654076810883-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add your giant couscous to a pot of boiled water with a pinch of salt and bring 
 
 Cook the giant couscous for 8 min or until tender with a slight bite, then drain and return to the pot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2429Step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the onion petals with a pinch of salt and cook for 5-8 min or until starting to caramelise
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2429Step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the onion petals (reserve the pan), grated carrot, drained sultanas, chipot
 
 Give everything a good mix up – this is your spiced giant couscous
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2429Step-7-x200.jpg)
 
 ### Step 7
 

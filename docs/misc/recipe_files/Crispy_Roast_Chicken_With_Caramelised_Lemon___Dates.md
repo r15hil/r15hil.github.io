@@ -25,6 +25,7 @@ Put your zest foot forward with this zingy chicken dinner. You’ll pan-fry chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687510526781-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Heat a large, dry, wide-based pan (preferably non-stick) over high heat
 
 Once hot, add the chicken thighs, skin-side down, with a pinch of salt and cook for 10 min or until the skins have browned and crisped, then transfer your crispy chicken to a plate, reserving the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687510535641-x200.jpg)
 
 ### Step 2
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687510542248-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of olive oil,
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your thyme roasties
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687510552666-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once hot, add the lemon halves (cut-side down) and sliced shallot and cook for 3
 
 Once caramelised, transfer the caramelised lemon halves to a plate and set aside for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687510559782-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add your Chinese rice wine and 1 tsp <span class="text-purple">[1 1/2 tsp]</span
 
 Bring to the boil and cook for 2-3 min or until thickened slightly – this is your date gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687510571692-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once crisped, transfer the crispy chicken (skin side up) and date gravy to an ov
 
 Put the dish in the oven for 12-15 min or until the chicken is cooked through (no pink meat!) – this is your crispy roast chicken with caramelised lemon & dates
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687510582973-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Leave the cooking to the oven with this veg-packed traybake. You’ll roast pota
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686665877955-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop your potato[es] (skins on) into small bite-sized pieces
 
 Chop your sweet potato[es] (skins on) into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686665882329-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Top, tail, and slice your carrot[s]<span class="text-danger"> </span>into chunky
 
 Peel and chop your red onion[s] into thin wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686665890186-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add a generous drizzle of olive oil, a generous pinch of salt and pepper and giv
 
 Put the tray[s] in the oven for an initial 15-17 min or until the potatoes are starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/03-01-24_09h19m53s-APIC-1704362303806-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Meanwhile, add most of your ground smoked paprika (save some for later!), 1 tsp 
 
 Add a generous pinch of salt and pepper and give everything a good mix up – this is your marinade
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686665897414-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the potatoes have slightly softened, remove the tray[s] from the oven and a
 
 Remove the tray[s] from the oven, spread your harissa paste (can't handle the heat? Go easy!) over the chicken and return to the oven for a final 5-6 min or until the chicken is cooked through (no pink meat!) – this is your harissa chicken thigh & carrot traybake
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686665901242-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Combine your natural yoghurt with the remaining ground smoked paprika and a pinc
 
 Stir it all together – this is your paprika yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686665909959-x200.jpg)
 
 ### Step 7
 

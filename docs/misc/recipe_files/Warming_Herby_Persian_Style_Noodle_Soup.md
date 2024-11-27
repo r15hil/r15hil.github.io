@@ -27,6 +27,7 @@ This dish, inspired by Ash Reshteh, is a wholesome, herby soup with a green, aro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1651247016494-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely slice (don't chop!) the garlic
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1651247018966-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large pot with a drizzle of olive oil over a medium-low heat
 
 Once hot, add the sliced leek and a generous pinch of salt and cook for 3-4 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1651247025392-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Drain and rinse the black beans and champagne lentils
 
 Dissolve the vegetable stock mix in 650ml <span class="text-danger">[1.3L]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1651247029152-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Pick a few leaves from the dill, coriander, mint and parsley and set aside for g
 
 Pick the remaining mint leaves from their stalks, then chop all of the herbs together roughly, discard the mint stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1651247034848-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the vegetable stock with the spinach, chopped herbs and soy sauce and bring 
 
 Season generously with a grind of black pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1651247037766-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add the fine egg noodles to the pot and stir them with a fork until separated an
 
 Add the drained black beans and lentils to the pot with a pinch of salt and cook for 2-3 min further or until the noodles are tender and everything’s warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1651247042127-x200.jpg)
 
 ### Step 7
 

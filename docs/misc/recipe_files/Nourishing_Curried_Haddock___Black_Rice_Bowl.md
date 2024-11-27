@@ -24,6 +24,7 @@ We've paired black rice with lean curried haddock bites and plenty of veg to get
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1323.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the black rice to a pot of plenty of boiled water and cook over a high heat 
 
 Once cooked, drain, return it to the pot and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1323.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Meanwhile, peel and grate the carrot<span class="text-danger">[s]</span>
 
 Add the grated carrot to a bowl with the nigella seeds and mix to combine &ndash; this is your carrot salad
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1323.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Chop the coriander finely, including the stalks
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1323.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine the tomato, cucumber and chopped herbs in a small bowl with a pinch of salt and pepper&nbsp;&ndash; this is your kachumber&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1323.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Turn the&nbsp;haddock bites&nbsp;several times into the curry powder until they'
 
 Lightly drizzle them with&nbsp;olive oil&nbsp;and put the tray in the oven for 5 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1323.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Combine the&nbsp;chopped garlic&nbsp;(Don't like raw garlic? Go easy!)&nbsp;with
 
 Season with a pinch of&nbsp;salt&nbsp;and&nbsp;pepper &ndash;&nbsp;this is your&nbsp;lemony dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1323.-step-7-x200.jpg)
 
 ### Step 7
 

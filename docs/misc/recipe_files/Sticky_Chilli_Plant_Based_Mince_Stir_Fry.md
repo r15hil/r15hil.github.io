@@ -25,6 +25,7 @@ We've made this sticky stir-fry super quick. You'll crisp meat-free mince on hig
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581515693292-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581515698996-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ While the rice is cooking, heat a large, wide-based pan (preferably non-stick) 
 
 Once hot, add your meat-free mince (remove the paper if required!) and cook for 5-6 min or until browned and crisped, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1646765414864-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581515709722-x200.jpg)
 
 ### Step 4
 
 Once the meat-free mince has browned, add the sliced pepper to the pan and cook for 2-3 min or until the pepper has started to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581515714796-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Meanwhile, add your rice vinegar, soy sauce, toasted sesame oil and red chilli
 
 Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and give everything a good mix up – this is your sticky chilli sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581515720795-x200.jpg)
 
 ### Step 6
 
 Once the pepper has started to soften, add the chopped ginger and garlic and cook for 1-2 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581515725393-x200.jpg)
 
 ### Step 7
 

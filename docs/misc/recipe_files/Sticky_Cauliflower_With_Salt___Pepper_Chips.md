@@ -27,6 +27,7 @@ Wake up your tastebuds with this sticky chilli sensation. You'll smother crispy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618242080799-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into chips, then add them to a baking tray (or two!
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618242084728-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of
 
 Tip: Cooking for 4? Use 2 pans!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1618242100252-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once very hot, add the coated cauliflower to the pan[s] and cook for 10-12 min o
 
 Transfer the crispy cauliflower to a plate, set aside and reserve the pan for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1618242096191-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Finely slice your red chilli[es] into rounds
 
 Trim, then finely slice your spring onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1618242105326-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add the chopped pepper, chopped ginger and half of the chopped garlic (save th
 
 Meanwhile, add your soy sauce to a bowl with your honey, red chilli relish and Chinese rice wine – this is your sticky chilli sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1618242110710-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the sticky chilli sauce to the pan and cook for 3 min or until the sauce be
 
 Once thickened, add the crispy cauliflower to the pan and cook for 1 min further until the cauliflower is coated in the sauce – this is your sticky cauliflower
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618242115374-x200.jpg)
 
 ### Step 7
 

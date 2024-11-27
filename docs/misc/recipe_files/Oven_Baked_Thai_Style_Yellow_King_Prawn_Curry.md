@@ -32,6 +32,7 @@ Prepping this spicy curry couldn't be easier. You'll throw everything but the pr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1642161605825-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642003058583-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid, with a drizzle of vegetable oil over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642003072546-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Peel and chop your sweet potato[es] into bite-sized pieces
 
 Add the chopped pepper, shallot wedges and chopped sweet potato to the dish with your ginger & garlic paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642003109114-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add your curry powder to the dish with your cornflour, ground coriander, ground 
 
 Add the chopped creamed coconut and your chilli flakes (can't handle the heat? Go easy!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1642003312341-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once boiling, cover with a lid, then put the dish in the oven for 20 min or unti
 
 Rinse your sushi rice in a sieve under cold running water for 30 secs (use your hands to really wash the grains!), then set aside to drain fully
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642003326603-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Cover tightly with tin foil and put the dish in the oven for 25 min or until all
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642003337863-x200.jpg)
 
 ### Step 7
 

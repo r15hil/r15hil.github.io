@@ -22,6 +22,7 @@ Pronounced ‘cah-choh e pe-pe’, we’ve given this speedy ‘cheese and peppe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730909131253-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1730907979510-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Boil a kettle and heat a large, wide-based pan (preferably non-stick) with a dri
 
 Once golden, add a couple of splashes of water to the pan and cook, covered, for 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729500743046-x200.jpg)
 
 ### Step 3
 
@@ -53,21 +56,25 @@ Add your fresh tagliatelle to a pot of boiled water with a large pinch of salt a
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729500746583-x200.jpg)
 
 ### Step 4
 
 Once the mushrooms are beginning to soften, add your cracked black pepper and a pinch of salt to the pan and cook for 1-2 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729500749992-x200.jpg)
 
 ### Step 5
 
 Add your vegetable stock mix and clotted cream to the mushrooms and cook for 1 min or until the cream has melted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729500753259-x200.jpg)
 
 ### Step 6
 
 Once melted, add 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> of the reserved starchy pasta water to the sauce and give everything a good mix up
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729500756290-x200.jpg)
 
 ### Step 7
 

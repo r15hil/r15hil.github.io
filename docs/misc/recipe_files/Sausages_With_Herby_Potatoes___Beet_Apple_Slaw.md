@@ -23,6 +23,7 @@ Our succulent Cumberland sausages are pretty special, requiring only the simples
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/394.step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add them to a mixing bowl with a drizzle of <span class="text-highlight">olive
 
 Give everything a good mix
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/394.step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Put the tray in the oven for 30-40 min or until both are golden and crisp (alter
 
 Tip: use two trays if you are cooking for 4, so there is space in between the potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/394.step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Stir the sliced spring onion into the horseradish mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/394.step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Peel and top and tail the carrot<span class="text-danger">[s]</span>
 
 Quarter the apple<span class="text-danger">[s]</span> (skins on) and discard the core<span class="text-danger">[s]</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/394.step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Set a sieve (or colander with small holes) over a bowl
 
 Grate the beetroot, carrot, and apple into the sieve
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/394.step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Squeeze the <span class="text-highlight">juice</span> out of the grated mixture 
 
 Discard the juice (or drink it for an immune boost!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/394.step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Turn tacos into an irresistible spicy salad. You'll toss baked tortillas, crunch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1588588382980-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then slice your tortillas in ha
 
 Add the tortilla strips to a baking tray (or two!), drizzle them with 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> vegetable oil and put the tray[s]<span class="text-danger"> </span>in the oven for 7-8 min or until golden and crispy – these are your crispy tortilla strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1588588390129-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Pat the rump steak[s] dry with kitchen paper, drizzle with vegetable oil and sea
 
 For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on each side; for medium, cook for 3-4 min on each side
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1588588395042-x200.jpg)
 
 ### Step 3
 
@@ -59,16 +62,19 @@ Drain your sweetcorn
 
 Once the steak is cooked, transfer to a clean board to rest
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1588588399099-x200.jpg)
 
 ### Step 4
 
 Combine your chipotle paste (can't handle the heat? Go easy!), honey, dried oregano and red wine vinegar with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil and a pinch of salt and pepper in a bowl – this is your honey chipotle dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1588588402861-x200.jpg)
 
 ### Step 5
 
 Chop your coriander roughly, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1588588506713-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add the shredded lettuce, sliced spring onion, chopped cherry tomatoes, drained 
 
 Add half the chopped coriander and half the honey chipotle dressing (save the rest for garnish!) and give everything a gentle mix up – this is your taco salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1588588510840-x200.jpg)
 
 ### Step 7
 

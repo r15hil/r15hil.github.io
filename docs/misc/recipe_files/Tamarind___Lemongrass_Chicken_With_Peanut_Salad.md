@@ -29,6 +29,7 @@ This weeknight wonder is all about the fragrant flavours of Southeast Asia. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1689607609600-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683884133885-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the bashed lemongrass and diced chicken breast to the pan with a pinch of salt and cook for 7-8 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1720710227590-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Wash your lettuce, then pat it dry with kitchen paper and cut into quarters leng
 
 Roughly chop your roasted peanuts
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683884141267-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add your cornflour, chilli flakes (can't handle the heat? Go easy!) and tamari s
 
 Give everything a good mix up – this is your tamarind sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683884146112-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, chop your lime[s] into wedges
 
 Once cooked through, add generous squeeze of lime juice and mix it all together – this is your tamarind & lemongrass chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683884160111-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683884163923-x200.jpg)
 
 ### Step 7
 

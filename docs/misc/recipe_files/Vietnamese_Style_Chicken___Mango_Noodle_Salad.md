@@ -27,6 +27,7 @@ For this vibrant Vietnamese-inspired salad you'll cook chicken thighs over a hig
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2198.-step-1.2-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chicken thighs with a pinch of salt and cook for 10-12 min, turning occasionally until golden, crispy and cooked through (no pink meat!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2198.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop ﬁnely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2198.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Set aside to soak for 4 min, or until softened
 
 Once softened, drain the noodles, run them under cold water for 10 sec until slightly cooled, then set aside to drain further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2198.-step-4-x200.jpg)
 
 ### Step 4
 
 Whilst the noodles are softening, combine the chopped garlic, chopped ginger, sriracha (can't handle the heat? Go easy!), rice vinegar and soy sauce with 3 tbsp<span class="text-danger"> <span class="text-purple">[4 1/2 tbsp] </span>[6 tbsp]</span> vegetable oil – this is your dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2198.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Strip your mint leaves from their stalks and chop them roughly, discarding the s
 
 Chop your coriander finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2198.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Chop the mango flesh into small bite-sized pieces, discarding the stone[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2198.-step-7new-x200.jpg)
 
 ### Step 7
 

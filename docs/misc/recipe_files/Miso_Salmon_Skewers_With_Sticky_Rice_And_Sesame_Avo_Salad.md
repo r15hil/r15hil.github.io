@@ -28,6 +28,7 @@ These are salmon skewers with a kick! You'll coat salmon in a punchy ginger, mis
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1620225545665-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the drained rice and 200ml <span class="text-purple">[300ml]</span> <span cl
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620225556293-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ After 15 min, remove the rice from the heat and keep covered for a further 10 mi
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620225585651-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add your ginger & garlic paste to a small bowl with your miso, gluten free soy s
 
 Give everything a good mix up – this is your miso marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728462553274-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop your salmon fillet[s] into 6 bite-sized pieces per person
 
 Add the salmon pieces to a bowl with half of the miso marinade (save the rest for later!) and gently mix until all of the salmon is coated and set aside to marinate
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728462440664-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Scoop the avocado out of the skin and chop into small, bite-sized pieces
 
 Add the chopped avocado and diced cucumber to a bowl with the juice of the<span class="text-danger"> </span>remaining lime[s] and your sesame seeds – this is your sesame avo salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728462447128-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Thread each skewer with 3 marinated salmon pieces and 3 spring onion batons – 
 
 Heat a large, wide-based pan (preferably non-stick), with a drizzle of vegetable oil over a medium-high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728462452428-x200.jpg)
 
 ### Step 7
 

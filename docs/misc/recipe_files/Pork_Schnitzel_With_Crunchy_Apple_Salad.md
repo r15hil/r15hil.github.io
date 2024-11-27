@@ -23,6 +23,7 @@ The concept of a schnitzel dates back to the seventh century, when a Byzantine e
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/237.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil a kettle
 
 Cut all the potatoes to roughly equal size (approx. 4cm chunks)<br /><br />Add the potatoes and salt (optional) to a pot of boiling water and boil for 15 min or until you can pierce them easily with a fork
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/237.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Meanwhile, crack the egg<span class="text-danger">(s)</span> onto a shallow bowl
 
 <span class="text-highlight">Add the breadcrumbs to a third bowl</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/237.-step--3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Dip it in the egg and coat well, then roll it in the breadcrumbs and coat evenly
 
 Repeat with the remaining steaks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/237.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Dice the apple finely (approx. 1cm thick), discarding the core
 
 Chop the celery finely (approx. 1cm thick)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/237.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Mix well and set aside
 
 Cut the remaining lemon into quarters
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/237.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -98,6 +104,7 @@ Transfer to a kitchen paper lined plate
 
 Add the lemon wedges to the pan, cook for 1 min on both sides or until caramelised on the surface
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/237.-step--7-x200.jpg)
 
 ### Step 7
 

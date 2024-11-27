@@ -25,6 +25,7 @@ What's the o-cajun? You won't need one for this delicious Cajun mushroom burger,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1626951296662-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chips to a large baking tray with a drizzle of vegetable oil and a gene
 
 Put the tray in the oven for 20-25 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Grated-carrot-sliced-spring-onion-1631788711382-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Meanwhile, top, tail and grate the carrot<span class="text-danger">[s]</span> (
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626951304728-x200.jpg)
 
 ### Step 3
 
 Slice the flat white mushrooms into strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1626951308731-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the mushroom strips and cook for 6-8 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626951334572-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add the shredded red cabbage, grated carrot and half the sliced spring onion (
 
 Combine the mayo and chilli relish in a small bowl – this is your chilli mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626951315860-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add another drizzle of vegetable oil and stir until the mushrooms are coated in 
 
 Cook for 1-2 min further or until fragrant – these are your Cajun-style mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1626951339302-x200.jpg)
 
 ### Step 7
 

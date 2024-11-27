@@ -25,6 +25,7 @@ Whip up a speedy curry in a flash with haddock bites and a rich, aromatic coconu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1613746505976-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1595.-step-2.2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Boil a kettle
 
 Trim, then chop your green beans roughly (chop them in one bunch for speed!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1659433490438-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Chop your creamed coconut roughly (if required!)
 
 Combine the chopped creamed coconut with 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[500ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1659433504002-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add your curry powder, ground turmeric and ginger paste and cook for 30 secs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1659433518968-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add the coconut stock to the pan with the chopped green beans, a pinch of salt a
 
 Give everything a good mix up and cook for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1659433540733-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Once done, gently stir everything together (add a splash more water if your curry is looking a little thick!) – this is your coconut haddock curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1659433553626-x200.jpg)
 
 ### Step 7
 

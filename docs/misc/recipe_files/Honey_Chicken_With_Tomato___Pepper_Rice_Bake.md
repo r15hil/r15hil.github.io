@@ -30,6 +30,7 @@ This easy weeknight winner will become a firm family fave. You’ll bake rice in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-4-1688643830671-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add your basmati rice to an oven-proof dish with 300ml <span class="text-purple"
 
 Cover tightly with tin foil and put the dish in the oven for an initial 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-4-1688643835285-x200.jpg)
 
 ### Step 2
 
@@ -52,11 +54,13 @@ Dice your tomato[es]
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-5-1688643842298-x200.jpg)
 
 ### Step 3
 
 Chop your parsley roughly, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-3-1688643846449-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add the diced onion with the diced pepper, diced tomato, half the chop
 
 Add a generous pinch of salt, give everything a good mix up and cook for 4-5 min or until slightly softened – this is your tomato & pepper mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-3-1688643850880-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ After the initial 10 min, remove the dish from the oven and stir through the tom
 
 Re-cover the dish with the tin foil and return it to the oven for a final 15-20 min – this is your tomato & pepper rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-3-1688643856204-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Wipe the reserved pan clean and return it to a medium-high heat with a drizzle o
 
 Once browned, drizzle over your honey and cook for a final 2-3 min or until glazed and cooked through (no pink meat!) – this is your honey chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-3-1688643865787-x200.jpg)
 
 ### Step 7
 

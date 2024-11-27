@@ -30,6 +30,7 @@ A classic pathia is sweet, tangy, with a slight kick from the fragrant spices. S
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629717661985-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the chopped onion with a generous pinch of salt and cook for 6-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629717665876-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add your cumin seeds and cook for 1-2 min or until sizzling
 
 Once the cumin seeds start to sizzle, carefully add your basmati rice and stir it all together
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629717669711-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your turmeric rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629717673082-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ While the rice is cooking, boil half a kettle
 
 Chop your paneer into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629717676098-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once fragrant, add your ground cumin, curry powder and cayenne pepper (can't ha
 
 Tip: Add a drizzle of vegetable oil if the pan looks a little dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629717680611-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your tamarind paste with 150ml <span class="text-purple">[200ml]</span><span
 
 Give everything a good mix up, then cook for 3-4 min or until the sauce has thickened – this is your paneer pathia
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1688468930570-x200.jpg)
 
 ### Step 7
 

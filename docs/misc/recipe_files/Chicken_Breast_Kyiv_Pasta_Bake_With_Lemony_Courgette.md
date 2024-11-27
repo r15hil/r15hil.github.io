@@ -26,6 +26,7 @@ We've turned everyone's favourite chicken kyiv into a creamy pasta bake, topped 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1610452908410-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1610453184929-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Combine the chopped garlic with half of the chopped herbs, a squeeze of lemon ju
 
 Tip: Put the butter in the microwave for 10 secs if it's too cold to mix!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1610453193514-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Top, tail and chop your courgette[s] in half lengthways, then into batons
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml]</span><span class="text-danger"> [350ml]</span> boiled water and stir in your soft cheese – this is your creamy stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1610453198209-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once golden, remove the chicken and set aside, reserve the pan
 
 Tip: It’s okay if the chicken's a little pink on the inside, it’ll get cooked more later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1610453225725-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Once melted, add 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="
 
 Gradually stir in the creamy stock, a little at a time (to prevent lumps forming)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1610453233021-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Transfer the farfalle mixture to an oven-proof dish
 
 Combine your panko breadcrumbs and grated Italian hard cheese in a bowl with the remaining chopped herbs, a pinch of salt and pepper and a drizzle of vegetable oil – these are your cheesy breadcrumbs
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1610453300506-x200.jpg)
 
 ### Step 7
 

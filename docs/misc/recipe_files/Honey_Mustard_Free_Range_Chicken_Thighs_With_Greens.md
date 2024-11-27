@@ -22,6 +22,7 @@ The best part about preparing free range chicken en papillote (meaning in a clos
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721231407672-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Trim, then chop your green beans in half
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721231411441-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Chop each free range chicken thigh in half
 
 Add the free range chicken thigh pieces to the honey mustard mixture and give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721231415520-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once hot, add the coated chicken thigh pieces to the pan, shaking any excess hon
 
 Cook for 3 min on each side or until lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721231420000-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Scrunch the edges of the foil around the chicken to form a sealed parcel and pla
 
 Tip: Cooking for 4? You may need to do 2 parcels!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721231423932-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Place the tray in the oven for 15-20 min or until the chicken is cooked through 
 
 While the chicken is in the oven, trim, then finely slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721231427713-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once boiling, cook for an initial 10 min, then add the green beans to the pot an
 
 Once done, drain everything and add your cider vinegar, a drizzle of olive oil and the sliced spring onion
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721231431334-x200.jpg)
 
 ### Step 7
 

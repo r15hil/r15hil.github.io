@@ -24,6 +24,7 @@ Caponata, pronounced 'ka-pon-arter' is a sweet and sour aubergine stew originati
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/988.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the quinoa to a pot with plenty of boiled water and a pinch of salt (the sam
 
 Once done, drain (in a sieve so you don't lose it!) and leave to steam dry&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/988.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Deseed the yellow pepper<span class="text-danger">[s]</span>&nbsp;(scrape the se
 
 Peel the red onion<span class="text-danger">[s]</span> and cut into wedges&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/988.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Season with a generous pinch of salt and pepper
 
 Put the tray in the oven for 10-15 min or until everything is beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/988.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Once hot, add the chopped garlic and cook for 1 min or until fragrant
 
 Add the chopped tomatoes, red wine vinegar, capers, sultanas and 1 tsp <span class="text-danger">[2 tsp]</span> sugar and cook for 2-3 min until starting to bubble&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/988.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Cut the mozzarella in half lengthways&nbsp;
 
 Chop the basil roughly,&nbsp;including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/988.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Season with a generous pinch of salt and pepper&nbsp;
 
 Add 150ml <span class="text-danger">[200ml]</span> boiled water and cook, covered, for 5-8 min or until the vegetables are cooked and the sauce has thickened to a stew-like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/988.-step-7-x200.jpg)
 
 ### Step 7
 

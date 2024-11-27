@@ -26,6 +26,7 @@ Packed full of veg, this creamy-cheesy-peppery pasta is a surefire dinner winner
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1636980583242-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Boil a kettle
 
 Add your farfalle to a pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for an initial 8 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1636980586499-x200.jpg)
 
 ### Step 2
 
 Meanwhile, slice your mangetout into thirds
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1636980588779-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Once the pasta has been cooking for 8 min, add the sliced mangetout along with y
 
 Once cooked, drain and reserve a cup of starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1636980591642-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Crumble your Greek cheese into rough bite-sized pieces
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1636980594383-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once hot, add the sliced spring onion with a pinch of salt and cook for 1-2 min 
 
 Add the vegetable stock, soft cheese and a generous grind of black pepper and cook for 2-3 min or until starting to thicken – this is your creamy sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-61.5x-1636984789168-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the salad and tomato wedges to a bowl with a drizzle of olive oil, a pinch of salt and a grind of black pepper and mix everything together – this is your leafy tomato salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1636980617634-x200.jpg)
 
 ### Step 7
 

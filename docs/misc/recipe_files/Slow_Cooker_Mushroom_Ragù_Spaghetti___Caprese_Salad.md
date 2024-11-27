@@ -29,6 +29,7 @@ Warm up your week with this meat-free mushroom ragu. You’ll sauté grated mush
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1667303059769-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your slow cooker and all your ingredients ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667302633371-x200.jpg)
 
 ### Step 2
 
 Turn on your slow cooker to high
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667302637202-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add your tomato paste and give everything a good mix up
 
 Cook for 2-3 min or until the mushrooms are softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667302640049-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Add the contents of your pan to the slow cooker with your chopped tomatoes, vege
 
 Cover and cook on high for 3 hours – this is your mushroom ragù
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667302651487-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667302660212-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Break your spaghetti in half and add it to the slow cooker with 250ml <span clas
 
 Cover and cook for 1 hour further – this is your mushroom ragù spaghetti
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667303029156-x200.jpg)
 
 ### Step 7
 

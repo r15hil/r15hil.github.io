@@ -27,6 +27,7 @@ An Indian roadside legend, chaat is served in many forms. You'll top a base of s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629279128407-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chopped aubergine to one side of a baking paper-lined baking tray (or tw
 
 Put the tray<span class="text-danger">[s]</span> in the oven for an initial 10 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629279138544-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Slice the green chilli<span class="text-danger">[es]</span> finely into rounds
 
 Drain and rinse the chickpeas and set them aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629279142440-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Massage the mixture for 30 secs, squeezing the onion and carrot together to form
 
 Tip: Squeezing the mix will release the natural moisture in the carrot and onion!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629279146660-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Drizzle the pakoras with a little vegetable oil
 
 Return the tray<span class="text-danger">[s] </span> to the oven for 20-25 min further or until the pakora are golden and crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629279151768-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Once hot, add the drained chickpeas and remaining curry powder and cook for 2-3 
 
 Once fragrant, add the tomato stock and cook for 5-6 min further or until thickened – this is your chickpea curry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629279155107-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Tear in the coriander roughly, including the stalks
 
 Add the juice of 1/2 <span class="text-danger">[1]</span> lemon, 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil, season with a pinch of salt and blitz until smooth – this is your green chutney
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629279158566-x200.jpg)
 
 ### Step 7
 

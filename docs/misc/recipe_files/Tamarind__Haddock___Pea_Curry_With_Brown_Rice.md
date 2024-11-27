@@ -28,6 +28,7 @@ The tangy, sweet taste of tamarind is what gives this creamy curry a unique, del
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632828552488-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632828558281-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and grate your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632828568046-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the diced shallot with a pinch of salt and cook for 3-4 min or unt
 
 Once soft, add the chopped ginger, grated garlic and your curry powder to the pan and cook for 1-2 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632828576299-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut, your tamarind paste, vegetable stock mix and rice vinegar in 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml]</span> boiled water – this is your tamarind stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632828869220-x200.jpg)
 
 ### Step 5
 
 Add the chopped tomato to the pan and cook for 3-4 min or until soft
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632828873397-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once reduced, add your haddock bites and cook, covered, for 3-4 min
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632828877171-x200.jpg)
 
 ### Step 7
 

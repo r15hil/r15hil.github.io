@@ -26,6 +26,7 @@ Combining succulent, spiced pork; popped kidney beans; bulgur; crunchy salad and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1426.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the&nbsp;kidney beans&nbsp;to a baking tray with a small drizzle of&nbsp;oli
 
 Give everything a good mix up and put them in the oven for 20-25 min or until the skins have burst and are crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1426.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Meanwhile, peel and grate the garlic
 
 Combine the ground&nbsp;turmeric, natural yoghurt and grated garlic in a small bowl with a pinch of salt&nbsp;&ndash; this is your turmeric yoghurt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1426.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the bulgur wheat to a pot with plenty of boiled water and a pinch of salt (t
 
 Re-boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1426.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Grate the&nbsp;cucumber&nbsp;<br /><br />Slice the&nbsp;cherry&nbsp;tomatoes in 
 
 Chop the coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1426.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add the&nbsp;chopped tomatoes, coriander and&nbsp;cucumber&nbsp;to a bowl
 
 Add the juice of 1/2&nbsp;<span class="text-danger">[1]</span>&nbsp;lime&nbsp;and season with a pinch of&nbsp;salt&nbsp;&ndash; this is your&nbsp;cucumber salsa&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1426.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Add the diced pork with the ground cumin,&nbsp;smoked paprika&nbsp;and a pinch of salt and cook for 3-4 min or until browned all over
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1426__step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Dish up fresh Italian in minutes with tangy tomatoes, garlic and creamy soft che
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1711124823245-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Now, let's get started!
 
 Heat a large dry pan over a medium heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695896781353-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Once hot, add your pine nuts and cook for 2-3 min or until toasted and lightly g
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695896784341-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Chop your cherry tomatoes in half
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695896787165-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695896790174-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once hot, add the chopped tomatoes and cook for 2-3 min or until starting to bli
 
 Tip: Squash the tomatoes with the back of a spoon to release their juices!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695896793639-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the tomatoes have blistered, add your chilli flakes (can't handle the heat?
 
 Season with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and cook for 1-2 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695896796638-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ A plant-based version of a Tex-Mex classic, these are a guaranteed crowd-pleaser
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682596174359-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped tomatoes and butternut squash cubes to a heatproof bowl, cover t
 
 Put the bowl in the microwave and cook for 5-6 min<span class="text-danger"> [7-9 min] </span>or until the squash cubes are fork-tender and the tomatoes have softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682596181011-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682596187181-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once melted, add the sliced onion and chopped garlic and cook for 4-5 min or unt
 
 Once softened, add 15g <span class="text-danger">[30g]</span> flour and the cayenne pepper (can't handle the heat? Go easy!) and stir with a wooden spoon for 3-4 min or until a paste forms – this is your roux
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682596191968-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Dissolve the tomato paste, vegetable stock mix and chipotle paste (not a fan of 
 
 Gradually whisk the chipotle stock into the onions, a little at a time, and cook for 2-3 min (stirring occasionally) or until a smooth, thick sauce remains – this is your chipotle sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682596198519-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Trim, then finely slice the spring onion<span class="text-danger">[s]</span>
 
 Drain and rinse the black beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682596202803-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the drained black beans, cooked butternut squash & tomatoes, ground cumin an
 
 Grease an oven-proof dish with a little vegetable oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682596207017-x200.jpg)
 
 ### Step 7
 

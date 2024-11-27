@@ -26,6 +26,7 @@ This stroganoff-inspired supper is easy comfort food. You'll add smoky paprika a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1707743663949-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the diced onion and cook for 4-6 min or until soft and starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1707743666477-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked linguine, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1707743669867-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your chilli flakes (can’t handle the heat? Go easy!), ground smoked paprik
 
 Cut your chicken breast portion[s] into large, bite-sized pieces and add to the bowl, then mix well and set aside – this is your smoky chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1707743673955-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the onion has softened, increase the heat to medium-high
 
 Add the sliced mushrooms and chopped garlic and cook for 1-2 min or until the mushrooms start to soften and brown slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1707743700517-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add half the chopped parsley (save the rest for garnish!)
 
 Cook for a further 4-5 min or until the chicken is beginning to brown
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1707743703326-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Meanwhile, dissolve your chicken stock mix in 100ml <span class="text-purple">[1
 
 Add the chicken stock to the pan and cook for a further 6-8 min or until the liquid has reduced by half and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1707743705946-x200.jpg)
 
 ### Step 7
 

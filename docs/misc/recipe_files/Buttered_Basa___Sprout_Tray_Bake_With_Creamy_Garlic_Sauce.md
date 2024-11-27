@@ -24,6 +24,7 @@ This one’s for the trimmings. You’ll bake buttery basa before piling on the 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1730733556915-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Before you begin...
 
 This recipe takes around 5-10 min to prep, so get your baking tray[s] and all your ingredients ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697646762447-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Trim the ends from your Brussels sprouts, then cut in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697646765854-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Top, tail and chop your parsnip[s] in half lengthways, then into batons
 
 Chop your Tenderstem broccoli in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697646768913-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Add the chopped potatoes, chopped parsnips and halved Brussels sprouts to a baki
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15-18 min or until the potatoes are tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697646773713-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Stir it all together and set aside – this is your sauce
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697646778182-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Top each basa fillet with a small knob of butter and a pinch of salt and pepper,
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697646781883-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ To make this tandoori dish plant-based we've swapped the traditional yoghurt for
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1789.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop (or grate) the ginger 
 
 Chop the cauliflower into 6 <span class="text-danger">[12]</span> wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1789.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add a generous drizzle of vegetable oil and a pinch of salt – this is your tan
 
 Using clean hands, add the cauliflower wedges to the tandoori marinade and give it a good mix up until fully covered in marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1789.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Put the tray in the oven for 25-30 min or until cooked through and browned
 
 Meanwhile, drain and rinse the canned lentils
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1789.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, add the drained lentils, remove from the heat and keep covered until serving – this is your sultana and lentil rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1789.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, peel and roughly chop (or grate) the garlic
 
 Chop the coriander finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1789.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Grind the chopped garlic in a pestle &amp; mortar with a pinch of salt unt
 
 Add the chopped coriander, rice vinegar, chilli flakes (Can't handle the heat? Go easy!) a pinch of sugar and 3 tbsp <span class="text-danger">[6 tbsp]</span> olive oil and 2 tbsp <span class="text-danger">[4 tbsp]</span> water to the paste and mix to combine – this is your coriander chutney
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1789.-step-7-x200.jpg)
 
 ### Step 7
 

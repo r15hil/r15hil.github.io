@@ -22,6 +22,7 @@ This tomato risotto is a dreamy dinner delight. You'll stir arborio rice in stoc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599748414335-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Boil a kettle
 
 Dissolve the vegetable stock mix in 400ml <span class="text-danger">[800ml]</span> boiled water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599748419800-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Peel and finely chop (or grate) the garlic
 
 Tear the meat-free chicken into smaller strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599748433200-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and a pinch of salt and cook for 3 min until starting to soften, but not colour
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599748442969-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Add the chopped tomatoes and stir continuously until the rice has absorbed most 
 
 Add the vegetable stock a ladle at a time, stirring continuously for 15-20 min or until all the stock has absorbed and the rice is cooked – this is your tomato risotto
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599748451551-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Meanwhile, grate the cheddar cheese
 
 Chop the parsley finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599748459088-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Add 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and mix well – 
 
 Tip: If you don't have a pestle and mortar, chop the parsley very finely and mix with olive oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599748478466-x200.jpg)
 
 ### Step 7
 

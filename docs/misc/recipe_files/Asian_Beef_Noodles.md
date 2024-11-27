@@ -23,6 +23,7 @@ These warm, sweet, gingery beef noodles are served with a slightly unusual side:
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/414.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Tip: Wear an apron as the juices will splatter!
 
 Cut the broken cucumber into rough bite-size pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/414.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely chop (or grate) the garlic
 
 Toss the cucumber with 1/2 tsp <span class="text-danger">(1 tsp)</span> salt and the chopped garlic in a sieve and set aside over a bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/414.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Slice the chilli<span class="text-danger">(es)</span> in half lengthways, scrape
 
 Combine the ginger, chilli, rice wine vinegar and soy sauce with 1 1/2 tbsp <span class="text-danger">(3 tbsp)</span> sugar and 1 tbsp <span class="text-danger">(2 tbsp)</span> vegetable oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/414.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Meanwhile, chop the spring onion<span class="text-danger">(s)</span>, discarding
 
 Once cooked, drain and return them to the pan off the heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/414.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Heat a wide-based, dry pan (preferably non-stick) on a high heat and once hot, c
 
 Transfer the cooked steaks to a clean board, cover with a tea towel and rest for 5 min, reserving the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/414.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add the ginger chilli sauce and cook for 1 min or until starting to bubble and c
 
 Once bubbling, tip the noodles in and mix well to coat them in the sauce, then remove from the heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/414.-step-7-x200.jpg)
 
 ### Step 7
 

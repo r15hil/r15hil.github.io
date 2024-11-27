@@ -25,6 +25,7 @@ This pasta bake is perfect for those days you want a little TLC. You’ll add pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669741990308-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop r
 
 Peel and finely dice your shallot[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669741996432-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced shallot, chopped pepper and diced chicken breast and cook for an initial 5-6 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669742008120-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
 Once done, drain the conchiglie, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669742020301-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Dissolve your chicken stock mix with your tomato paste in 200ml <span class="tex
 
 After an initial 5-6 min, add the chopped garlic and ground smoked paprika to the pan with your cayenne pepper (can't handle the heat? Go easy!) and 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> flour and cook for 1-2 min further or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669742027391-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Once fragrant, add the tomato stock and soured cream and give everything a good 
 
 Season with a pinch of salt and pepper and cook for 2-3 min or until the sauce has slightly thickened and the chicken is cooked through (no pink meat!) – this is your smoky sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669742033501-x200.jpg)
 
 ### Step 6
 
 Grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669742039546-x200.jpg)
 
 ### Step 7
 

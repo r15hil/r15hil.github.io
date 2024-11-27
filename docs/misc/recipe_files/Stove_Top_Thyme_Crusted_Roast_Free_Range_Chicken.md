@@ -23,6 +23,7 @@ Hit up the hob for this no-bake take on a classic. You’ll sizzle thyme-crusted
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1710949428515-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Top, tail, peel and slice your carrot[s] into chunks on the diagonal
 
 Crush your garlic by squashing it with the side of a knife (keep the skin on!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1710949433771-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once boiling, reduce the heat to medium and cook for 10-12 min, then drain over 
 
 While the potatoes are cooking, strip the thyme leaves from their stems and chop them roughly, discard the stems
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1710949442629-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Cover with cling film and bash with a rolling pin until you have an even thickne
 
 Season the butterflied chicken with half the thyme (save the rest for later!) and a pinch of salt and pepper – this is your seasoned chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1710949448558-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the crushed garlic and remaining thyme and cook for 30 secs or unt
 
 Once fragrant, add the drained potatoes & carrots with a generous pinch of salt and cook for 10-12 min or until golden and crispy, turning occasionally for even colouring
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1710949454333-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once hot, add the seasoned chicken and cook for 3 min on each side until golden
 
 Tip: Cooking for 3 or more? You may need to do this in batches!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1710949460083-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the chicken is golden, reduce heat to medium, add 1 tbsp <span class="text-
 
 Stir in the onion gravy stock and cook for a further 10-12 min or until the chicken is cooked through (no pink meat!) and the gravy has thickened – this is your thyme-crusted roast free range chicken and onion gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1710949466269-x200.jpg)
 
 ### Step 7
 

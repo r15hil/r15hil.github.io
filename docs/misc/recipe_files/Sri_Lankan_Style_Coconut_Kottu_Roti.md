@@ -27,6 +27,7 @@ In the markets of Sri Lanka, kottu roti is a dish you hear being made before you
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629793956570-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and slice the shallot<span class="text-danger">[s]</span> finely
 
 Top, tail, peel and dice the carrot<span class="text-danger">[s]</span> finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629794098681-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Put the tray in the oven for 3-4 min or until warmed through
 
 Once done, remove from the oven and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629794106619-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the diced carrot and cook for 4-5 min or until it's beginning to s
 
 Once beginning to soften, add the sliced shallot, sliced garlic and chopped ginger to the pan and cook for a further 2-3 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629794113249-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Drain and rinse the chickpeas
 
 Add the sliced spring greens, drained chickpeas and soy sauce to the pan with a small splash of water and cook, covered for 5-6 min or until the greens have wilted
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629794118031-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add the chopped red chilli (can't handle the heat? Go easy!), coconut flakes and
 
 Tip: Alternatively finely chop everything with a sharp knife!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629794160066-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Chop the warmed roti into strips then cut in half
 
 Add the chopped roti to the pan, give everything a good mix up and cook for 1-2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629794167924-x200.jpg)
 
 ### Step 7
 

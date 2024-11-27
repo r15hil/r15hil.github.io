@@ -24,6 +24,7 @@ This sticky, spicy stir-fry is the ideal end to a busy day. To whip one up in a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/456__-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until tender w
 
 Once cooked, drain into a sieve and set aside, reserving the pot for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/456__-step-2-x200.jpg)
 
 ### Step 2
 
 While the rice is cooking, add the diced chicken thigh, five-spice and a generous pinch of salt and pepper to a bowl and give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/456__-step-3-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a
 
 Once hot, add the seasoned chicken and cook for 2-3 min or until starting to brown slightly, then reduce the heat to low and cook, covered, for 10 min or until the chicken is nearly cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/456__-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,11 +58,13 @@ Peel and finely chop (or grate) the garlic
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/456__-step-5-x200.jpg)
 
 ### Step 5
 
 Combine the chopped ginger, chopped garlic, chopped chilli (can't handle the heat? Go easy!), tomato ketchup, soy sauce and honey in a bowl – this is your soy and honey sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/456__-step-6-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Remove the lid from the pan and add the soy and honey sauce
 
 Increase the heat to medium and cook for a further 2-4 min or until the chicken is cooked through (no pink meat!) and a sticky sauce has formed, then remove from the heat – this is your sticky chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/456__-step-7-x200.jpg)
 
 ### Step 7
 

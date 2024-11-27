@@ -25,6 +25,7 @@ This sizzling supper is inspired by the flavours of Indonesia. You’ll cook chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730797993389-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1705675486989-x200.jpg)
 
 ### Step 2
 
@@ -49,16 +51,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and cook for 10-12 min or until cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1705675496237-x200.jpg)
 
 ### Step 3
 
 Meanwhile, slice your cucumber finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2510Step-4-x200.jpg)
 
 ### Step 4
 
 Add the sliced cucumber to a bowl with your rice vinegar, a pinch of sugar and your chilli flakes (can't handle the heat? Go easy!) and give everything a good mix up – this is your quick-pickled chilli cucumber
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1705675503911-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Dissolve the chopped creamed coconut in 100ml <span class="text-purple">[150ml]<
 
 Once dissolved, add your peanut butter, soy sauce and red chilli relish and give everything a good mix up – this is your peanut sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1705675508762-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2510Step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Whip up a whole new twist on ragù. You'll add ruby-red harissa to your sauce fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600694501160-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a generous pin
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600694510869-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the diced red onion with a pinch of salt and cook for 3-4 min or u
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600694521831-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the onion has softened, add the chopped garlic and cook for 1-2 min further
 
 Add the beef mince and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600694529024-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Whilst the mince is browning, top, tail and chop the courgette<span class="text-
 
 Once the mince has browned, add the sliced courgette to the pan and cook for 3-4 min further or until the courgette has started to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600694537064-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Dissolve the beef stock mix and the harissa paste (can't handle the heat? Go eas
 
 Once the courgette has softened, add the harissa stock and chopped tomatoes and cook for 10-12 min or until the sauce has thickened to a bolognese-like consistency – this is your harissa beef mince ragù
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600694550410-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Whilst the beef ragù is cooking, strip the mint leaves from their stems and cho
 
 Chop the parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600694559387-x200.jpg)
 
 ### Step 7
 

@@ -18,6 +18,7 @@ Give your go-to breakfast sarnie some Italian flavour. You’ll load toasted cia
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073456908-x200.jpg)
 
 ### Step 1
 
@@ -27,6 +28,7 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in or wrap up ready for your day!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727102885873-x200.jpg)
 
 ### Step 2
 
@@ -34,26 +36,31 @@ Now, let's get started!
 
 Slice your ciabatta[s] in half and place in the toaster for 2-3 min or until golden and toasted
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727102889369-x200.jpg)
 
 ### Step 3
 
 Drain your mozzarella and slice it finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727102894700-x200.jpg)
 
 ### Step 4
 
 Spread your smashed avocado over the warmed ciabatta base[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1727102903570-x200.jpg)
 
 ### Step 5
 
 Top with the sliced mozzarella
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727102907403-x200.jpg)
 
 ### Step 6
 
 Top with your sliced prosciutto
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727102911285-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ This low-fat twist packs a flavour punch. You’ll pack your plate with aromatic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683198517940-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into chips, then add to a baking tray (or two!) wi
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp – these are your chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683198523170-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the sliced onion to a bowl, cover with boiled water and set aside
 
 Peel and finely grate your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683198531609-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add a drizzle of olive oil with a pinch of salt and pepper and give everythin
 
 Put the tray in the oven and cook for 18-20 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683198535416-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Return the drained onion to the bowl and add your white wine vinegar with a pinc
 
 Mix it all together and set aside for later – this is your quick-pickled onion
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683198538570-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Chop your tomato[es] finely
 
 Chop your cucumber into quarters lengthways, then chop roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683198542128-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the shredded lettuce, chopped tomato and chopped cucumber to a separate bowl
 
 Give everything a good mix up – this is your quick-pickled onion salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683198545318-x200.jpg)
 
 ### Step 7
 

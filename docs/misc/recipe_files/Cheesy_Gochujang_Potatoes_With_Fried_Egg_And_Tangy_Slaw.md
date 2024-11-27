@@ -28,6 +28,7 @@ Gochujang is the star of this dish. You'll coat waxy potatoes in this rich Korea
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629798616069-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the halved potatoes to a pot of plenty of boiled water with a pinch of salt 
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot and keep covered until later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1629798876608-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Cut the cucumber in half lengthways, scrape out the inner seeds with a teaspoon 
 
 Grate the deseeded cucumber
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1629798907612-x200.jpg)
 
 ### Step 3
 
 Combine the grated carrot with the grated apple, grated cucumber, the juice of 1/2 <span class="text-danger">[1]</span> lime and the mayo in a bowl – this is your tangy slaw
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1629798926603-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a gen
 
 Once hot, add the sliced spring onion and cook for 1-2 min or until beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1629798948472-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Meanwhile, combine the gochujang paste (can't handle the heat? Go easy!) with th
 
 Once the spring onions are soft, add the drained potatoes and gochujang mixture to the pan and cook for 4-5 min or until starting to brown
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1629798967916-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the potatoes have started to brown, add the spinach to the pan with a splas
 
 Grate the Italian hard cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1629798984233-x200.jpg)
 
 ### Step 7
 

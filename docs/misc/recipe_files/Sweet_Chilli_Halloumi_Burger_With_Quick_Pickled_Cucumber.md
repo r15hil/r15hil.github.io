@@ -21,6 +21,7 @@ Wake up your taste buds with this sweet 'n' spicy sarnie. You'll dollop buttery 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1615915868209-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2221-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Peel lengths off your cucumber until you end up with a pile of cucumber ribbons,
 
 Give everything a good mix up then set aside for later – these are your quick-pickled cucumber ribbons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2221-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Slice in half as if you were cutting a burger bun, so you are left with 1 hallou
 
 Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of vegetable oil over a medium-high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2221-step-4-x200.jpg)
 
 ### Step 4
 
 Once the pan is hot, add the halloumi steak[s] and cook for 2-3 min on each side until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/V2-2221-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Slice your brioche bun[s] in half
 
 Heat a separate large, dry, wide-based pan (preferably non-stick) over a medium heat and add the brioche halves, cut-side down, and cook for 2-3 min or until toasted and charred
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2221-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Wash your lettuce under cold running water and cut away the core, then pat dry w
 
 Tear the lettuce leaves from the stem until you are left with a pile of leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2221-step-7-x200.jpg)
 
 ### Step 7
 

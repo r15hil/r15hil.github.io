@@ -25,6 +25,7 @@ It’s all about the gochujang in this crispy mackerel bibimbap. You’ll build 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695721954168-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695721956987-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Chop the mackerel into bite-sized pieces
 
 Add the chopped mackerel to a bowl with your cornflour and give everything a good mix up until all the mackerel is coated – this is your coated mackerel
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695721960724-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once very hot, add the coated mackerel and cook for 5-6 min, turning occasionall
 
 Transfer the crispy mackerel to a plate and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695721963495-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the w
 
 Add the smashed cucumber to a bowl with your rice vinegar – this is your quick-pickled smashed cucumber
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695721966574-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add your mooli slaw to a bowl with your mayo and a pinch of salt and pepper
 
 Give everything a good mix up – this is your mooli slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695721969471-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Tip: Give your eggs a little shake before you crack for perfectly centred yolks!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695721972617-x200.jpg)
 
 ### Step 7
 

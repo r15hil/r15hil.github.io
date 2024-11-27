@@ -29,6 +29,7 @@ For an easy twist on a Chinese ‘Bang Bang’ recipe, you'll pan fry juicy king
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1653387606763-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add your basmati rice and 250ml <span class="text-purple">[325ml] </span><span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has been absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1653387609487-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Trim, then slice your spring onion[s] finely
 
 Add the salad, grated carrot and sliced spring onion to a large mixing bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653387613600-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Cut half of your red chilli[es]<span class="text-danger"> </span>into rounds (sa
 
 Add the cucumber matchsticks and chilli rounds (can't handle the heat? Go easy!) to the bowl with the salad, carrot and spring onion – this is your crunchy salad
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1653387617416-x200.jpg)
 
 ### Step 4
 
 Cut the remaining chilli in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1653387620201-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Combine your peanut butter and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</sp
 
 Add your soy sauce, toasted sesame oil, rice vinegar, remaining chopped chilli (not a fan of spice? Just add a little!) and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and mix well to combine – this is your peanut dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1653387624052-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once hot, drain your king prawns, then add them to the pan
 
 Sprinkle your five-spice mix over the king prawns and cook for 4-5 min or until the prawns are cooked through – these are your bang bang king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653387627898-x200.jpg)
 
 ### Step 7
 

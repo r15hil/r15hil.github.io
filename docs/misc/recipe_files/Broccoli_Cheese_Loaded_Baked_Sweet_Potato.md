@@ -25,6 +25,7 @@ Nothing beats a baked potato… or broccoli and cheese. So why not combine the t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1609949645703-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Pierce your sweet potato[es] with a fork, then cook in the microwave for 6-7 mi
 
 Transfer the softened sweet potato[es] to a tin foil-lined baking tray (or two!) with a drizzle of olive oil and a pinch of salt and pepper, then put the tray[s] in the oven and cook for 12-15 min or until they are cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1609949675751-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once boiling, cook for 4-5 min or until tender
 
 Once done, drain, return to the pot and keep covered
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1609949739386-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and chopped garlic and cook for 5-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1609949754808-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once softened, add 30g <span class="text-purple">[45g]</span> <span class="text
 
 Gradually whisk 250ml <span class="text-purple">[375ml]</span> <span class="text-danger">[450ml]</span> milk into the roux, a little at a time and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1609949801598-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Put the herby panko in the oven for 5-6 min or until golden
 
 Tip: Watch this like a hawk to make sure it doesn't burn!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1609949807283-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Grate your cheddar cheese into the béchamel sauce, then add your Dijon mustard 
 
 Season generously with salt and pepper, then add the cooked broccoli to the sauce and mix everything together – this is your broccoli cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1609949866438-x200.jpg)
 
 ### Step 7
 

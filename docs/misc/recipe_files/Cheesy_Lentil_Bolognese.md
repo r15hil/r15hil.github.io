@@ -27,6 +27,7 @@ Dig into this veggie twist on an Italian classic. You’ll simmer lentils in a g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1671546461967-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1671546465795-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1671546471292-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Meanwhile, dissolve your vegetable stock mix and tomato paste in 200ml <span cla
 
 Drain and rinse your green lentils
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1671546476331-x200.jpg)
 
 ### Step 4
 
 Once the onion has softened, add the chopped garlic and your dried oregano to the pan and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1671546481072-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once fragrant, add the drained green lentils to the pan with the tomato stock, y
 
 Season with a generous pinch of salt and pepper, bring to the boil over a high heat and cook for 8-9 min further or until thickened – this is your lentil bolognese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1671546484821-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Cook the conchiglie for 8-10 min or until cooked with a slight bite
 
 Once done, drain the conchiglie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1671546489449-x200.jpg)
 
 ### Step 7
 

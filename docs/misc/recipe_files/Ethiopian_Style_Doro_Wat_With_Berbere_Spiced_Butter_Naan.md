@@ -27,6 +27,7 @@ Berbere spice adds a kick of heat to Ethiopia’s favourite stew. You’ll simme
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671537045459-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken thighs and cook for 3 min on each side or until lightly browned, then transfer to a plate, reserving the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671537084088-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely slice your brown onion[s]
 
 Chop your potato[es] (skins on) into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671537089744-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add the sliced onion and chopped potato and cook for 3-4 min or until 
 
 Add a pinch of your berbere seasoning and the softened butter to a bowl and mix it all together, then set aside – this is your berbere-spiced butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671537094944-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once the onion has softened, add the remaining berbere seasoning and tomato past
 
 Give everything a good mix up and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671537099692-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once fragrant, return the browned chicken to the pan, add the chicken stock and 
 
 Once boiling, reduce the heat to medium and cook, covered, for 15-20 min or until the potato is fork-tender and the chicken is cooked through (no pink meat!)– this is your Ethiopian-style doro wat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671537105352-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once boiling, cook for exactly 8 min for perfect, mid-boiled eggs, then fill a b
 
 Set aside, then once cooled, peel the cooled soft-boiled egg[s] and cut them in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1704990781602-x200.jpg)
 
 ### Step 7
 

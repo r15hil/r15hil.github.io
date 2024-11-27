@@ -28,6 +28,7 @@ Crack open a can of sauce-loaded goodness for this smoky take on bangers and bea
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665130165975-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Pierce the red potatoes with a fork, then add them to a plate and cook in the microwave for 10-12 min or until cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665130169120-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the halved sausages and cook for 3-5 min or until browned all over
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665130172600-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span>
 
 Grate the cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665130179842-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once the halved sausages are browned, reduce the heat to medium and add the dice
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665130197960-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once the potatoes are cooked through, carefully slice them in half (they will be
 
 Combine the potato flesh with the sliced spring onion, half the grated cheese (you'll use the rest later!), chipotle paste (can't handle the heat? Go easy!) and a knob of butter and mash it all together with a fork – this is your cheesy chipotle filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665130204773-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Put the tray in the oven for 10 min or until golden brown – these are your che
 
 Wash the lamb's lettuce, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665130210120-x200.jpg)
 
 ### Step 7
 

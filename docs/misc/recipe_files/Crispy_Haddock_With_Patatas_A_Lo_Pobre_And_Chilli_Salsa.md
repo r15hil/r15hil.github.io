@@ -25,6 +25,7 @@ Patatas a lo pobre is a traditional dish from Andalusia and in this rendition, y
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1658222434190-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the potato discs to a baking tray with a drizzle of vegetable oil and a gene
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1658222439237-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Crush 2 <span class="text-danger">[4]</span> garlic cloves open by squashing the
 
 Peel and finely chop (or grate) the remaining garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1658222442369-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the sliced pepper, sliced onion and crushed garlic with a pinch of
 
 Once caramelised, transfer to a plate and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1658222446041-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Zest 1/2<span class="text-danger"> [1]</span> lime (try to grate lightly with a 
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1658222449353-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Season with a pinch of salt and give everything a good mix up – this is your c
 
 Cut the remaining lime into wedges
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1658222454111-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the haddock bites to a large bowl with the cornflour and a pinch of salt and
 
 Return the reserved pan to a medium-high heat with a generous drizzle of vegetable oil (enough to coat the base of the pan)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1658222457077-x200.jpg)
 
 ### Step 7
 

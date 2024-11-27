@@ -28,6 +28,7 @@ Give old school comfort a kick with this twist on tomato soup. You’ll roast to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678301569237-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the halved tomato[es] to a baking tray with a drizzle of vegetable oil and a
 
 Give everything a good mix up and put the tray in the oven for 20 minutes or until the tomatoes are beginning to caramelise – this is your roasted tomato
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678301575452-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Unwrap your puff pastry and roll it out to 0.5cm thickness with a rolling pin, t
 
 Add the pastry strips to a baking paper-lined baking tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678301582965-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Twist each pastry strip from the ends in opposite directions until they look lik
 
 Put the tray in the oven and cook the pastry twists for 10-12 min or until puffed up, golden and cooked through – these are your cheesey twists
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678301590878-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Meanwhile, peel and finely slice your brown onion[s]
 
 Dissolve your vegetable stock mix, tomato paste and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar in 600ml<span class="text-danger"> <span class="text-purple">[900ml] </span>[1.2L]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678301596914-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once hot, add the chopped onion with a very generous pinch of salt and pepper an
 
 Once the onion has softened, add your ginger & garlic paste and curry powder and cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678301602263-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once done, add the roasted tomato and cultured coconut
 
 Remove the pot from the heat and blitz everything up with a (stick) blender until smooth – this is your spicy curried tomato soup
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678301608106-x200.jpg)
 
 ### Step 7
 

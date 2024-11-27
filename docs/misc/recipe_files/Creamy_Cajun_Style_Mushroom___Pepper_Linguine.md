@@ -28,6 +28,7 @@ Punchy Cajun-inspired seasoning brings the heat to this fiery fusion dish. You'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1616581763472-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!), ground coriander, dried oregano, ground cumin, a pinch of salt, a pinch of sugar and a generous grind of black pepper to a plate and give everything a good mix up – this is your Cajun-style spice mix
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616581774452-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Brush the top side of your portobello mushroom[s] with a little vegetable oil (t
 
 Press the oiled side of the portobello mushroom[s] into the Cajun-style spice mix and save the rest of the spice mix for later – this is your Cajun-style spiced portobello mushroom
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616581786342-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the Cajun-style spiced portobello mushroom[s] to a baking tray
 
 Put the tray in the oven for 18-20 min or until the mushrooms are cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616581798426-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1616581816757-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion, chopped garlic, pepper strips and the remaining Cajun-style spice mix and cook for 8-10 min or until starting to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1616581825827-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Reboil half a kettle
 
 Dissolve your vegetable stock mix<span class="text-danger"> </span>and soft cheese in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your creamy stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1616581838038-x200.jpg)
 
 ### Step 7
 

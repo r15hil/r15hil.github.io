@@ -21,6 +21,7 @@ Fiery, fragrant and ready in a flash. The Calabrian sausage 'Nduja is the star o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1644329783990-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644329792583-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Chop your cherry tomatoes in half
 
 Once hot, add the halved cherry tomatoes to the pan with a pinch of salt and cook for 2 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644329799378-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and slice (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644329806693-x200.jpg)
 
 ### Step 4
 
@@ -57,16 +61,19 @@ Cook the spinach & ricotta ravioli for 3-4 min or until cooked with a slight bit
 
 Once done, drain the spinach & ricotta ravioli, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644329817784-x200.jpg)
 
 ### Step 5
 
 Add the sliced garlic and 'Nduja (can't handle the heat? Go easy!) to the pan with the tomatoes and cook for 3-4 min, breaking up the 'Nduja with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644329826445-x200.jpg)
 
 ### Step 6
 
 Tear half of your basil leaves (save the rest for garnish!) into the pan along with a small splash of reserved starchy pasta water and give everything a good mix up – this is your spicy 'Nduja & cherry tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644329833085-x200.jpg)
 
 ### Step 7
 

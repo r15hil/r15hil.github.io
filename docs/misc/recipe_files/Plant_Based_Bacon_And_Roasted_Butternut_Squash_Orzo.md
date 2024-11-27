@@ -24,6 +24,7 @@ Cooks like a risotto, and tastes sensational. You'll roast paprika-spiced butter
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1689690011161-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cover the bowl with cling film and pierce a few holes in the top
 
 Put the bowl in the microwave and cook for 4-5 min or until the squash is fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689690016373-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the remaining butternut squash cubes to a large baking tray (or two!) with h
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15-20 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689690020633-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Strip your thyme leaves from their stems and discard the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1689690024649-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once the microwaved squash is done, add it to a food processor with the remainin
 
 Blitz until smooth – this is your smoky squash purée
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1689690028524-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once hot, add the diced shallot and cook for 2-3 min or until softened
 
 Once softened, add your orzo and thyme leaves to the pan and cook for 2-3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1689690033221-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Tip: Stirring the orzo will release the starch from the pasta, making it creami
 
 Once the orzo is done, wash then add your spinach to the pan and cook for 1-2 min further, stirring until the spinach has wilted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1689690038054-x200.jpg)
 
 ### Step 7
 

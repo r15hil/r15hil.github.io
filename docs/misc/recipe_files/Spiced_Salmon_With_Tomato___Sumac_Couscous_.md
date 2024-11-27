@@ -26,6 +26,7 @@ This North African-inspired dish is done at speed. You'll serve spiced a salmon 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1615916755649-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2021.-step-4-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Dissolve your vegetable stock mix in a heatproof bowl with 200ml <span class="
 
 Add your couscous, stir, cover and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2021.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Sprinkle your ras el hanout over the fish and cook for 9-10 min, turning once h
 
 Tip: Your fish is cooked when it's opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2021.-step-2-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ While the salmon is cooking, trim, then slice your spring onion[s] roughly
 
 Dice your tomato[es]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2021.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the salad to a bowl with the juice of half your lemon[s], a generous drizzle of olive oil and a pinch of salt and black pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2021.-step-6-x200.jpg)
 
 ### Step 6
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2021.-step-7-x200.jpg)
 
 ### Step 7
 

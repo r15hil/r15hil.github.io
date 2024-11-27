@@ -30,6 +30,7 @@ To make a stew inspired by the Turkish dish, Alinazik kebab, you'll top couscous
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633446637774-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the aubergine half[ves] to a baking tray (or two!) with a generous drizzle o
 
 Put the tray[s] in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633446639102-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Drain and rinse your green lentils
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633446641851-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add half your vegetable stock mix (you’ll use the rest later!) with your tomat
 
 Reduce the heat to medium-low and cook for 5-6 min or until thickened, then remove from the heat – this is your Turkish-style lentil stew
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633446646597-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add the tomato and onion wedges to the tray (cooking for 3 or more? Use 2 trays!
 
 Return the tray[s] to the oven for 15 min further or until the aubergine flesh has softened and everything is tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633446649896-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Dissolve the remaining vegetable stock mix in 200ml <span class="text-purple">[3
 
 Add your couscous to the large bowl with the vegetable stock, stir it all together, then cover and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633446654089-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Tip: Carefully hold the stalks (they will be hot!) to scrape the flesh out easil
 
 Chop the aubergine flesh up all together until finely chopped
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633446657375-x200.jpg)
 
 ### Step 7
 

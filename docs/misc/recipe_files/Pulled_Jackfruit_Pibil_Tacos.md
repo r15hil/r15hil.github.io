@@ -26,6 +26,7 @@ Pibil is a Mayan cooking technique that infuses meat with sweet, smoky flavour. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1593440801659-x200.jpg)
 
 ### Step 1
 
@@ -33,21 +34,25 @@ Preheat the oven to 180°C/ 160°C (fan)/ 350°F/ Gas 4
 
 Combine the achiote paste, smoked paprika, oregano, tomato paste, agave, soy sauce, juice of the orange<span class="text-danger">[s]</span>, juice of 1/2 <span class="text-danger">[1]</span> lime and 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil in a large bowl and give everything a good mix up – this is your pibil marinade
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1593440806299-x200.jpg)
 
 ### Step 2
 
 Drain the jackfruit
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Jackfruit-on-chopping-board-copy-1593441027144-x200.jpg)
 
 ### Step 3
 
 Tear the jackfruit into small bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1593440825123-x200.jpg)
 
 ### Step 4
 
 Add the torn jackfruit to the pibil marinade and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1593440833037-x200.jpg)
 
 ### Step 5
 
@@ -57,11 +62,13 @@ Once hot, add the marinated jackfruit and cook for 7-8 min, breaking it up with 
 
 Tip: The more you break up the jackfruit, the more it will resemble pulled pork!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1593440841911-x200.jpg)
 
 ### Step 6
 
 Chop the coriander finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1593440845085-x200.jpg)
 
 ### Step 7
 

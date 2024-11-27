@@ -27,6 +27,7 @@ Craving a comforting Chinese that saves on washing up? Then cook up our sweet se
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1732622880321-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1732622885075-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Add the pepper quarters to a tin foil-lined baking tray (hollow of the pepper facing up)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1732622888988-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine your toasted sesame oil and half of your gluten free soy sauce (you'll u
 
 Add your free range chicken thighs to the sesame marinade and give it a mix up, then top each pepper quarter with a marinated chicken thigh and put the tray in the oven for 17-18 min or until the chicken is cooked through (no pink meat!) – this is your sweet sesame chicken thigh & charred pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1732622891895-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Add your white long grain rice, hoisin sauce, Chinese rice wine, ginger & garlic paste and the remaining gluten free soy sauce to the pot and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1732622895337-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Add your chicken stock mix with 225ml <span class="text-purple">[300ml]</span> <
 
 Once boiling, cover with a lid and put the dish in the oven for 18-20 min or until all the water has absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1732622896656-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1732622902166-x200.jpg)
 
 ### Step 7
 

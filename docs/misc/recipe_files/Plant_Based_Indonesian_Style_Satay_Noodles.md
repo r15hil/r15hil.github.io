@@ -27,6 +27,7 @@ Say yay to satay. Pack these Indonesian-style noodles with sizzling pepper, mang
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684831500235-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684831505894-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684831509541-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Roughly chop your roasted peanuts
 
 Chop your coriander finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684831515047-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pepper strips and cook for 3-4 min or until beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684831520635-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add your peanut butter, red chilli relish and the juice of half your lime[s] wit
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684831529424-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the pepper has softened, add the chopped garlic and chopped ginger to the p
 
 Once fragrant, add your mangetout and carrot ribbons and cook for 2-3 min or until softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684831541855-x200.jpg)
 
 ### Step 7
 

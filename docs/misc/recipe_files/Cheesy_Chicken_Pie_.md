@@ -22,6 +22,7 @@ This indulgent chicken 'pie' has a leek and cheese filling basking in a rich cre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/448.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut all the potatoes to roughly 4cm chunks, keeping the skins on
 
 Grate the cheddar for step 6
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/448.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once boiling, boil for 5-7 min, or until you can pierce them easily with a knife
 
 Reserve the pot for step 7
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/448.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Peel and finely chop or grate the garlic
 
 Heat a large pan (preferably non-stick) with 1 tsp<span class="text-danger"> (2 tsp)</span> of olive oil on a high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/448.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ When hot, add the chicken, leek and garlic with a pinch of salt
 
 Cook for 4-6 min or until the chicken is lightly golden on the outside (it will continue cooking later) and the leeks have softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/448.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once melted, stir in 30g <span class="text-danger">(60g)</span> of flour and coo
 
 Whisk in 200ml <span class="text-danger">(400ml)</span> of milk gradually&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/448.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Once the sauce has thickened, remove the pan from the heat and stir in the chick
 
 Season generously with salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/448.-step-7-x200.jpg)
 
 ### Step 7
 

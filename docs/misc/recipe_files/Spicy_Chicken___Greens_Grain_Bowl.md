@@ -27,6 +27,7 @@ For a healthy energy boost, tuck into fibre-packed freekeh and sweet potatoes fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2279Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Chop your sweet potato[es] (skin on) into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1587997359469-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Give it a good mix up – this is your spice paste
 
 Add the chicken breast portion[s] to the plate and turn several times until fully coated in the spice paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2279Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray[s] in the oven for 15-20 min or until everything is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2279Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add your bulgur wheat to a pot with plenty of boiled water and a pinch of salt (
 
 Bring to the boil over a high heat and cook for an initial 2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1705926935930-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once tender, drain and return to the pot
 
 Meanwhile, add your pine nut & seed mix to the tray with the chicken and sweet potato and cook for a further 2-3 min or until toasted and golden
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1705926938673-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Combine your natural yoghurt with the juice of the remaining lemon, grated garli
 
 Add 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> olive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water and stir it all together – this is your yoghurt dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2279Step-7-x200.jpg)
 
 ### Step 7
 

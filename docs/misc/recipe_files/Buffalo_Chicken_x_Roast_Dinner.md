@@ -28,6 +28,7 @@ Nothing tops a roast, except when you hit it with fiery buffalo hot sauce. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1660751673721-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Pat your chicken thighs dry with kitchen paper then coat them with the smoked pa
 
 Once hot, add the coated chicken thighs, skin-side down and cook for 6 min or until the skins have slightly crisped
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1660751679050-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely chop (or grate) your garlic
 
 Add the chopped potatoes to one side of a baking paper-lined tray (or two!) with a drizzle of vegetable oil and a pinch of salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1660751683554-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Scrunch the edges of the foil around the leek to form a sealed parcel and add it
 
 Once the chicken is slightly crispy, transfer it to the baking tray, reserve the pan and put the tray[s] in the oven for 25-30 min or until the potatoes are golden and crisp and the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1660751687733-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Tip: No muffin tray? Fill a small oven-proof dish with a generous drizzle of veg
 
 Meanwhile, combine your egg[s]<span class="text-danger"> </span>with 35g <span class="text-purple">[50g] </span><span class="text-danger">[70g]</span> flour and 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100ml]</span> milk in a jug, then whisk in your dried oregano, remaining chopped garlic and a pinch of salt – this is your batter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1660751692669-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ After 8 min, carefully remove the muffin tray from the oven and evenly drizzle t
 
 Return the tray to the oven for 20 min until puffed up and golden – these are your ranch Yorkshires
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1660751697051-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Chop your chives finely
 
 Dissolve your chicken stock mix in 150ml<span class="text-purple"> [200ml]</span> <span class="text-danger">[260ml]</span> boiled water with your sriracha (can't handle the heat? Go easy!) and your Henderson's Relish – this is your buffalo stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1660751703383-x200.jpg)
 
 ### Step 7
 

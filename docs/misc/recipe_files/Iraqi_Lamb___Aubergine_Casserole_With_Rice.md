@@ -26,6 +26,7 @@ Dive into a rich Iraqi-inspired casserole inspired by the dish 'Tepsi baytinijan
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1603371957823-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cover the dish with tin foil then cook for 15-18 min or until softened
 
 Meanwhile, peel and slice the potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1603371982012-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cook for 6-8 min or until cooked with a slight bite
 
 Once done, drain and keep to one side
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1603371993339-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Deseed the yellow pepper<span class="text-danger">[s]</span> (scrape the seeds a
 
 Peel and finely slice the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603372001800-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Heat a large wide-based pan, preferably non-stick, with a generous drizzle of ve
 
 Once hot, add the sliced onion and peppers with a pinch of salt and sugar and cook for 6-8 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1603372016409-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Give everything a really good mix up then shape into 8 meatballs
 
 Add to a plate and keep to one side
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1603372028329-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cook for 3-4 min or until starting to thicken
 
 Meanwhile chop the parsley and coriander roughly, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1603372039873-x200.jpg)
 
 ### Step 7
 

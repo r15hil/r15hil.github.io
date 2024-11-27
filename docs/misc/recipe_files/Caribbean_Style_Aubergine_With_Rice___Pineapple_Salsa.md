@@ -27,6 +27,7 @@ Fire up your oven for an island-inspired dinner. You’ll roast aubergine in a s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678468499601-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Score the flesh in a criss-cross pattern, taking care not to cut through to the 
 
 Add the aubergine half[ves] to a baking paper-lined tray (or two!), cut side up and put in the oven for an initial 20 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678468502254-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add your basmati rice, chopped creamed coconut and 300ml <span class="text-purpl
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678468505868-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Cut your red chilli[es]<span class="text-danger"> </span>in half lengthways, des
 
 Chop your coriander finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678468509950-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Combine the chopped pineapple, chopped shallot, chopped chilli (can't handle the
 
 Add the juice of half your lime[s] and a pinch of salt and give everything a good mix up – this is your pineapple salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678468513826-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Combine your ginger & garlic paste and 2 tbsp <span class="text-purple">[3 tbsp]
 
 Add your ground allspice, dried thyme, vegetable stock mix, 1 tsp<span class="text-purple"> [1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>sugar and a pinch of salt and mix it all together – this is your spiced glaze
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678468518108-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Return the tray[s] to the oven for a further 8-10 min or until caramelised – t
 
 While the aubergine is cooking, drain and rinse your black beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678468521844-x200.jpg)
 
 ### Step 7
 

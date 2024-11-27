@@ -30,6 +30,7 @@ Decadent butter chicken is a takeaway favourite hailing from New Delhi. For this
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1699364006160-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add your cashew nuts to a bowl, cover with 200ml <span class="text-purple">[26
 
 Chop your free range chicken breast portion[s] into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699364010195-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1699364014646-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Transfer the marinated chicken to a baking paper-lined baking tray (or two!) and
 
 Once done, set aside – this is your chicken tikka
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1699364022413-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Peel and chop (or grate) your garlic
 
 Dice your cucumber finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1699364026647-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once softened, add the chopped ginger, chopped garlic and tomato paste to the pan and cook for a further 1-2 min or until fragrant, then once fragrant, add the softened cashews and a splash of the soaking liquid (reserve the rest for later!) to a food processor and blitz until a paste forms – this is your creamy cashew paste
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1699364033149-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the creamy cashew paste and remaining soaking liquid to the pan with your ch
 
 Turn the heat up to high and cook for 7-8 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened to a curry-like consistency – this is your creamy free range chicken makhani
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699364036599-x200.jpg)
 
 ### Step 7
 

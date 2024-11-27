@@ -20,6 +20,7 @@ Whether it’s breakfast for dinner, or dinner for lunch, now’s the courgette�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1.-jpg-copy-2-1610471846909-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Add the bacon to a baking paper-lined tray
 
 Put the tray in the oven for 10-15 min or until golden and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610471786526-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Add the halved cherry tomatoes to a separate baking tray with a drizzle of olive
 
 Put the tray in the oven for 10-12 min or until lightly charred and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1610471858833-x200.jpg)
 
 ### Step 3
 
@@ -45,11 +48,13 @@ While the tomatoes are in the oven, top, tail then grate the courgette<span clas
 
 Trim, then slice the spring onions finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1610471865846-x200.jpg)
 
 ### Step 4
 
 Add the grated courgette to the middle of a clean tea towel (or kitchen paper) and bring the four corners together to form a ball, twist the ball and squeeze out as much of the liquid as you can
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610471876772-x200.jpg)
 
 ### Step 5
 
@@ -57,6 +62,7 @@ Add the grated courgette to a bowl with most of the sliced spring onion (save a 
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your fritter mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610471883875-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Once hot, spoon the fritter mixture into the pan, roughly divided into 4 <span c
 
 Tip: Cooking for 4? You may need to do this in batches!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1610471894360-x200.jpg)
 
 ### Step 7
 

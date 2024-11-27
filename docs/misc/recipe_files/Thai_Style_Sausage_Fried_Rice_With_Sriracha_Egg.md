@@ -27,6 +27,7 @@ Take to the streets of Bangkok with this street food-inspired classic. You’ll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1708449595514-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then once done, remove from the heat and set aside to cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1708449629171-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Crumble your chestnut mushrooms roughly
 
 Trim, then slice your spring onion[s] finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1708449634255-x200.jpg)
 
 ### Step 3
 
@@ -50,16 +53,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Add your sausage meat (remove the paper if required!) to the pan and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1708449639077-x200.jpg)
 
 ### Step 4
 
 Once beginning to brown, add the crumbled mushrooms and sliced pepper and cook for 4-5 min further or until softened and the sausage meat is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1708449643952-x200.jpg)
 
 ### Step 5
 
 Once softened, add your red Thai curry paste and ginger & garlic paste with a pinch of salt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1708449649489-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1708449654354-x200.jpg)
 
 ### Step 7
 

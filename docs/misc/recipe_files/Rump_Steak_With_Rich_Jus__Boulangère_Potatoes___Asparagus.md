@@ -22,6 +22,7 @@ For a special night in, serve tender, 21-day aged British picanha rump steak wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1354.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Dissolve the Knorr beef stock cube<span class="text-danger">[s]</span> in 250ml
 
 Strip the thyme leaves from their stalks and chop them finely. Discard the stalks.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1354.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,6 +58,7 @@ Pour 100ml <span class="text-danger">[200ml]</span> of the beef stock (save th
 
 Place the dish in the oven for 30-35 minutes or until fork-tender and golden brown – these are your boulangère potatoes.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1354.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Once the pan’s hot, add the pancetta lardons and cook for 5 minutes or until
 
 Once crisp, add the chopped onion and remaining thyme. Cook for 4-5 minutes or until the onion has softened and then transfer to a plate.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1354.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -81,6 +85,7 @@ Give the pan a quick wipe and return it to a high heat. 
 
 Pat the rump steaks dry with kitchen towel, rub them with vegetable oil and season both sides generously with salt.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1354.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -98,6 +103,7 @@ Tip: To get that restaurant look and caramelised flavour, resist the temptation
 
 Once cooked, transfer the steaks to a chopping board, cover with a clean tea towel and leave them to rest in a warm place. Use the same pan for step 6.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1354.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -112,6 +118,7 @@ Reduce the heat to medium and cook for 10 minutes or until thickened so it coats
 
 Season with pepper and stir in a knob of butter – this is your rich jus.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1354.-step-7--x200.jpg)
 
 ### Step 7
 

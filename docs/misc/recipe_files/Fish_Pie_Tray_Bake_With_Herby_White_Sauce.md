@@ -21,6 +21,7 @@ This speedy tray bake has all your favourite components of a classic fish pie, w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667398572535-x200.jpg)
 
 ### Step 1
 
@@ -32,11 +33,13 @@ Give everything a good mix up then put the tray in the oven for an initial 20 mi
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1667398577774-x200.jpg)
 
 ### Step 2
 
 Meanwhile, chop your leek[s]<span class="text-danger"> </span>into rounds then wash thoroughly to remove any grit
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667398583856-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Return the tray[s] to the oven for 12-15 min or until the fish is cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1667398589959-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your chives finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667398593998-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once hot, add the chopped garlic and cook for 30 secs or until fragrant
 
 Once fragrant, add 20g<span class="text-purple"> [30g]</span> <span class="text-danger">[40g]</span> flour and stir with a wooden spoon for 1 min or until a sandy paste forms – this is your roux
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1667398597918-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add the milk stock to the roux gradually and whisk for 5 min or until a smooth,
 
 Remove from the heat, add most of the chopped chives (save the rest for garnish!) and season with a pinch of salt and a generous grind of black pepper – this is your herby white sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1667398603432-x200.jpg)
 
 ### Step 7
 

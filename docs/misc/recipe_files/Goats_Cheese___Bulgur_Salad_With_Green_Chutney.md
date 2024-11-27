@@ -27,6 +27,7 @@ This bright green coriander, ginger and chilli chutney adds a zingy-spicy kick a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/123.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/123.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Transfer the toasted cumin seeds to a pestle & mortar (save the pan for later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/123.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/123.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Chop your coriander finely, including the stalks
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/123.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/123.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once hot, add the diced onion and remaining chopped garlic and cook for 1 min
 
 Add the chopped courgette and cook for 6-8 min or until tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/123.-step-7-x200.jpg)
 
 ### Step 7
 

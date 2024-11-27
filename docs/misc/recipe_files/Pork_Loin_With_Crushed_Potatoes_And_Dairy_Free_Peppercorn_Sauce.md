@@ -23,6 +23,7 @@ Enjoy a comforting pairing of British pork loin steaks with plenty of creamy dai
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1587400141872-1637683264076-x200.jpeg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1587400159862-1637683290755-x200.jpeg)
 
 ### Step 2
 
 Meanwhile, peel and finely chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1587400168340-1637683345625-x200.jpeg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the seasoned steak[s] and cook for 4-5 min on each side or until they're browned and cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-16-1731710408501-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the chopped shallot and cook for 2 min
 
 Reboil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1641298205063-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add your cracked black pepper, Chinese rice wine and half your wholegrain must
 
 Tip: Cooking for 2? Save the remaining mustard for another meal!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Tenderstem-boiled-1641905607322-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender
 
 Once cooked, drain the Tenderstem broccoli and return it to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1641298210454-x200.jpg)
 
 ### Step 7
 

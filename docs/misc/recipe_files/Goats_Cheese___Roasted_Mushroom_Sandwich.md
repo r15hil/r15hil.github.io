@@ -21,6 +21,7 @@ For a veggie option that's packed with flavour, you'll fill crispy ciabattas wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2313-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skin on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2313-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -35,11 +37,13 @@ Add the potato wedges and flat white mushroom[s] to a baking tray (or two!)
 
 Drizzle everything with olive oil and a generous pinch of salt and put the tray[s] in the oven for 20-25 min, or until everything is cooked through and tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2313-Step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, peel and finely slice your red onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2313-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -47,11 +51,13 @@ Heat a large wide-based pan (preferably non-stick), with a drizzle of olive oil 
 
 Once hot, add the sliced onion with a pinch of salt and cook for an initial 8-10 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2313-Step-5-x200.jpg)
 
 ### Step 5
 
 Once softened, add half your balsamic vinegar (save the rest for later!) and 1 tbsp<span class="text-purple"> [1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and cook for a further 6-7 min or until sticky and caramelised – this is your caramelised onion
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2313-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -61,6 +67,7 @@ Chop your cherry tomatoes in half
 
 Wash your salad, then pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2313-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ Prasorizo is a rustic Greek dish, we've made it with spinach and rice. For your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1713882607271-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once hot, add your pine nuts and cook for 2-3 min or until toasted and lightly g
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1713882610914-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Dissolve your vegetable stock mix in 500ml<span class="text-purple"> [650ml]</span> <span class="text-danger">[1L]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1713882614025-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over a
 
 Add your orzo, sliced leek and chopped garlic with a generous pinch of salt and cook for 1 min, stirring to coat the orzo in butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1713882617569-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 12-15 min or 
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1713882621013-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Wash your salad, then pat dry with kitchen paper
 
 Season your salmon fillet[s] with a pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1713882625265-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once hot, sprinkle in your dried oregano, then add the seasoned salmon fillet[s]
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1713882628601-x200.jpg)
 
 ### Step 7
 

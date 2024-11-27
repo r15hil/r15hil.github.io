@@ -25,6 +25,7 @@ To whip up a quick twist on crispy Chinese pancakes, you'll wrap sweet, sticky, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649839314768-x200.jpg)
 
 ### Step 1
 
@@ -32,11 +33,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add your Fable pulled mushrooms and cook for 5-6 min or until browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649839317964-x200.jpg)
 
 ### Step 2
 
 Meanwhile, wash your lettuce, then pat it dry with kitchen paper and shred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1649839320440-x200.jpg)
 
 ### Step 3
 
@@ -44,21 +47,25 @@ Slice your cucumber into discs
 
 Slice each individual cucumber disc into matchsticks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1649839324044-x200.jpg)
 
 ### Step 4
 
 Trim, then slice your spring onion[s] in half, then slice lengthways into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1662969589035-x200.jpg)
 
 ### Step 5
 
 Add your tortillas to a plate and pop them in the microwave for 1-2 min, or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649839330102-x200.jpg)
 
 ### Step 6
 
 Once the mushrooms have browned, transfer them to a clean board (reserve the pan) and shred apart, using two forks – this technique is known as 'pulling' – these are your pulled mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649839332325-x200.jpg)
 
 ### Step 7
 

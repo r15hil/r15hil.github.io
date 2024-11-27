@@ -30,6 +30,7 @@ For your favourite takeaway in a tray bake, look no further than these pork meat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1729180321292-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and cut your potatoes into bite-sized pieces
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729180325386-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Put the tray[s] in the oven for an initial 20 min or until starting to brown
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729180332263-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Cut the remaining onion[s]<span class="text-danger"> </span>into wedges
 
 Peel and grate your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1729180344769-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Combine your pork mince (remove the paper if required!) with the diced onion, gr
 
 Season with a pinch of salt and pepper, give everything a good mix up until fully combined and shape into 4<span class="text-danger"> </span>meatballs per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729180349575-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Remove your pineapple from the can (save the juice for later!) and chop roughly
 
 Boil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729180355319-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the potatoes have had an initial 20 min, remove the tray[s] from the oven a
 
 Return the tray[s] to the oven for a further 15-18 min or until the meatballs are cooked through (no pink meat!) and the potatoes are golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729180358976-x200.jpg)
 
 ### Step 7
 

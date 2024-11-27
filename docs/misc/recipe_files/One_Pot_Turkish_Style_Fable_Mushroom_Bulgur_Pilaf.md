@@ -30,6 +30,7 @@ This Turkish-inspired bulgur takes minutes to prep. You'll bake slow-braised mus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1666109589752-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1647277740668-x200.jpg)
 
 ### Step 2
 
@@ -52,11 +54,13 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Chop your tomatoes into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1647277744104-x200.jpg)
 
 ### Step 3
 
 Add your Fable pulled mushrooms to the dish with your dried oregano, bay leaf[ves] and baharat and cook for 1-2 min until very lightly browned all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1647277747722-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the pepper rings and tomato wedges, season with a pinch of salt and give eve
 
 Put the dish in the oven, uncovered, for an initial 15 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1647277751531-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Dissolve your vegetable stock mix and tomato paste in 250ml <span class="text-pu
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1647277755401-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Cover with a lid and return the dish to the oven for 15 min further – this is 
 
 Chop your mint leaves finely, discard the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1647277761400-x200.jpg)
 
 ### Step 7
 

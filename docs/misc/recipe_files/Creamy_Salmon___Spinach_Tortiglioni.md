@@ -25,6 +25,7 @@ Brighten up your evening with this zesty pasta dish. You’ll whip up a creamy l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1718777816638-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked tortiglioni, reserving a large cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1718777820380-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add your salmon fillet[s] with a pinch of salt and cook for 3-4 min
 
 Once browned, transfer to a plate and set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1718777825662-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Cut your lemon[s] in half
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1718777831370-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1718777837240-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once fragrant, add 2 tsp <span class="text-purple">[3 tsp]</span> <span class="t
 
 Add your Chinese rice wine and vegetable stock to the pan and stir until the sauce begins to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1718777842468-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Raise the heat to medium-high , then flake the salmon into the pan, then cook fo
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1718777846358-x200.jpg)
 
 ### Step 7
 

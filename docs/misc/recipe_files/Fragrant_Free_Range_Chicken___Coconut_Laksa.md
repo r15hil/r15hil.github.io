@@ -30,6 +30,7 @@ Take your taste buds to Southeast Asia with our laksa-inspired spicy coconut sou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692624011313-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Boil a kettle
 
 Peel and finely slice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692624014411-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or 
 
 Once caramelised, add your curry powder and ground turmeric and cook for 3-4 min further or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692624018980-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add your soy sauce and 2 tsp<span class="text-purple"> [3 tsp] </span><span cl
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1692624022343-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once fragrant, add the chopped garlic, red Thai curry paste and lime leaf[ves
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692624039581-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Finely slice the remaining spring onion[s] and set aside for garnish
 
 Slice the free range chicken breast portions into thin strips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692624046456-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Bring to the boil over a high heat and cook for 5-7 min or until the chicken is 
 
 Once done, remove the pan from the heat – this is your fragrant chicken & coconut laksa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692624051573-x200.jpg)
 
 ### Step 7
 

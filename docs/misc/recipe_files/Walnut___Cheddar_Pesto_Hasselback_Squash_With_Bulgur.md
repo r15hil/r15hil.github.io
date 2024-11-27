@@ -22,6 +22,7 @@ This roasted hasselback squash is the centrepiece of any table. Serve yours driz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632825221976-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Tip: Drizzle the knife with a little olive oil for easier chopping
 
 Scoop out the seeds with a spoon and discard
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632825227323-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Transfer the butternut squash halves to a baking tray and drizzle generously wit
 
 Put the tray in the oven for 40-45 min or until the butternut squash is soft – this is your hasselback butternut squash
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632825233349-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add the bulgur wheat to a pot with plenty of boiled water and a generous pinch o
 
 Cook over a high heat for 7-9 min or until tender with a slight bite, then drain and return to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632825237625-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once hot, add the walnuts and toast for 3-4 min, or until they've darkened in c
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632825242491-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Transfer the toasted walnuts to a food processor and reserve the pan for later
 
 Tip: If you don't have a food processor, chop the walnuts with a knife, then add to a pestle & mortar!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632825246917-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the red wine vinegar, a pinch of salt and pepper, and 2 tbsp <span class="t
 
 Blitz together to form a coarse purée – this is your walnut & cheddar pesto
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632825251869-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Grab your frying pan and whip up a pizza that's perfect for mushroom lovers. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595495846112-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your dried yeast to a large bowl with 100ml <span class="text-purple">[150ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595495851345-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595495858768-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the sliced mushrooms to a bowl with half of your truffle oil (you'll use the
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595495877128-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Tip the dough ball out onto a floured work surface and cut into 1 ball per pers
 
 Toss the dough ball[s] in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595495890259-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Keep going until your base is slightly smaller than a side plate (you will make 
 
 Heat a large, dry, wide-based pan (or two!) (preferably non-stick) over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595495896252-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Cook the pizza base for 3-4 min or until the crust has started to puff up, then 
 
 Tip: To pick up the pizza dough, gently flip it over the back of your hand to stop it ripping!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595495911557-x200.jpg)
 
 ### Step 7
 

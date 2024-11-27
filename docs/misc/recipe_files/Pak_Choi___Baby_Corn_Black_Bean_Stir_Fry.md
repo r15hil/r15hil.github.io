@@ -21,6 +21,7 @@ In the need for speed? Then sizzle up a Tenderstem broccoli, mushrooms and pak c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1615294405510-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1623081975781-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Boil a full kettle
 
 Cut the baby corn in half lengthways
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1615294419749-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Cut the white pak choi base into bite-sized pieces
 
 Set the green pak choi tops aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1615294431728-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Set aside to soak for 6 min
 
 Drain the soaked noodles
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1615294441629-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once hot, add the halved baby corn and roughly crumble the chestnut mushrooms in
 
 Then cook for 2-3 min or until beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1615294451970-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Give everything a good mix up and cook for 2 min further
 
 After 2 min add the green pak choi tops and cook for a final minute – this is your pak choi & baby corn black bean stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1615294476469-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Smoked fish and curry spices are a heavenly flavour combo. You'll shape potatoes
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/452.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/452.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once melted, add your curry powder and stir for 30 secs, then transfer the curr
 
 Wipe the pan clean and reserve it for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/452.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Tip: Your fish is cooked when it turns opaque and flakes easily
 
 Reboil half a kettle (you'll only need a little!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/452-Step-4-shallot-1633423854029-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Rip the leaves off the spring greens, discard the tough stalks, then layer the l
 
 Stir your mayo and white wine vinegar into the cooled curried butter along with 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>boiled water – this is your curried mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/452.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Using a fork, flake the cooked smoked basa into the crushed potatoes, add the ch
 
 Divide the mix into 2 fishcakes per person, then press into the panko breadcrumbs firmly to evenly coat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1611144050614-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Cook for 3 min and then add 2-3 tbsp boiled water, cover with a lid, and cook fo
 
 Once done, transfer the wilted greens to the serving plates
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1611144112486-x200.jpg)
 
 ### Step 7
 

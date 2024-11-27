@@ -26,6 +26,7 @@ We've teamed up with Green & Black's to create the ultimate dark chocolate main 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/565.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Separate the onion rings, place them in a bowl of cold water and set aside
 
 Tip: the cold water removes some of the harsh flavour from the raw onion&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/565.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Meanwhile, dice the remaining onion<span class="text-danger">[s]</span>
 
 Transfer the coloured chicken to a baking tray, put it in the oven for 7-10 min or until slightly under cooked, then return the pan to a low heat, add a knob of butter and the diced onion with a pinch of salt and sugar and cook until step 5
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/565.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once cooked, remove from the heat and keep covered until serving
 
 <address>&nbsp;</address>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/565.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Chop the chocolate up coarsely
 
 Dissolve the stock cube<span class="text-danger">[s]</span>&nbsp;in 300ml<span class="text-danger"> [500ml]</span>&nbsp;boiled water, add the chopped chocolate and peanut butter and whisk to combine - this is your chocolate stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/565.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,6 +97,7 @@ Whisk to combine and bring to the boil over a medium-high heat - this is your mo
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/565.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -106,6 +112,7 @@ Roll the lime<span class="text-danger">[s]</span>&nbsp;with your hand on a hard 
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/565.-step-7-x200.jpg)
 
 ### Step 7
 

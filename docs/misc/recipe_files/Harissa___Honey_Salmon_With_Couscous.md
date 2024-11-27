@@ -26,6 +26,7 @@ Craving salmon at speed? You've hit the right recipe. For this rapid dish, you'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1622807190280-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706877520828-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once the pan is hot, add your salmon fillet[s], skin-side down with a pinch of s
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706877523653-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your couscous to a heatproof bowl with your ground turmeric and your veget
 
 Add 200ml <span class="text-purple">[300ml]</span><span class="text-danger"> [400ml]</span> boiled water, cover and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1924.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Chop your tomato[es] roughly
 
 Chop your parsley roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1924.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the chopped cucumber and tomato to a bowl with a generous drizzle of olive o
 
 Give everything a good mix up – this is your cucumber & tomato salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1924.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Transfer the harissa & honey salmon to a clean plate
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> boiled water to the pan and stir it all together until the sauce has loosened a little
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1924.-step-7-x200.jpg)
 
 ### Step 7
 

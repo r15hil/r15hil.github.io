@@ -31,6 +31,7 @@ This is Egypt’s answer to street food. Whip up a tangy koshari sauce with cori
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678467370238-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Rinse your brown rice, add it to a pot with a lid with plenty of cold water and 
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678467374105-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the aubergine wedges to a baking tray (or two!) with a generous drizzle of o
 
 Give everything a good mix up and put the tray[s] in the oven in the oven for 15-20 min or until the wedges are tender and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678467378605-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely slice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678467382694-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add the sliced shallot and a generous pinch of salt and cook for 2-3 m
 
 Meanwhile, dissolve your vegetable stock mix in 150ml<span class="text-danger"> <span class="text-purple">[195ml]</span> [255ml] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678467386434-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Cook for 30 secs or until fragrant, then add the vegetable stock, chopped tomato
 
 Give everything a good mix up and cook for 8-10 min or until the sauce has thickened – this is your spicy tomato sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678467390657-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the diced tomato and diced cucumber to a bowl with the remaining white wine 
 
 Give everything a good mix up – this is your tomato cucumber salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678467395172-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ Your next excuse to chow down on peri-peri has arrived. You’ll crisp up spiced
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1661242928679-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Combine your Fable pulled mushrooms and half your ground smoked paprika (you'll 
 
 Once hot, add the coated Fable mushrooms to the pan and cook for 8 min or until slightly charred
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1661242941188-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Meanwhile, peel and chop your brown onion[s] into thick slices
 
 Slice your carrot[s] finely on the diagonal, then slice each carrot disc into matchsticks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1661242955538-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once the mushrooms are slightly charred, add the sliced onion and carrot matchst
 
 Cook for a further 8 min or until the carrot is tender, breaking the mushrooms up slightly with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1661242978804-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Cut half your red chilli[es] in half lengthways, deseed (scrape the seeds out wi
 
 Slice the remaining red chilli finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661242996532-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Bring to the boil over a high heat and cook for 5-6 min or until cooked with a s
 
 Once done, drain and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1661243008405-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Combine your tomato paste and chipotle paste (can't handle the heat? Go easy!) w
 
 Add your soy sauce, white wine vinegar and the juice of half the lemon – this is your peri-peri stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661243018667-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Tuck into this bolognese in no time! You'll whip up a ragù with pork & beef min
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1696339126338-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1696340294300-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your pork & beef mince to the pan and cook for 5 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1696340298998-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Cook the gnocchi for 3 min or until it begins to rise to the top of the pot
 
 Once done, drain the gnocchi
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1696340303519-x200.jpg)
 
 ### Step 4
 
 Once the mince has started to brown, add your Marmite to the pan with your dried oregano, dried basil, chilli flakes (can't handle the heat? Go easy!) and roasted garlic paste and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1696340308284-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Cook for 2-3 min or until the mince has cooked through (no pink meat!) and the s
 
 Note: Please make sure you cook your pork & beef mince thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1696340807697-x200.jpg)
 
 ### Step 6
 
 Once the sauce has thickened, add in the drained gnocchi and give everything a good mix up – this is your herby pork & beef gnocchi bolognese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1696340813003-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Save on washing up with this one-tray wonder! You'll bake sausages and colourful
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/354.-step1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top, tail and chop your courgette[s] into bite-sized pieces
 
 Cut your red onion[s] into quarters, keeping the skin on and root attached
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/354.-step2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the chopped veg and chopped garlic to a bowl with a large drizzle of olive
 
 Add the seasoned veg to a tin foil-lined baking tray
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1731417634708-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Put the tray in the oven for 20-25 min until the sausages are golden and cooked 
 
 Meanwhile, boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1731417636985-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Dissolve your chicken stock mix in 200ml<span class="text-purple"> [300ml]</span
 
 Add your couscous to the bowl, then cover and set aside for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/354.-step5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Tip: Watch the pan like a hawk to make sure it doesn't burn!
 
 Once done, remove the pot from the heat and set aside until serving – this is your balsamic glaze
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/354.-step6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Carefully remove the skin from the roasted onion by cutting the root end off a
 
 Chop the roasted pepper into small pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/354.-step7-x200.jpg)
 
 ### Step 7
 

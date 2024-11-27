@@ -26,6 +26,7 @@ Avo go at this creamy plant-based pesto twist. You’ll blitz smashed avocado wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1702395597540-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your cherry tomatoes to a baking tray with a drizzle of olive oil and a pinc
 
 Put the tray in the oven and cook for 12-15 min or until cooked and starting to burst
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1702395602221-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ While the tomatoes are cooking, add your wholewheat spaghetti to a pot of boil
 
 Once cooked, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1702395608017-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Roughly chop your basil, including the stalks
 
 Cut your lemon[s] into quarters
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1702395614143-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Squeeze in the juice of 1/4 of your lemon[s] (you'll use the rest later!)
 
 Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil, a pinch of salt and a generous grind of black pepper and blitz until smooth – this is your creamy avo pesto
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1702395621749-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Wash your salad, then pat it dry with kitchen paper
 
 Add the salad to the dressing and give it a gentle mix up – this is your dressed salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1702395630183-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the tomatoes are almost done, add your pumpkin seeds to one half of the tra
 
 Tip: Watch these like a hawk to make sure they don't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1702395635513-x200.jpg)
 
 ### Step 7
 

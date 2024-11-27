@@ -29,6 +29,7 @@ To make these spicy Mexican-inspired burritos, you'll stuff warm tortillas with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/945.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/945.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your beef mince with a generous pinch of salt and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/945.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine the juice of half of your lime[s] with your natural yoghurt and a drizzl
 
 Season with a pinch of salt and pepper – this is your lime yoghurt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/945.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Once the beef is browned, add your ground smoked paprika, ground cumin and chil
 
 Add your honey and cook for 3-4 min or until the beef becomes crispy, sticky and cooked through (no pink meat!) – this is your sticky chilli beef mince
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1676967667948-x200.jpg)
 
 ### Step 5
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1620811695615-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Wash your lettuce, then pat it dry with kitchen paper and shred it finely
 
 Grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/945.-step-7-x200.jpg)
 
 ### Step 7
 

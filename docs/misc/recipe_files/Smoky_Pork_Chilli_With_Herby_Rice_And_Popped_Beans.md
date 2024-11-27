@@ -29,6 +29,7 @@ This easy pork and bean chilli is packed with flavour. Herby brown rice adds bod
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/298_step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/298_step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 10 min or until slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/298_step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Drizzle them with olive oil and season with a pinch of salt and pepper
 
 Put the tray[s] in the oven for 20-25 min or until the skins have burst and are crispy – these are your popped beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/298_step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ While the kidney beans are in the oven, dissolve your beef stock mix in 350ml<sp
 
 Add your ground cinnamon to the onion and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/298_step-5-x200.jpg)
 
 ### Step 5
 
 Once fragrant, increase the heat to high, then add your pork mince (remove the paper if required!) to the pan and cook for 5-6 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/298_step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Reduce the heat to medium-high, then cook for 10 min or until slightly thickened
 
 Add the remaining kidney beans with the reserved kidney bean liquid and cook for a further 5 min or until the sauce has thickened to a chilli-like consistency and the meat has cooked through (no pink meat!) – this is your smoky pork chilli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/298_step-7-x200.jpg)
 
 ### Step 7
 

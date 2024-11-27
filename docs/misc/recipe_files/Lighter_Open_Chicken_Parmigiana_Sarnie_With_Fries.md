@@ -26,6 +26,7 @@ This saucy, cheesy sandwich is the ultimate chicken delight. You'll smother chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721296198791-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the fries to a baking tray with a drizzle of vegetable oil, a pinch of salt 
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1721296205551-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ While the chips are cooking, peel and finely chop (or grate) your garlic
 
 Combine your tomato paste, chopped garlic and dried oregano with 2 tbsp<span class="text-danger"> <span class="text-purple">[3 tbsp]</span> [4 tbsp] </span>cold<span class="text-danger"> </span>water and a pinch of salt and pepper – this is your tomato sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721296209144-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Grate your lighter cheese
 
 Drain and pat your mozzarella dry with kitchen paper and tear into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721296258519-x200.jpg)
 
 ### Step 4
 
 Place your chicken breast portion[s] onto a separate tin foil-lined baking tray
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721296262050-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Dollop the remaining tomato sauce over the top
 
 Put the tray in the oven for 20-25 min or until the chicken is cooked through (no pink meat!) and all of the cheese has melted – this is your chicken parmigiana
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721296268575-x200.jpg)
 
 ### Step 6
 

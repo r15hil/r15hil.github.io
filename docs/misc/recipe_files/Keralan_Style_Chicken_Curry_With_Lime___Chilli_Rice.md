@@ -30,6 +30,7 @@ This vibrant Kerala-inspired curry is filled with bright colours and bold flavou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2415Step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat, then 
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2415Step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once browned, add your ground turmeric and cook for a further 1 min
 
 Transfer the browned chicken to a plate, reserve the pan and juices
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2415Step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Peel and roughy chop your garlic
 
 Trim, then chop your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2415Step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chicken stock mix and chopped creamed coconut in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2415Step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2415Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add the spice paste and cook for 4-5 min or until fragrant
 
 Once fragrant, add the browned chicken, halved green beans and coconut stock and cook for 6-8 min or until thickened to a curry-like consistency and the chicken is cooked through (no pink meat!) – this is your Keralan-style chicken curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2415Step-7-x200.jpg)
 
 ### Step 7
 

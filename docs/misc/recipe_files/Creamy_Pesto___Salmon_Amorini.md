@@ -19,6 +19,7 @@ We've paired succulent pan-fried salmon with a quick, creamy pesto sauce that's 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622805256375-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Please make sure you cook your salmon thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1916.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Boil a full kettle
 
 Once hot, add the salmon fillets to the pan with a pinch of salt and cook for 3 min on each side or until browned on both sides and almost cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1916.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,16 +53,19 @@ Cook the amorini for just 2-3 min (it will keep cooking in the sauce later!)
 
 Once done, drain the amorini, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1916.-step-4-x200.jpg)
 
 ### Step 4
 
 While the pasta cooks, chop the cherry tomatoes in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1916.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the salmon is almost cooked, add the halved cherry tomatoes and cook for 2-3 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1916.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Break the salmon into large, bite-sized pieces with a wooden spoon, then add the
 
 Cook for 1 min further or until the sauce has thickened slightly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1916.-step-7-x200.jpg)
 
 ### Step 7
 

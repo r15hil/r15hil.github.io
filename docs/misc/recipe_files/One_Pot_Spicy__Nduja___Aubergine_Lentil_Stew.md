@@ -25,6 +25,7 @@ This one pot powerhouse takes aubergine parmigiana to new heights. You’ll fry 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707822772561-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a pot (with a matching lid) with a generous drizzle of vegetable oil over a
 
 Add the chopped aubergine and cook for 5-6 min or until lightly browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707822779752-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Finely grate the remaining garlic halves
 
 Rinse your red lentils in a sieve under cold running water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707822786980-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the grated garlic and cook for 1 min or until fragrant
 
 Once fragrant, add your dried thyme with your tomato paste, chopped tomatoes, rinsed red lentils and chicken stock mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707822794525-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Add 450ml <span class="text-purple">[675ml]</span><span class="text-danger"> [90
 
 Once boiling, reduce the heat to medium-low and cook, covered, for 15-20 min or until the lentils are tender, stirring occasionally – this is your 'Nduja & aubergine lentil stew
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707822804443-x200.jpg)
 
 ### Step 5
 
 Slice your ciabatta in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707822811305-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the 'Nduja aubergine & lentil stew is ready, stir through half your grated 
 
 Set aside, with the lid on, for 2-3 min for the flavours to develop – this is your one pot spicy 'Nduja & aubergine lentil stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707822816628-x200.jpg)
 
 ### Step 7
 

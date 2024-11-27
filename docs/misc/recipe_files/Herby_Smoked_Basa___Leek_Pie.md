@@ -22,6 +22,7 @@ For this fish pie cook leek with garlic, crème fraîche and parsley & dill to m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2404Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2404Step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over a
 
 Once hot, add the chopped leek with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2404Step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 200ml <span class="text-purple">[275ml] </span><span class="text-danger">[350ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2404Step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the vegetable stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium, add your crème fraîche and cook for 3-4 min or until thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2404Step-5v2-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Whilst the sauce is thickening, chop your parsley & dill finely, including the s
 
 Cut your smoked basa fillet[s] into large, bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2404Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Season with a generous grind of pepper and give everything a good mix up – thi
 
 Transfer the mixture to an oven-proof dish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2404Step-7-x200.jpg)
 
 ### Step 7
 

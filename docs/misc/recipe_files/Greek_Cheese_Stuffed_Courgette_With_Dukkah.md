@@ -28,6 +28,7 @@ Take on a fruity feta feast from the Middle East. You’ll dine on honey and chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665560551334-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain and return to the pot then cover with a lid until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665560554192-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Slice your courgette[s] in half lengthways then scrape out the inner seeds usin
 
 Chop the inner seeds roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665560556906-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Combine the chopped courgette and chopped garlic in a bowl with the crumbled Gre
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your Greek cheese stuffing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665560560047-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Transfer the courgette boats to a baking tray (or two!) and fill them with the G
 
 Add a drizzle of vegetable oil and put the tray[s] in the oven for 12-15 min or until the courgette has softened and the Greek cheese stuffing is golden – this is your Greek cheese-stuffed courgette
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665560563427-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, transfer to a pestle & mortar
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665560566826-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your ground turmeric and a pinch of salt to the pestle & mortar and grind to
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665560569949-x200.jpg)
 
 ### Step 7
 

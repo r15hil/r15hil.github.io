@@ -25,6 +25,7 @@ Offering a little welcome heat from the chipotle, our family-pleasing veggie chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/965.-step-1.new-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/965.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/965.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced pepper with a generous pinch of salt and cook for 3 min or until it's softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/965.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Meanwhile, dissolve the vegetable stock cube<span class="text-danger">[s]</span>
 
 Drain and rinse the cannellini beans and kidney beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/965.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Stir the drained cannellini beans and kidney beans into the pan and cook for
 
 Add your smoky stock with a generous pinch of salt and pepper and cook the beans for 5-7 min or until everything has reduced to a chilli-like consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/965.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Meanwhile, grate the cheddar cheese
 
 Trim, then slice the spring onions finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/965.-step-7-x200.jpg)
 
 ### Step 7
 

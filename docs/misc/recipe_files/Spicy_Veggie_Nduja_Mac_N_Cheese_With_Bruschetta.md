@@ -26,6 +26,7 @@ Plant-based ‘nduja gives this old-school American classic a spicy kick. You’
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686239796687-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your macaroni to a pot of boiled water and bring to the boil over a high
 
 Cook the macaroni for 6-7 min or until cooked with a bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686239804086-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Combine the chopped tomato, chopped basil and chopped garlic (not a big garlic f
 
 Slice your ciabatta[s] in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686239809533-x200.jpg)
 
 ### Step 3
 
 Once ready, drain the cooked macaroni and reserve 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[175ml]</span> starchy pasta water and set aside until later, reserve the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686239813909-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine the grated cheese with your cornflour – this is your coated cheese
 
 Add the coated cheese, soft cheese and 90ml <span class="text-purple">[135ml] </span><span class="text-danger">[180ml]</span> milk to the reserved starchy pasta water – this is your cheese sauce mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686239817801-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once fragrant, add the cheese sauce mix to the pot with a small pinch of salt an
 
 Add the cooked macaroni and cook for 2-3 min or until a smooth, thick sauce remains – this is your mac 'n' cheese mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686239821455-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Put the dish in the oven for 10 min or until golden and bubbling – this is you
 
 Add the sliced ciabatta to a baking tray and put the tray in the oven for an initial 6 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686239826801-x200.jpg)
 
 ### Step 7
 

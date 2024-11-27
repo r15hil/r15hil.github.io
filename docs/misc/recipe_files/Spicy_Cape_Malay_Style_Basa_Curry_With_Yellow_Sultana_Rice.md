@@ -30,6 +30,7 @@ This vibrant curry has been a South African go-to for generations. You’ll simm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1671543567062-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Slice half your red chilli[es] into rounds and chop the remaining chilli[es] fin
 
 Add the cucumber rounds, chopped chilli (can't handle the heat? Go easy!) and bay leaf[ves] to a bowl with your white wine vinegar and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>boiled water and season with a pinch of salt and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your quick-pickled chilli cucumber
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671543599647-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and finely slice (don't chop!) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671543604307-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your yellow sultana rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671543609152-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once hot, add the sliced onion, chopped garlic and chopped ginger with a pinch of salt and cook for 8-9 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671543612994-x200.jpg)
 
 ### Step 5
 
 Meanwhile, chop your basa fillet[s] into large, bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671543623422-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once softened, add the remaining ground turmeric, curry powder, tomato paste and
 
 Drain the quick-pickled chilli cucumber, reserving the pickling liquid and bay leaf[ves]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671543634153-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Whip up this speedy salad in a flash! Sear beef strips to serve atop a salad of 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1563.-step-1.a-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1562.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of&nbsp;veget
 
 Meanwhile, rip the&nbsp;little gem leaves&nbsp;into rough, bite-sized pieces and add them to a large bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1562.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Microwave the steamed brown basmati rice according to packet instructions
 
 Tip: if you're cooking two packets, pop them in together but increase the microwave cook time accordingly!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1562.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,16 +75,19 @@ Cook for 1 min exactly, turning once halfway and making sure you don&rsquo;t ove
 
 Once done, transfer the beef strips to a plate to rest
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1562.-step-5-x200.jpg)
 
 ### Step 5
 
 Combine the fish sauce, soy sauce, hoisin sauce and rice vinegar with 1 tbsp<span class="text-danger"> [2 tbsp]</span> vegetable oil in a small bowl &ndash; this is your dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1562.-step-6-x200.jpg)
 
 ### Step 6
 
 Slice the cucumber in half lengthways and slice finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1562.-step-7-x200.jpg)
 
 ### Step 7
 

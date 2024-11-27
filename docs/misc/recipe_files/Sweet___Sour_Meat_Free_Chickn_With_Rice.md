@@ -27,6 +27,7 @@ The ultimate takeaway classic – made at home. You'll pan fry meat-free chick'n
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1676978838153-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1676978842670-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated meat-free chick'n and cook for 6-7 min or until golden and crispy all over, reserve the bowl – this is your crispy meat-free chick'n
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1676978867706-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1676978885483-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add the chopped pepper and onion and cook for 5-6 min or until starting to softe
 
 Once softened, add the chopped garlic and ginger and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1676978892143-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ While the vegetables are cooking, combine the reserved cornflour in a bowl wit
 
 Add your tomato ketchup, Chinese rice wine, red chilli relish, gluten free soy sauce, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and your rice vinegar and mix until smooth – this is your sweet & sour sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1676978901755-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Increase the heat to high
 
 Return the crispy meat-free chick'n to the pan with the sweet & sour sauce and cook for 2-3 min further or until a thick sauce remains – this is your sweet & sour meat-free chick'n
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1676978910017-x200.jpg)
 
 ### Step 7
 

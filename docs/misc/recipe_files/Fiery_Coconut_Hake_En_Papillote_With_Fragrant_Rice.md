@@ -24,6 +24,7 @@ Try something new with this aromatic fish dish, steamed 'en papillote' (in a par
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1688990420708-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut a piece of baking paper approx. the size of A3 sheets of paper (1 per person
 
 Lay the pak choi leaves in the middle of the piece of baking paper (doubling it up prevents any leakages) and add to a baking tray (or two!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688990423946-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688990429065-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Combine the chopped creamed coconut in a jug with your tamari soy sauce, ginger 
 
 Mix until fully combined – this is your fiery coconut sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688990432407-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Rinse your blanched edamame beans under cold running water
 
 Sprinkle the edamame beans over the pak choi, then top with half the chilli rounds (not a fan of spice? Just add a little!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1688990435983-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Top with your hake fillet[s], then evenly cover with the remaining fiery coconut
 
 Scrunch the edges of the baking paper around the fish to form 1<span class="text-danger"> </span>sealed parcel per person, making sure to leave space between the top of the fish and the paper (this is to prevent sticking)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1688990439953-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Put the tray[s] in the oven for 15 min or until the veg has softened and the fis
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1688990442402-x200.jpg)
 
 ### Step 7
 

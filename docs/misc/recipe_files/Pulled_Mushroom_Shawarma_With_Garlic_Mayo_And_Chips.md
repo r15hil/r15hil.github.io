@@ -26,6 +26,7 @@ One bite of this plant-based shawarma, and you'll forget all about meat. While t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1665480116696-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657642304903-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely slice your red onion[s]
 
 Add the sliced red onion to a bowl with your red wine vinegar and a pinch of salt and sugar and set aside – this is your quick-pickled red onion
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657642314923-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="te
 
 Once hot, add your Fable pulled mushrooms with a pinch of salt and pepper and cook for an initial 5-6 min or until browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657642319682-x200.jpg)
 
 ### Step 4
 
@@ -58,11 +62,13 @@ Meanwhile, peel lengths off your cucumber until you end up with a pile of cucumb
 
 Peel and grate (don't chop!) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657642329940-x200.jpg)
 
 ### Step 5
 
 Combine your grated garlic (not a big garlic fan? Try using less!) with your mayo and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water in a bowl and season with a pinch of salt and pepper – this is your garlic mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657642347587-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Tip: Add a drizzle of oil if the pan is looking a little dry
 
 Add your wholemeal pittas to a toaster for 1-2 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657642376858-x200.jpg)
 
 ### Step 7
 

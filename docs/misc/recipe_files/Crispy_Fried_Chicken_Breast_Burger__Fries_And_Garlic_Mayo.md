@@ -27,6 +27,7 @@ Who doesn't love a chicken burger? For this crowd pleaser, you'll crisp chicken 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1605106772589-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into thin fries
 
 Add the fries to a baking paper-lined baking tray with a drizzle of vegetable oil and a pinch of salt and pepper, give everything a good mix up and put the tray in the oven for 20-25 min or until crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1605106784507-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Add the chicken strips, soy sauce and your ground smoked paprika to a bowl and g
 
 Add your cornflour and dried oregano to a shallow plate with a pinch of salt and pepper and mix well – this is your herby flour mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1605106796904-x200.jpg)
 
 ### Step 3
 
 Remove the chicken strips from the bowl and firmly press each one into the herby flour mix, making sure to evenly coat them on both sides – these are your coated chicken strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1605106802249-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated chicken strips and cook for 5-6 min on each side or until golden brown, crispy and cooked through (no pink meat!) – this is your crispy fried chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1605106806753-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Meanwhile, cut your brioche bun[s] in half
 
 Add the brioche halves to a separate baking tray (or two!) and put the tray[s] in the oven for 4-5 min or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1605106814266-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Wash your lettuce, then pat it dry with kitchen paper and finely shred
 
 Dice your tomato[es] finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1605106818408-x200.jpg)
 
 ### Step 7
 

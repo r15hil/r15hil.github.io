@@ -23,6 +23,7 @@ British Burland Bloom brie is the star of this impressive dish that won't take a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1868.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Set the oven to 200°C/ 180°C (fan)/ 400°F/ <span class="text-highlight">Gas 6
 
 <span class="text-highlight">Using a fork, prick inside the border.</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1868.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Transfer the pastry squares to one side of a baking tray.
 
 Put the tray in the oven for 15 minutes or until golden.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1868.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Put the tray in the oven for 15 minutes or until golden.
 
 <span class="text-highlight">Slice the brie through the equator (as though slicing a bread roll) so you are left with 2 <span class="text-danger">[4]</span> round halves.</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1868.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,6 +83,7 @@ Strip the thyme <span class="text-highlight">leaves</span> from their stems and 
 
 <span class="text-highlight">Chop the walnuts roughly.</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1868.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,6 +95,7 @@ Once the pastry is golden, remove it from <span class="text-highlight">the oven.
 
 <span class="text-highlight">Using the back of a spoon, carefully flatten the middle of each square, so you are left with a puffed-up border.</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1868.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,6 +113,7 @@ Place the brie <span class="text-highlight">halves</span> onto the <span class=
 
 <span class="text-highlight">Return the tray to the oven for 10-12 minutes or until the brie is bubbling. </span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1868.-step-7-x200.jpg)
 
 ### Step 7
 

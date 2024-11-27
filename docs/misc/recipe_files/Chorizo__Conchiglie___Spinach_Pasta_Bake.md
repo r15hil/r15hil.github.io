@@ -23,6 +23,7 @@ This hearty pasta bake is so easy to throw together after a long day. You'll siz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581614538289-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581614544007-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once hot, add your diced chorizo and cook for 3-4 min or until beginning to cris
 
 Add the chopped garlic and cook for 1-2 min further
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1581614549150-x200.jpg)
 
 ### Step 3
 
@@ -52,11 +55,13 @@ Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
 Once done, drain the conchiglie, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1581614554318-x200.jpg)
 
 ### Step 4
 
 Once the chorizo is beginning to crisp, add your chopped tomatoes and soft cheese to the pan and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1581614560145-x200.jpg)
 
 ### Step 5
 
@@ -64,11 +69,13 @@ Wash your spinach, then add it to the pan with 100ml <span class="text-purple">[
 
 Cook, covered, for 1-2 min or until the spinach has wilted – this is your creamy tomato chorizo sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1581614564907-x200.jpg)
 
 ### Step 6
 
 Grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1581614569921-x200.jpg)
 
 ### Step 7
 

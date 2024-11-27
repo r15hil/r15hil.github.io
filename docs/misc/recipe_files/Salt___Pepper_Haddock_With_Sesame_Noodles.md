@@ -29,6 +29,7 @@ For the ultimate easy meal, you'll coat haddock in cornflour and fry until golde
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657108033197-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Pat your haddock bites dry with kitchen paper and cut into large bite-sized chun
 
 Add the haddock chunks to a bowl with your cornflour, a generous pinch of salt, a grind of black pepper and your five-spice mix and give everything a good mix up until well coated
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657108037139-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once the pan is very hot, add the coated haddock and cook for 3-4 min on each si
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657108041379-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657108045334-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Bring to the boil over a high heat and cook for 1-2 min or until tender, then dr
 
 Once drained, return the noodles to the pot and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657108049088-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Cook for 2-3 min or until fragrant
 
 Once fragrant, transfer everything to a plate (save the pan!) and set aside until serving – this is your salt & pepper haddock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657108053029-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Meanwhile, combine your soy sauce and toasted sesame oil in a small bowl with yo
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657108057376-x200.jpg)
 
 ### Step 7
 

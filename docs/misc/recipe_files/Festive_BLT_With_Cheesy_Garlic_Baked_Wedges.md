@@ -28,6 +28,7 @@ You had me at BLT. For a festive take on this classic sandwich, you’ll smother
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1667398332623-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your potatoes (skins on) into wedges
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1667398338971-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Season with a pinch of salt and pepper and give everything a good mix up
 
 Put the tray in the oven for an initial 20-25 min or until the wedges have softened and are starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1667398347536-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Line a separate baking tray with tin foil (to avoid mess!) and add your smoked s
 
 Put the tray in the oven for 10-15 min or until golden and crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1667398353943-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Dice the remaining tomato[es] finely
 
 Wash your lettuce, then pat it dry with kitchen paper and shred roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1667398361009-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add your mayo to a bowl with your cranberry sauce and a good grind of pepper –
 
 Grate your Italian hard cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1667398367706-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add your ciabattas to the other side and put the tray in the oven for 5 min or u
 
 Carefully slice the warmed ciabattas in half before serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1667398375087-x200.jpg)
 
 ### Step 7
 

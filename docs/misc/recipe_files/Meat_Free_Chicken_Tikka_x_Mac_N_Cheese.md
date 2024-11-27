@@ -27,6 +27,7 @@ Enter a new age of deliciousness, with the genius combo of melty cheese sauce an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662455699334-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the macaroni to a pot of boiled water, bring to the boil over a high heat
 
 Once done, drain the cooked macaroni reserving a cup of starchy pasta water and set aside until later, reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1662455704269-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the ground paprika, ground turmeric, garam masala, a generous drizzle of oli
 
 Give everything a good mix up, then set aside – this is your meat-free chicken tikka
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662455709306-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely chop (or grate) the garlic
 
 Finley grate the cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662455714237-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add the chopped shallot and chopped garlic with the curry powder and a
 
 Once softened, add 2 tbsp <span class="text-danger">[4 tbsp] </span>flour and stir with a wooden spoon for 1-2 min or until a sandy paste coats the shallot – this is your roux
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662455716824-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once thickened, add 3/4 of the grated cheese (you'll use the rest later!), veget
 
 Give everything a good mix up – this is your curried béchamel sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662455721768-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the drained macaroni to the curried béchamel sauce – this is your mac 'n'
 
 Tip: Add a splash of starchy pasta water if it's looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662455727049-x200.jpg)
 
 ### Step 7
 

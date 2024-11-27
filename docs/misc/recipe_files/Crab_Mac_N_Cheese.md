@@ -26,6 +26,7 @@ How do you make mac 'n' cheese fancy? Add sweet crab, a sprinkling of chives and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1607614575166-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Boil a full kettle
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607614581882-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni and return to the pot with a drizzle of olive oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607614592437-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Once melted, add the chopped garlic and cook for 1-2 min or until fragrant
 
 Once fragrant, add 15g <span class="text-purple">[25g]</span> <span class="text-danger">[30g] </span>flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607614603721-x200.jpg)
 
 ### Step 4
 
 Gradually whisk 300ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> milk into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your béchamel sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607614610601-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Meanwhile, grate your cheddar cheese
 
 Combine 1/4 of your grated Italian hard cheese (save the rest for later!) with your panko breadcrumbs, a pinch of salt and a drizzle of olive oil in a small bowl – these are your cheesy breadcrumbs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607614623099-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Break up your crab meat gently with a fork, then stir it through with your clott
 
 Chop your chives finely, then add into the pan, season with a generous pinch of salt and grind of black pepper and give everything a good mix up until the cheese has melted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607614670486-x200.jpg)
 
 ### Step 7
 

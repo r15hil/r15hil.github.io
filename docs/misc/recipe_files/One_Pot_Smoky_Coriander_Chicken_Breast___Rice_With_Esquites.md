@@ -30,6 +30,7 @@ For this super speedy one-pot dinner you'll cook juicy chicken breast in smoky s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1722521944417-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1722521949311-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a drizzle of ol
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into chunks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1722521959616-x200.jpg)
 
 ### Step 3
 
 Once hot, add your chicken breast portion[s] to the dish with a generous knob of butter and cook for 3 min or until very lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1722521964635-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Chop your coriander finely, including the stalks
 
 Drain your sweetcorn
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1722521969139-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add 225ml <span class="text-purple">[300ml] </span><span class="text-danger">[45
 
 Cover with a lid and put the dish in the oven for 25-30 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1722521972681-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add a pinch of salt and pepper and give everything a good mix up – this is you
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1722521976226-x200.jpg)
 
 ### Step 7
 

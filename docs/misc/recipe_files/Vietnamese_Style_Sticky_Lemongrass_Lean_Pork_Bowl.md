@@ -31,6 +31,7 @@ This Vietnamese-inspired bowl comes fully loaded with aromatic lean pork, fresh 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1669726004042-x200.jpg)
 
 ### Step 1
 
@@ -40,11 +41,13 @@ Combine your ground turmeric with a generous pinch of salt, 1 tbsp<span class=
 
 Add your rice vinegar and courgette ribbons and set aside until serving – this is your quick-pickled courgette
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669726010757-x200.jpg)
 
 ### Step 2
 
 Meanwhile, bash your lemongrass with a rolling pin, cut down the middle lengthways, remove the tough outer layers (save them for later) and chop the softer inner core[s] finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1669726015393-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669726020680-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 3/4 of the sliced onion (you’ll use the rest later!) and cook for 3-4 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669726026327-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once crisp, add your fish sauce and red chilli relish and cook for 2-3 min furt
 
 Tip: Watch it like a hawk to prevent the sauce from burning!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669726031361-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Chop your coriander finely, including the stalks
 
 Carefully chop your roasted peanuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669726035288-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Ward off the winter chill with this hearty vegetable stew. You’ll bubble potat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675766068592-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top, tail, peel and finely dice your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675766078776-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped potato and diced carrot to the pan with a generous pinch of salt and cook for 4-5 min or until slightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675766086235-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Rip the leaves off your spring greens, discard the tough stalks, then layer the 
 
 Drain and rinse your cannellini beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675766090513-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Dissolve your vegetable stock mix in 500ml <span class="text-purple">[650ml]</sp
 
 Once slightly browned, add the chopped garlic, dried oregano and tomato paste to the pan and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675766095669-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once fragrant, add the drained cannellini beans and sliced spring greens with th
 
 Cook, covered, for 20 min or until the potato is fork-tender – this is your Italian-style bean, tomato & greens stew
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675766165995-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Cook, uncovered, for a further 5 min or until the bread is fully soaked into the
 
 Once done, remove the pan from the heat and stir through most of your grated Italian hard cheese (you'll use the rest later!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675766178391-x200.jpg)
 
 ### Step 7
 

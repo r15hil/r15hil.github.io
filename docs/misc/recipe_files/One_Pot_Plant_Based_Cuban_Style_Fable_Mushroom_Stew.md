@@ -31,6 +31,7 @@ Havana, here we come. This twist on Cuban ‘ropa vieja’ is slow-cooked for ul
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1672853271629-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1672853274531-x200.jpg)
 
 ### Step 2
 
@@ -51,11 +53,13 @@ Boil a full kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a drizzle of olive oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1672853278140-x200.jpg)
 
 ### Step 3
 
 Once hot, add your Fable pulled mushrooms and cook for 2-3 min or until lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1672853281610-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Drain and rinse your black beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1672853284538-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add the chopped onion and chopped pepper to the dish with 1 tsp <span class="tex
 
 Add 700ml <span class="text-purple">[820ml] </span><span class="text-danger">[1.2L]</span> boiled water, your vegetable stock mix, tomato paste and red wine paste and stir it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1672853287959-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Cover with the lid and put the dish in the oven for 50 min or until the sauce is
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1672853290847-x200.jpg)
 
 ### Step 7
 

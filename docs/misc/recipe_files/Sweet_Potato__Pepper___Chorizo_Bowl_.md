@@ -21,6 +21,7 @@ Paprika rich, smoky chorizo and sweet potato works really well as a flavour duo.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/505.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with 1 t
 
 Peel and finely slice the onion<span class="text-danger">(s)</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/505.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Cook for 4 min or until the chorizo has caramelised and the onion has softened
 
 Meanwhile, cut the sweet potato into bite-size pieces, keeping the skins on
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/505.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Meanwhile, boil a kettle
 
 Deseed the peppers (scrape the seeds and pith out with a teaspoon) and cut into bite-size pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/505.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel and finely chop (or grate) the garlic
 
 Add the pepper and garlic to the pan and cook for a further 5 min or until the pepper starts to colour
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/505.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Meanwhile, add the couscous to a shallow bowl with 200ml <span class="text-dange
 
 Set aside for 10 min or until the water is absorbed and the couscous tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/505.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Dissolve the stock cubes<span class="text-danger">(s)</span> in 350ml <span clas
 
 Add the chipotle paste and stir to fully combine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/505.-step-7-x200.jpg)
 
 ### Step 7
 

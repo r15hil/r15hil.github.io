@@ -28,6 +28,7 @@ Thai chefs will deep fry a whole basa until golden and crisp to make 'Pla Rad Pr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1583417825477-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Sprinkle your cornflour all over and rub it into both sides of the fish until fu
 
 Tip: Coat the fish in the cornflour one side at a time to avoid stickiness!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1583417831182-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop half your red chilli[es] into rounds, then chop the remaining chilli finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1583417834086-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add your white long grain rice and 400ml <span class="text-purple">[600ml]</span
 
 Once boiling, reduce the heat to very low and cook, covered, for an initial 12 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1583417837902-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Once hot, add the coated basa and cook for 8-9 min, turning once halfway until g
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1583417842109-x200.jpg)
 
 ### Step 5
 
 While the fish is cooking, combine your tamarind paste, fish sauce, 2 tsp<span class="text-danger"> <span class="text-purple">[3 tsp]</span> [4 tsp]</span> sugar and 150ml <span class="text-purple">[200ml]</span><span class="text-danger"> [260ml] </span>boiled water – this is your tamarind stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1583417845429-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once done, remove the pot from the heat and keep covered until serving
 
 Heat a separate pot with a drizzle of vegetable oil over a medium heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1583417850651-x200.jpg)
 
 ### Step 7
 

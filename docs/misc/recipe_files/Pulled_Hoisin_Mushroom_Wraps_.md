@@ -21,6 +21,7 @@ To whip up a quick twist on crispy Chinese pancakes, you'll wrap sweet, sticky p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624354714314-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Once hot, add the portobello mushrooms to the pan with a pinch of salt and coo
 
 Once the mushrooms are starting to brown, reduce the heat to low, add a couple of splashes of water and cook, covered, for 10-12 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624354728274-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Tip: This is to warm your tortillas later – alternatively, add them to a plate
 
 Wash the gem lettuce, then pat it dry with kitchen paper and shred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624354742859-x200.jpg)
 
 ### Step 3
 
@@ -46,11 +49,13 @@ Slice the cucumber into discs
 
 Slice each individual cucumber disc into matchsticks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624354747446-x200.jpg)
 
 ### Step 4
 
 Trim, then slice the spring onions lengthways into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624354752968-x200.jpg)
 
 ### Step 5
 
@@ -60,11 +65,13 @@ Put them in the oven for 2-3 min or until they're warmed through
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624354777479-x200.jpg)
 
 ### Step 6
 
 Once done, transfer the cooked mushrooms to a clean board and shred them apart, using two forks – this technique is known as 'pulling' – these are your pulled mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624354782580-x200.jpg)
 
 ### Step 7
 

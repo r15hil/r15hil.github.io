@@ -21,6 +21,7 @@ This risotto appears humble, but has a touch of magic. Fresh rosemary and sharp 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/172_step-1-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Boil a kettle
 
 Preheat the oven to 160&deg;C/ 140&deg;C (fan)/ 325&deg;F/ Gas 3
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/172_step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Strip the rosemary leaves from their stalks and chop finely
 
 Grate the Italian hard&nbsp;cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/172_step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Continue to peel lengths off&nbsp;the parsnip until you end up with a pile of pa
 
 Once you can't peel any further, chop the remaining parsnip&nbsp;core&nbsp;into bite-size&nbsp;chunks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/172_step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Line a baking&nbsp;tray with some baking paper and&nbsp;add the parsnip ribbons
 
 Tip: make sure they don't overlap as they won't crisp properly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/172_step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once done, remove the tray from the oven and place them on a piece of kitchen pa
 
 Season&nbsp;generously with salt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/172_step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the parsnip chunks&nbsp;and&nbsp;chopped onion and cook for 3-4 min or until the parsnip has coloured slightly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/172_step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Fresh, fragrant and packed with fable mushrooms, this Vietnamese-inspired stew i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1688123395252-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688123378369-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Bash your lemongrass with a rolling pin, remove the tough outer layers of the le
 
 Once hot, add your Fable pulled mushrooms and lemongrass core[s] to the dish and cook for 1-2 min or until the mushrooms are lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688123383381-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add half your chilli flakes (can't handle the heat? Go easy!), a pinch of sugar 
 
 Stir everything together and bring to the boil, then cover and put in the oven for 25-30 min or until the sauce has thickened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688123386762-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Once the stew is in the oven, add your basmati rice to an oven-proof dish with t
 
 Cover tightly with tin foil and put the dish in the oven for 25-30 min or until all the water is absorbed and the rice is cooked – this is your fragrant baked rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688123400508-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1688123404154-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Scrunch the foil around the mangetout to form a tightly sealed parcel and add to
 
 Put the tray in the oven for 10-12 min or until the mangetout are tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688123407232-x200.jpg)
 
 ### Step 7
 

@@ -21,6 +21,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1852.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Grate the potatoes (skins on), then add to the middle of a tea towel and bring t
 
 Add the grated potato to a bowl and season with a pinch of salt and pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1852.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Heat the pan over a medium-high heat and cook for 5-6 min or until golden, then 
 
 Tip: Don't move the rösti around the pan too much so they stay together!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1852.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once done, drain the cooked parsnip and add it to a food processor with the clot
 
 Season with a generous pinch of salt and blitz until smooth – this is your parsnip purée
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1852.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Dissolve the soy sauce and redcurrant jelly in 100ml <span class="text-danger">[
 
 Pat the sirloin steaks dry with kitchen paper, drizzle them with vegetable oil and season with a pinch of salt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1852.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ For medium, cook for 4-5 min on each side
 
 Once the steaks are cooked, transfer them to a plate to rest
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1852.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Return the parsnip purée to a pot over a low heat and cook for 1-2 min or unti
 
 Peel and finely chop (or grate) the garlic
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1852.-step-7-x200.jpg)
 
 ### Step 7
 

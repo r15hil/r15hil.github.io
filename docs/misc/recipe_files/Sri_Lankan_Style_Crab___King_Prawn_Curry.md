@@ -30,6 +30,7 @@ To whip up a luxurious Sri Lankan-inspired curry, you'll combine succulent king 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2160.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2160.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 5-6 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2160.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2160.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add most of the chopped chilli to the pan (can't handle the heat? Go easy!) and
 
 Cook for 2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661253526379-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Dissolve the creamed coconut and your vegetable stock mix in 300ml <span class="
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2160.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the juice of half your lime[s] with 1/2 tsp <span class="text-purple">[3/4 t
 
 Once boiling, drain your king prawns, then add them to the pan and cook for 4-5 min or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2160.-step-7-x200.jpg)
 
 ### Step 7
 

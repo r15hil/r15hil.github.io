@@ -22,6 +22,7 @@ This easy Vietnamese-style noodle soup is full of fragrant flavours. You’ll pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677843977967-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677843983076-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh with your soy sauce and cook for an initial 5-6 min or until beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677843989594-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Dissolve your pho broth paste in 600ml <span class="text-purple">[750ml]</span><
 
 Reboil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677844072215-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Add your fine egg noodles to a large bowl, cover them with boiled water and stir
 
 Set aside to soak for 4 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677844077186-x200.jpg)
 
 ### Step 5
 
 Once the chicken has had an initial 5-6 min, add your ginger & garlic paste and half your chilli flakes (can't handle the heat? Go easy!) and cook for a further 2-3 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677844085347-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once boiling, reduce the heat to medium and cook for a final 3 min or until the 
 
 Add the spinach to the pan and mix everything together until the spinach has slightly wilted – this is your fragrant chicken thigh & spinach broth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677844094444-x200.jpg)
 
 ### Step 7
 

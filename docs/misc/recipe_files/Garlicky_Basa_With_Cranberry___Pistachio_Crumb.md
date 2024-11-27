@@ -27,6 +27,7 @@ Give Christmas Day a run for its money with this crispy cranberry crumb. You’l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669138228635-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into bite-sized pieces, then add to a baking tray 
 
 Put the tray in the oven for 25-30 min or until golden brown and crispy – these are your crispy rosemary potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669138231022-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Strip your thyme leaves from their stems and chop them finely, discard the stems
 
 Top, tail, peel and cut your carrot[s] into batons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669138246659-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Season with a small pinch of salt and pepper and put the tray in the oven for 15
 
 Meanwhile, dissolve your soy sauce, Henderson's Relish and vegetable stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[400ml] </span>boiled water – this is your stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669138254324-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once melted, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class
 
 Gradually whisk in the stock and cook for 5-6 min or until thickened – this is your gravy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669138263988-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add your basa fillet[s] with your ground sumac, remaining garlic and a
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669138270194-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the carrot batons have softened, transfer them to one side of the baking tr
 
 Add your chopped pistachios and chopped cranberries to the other side of the tray and put the tray in the oven for a final 3-4 min or until the pistachios are slightly golden – this is your festive crumb
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669138282043-x200.jpg)
 
 ### Step 7
 

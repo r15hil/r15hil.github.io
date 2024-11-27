@@ -29,6 +29,7 @@ If fried chicken's your jam, pack this crowdpleaser on your plate. You'll serve 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1658234450261-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut your potatoes (skins on) into chips and add them to a baking tray (or two!) 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1658234452795-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the chicken strips to the marinade and give everything a good mix up, then s
 
 Tip: This will help to tenderise your chicken!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1658234456945-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the grated garlic to a small pot with your chilli relish, chilli flakes (can
 
 Heat the pot over a low heat, stir everything together until fully combined and cook for 2-3 min or until thickened to a syrup-like consistency – this is your sweet chilli dip
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1658234460804-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Chop your chives finely
 
 Combine the chopped chives and your soured cream in a small bowl and season with a pinch of salt and pepper – this is your soured cream & chive dip
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1658234465239-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Top, tail, peel and grate your carrot[s]
 
 Add the shredded lettuce and grated carrot to a bowl and toss everything together – this is your carrot salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1658234468961-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add your cracked black pepper, ground paprika, cornflour and 1 tbsp <span class=
 
 Season with a generous pinch of salt and give everything a good mix up until the chicken is fully coated
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1658234472830-x200.jpg)
 
 ### Step 7
 

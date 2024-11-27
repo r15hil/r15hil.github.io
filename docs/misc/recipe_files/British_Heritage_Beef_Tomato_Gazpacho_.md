@@ -26,6 +26,7 @@ Venture to the Spanish region of Andalusia with a refreshing Gazpacho that's per
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1655205963373-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and chop the red onion<span class="text-danger">[s]</span> into wedges
 
 Cut the cucumber into quarters lengthways
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655205969627-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Peel the garlic
 
 Tear 1<span class="text-danger"> [2] </span>ciabatta<span class="text-danger">[s]</span> into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655205977357-x200.jpg)
 
 ### Step 3
 
 Take a quarter of the chopped peppers, quartered cucumber, onion wedges and heritage tomato wedges and dice them finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655205991448-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Combine the diced vegetables and chopped coriander in a small bowl with a pinch 
 
 Slice the remaining ciabatta<span class="text-danger">[s]</span> into 6 <span class="text-danger">[12] </span>slices
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655206007657-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Sprinkle the grated Italian hard cheese onto the other side of the tray and put 
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655206040039-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Meanwhile, add the remaining chopped peppers, quartered cucumber, onion wedges a
 
 Add the ground cumin, chilli flakes (can't handle the heat? Go easy!), vegetable stock mix and red wine vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655206050552-x200.jpg)
 
 ### Step 7
 

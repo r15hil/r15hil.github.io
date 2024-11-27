@@ -28,6 +28,7 @@ For a nourishing, delicious dinner, top coconut rice with chicken and a spicy Th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1732535789855-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Chop your creamed coconut roughly (if required!)
 
 Add your basmati rice and chopped creamed coconut to a pot with 300ml <span class="text-purple">[390ml] </span><span class="text-danger">[600ml]</span> cold water and bring to a boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Rice-in-a-pan-1732535936975-x200.jpg)
 
 ### Step 2
 
 Once boiling, reduce the heat to low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat – this is your coconut rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1732535822444-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add your diced chicken breast with a generous pinch of salt and cook for an 10-12 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1732535828641-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Deseed (scrape the seeds out with a teaspoon) and chop your red chilli[es]
 
 Chop your coriander finely, including the stalks (save some leaves for garnish!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1732535851813-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Heat a separate large, wide-based pan (preferably non-stick with a matching lid)
 
 Once hot, add the pak choi leaves with a pinch of salt, cover with a lid and cook for 3-4 min or until tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1732535838600-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Meanwhile, dissolve your chicken stock mix in 300ml <span class="text-purple">
 
 Add your fish sauce, lime leaves, the juice of half your lime[s] and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and stir it all together – this is your fragrant stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595259456448-x200.jpg)
 
 ### Step 7
 

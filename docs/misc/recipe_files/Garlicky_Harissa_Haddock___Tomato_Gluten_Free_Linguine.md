@@ -22,6 +22,7 @@ Seasonal tiger tomatoes from the Isle of Wight are the star of this fragrant fus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1710238319026-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Boil a full kettle
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1710238322503-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ Cut your tomato[es] into thin wedges
 
 Wash your salad, then pat dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1710238326073-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Tip: This will finish cooking in your sauce later!
 
 Once done, drain the linguine, reserving 50ml <span class="text-purple">[60ml]</span> <span class="text-danger">[70ml] </span>of starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1710238330034-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Reboil half a kettle
 
 Dissolve your harissa paste (can't handle the heat? Go easy!) and your vegetable stock mix in 50ml <span class="text-purple">[60ml] </span><span class="text-danger">[70ml]</span> boiled water with 1/2 tsp <span class="text-purple">[3/4 tsp]</span><span class="text-danger"> [1 tsp]</span> sugar – this is your harissa stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1710238333895-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick) with a small drizzle of oliv
 
 Once hot, add the sliced garlic with a generous pinch of salt and cook for 1-2 min or until the garlic has slightly softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1710238337917-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Once the garlic has slightly softened, increase the heat to medium-high add the haddock bites to the pan with the tomato wedges and a pinch of salt and cook for 3-4 min or until the fish begins to turn opaque
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1710238341690-x200.jpg)
 
 ### Step 7
 

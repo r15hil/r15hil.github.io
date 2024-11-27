@@ -25,6 +25,7 @@ Load up on this delicately spiced curry. You’ll simmer potatoes, peas and toma
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675772643210-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 10-12 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675772647731-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ While the potatoes are cooking, peel and finely slice your brown onion[s]
 
 Chop your tomato[es] into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675772667879-x200.jpg)
 
 ### Step 3
 
@@ -50,16 +53,19 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675772655777-x200.jpg)
 
 ### Step 4
 
 Once the sliced onion is starting to soften, add the chopped tomato and cook for 2-3 min or until softening
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675772672547-x200.jpg)
 
 ### Step 5
 
 Once the tomato is softening, add your curry powder and tomato paste to the pan and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675772676744-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Once fragrant, add the cooked potatoes and blanched peas to the pan with your ve
 
 Give everything a good mix up and cook for 4-5 min or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1675773222621-x200.jpg)
 
 ### Step 7
 

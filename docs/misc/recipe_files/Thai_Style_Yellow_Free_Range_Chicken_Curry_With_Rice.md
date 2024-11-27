@@ -27,6 +27,7 @@ If you love Thai curry, you’re in for a treat. You’ll sizzle juicy free rang
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697624943097-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and roughly chop your garlic
 
 Peel (scrape the skin off with a teaspoon) and roughly chop your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697624946170-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the chopped shallot, garlic and ginger to a food processor with your ground 
 
 Blitz until smooth – this is your Thai-style yellow curry paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697624968601-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Chop your creamed coconut roughly (if required!)
 
 Chop your free range chicken breast portion[s] into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697624970619-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697624981130-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add the chopped chicken with a pinch of salt and cook for 3-4 min or u
 
 Meanwhile, dissolve your chopped creamed coconut, chicken stock mix and fish sauce in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water – this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697624984446-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once fragrant, add the sliced carrot and coconut stock and bring to the boil
 
 Once boiling, reduce the heat to medium and cook for 8-10 min or until the sauce has thickened and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697624989867-x200.jpg)
 
 ### Step 7
 

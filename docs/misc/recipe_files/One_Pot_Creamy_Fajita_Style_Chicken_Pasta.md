@@ -32,6 +32,7 @@ Love fajitas? Love pasta? Now you won't need to choose. In just 5 minutes you'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1651674808187-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1651674812680-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, hob-safe oven-proof casserole dish with a matching lid with a driz
 
 Once hot, add your diced chicken breast and cook for 1-2 min until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1651674816438-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Peel and quarter your shallot[s]
 
 Crush your garlic clove open by squashing them with the side of a knife and discard the skin[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1651674826122-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add your ground smoked paprika, ground cumin and ground coriander to the dish
 
 Add the shallot quarters, crushed garlic, chopped pepper and tomato wedges with a pinch of salt and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1651674830624-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add your tortiglioni to the dish, mix it all together and bring to the boil over
 
 Once boiling, cover with a lid and put the dish in the oven for 20-25 min or until the pasta and chicken are cooked (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1651674840768-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Meanwhile, grate your cheddar cheese
 
 Chop your green chilli[es] into rounds
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1651674846147-x200.jpg)
 
 ### Step 7
 

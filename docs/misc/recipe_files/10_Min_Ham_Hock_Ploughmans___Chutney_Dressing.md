@@ -23,6 +23,7 @@ This speedy salad takes inspiration from the British classic 'ploughman's'. Perf
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1686.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1686.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Tear up the ciabatta<span class="text-danger">[s]</span> into bite-sized pieces,
 
 Put the tray into the oven for 6-8 min or until crisp – these are your croutons and toasted walnuts
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1686.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,11 +65,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil�
 
 Once hot, add the shredded ham hock and cook for 3-4 min or until warmed through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1686.-step-4-x200.jpg)
 
 ### Step 4
 
 While the shredded ham hock is in the pan, halve the cherry tomatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1686.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Cut the apple<span class="text-danger">[s]</span> into quarters, then carefully 
 
 Chop the apple quarters (skin on) into bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1686.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Using a peeler, create shavings of the cheddar cheese
 
 Tip: Grate any leftover cheese and sprinkle this onto the salad at the end!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/-1686.-step-7-x200.jpg)
 
 ### Step 7
 

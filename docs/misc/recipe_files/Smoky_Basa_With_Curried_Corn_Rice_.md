@@ -20,6 +20,7 @@ Smoked basa sits on top of a curried sweetcorn and buttered rice, smattered with
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/535__step-1-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Peel and finely slice the red&nbsp;onion<span class="text-danger">[s]&nbsp;</spa
 
 Heat a large, wide-based pan (preferably non-stick) with a matching lid with 1 tbsp<span class="text-danger">&nbsp;[2 tbsp]</span>&nbsp;vegetable oil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/535__step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Reduce the heat to medium and cook for 5 min or until the onion has softened and
 
 Meanwhile, preheat the grill to medium-high
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/535__step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Chop the coriander finely, including the stalks
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/535__step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Drain the sweetcorn, add it to the pan and cook for a further 2 min&nbsp;
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/535__step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add 360ml <span class="text-danger">[700ml]</span>&nbsp;water and bring to the b
 
 Once boiling, reduce the heat to very low, cover and cook for 10-15 min or until the water has absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/535__step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Place the fish under the grill for 7-10 min or until cooked through
 
 Tip: the fish is cooked when it puffs up slightly, turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/535__step-7-x200.jpg)
 
 ### Step 7
 

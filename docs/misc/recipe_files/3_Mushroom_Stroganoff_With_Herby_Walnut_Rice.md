@@ -29,6 +29,7 @@ This veggie take on a stroganoff is the ultimate comfort food. You'll stir musta
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637676835862-x200.jpeg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once melted, add your black mustard seeds and cook for 30 secs, stirring contin
 
 Add your white long grain rice to the pot with a pinch of salt and stir to fully coat the grains
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637676884379-x200.jpeg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637676923703-x200.jpeg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Heat a large, wide-based pan (preferably non-stick), with a drizzle of olive oil
 
 Once hot, add the sliced onion with a pinch of salt and cook for 3 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-15-1731685847036-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once fragrant, roughly tear all your mushrooms into the pan and cook for 4 min u
 
 Tip: Try not to move the mushrooms around too much as this will stop them from caramelising!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-16-1731685976791-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Crush your walnuts with a rolling pin into small pieces
 
 Tip: If you don’t have a rolling pin, just chop them roughly!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1640082331513-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once thickened add a generous grind of black pepper – this is your 3-mushroom 
 
 Tip: If you like it more saucy add a splash more water!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637677123771-x200.jpeg)
 
 ### Step 7
 

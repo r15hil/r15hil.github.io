@@ -21,6 +21,7 @@ Rustle up this easy-peasy dish. You'll serve up golden pan-fried smoked fish wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1598371898981-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598371913574-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Meanwhile, peel and finely slice (don't chop!) your garlic
 
 Dissolve your soft cheese in 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[130ml]</span> boiled water – this is your soft cheese mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1598371923608-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Once melted, add your smoked basa fillet[s] and cook for 3-4 min on each side or
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598371936080-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Transfer the cooked basa to a plate and cover with tin foil to keep warm
 
 Reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598371945161-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once the potatoes are fork-tender, add your blanched peas and cook for 1 min fur
 
 Drain the potatoes and peas and return them to the pot to steam dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598371953006-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Stir it all together and cook for 2-3 min or until the sauce has thickened – t
 
 Tip: If your sauce is too lemony, add a pinch of salt to temper the acidity
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1598371969308-x200.jpg)
 
 ### Step 7
 

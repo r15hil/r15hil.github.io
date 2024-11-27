@@ -22,6 +22,7 @@ Grab a pot and pan, because this creamy pasta is ready in no time. You'll pan fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622804791922-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674562387845-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Boil a kettle and heat a large, wide-based pan (preferably non-stick) with a dri
 
 Once hot, add the diced chicken thigh with a pinch of pepper and cook for an initial 8 min or until browned all over
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spaghetti-draining-1675080531062-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716912894844-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add your soft cheese and roasted garlic paste to a bowl with half your grated It
 
 Mix until completely combined
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716912898618-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add your chicken stock mix to the bowl with 50ml <span class="text-purple">[70ml
 
 Give everything a good mix up – this is your creamy pesto sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716912903995-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the chicken has browned, add the creamy pesto sauce and spinach to the pan
 
 Stir it all together and cook for 1 min or until the spinach has started to wilt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716912908021-x200.jpg)
 
 ### Step 7
 

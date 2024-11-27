@@ -26,6 +26,7 @@ Istanbul inspired, this dish boasts traditional Turkish flavours straight from t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1032.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut the chicken thigh fillets into strips, add them to the harissa marinade and 
 
 Thread the chicken strips evenly onto each skewer and pop them in the fridge until later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1032.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,6 +59,7 @@ Press each ball into a sausage shape, and then flatten into a rectangular patty 
 
 Pop them in the fridge for later&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1032.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -74,6 +77,7 @@ Cut the&nbsp;tomato<span class="text-danger">[es]</span> in half&nbsp;
 
 Dice 1/2&nbsp;<span class="text-danger">[1]</span>&nbsp;tomato&nbsp;and cut the remaining tomato&nbsp;into 2 <span class="text-danger">[4]</span> wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1032.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -85,6 +89,7 @@ Once melted, add the diced&nbsp;pepper and&nbsp;diced tomato with a pinch of sal
 
 Cook for 4-5 min or until everything's&nbsp;softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1032.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -99,6 +104,7 @@ Add the bulgur&nbsp;wheat&nbsp;with the chicken stock and bring to the boil over
 
 Once boiling, reduce the heat to low and cook, covered, for 15 min or until the water has absorbed and the bulgur is cooked &ndash; this is your bulgur pilaf
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1032.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,6 +113,7 @@ Meanwhile, add the harissa chicken skewers, adana kebabs&nbsp;and remaining toma
 
 Put the tray under the grill for 6-8&nbsp;min, turning once halfway through, or until everything's cooked through and slightly charred&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1032.-step-7-x200.jpg)
 
 ### Step 7
 

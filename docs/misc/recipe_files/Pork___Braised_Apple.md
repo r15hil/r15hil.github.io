@@ -22,6 +22,7 @@ Our lovely pork steaks require only 4 minutes of searing on each side, making th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/272.-step1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the bulgur and simmer for 5 min or until almost all the water is absorbed
 
 Remove from the heat and allow to rest with the lid on for 10 min or until the rest of the water has been absorbed
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/272.-step2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once the pan is hot, add the steaks and cook on each side for 4-5 min, or until 
 
 Remove and transfer to a plate, cover with a tea towel or foil to rest for 5 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/272.-step3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile remove the apple core<span class="text-danger">(s)</span> and slice th
 
 Slice the celery finely, discarding the ends
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/272.-step4-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Add the apple and celery to the pork pan and crumble in the remaining stock cube
 
 Add 100ml <span class="text-danger">(200ml)</span> of water and cook on a high heat for 10 min with the lid on
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/272.-step5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine the dijon, cider vinegar, 2 tbsp <span class="text-danger">(4 tbsp)</span> of olive oil and a pinch of salt and pepper to taste to make the dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/272.-step6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Slice the spring onion<span class="text-danger">(s)</span> finely, discarding th
 
 Chop the dill finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/272.-step7-x200.jpg)
 
 ### Step 7
 

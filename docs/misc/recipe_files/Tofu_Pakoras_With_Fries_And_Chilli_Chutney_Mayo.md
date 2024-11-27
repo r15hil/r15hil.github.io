@@ -26,6 +26,7 @@ Pack in the spice with these crispy pakoras. You’ll crumble tofu into a heady 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1680254902159-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-3-1680254908228-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Combine the cornflour in a large bowl with the curry powder, ground turmeric, ve
 
 Give everything a good mix up – this is your pakora batter
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1680254912300-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Crumble the drained tofu into very small pieces
 
 Add the crumbled tofu to the pakora batter and give everything a good mix up until fully combined, then set aside for later – this is your tofu pakora mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680254916505-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Chop the coriander (including the stalks) roughly
 
 Strip the mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1680254919890-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once hot, spoon the tofu pakora mix into the pan, roughly divided into 6 <span c
 
 Tip: Cooking for 4? Use 2 pans!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680254923258-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Meanwhile, add the grated ginger and chopped green chilli (can't handle the heat
 
 Add the mayo, mango chutney, cider vinegar and a pinch of salt and blitz until smooth – this is your chilli chutney mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1680254927490-x200.jpg)
 
 ### Step 7
 

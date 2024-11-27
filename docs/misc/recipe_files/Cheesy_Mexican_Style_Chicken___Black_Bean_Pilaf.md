@@ -32,6 +32,7 @@ This Mexican-style pilaf is a one-pot breeze. You'll pan-fry smoky, cumin-spiced
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1650988635244-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add half your smoked paprika and half your ground cumin (you'll use the rest lat
 
 Add the chicken thighs to the spice blend and turn them several times until they're fully coated in all the spices – this is your spiced chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1650988640478-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add the spiced chicken and cook for 3 min on each side or until browne
 
 Once browned, transfer the chicken to a clean plate, reserving the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1650988645177-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Return the reserved pan to a medium heat with a drizzle of vegetable oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1650988649451-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once softened, add the chopped garlic with your ground coriander, dried chilli f
 
 Give everything a good mix up and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1650988654721-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Meanwhile, dissolve your chicken stock mix and tomato paste in 400ml <span class
 
 Drain and rinse your black beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1650988658939-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Bring to the boil over a high heat, then once boiling, reduce the heat to medium
 
 Cook your basmati rice for an initial 10 min then add the browned chicken (with any juices) and cook for a further 12-15 min or until the chicken is cooked through (no pink meat!) – this is your Mexican-style chicken & black bean pilaf
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1650988666932-x200.jpg)
 
 ### Step 7
 

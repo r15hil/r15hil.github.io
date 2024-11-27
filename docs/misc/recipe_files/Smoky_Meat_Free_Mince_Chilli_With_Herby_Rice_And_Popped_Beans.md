@@ -30,6 +30,7 @@ This easy meat-free mince and bean chilli is packed with flavour. Herby brown ri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632736728804-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632736733418-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632736737103-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add half of the drained kidney beans (you'll use the rest later!) to a baking tr
 
 Put the tray in the oven for 20-25 min or until the skins have burst and are crispy – these are your popped beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632736742556-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ While the kidney beans are in the oven, dissolve your vegetable stock mix and to
 
 Add the chopped garlic, ground cumin, ground smoked paprika and ground coriander to the onion and cook for 30 secs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632736746385-x200.jpg)
 
 ### Step 5
 
 Increase the heat to medium-high, add your meat-free mince (remove the paper if required!) to the pan and cook for 4 min or until beginning to brown, breaking it up with a wooden spoon as you go, then cook for a further 3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632736750762-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the tomato stock, a generous pinch of sugar and a pinch of salt and cook for
 
 Add the remaining drained kidney beans with the reserved kidney bean liquid and cook for a further 2-3 min or until the sauce has thickened to a chilli-like consistency – this is your smoky meat-free mince chilli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632736755025-x200.jpg)
 
 ### Step 7
 

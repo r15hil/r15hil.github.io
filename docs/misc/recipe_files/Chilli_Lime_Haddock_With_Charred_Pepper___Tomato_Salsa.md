@@ -26,6 +26,7 @@ This simple, elegant dish looks impressive and packs a punch. You'll cook haddoc
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721299956486-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> olive oil to a bowl with your ground smoked paprika, ground coriander and a generous pinch of salt and pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721300031348-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Transfer the spiced potatoes & pepper to a baking paper-lined baking tray (or tw
 
 Put the tray[s] in the oven for 25 min or until the potatoes are crispy and the pepper is slightly charred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721300074344-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Zest half your lime[s] (try to grate lightly with a micro-plane or sharp box gra
 
 Trim, then slice your spring onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721300163784-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add the chopped garlic and chopped tomato to the reserved bowl with your red win
 
 Add the lime zest and half the sliced spring onion (reserve the rest for a garnish!) and give everything a good mix up – this is your tomato salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721300171918-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Peel and finely slice (don't chop!) the remaining garlic
 
 Cut the zested lime[s] into 2 wedges per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721300208584-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Pat your haddock bites dry with kitchen paper (unevenly sized haddock bites? Cho
 
 Once hot, add the sliced garlic, your chilli flakes (can't handle the heat? Go easy!) and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> butter and cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721300302838-x200.jpg)
 
 ### Step 7
 

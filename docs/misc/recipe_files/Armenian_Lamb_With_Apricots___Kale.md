@@ -26,6 +26,7 @@ This hearty dish takes influence from a 'khashlama', an Armenian stew packed wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1213.-s.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1213.-s.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add the sliced carrot and cook for 1-2 min
 
 Add the lamb mince with the chopped garlic, ground cumin and allspice and cook for 4-5 min or until browned, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1213.-s.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Heat a pot with a matching lid with a knob of butter and a drizzle of vegetable 
 
 Once the butter has melted, add the sliced red onion, cumin seeds and a generous pinch of salt and cook for 10-15 min or until caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1213.-s.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Meanwhile, add the tomato stock to the browned lamb with the diced apricots and
 
 Cook for 15-20 min or until the carrots have softened and the sauce has thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1213.-s.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1213.-s.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Once the sauce has thickened, add the shredded kale to the lamb and cook for a f
 
 Season with a pinch of salt and pepper – this is your lamb &amp; kale stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1213.-s.-step-7-x200.jpg)
 
 ### Step 7
 

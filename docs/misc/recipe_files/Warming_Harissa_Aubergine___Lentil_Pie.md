@@ -29,6 +29,7 @@ Nothing compares to a traditional pie... except this one. Fold cherry tomatoes, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2427Step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Trim the green stalk[s] off your aubergine[s] and cut into bite-sized pieces, di
 
 Add the chopped aubergine to a baking tray with a drizzle of olive oil and a pinch of salt and put the tray in the oven and cook for 15-18 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2427Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Meanwhile, peel and finely chop your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2427Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp <span class="tex
 
 Once hot, add the chopped onion and garlic with a pinch of salt and cook for 6-8 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2427Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Cook for 10-15 min or until fork-tender, then drain and return to the pot to ste
 
 Add half your harissa paste (can't handle the heat? Go easy!) to the cooked sweet potatoes and mash until smooth
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2427Step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Chop your cherry tomatoes in half
 
 Dissolve your vegetable stock mix in 250ml <span class="text-purple">[325ml]</span><span class="text-danger"> [425ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2427Step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the chopped tomatoes, vegetable stock, drained lentils and remaining harissa
 
 Meanwhile, chop your parsley roughly, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2427Step-7-x200.jpg)
 
 ### Step 7
 

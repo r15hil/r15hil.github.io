@@ -30,6 +30,7 @@ Take a walk on the mild side with our crispy katsu curry. You'll serve this Japa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/769.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/769.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ging
 
 Peel and chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1587458056908-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Boil half a kettle
 
 Wash your lettuce, pat dry with kitchen paper then shred roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/769.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Cover with cling film and bash with a rolling pin until you have an even thickne
 
 Coat the butterflied chicken in the flour, tap off the excess, then add to the beaten egg and finally press into the panko breadcrumbs firmly to evenly coat all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/769.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Add your curry powder and cook for a further 2 min
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 1 min, stirring to coat the vegetables evenly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/769.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Cook for 5-7 min or until the sauce has thickened to a curry-like consistency
 
 Season with a generous pinch of salt, cover with a lid and set aside for later – this is your katsu sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/769.-step-7-x200.jpg)
 
 ### Step 7
 

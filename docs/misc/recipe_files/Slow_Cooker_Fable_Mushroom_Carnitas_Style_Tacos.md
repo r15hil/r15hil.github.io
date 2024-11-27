@@ -31,6 +31,7 @@ Ease into dinner with these melt-in-your-mouth carnitas. You’ll simmer fable m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678801493743-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and chop half your red onion[s] into wedges (save the rest for later!)
 
 Once hot, add your Fable pulled mushrooms and the onion wedges and cook for 3-4 min or until slightly charred
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678801498873-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Chop your tomato[es] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678801504789-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add half the chopped chilli (can't handle the heat? Go easy!) with half the chop
 
 Add your tomato paste and ground smoked paprika with your ground coriander, dried oregano, vegetable stock mix and 100ml <span class="text-purple">[130ml]</span><span class="text-danger"> [150ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678801508911-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Give everything a good mix up, season with a generous pinch of salt and cook on 
 
 Once the seasoned mushrooms are ready, give everything a good mix up and shred the pulled mushrooms apart, using two forks – this is your spiced Fable mushroom mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678801514828-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Cut your lime[s] in half
 
 Combine the juice of half the lime[s] with your mayo – this is your lime mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678801517705-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add the diced onion and remaining chopped chilli (not a fan of spice? Just add a
 
 Add a drizzle of olive oil, season with a pinch of salt and pepper, give everything a good mix up and refrigerate until serving – this is your corn salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678801525404-x200.jpg)
 
 ### Step 7
 

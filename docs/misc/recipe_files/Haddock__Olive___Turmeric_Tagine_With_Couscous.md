@@ -26,6 +26,7 @@ Take on this 10 minute tagine for a speedy dish full of North African-inspired f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-4-1671534739252-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671534748303-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Roll the lemon<span class="text-danger">[s]</span> with your hand on a hard surf
 
 Add the couscous to a large heatproof bowl with 200ml <span class="text-danger">[400ml]</span> boiled water, 1 tbsp<span class="text-danger"> [2 tbsp] </span>olive oil, the juice of 1/2 <span class="text-danger">[1]</span> lemon and a pinch of salt then cover and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671534906218-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Chop the tomato<span class="text-danger">[es] </span>into wedges
 
 Drain and rinse the chickpeas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671534916521-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the shallot quarters and tomato wedges and cook for 2-3 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671534933926-x200.jpg)
 
 ### Step 5
 
 Dissolve the vegetable stock mix and tomato paste in 150ml <span class="text-danger">[250ml] </span>boiled water – this is your tomato stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671534939341-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once softened, add the ground turmeric, ground cumin and ginger & garlic paste t
 
 Once fragrant, add the tomato stock, drained chickpeas and black olives and cook for 2-3 min until the sauce has slightly reduced – this is your tagine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671534944898-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ This warming dinner's perfect for cooler nights. It's a creamy blend of haddock,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1619443678612-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619443682651-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a knob of butter over a medium heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619443694049-x200.jpg)
 
 ### Step 3
 
@@ -49,11 +52,13 @@ Chop your potatoes (skins on) into small, rough pieces
 
 Crush your garlic open by squashing it with the side of a knife, then remove the skin
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619443700613-x200.jpg)
 
 ### Step 4
 
 Add 2 tsp<span class="text-danger"> <span class="text-purple">[3 tsp]</span> [4 tsp]</span> flour to the pan and cook for 30 secs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619443706788-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Add the chopped potatoes, crushed garlic, vegetable stock mix and 350ml <span cl
 
 Give everything a good stir and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619443716187-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once boiling, cover the casserole dish with a lid and put it in the oven for 25-
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1619443727443-x200.jpg)
 
 ### Step 7
 

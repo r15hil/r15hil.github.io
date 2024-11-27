@@ -30,6 +30,7 @@ Homemade nutty paste is typical of South Indian curries, and adds delicate sweet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1630422048091-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once hot, add the cubed paneer and cook for 3-5 min until golden, turning occasi
 
 Once cooked, transfer the golden paneer to a plate and reserve the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630422052609-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Return the reserved pan to a medium heat with a drizzle of vegetable oil and a k
 
 Once hot, add the sliced onion and chopped garlic with a pinch of salt and cook for 8 min or until softened and browning slightly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630422056642-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamom rice
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630422060585-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Chop your coriander finely, including the stalks
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630422064667-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Once the onion has softened, add your garam masala, tomato paste, most of the ch
 
 Add the chopped tomato and cook for a further 30 secs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630422068330-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add the vegetable stock to the pan and cook for 5-8 min or until the sauce has 
 
 Once thickened, return the golden paneer to the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630422072942-x200.jpg)
 
 ### Step 7
 

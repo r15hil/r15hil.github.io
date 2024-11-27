@@ -25,6 +25,7 @@ This hearty fusion dish takes comfort food to the next level. Cook your pasta in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661250647387-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Chop your leek[s]<span class="text-danger"> </span>in half lengthways, wash thor
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661250649492-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once hot, add the sliced leek with a pinch of salt and cook for 4-5 min or until
 
 Once soft, add the chopped garlic with 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> flour and cook for 1 min further
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661250652489-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add your vegetable stock mix, tortiglioni and 100ml <span class="text-purple">[1
 
 Bring to the boil over a medium heat and cook for 8 min or until the tortiglioni is cooked with a slight bite and the sauce has thickened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661250654725-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Grate your cheddar cheese
 
 Chop your smoked basa fillet[s] into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661250657274-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the pasta is cooked, remove from the heat and add the chopped parsley, chop
 
 Season generously with pepper – this is your creamy pasta
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661250659365-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Put the dish in the oven for 12-15 min or until the basa is cooked through and t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661250661654-x200.jpg)
 
 ### Step 7
 

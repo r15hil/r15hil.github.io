@@ -19,6 +19,7 @@ This tray bake is topped with tangy blue cheese and crunchy walnuts for a winter
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1864.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -27,6 +28,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ 395°F/ Gas 6
 
 Peel and chop the red <span class="text-highlight">onions</span> into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1864.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -35,16 +37,19 @@ Add the gnocchi, butternut squash cubes, chopped red onion and Tenderstem brocco
 
 Drizzle everything with vegetable oil, season with a pinch of salt and give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1864.-step-3-x200.jpg)
 
 ### Step 3
 
 Put the tray in the oven for 20-25 min or until everything is cooked through and starting to crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1864.-step-4-x200.jpg)
 
 ### Step 4
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1864.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -53,11 +58,13 @@ Roughly chop the walnuts
 
 Crumble the blue cheese into rough bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1864.-step-6-x200.jpg)
 
 ### Step 6
 
 Once everything is cooked through, remove the tray from the oven and add <span class="text-highlight">half</span> the crumbled blue cheese (save the rest for later!) and chopped walnuts
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1864.-step-7-x200.jpg)
 
 ### Step 7
 

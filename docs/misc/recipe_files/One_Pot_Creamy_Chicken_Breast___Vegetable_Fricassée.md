@@ -26,6 +26,7 @@ Full of flavour, veg and succulent chicken, our creamy one-pot fricassée is the
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676388186654-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676388190532-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Once hot, add your diced chicken breast to the dish with a pinch of salt and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook 4-5 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676388194732-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Top, tail, and slice your carrot[s] into discs
 
 Chop your potatoes into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676388199342-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop your chestnut mushrooms into quarters
 
 Crush your garlic open by squashing it with the side of a knife and remove the skin
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676388203779-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add your chicken stock mix, Chinese rice wine and 350ml<span class="text-purple"
 
 Bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676388208428-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Chop your parsley finely, including the stalks
 
 Use the rest of the cooking time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676388213003-x200.jpg)
 
 ### Step 7
 

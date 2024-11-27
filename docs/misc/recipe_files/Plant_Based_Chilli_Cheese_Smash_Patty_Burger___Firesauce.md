@@ -24,6 +24,7 @@ This fiery take on burger night is a smash hit. You’ll char extra thin spiced 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1721212536400-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the wedges to a baking paper-lined baking tray (or two!) with a drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1721212552857-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Slice your red chilli[es] finely
 
 Wash then remove leaves (1 per person!) from your lettuce and set aside, then wedge the inner core
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1721212574044-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once melted, add half your chilli flakes (can't handle the heat? Go easy!) and y
 
 Once fragrant, transfer the chilli butter to a small heatproof bowl and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1721212606065-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Divide your meat-free patty[ies] into 2 pieces per person and transfer them to a
 
 Set aside the baking paper and top the patties with the sliced chillies, the remaining chilli flakes (not a fan of spice? Just add a little!) and a pinch of pepper, then return the baking paper and roll until the chillies are pressed into the patties
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1721212701615-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, add the patties (chilli-side down!)
 
 Press them down very firmly with a spatula and cook for 2-3 min on one side, pressing down continuously, until slightly charred
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1721212715181-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Top half the patties with your sliced vegan cheese and cook, covered, for a fina
 
 Meanwhile, combine the chilli butter with your vegan mayo, half your white wine vinegar (you'll use the rest later!) and a pinch of pepper – this is your firesauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1721212782825-x200.jpg)
 
 ### Step 7
 

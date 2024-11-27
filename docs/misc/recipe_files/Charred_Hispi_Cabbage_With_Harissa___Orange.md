@@ -30,6 +30,7 @@ Hispi cabbage is getting a makeover that’ll make your mouth water. You’ll ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684417328727-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684417332398-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Season with a generous pinch of salt and pepper and cover the baking tray[s] tig
 
 Put the tray[s] in the oven for an initial 25-30 min or until tender – this is your roasted cabbage
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684417333845-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Slice your red chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684417383776-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add a very generous pinch of salt, then give everything a good mix up until full
 
 Add 130ml <span class="text-purple">[195ml]</span> <span class="text-danger">[260ml]</span> boiled water, then cover and set aside until all of the liquid has been absorbed
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1684418615392-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Combine the remaining harissa (not a fan of spice? Just add a little!) and the c
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684417970154-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once the liquid has been absorbed, fluff the couscous with a fork
 
 Add the spinach and most of the chopped parsley (save some for garnish!) – this is your fruity couscous
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684417973587-x200.jpg)
 
 ### Step 7
 

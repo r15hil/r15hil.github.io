@@ -24,6 +24,7 @@ For this flavourful North Italian-inspired dish, you'll cook the pasta and potat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1610968954240-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Slice your waxy potatoes (skins on) into 1-2cm thick discs
 
 Add your vegetable stock mix to a large pot of boiled water and bring to a boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1964.-step-2-x200.jpg)
 
 ### Step 2
 
 Add the potato discs to the pot and cook for an initial 4 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1964.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,11 +50,13 @@ Peel and chop your garlic roughly
 
 Trim your green beans, then chop them in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1964.-step-4-x200.jpg)
 
 ### Step 4
 
 Add your tortiglioni to the pot and cook for a further 8 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1964.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Add your cashew nuts, half your flaked almonds (save the rest for garnish!), 70m
 
 Blitz until very smooth – this is your basil pesto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1964.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once cooked, drain the potatoes, green beans & tortiglioni
 
 Return everything to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1964.-step-7-x200.jpg)
 
 ### Step 7
 

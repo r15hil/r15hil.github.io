@@ -26,6 +26,7 @@ For a lighter twist on a tandoori takeaway, you'll coat meat-free chick'n in a s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1651599696318-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, rinse the rice under cold running water until cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1651599704542-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Combine your curry powder, half of your natural yoghurt (you'll use the rest l
 
 Add the chopped meat-free chick'n and give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1651599729293-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Slice your cucumber in half lengthways and scrape out the inner seeds using a te
 
 Slice the cucumber halves finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1651599737797-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel and finely grate (or chop) your garlic
 
 Add the chopped garlic (don't like raw garlic? Go easy!), lime zest and a generous pinch of salt and pepper to the yoghurt – this is your lime & garlic yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1651599745726-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated meat-free chick'n to the pan and cook for 4-5 min or until slightly browned – this is your tandoori meat-free chick'n
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1651599756583-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Whilst the meat-free chick'n is browning, pick your coriander and mint leaves f
 
 Chop the mint and coriander leaves roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1656413023808-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ Taking inspiration from the classic Indian snack, this veggie samosa-style dish 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650388129044-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Peel and dice the brown onion[s]
 
 Peel and finely chop (or grate) your ginger and garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650388135772-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped potatoes, diced carrot and diced onion to the pan and cook for 6-8 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650388146228-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Dissolve your vegetable stock mix in 300ml<span class="text-purple"> [390ml]</span> <span class="text-danger">[550ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650388155969-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once fragrant, pour in the stock and cook for 3-4 min further or until the sauce
 
 Once thickened, add your blanched peas with a generous grind of pepper and transfer to an oven-proof dish – this is your vegetable samosa pie mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650388162211-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Lay the puff pastry sheet over the pie dish and trim off any excess (use any exc
 
 Press the edges with a fork to seal the pastry to the dish and put the tray in the oven for 15-20 min or until puffed up, golden and cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650388176697-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Grind the chopped herbs and remaining chopped garlic and ginger in a pestle & m
 
 Add your rice vinegar, a pinch of sugar and a drizzle of olive oil to the paste and mix to combine – this is your coriander chutney
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650388183192-x200.jpg)
 
 ### Step 7
 

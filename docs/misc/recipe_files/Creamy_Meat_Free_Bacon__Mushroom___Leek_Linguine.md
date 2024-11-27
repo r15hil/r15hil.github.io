@@ -22,6 +22,7 @@ Put a veggie twist on this creamy Italian-style dinner with meat-free bacon tend
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629467784183-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add your meat-free bacon lardons to the pan and cook for 4-5 min or until golden
 
 Once crispy, transfer the cooked meat-free bacon lardons to a clean plate and set aside, reserve the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629467789308-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Slice your chestnut mushrooms finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629467792548-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629467795489-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Return the reserved pan to a medium-high heat with a drizzle of olive oil
 
 Once hot, add the chopped mushrooms and sliced leek to the pan with a pinch of salt and cook for 5-7 min or until everything is beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629467799673-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Meanwhile, grate your cheddar cheese
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629467803214-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once the vegetables have softened, add the sliced garlic to the pan and cook fo
 
 Once fragrant, add the vegetable stock with a generous grind of black pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629467806980-x200.jpg)
 
 ### Step 7
 

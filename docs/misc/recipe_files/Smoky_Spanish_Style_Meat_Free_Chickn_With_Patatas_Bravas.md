@@ -28,6 +28,7 @@ In this veggie twist on a tapas classic, you’ll fry smoky meat-free chick'n an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599747874805-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the potato cubes to a baking tray (or two!) with a drizzle of vegetable oil 
 
 Put the tray[s] in the oven for 25-30 min or until the potatoes are golden and crispy – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599747886314-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the pepper strips and sliced onion to a separate baking tray (or two!) with 
 
 Put the tray[s] in the oven for 20 min or until the veg is soft and tender – this is your roasted veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2930-Step-3-1644515170043-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your tomato paste in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water and add your chilli flakes (can't handle the heat? Go easy!) – this is your spicy tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599747902748-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once hot, add the diced tomato with a pinch of salt and sugar and cook for 3-4 m
 
 Add the spicy tomato stock to the pan and cook for 3-4 min further or until thickened – this is your bravas sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599747913545-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ While the sauce thickens, combine your ground coriander, ground smoked paprika,�
 
 Add your meat-free chick'n to the smoky spice mix and mix together until they are fully coated, then tap off any excess spices  – this is your coated meat-free chick'n
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599747931115-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of v
 
 Once hot, add the coated meat-free chick'n and cook for 6-7 min or until browned and cooked through – this is your smoky Spanish-style meat-free chick'n
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mayo-1644423398115-x200.jpg)
 
 ### Step 7
 

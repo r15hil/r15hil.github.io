@@ -30,6 +30,7 @@ Plant-based tacos that are too good to miss. You'll bake homemade refried beans 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1467.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Drizzle the tortillas with olive oil and put the dish[es]<span class="text-dang
 
 Once done, remove them from the oven and set aside – these are your crispy tortillas
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1467.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your ground smoked paprika, ground cumin, chilli flakes (can’t handle the heat? Go easy!), chopped garlic and drained black beans and cook for 30 secs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1467.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add your chipotle paste (not a fan of spice? Just add a little!) and cook for 
 
 Add your chopped tomatoes and 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> cold water to the spicy beans and cook for 5-8 min or until the sauce has thickened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1467.-step-4-spring-o-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Chop your pineapple rings roughly (reserve the juice!)
 
 Chop your coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1467.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,11 +82,13 @@ Once the sauce has thickened, remove the spicy beans from the heat, squeeze in 
 
 Gently crush the beans with a masher a few times – these are your refried beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1467.-step-6-x200.jpg)
 
 ### Step 6
 
 Divide the refried beans between the crispy tortillas and return the dish[es] to the oven for a further 5 min or until golden and crisp – these are your crispy baked tacos
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1467.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ Roasted pepper and sweet tomato stock add comforting richness to this velvety ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679830107534-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your chicken breast strips and cook for 3 min on each side or until lightly browned, then remove from the heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679830110350-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Transfer the browned chicken to the baking tray[s]
 
 Put the tray[s] in the oven for 15-20 min until the pepper has roasted and the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1679830137548-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel and finely dice your red onion[s]
 
 Dissolve your chicken stock mix in 700ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L]</span> boiled water, then add your tomato paste, Chinese rice wine and chilli relish – this is your sweet tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679830160122-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once hot, add the diced onion with a pinch of salt and cook for 4 min until sof
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679830162890-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add 1/3 of the sweet tomato stock and stir continuously until absorbed
 
 Continue to add the remaining sweet tomato stock, a ladle at a time, stirring continuously for 25-30 min, until all the stock is absorbed and the rice is cooked – this is your risotto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1679830166369-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Meanwhile, chop your chives finely
 
 Grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679830169825-x200.jpg)
 
 ### Step 7
 

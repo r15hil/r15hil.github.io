@@ -29,6 +29,7 @@ Bento-no-we-didn't! If you love sushi, this'll be right up your street. For this
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1697454460738-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the sushi rice to an oven-proof dish with 250ml <span class="text-purple">[3
 
 Once cooked, transfer the rice to a plate and set aside for 10 min or until the rice is cooled
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1697454463902-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the sliced cucumber to a bowl with your rice vinegar and a pinch of sugar
 
 Stir everything together and set aside – this is your quick-pickled cucumber
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1697454467805-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Peel and grate your garlic
 
 Combine half your soy sauce (you'll use the rest later!) and the grated garlic in a bowl with your chilli flakes (can't handle the heat? Go easy!) and a pinch of sugar – this is your dipping sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1697454471381-x200.jpg)
 
 ### Step 4
 
 Add the diced chicken breast to a bowl with the remaining soy sauce, then set aside to marinade
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1697454475049-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Rinse your blanched edamame beans under cold running water
 
 Add the edamame beans to a bowl with half of the sriracha mayo (save some for garnish!) and a good grind of black pepper and give everything a good mix up – this is your edamame salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1697454478917-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add your cornflour to the marinated chicken and give everything a good mix up un
 
 Once hot, add the coated chicken and cook for 5-6 min on each side or until cooked through (no pink meat!) – this is your crispy soy chicken breast
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1697454482811-x200.jpg)
 
 ### Step 7
 

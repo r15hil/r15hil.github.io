@@ -25,6 +25,7 @@ Would you risk it for a plant-based brisket? Then say hello to fable mushrooms i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1664893668190-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chunky chips to a baking tray with a drizzle of vegetable oil
 
 Put the tray in the oven for 25-30 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1664893670684-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add your Fable pulled mushrooms and cook for an initial 4-5 min or until beginning to char
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1664893673594-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Peel and finely slice your brown onion[s]
 
 Peel and grate (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1664893676471-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the sliced onion to the pan along with a pinch of sugar and a generous grind
 
 Cook for 5-6 min or until the onion is beginning to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1664893680296-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add the cucumber rounds to a bowl with your white wine vinegar, 1/4 of your whol
 
 Give everything a good mix up – this is your quick-pickled cucumber
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1664893682970-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Combine your mayo and half the grated garlic (you'll use the rest later!) in a s
 
 Put your ciabatta[s] in the oven for 5 min or until warm and crusty, then slice in half
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1664893686224-x200.jpg)
 
 ### Step 7
 

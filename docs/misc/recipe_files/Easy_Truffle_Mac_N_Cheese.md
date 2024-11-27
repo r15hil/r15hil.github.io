@@ -24,6 +24,7 @@ Something truly amazing happens when you mix the comforting classic that is mac 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1711.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Cook for 7 min or until it's cooked with a slight bite
 
 Once done, drain the macaroni, reserving 150ml <span class="text-danger">[200ml]</span> of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1711.-step-2-x200.jpg)
 
 ### Step 2
 
 While the macaroni is cooking, grate the cheddar cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1711.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,16 +52,19 @@ Add the grated Italian hard cheese to a bowl with the panko breadcrumbs and 2 tb
 
 Season with a good grind of black pepper and give it a good mix up – these are your cheesy breadcrumbs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1711.-step-4-x200.jpg)
 
 ### Step 4
 
 Dissolve the Knorr vegetable stock cube<span class="text-danger">[s]</span> in the reserved pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1711.-step-5-x200.jpg)
 
 ### Step 5
 
 Return the drained macaroni to the pot with the crème fraîche, truffle flavoured oil, vegetable stock, grated cheddar cheese and Dijon mustard and give everything a good mix up until fully combined – this is your truffle mac 'n' cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1711.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Add the truffle mac 'n' cheese to an oven-proof dish and top with the cheesy b
 
 Put the dish in the oven for 15-20 min or until golden and crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1711.-step-7-x200.jpg)
 
 ### Step 7
 

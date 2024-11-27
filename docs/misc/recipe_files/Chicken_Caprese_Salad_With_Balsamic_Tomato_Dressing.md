@@ -23,6 +23,7 @@ This speedy caprese is perfect when you’re feeling a little lazy. You’ll tos
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612374547699-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720709191438-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with a driz
 
 Once hot, add your chicken breast strips with a pinch of salt and pepper and cook for 5-6 min on each side or until golden and cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720709204193-x200.jpg)
 
 ### Step 3
 
@@ -54,11 +57,13 @@ Add the chopped potatoes to a heatproof bowl, then cover the bowl with cling fil
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720709221341-x200.jpg)
 
 ### Step 4
 
 While the chicken is cooking, combine your balsamic sundried tomato paste and your mayo in a small bowl with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>cold water and a pinch of salt and sugar – this is your balsamic tomato dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720709234305-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Drain your mozzarella
 
 Tear the drained mozzarella into bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720709251822-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the potatoes are tender, add the cooked potatoes and chopped tomato to a bo
 
 Give everything a good mix up – this your dressed salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720709265556-x200.jpg)
 
 ### Step 7
 

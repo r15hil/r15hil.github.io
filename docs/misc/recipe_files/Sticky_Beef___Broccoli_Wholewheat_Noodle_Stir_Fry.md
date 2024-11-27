@@ -31,6 +31,7 @@ Tuck into beef wholewheat noodles and crisp greens in a sticky sauce. You'll siz
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1683896197816-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Chop all of these together as finely as you can (can't handle the heat? Save so
 
 Trim, then slice your spring onion[s] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683896201183-x200.jpg)
 
 ### Step 2
 
@@ -51,11 +53,13 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add the chopped garlic, ginger & chilli and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683896205175-x200.jpg)
 
 ### Step 3
 
 Once fragrant, turn the heat to high and add your beef mince and your five-spice mix and cook for 4-5 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1683896209259-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ While the mince is cooking, combine the cornflour with 75ml <span class="text
 
 Add your hoisin sauce, rice vinegar, soy sauce and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar – this is your sticky stir-fry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1683896212370-x200.jpg)
 
 ### Step 5
 
 Chop your Tenderstem broccoli in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683896218489-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Bring to the boil and cook over a high heat for 5 min or until the noodles are c
 
 Once done, drain the noodles & broccoli, reserving a cup of the starchy noodle water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683896222578-x200.jpg)
 
 ### Step 7
 

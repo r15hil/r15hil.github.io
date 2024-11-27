@@ -24,6 +24,7 @@ All hail the heady aroma of harissa. You’ll toss potatoes, tomatoes and green 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678289142017-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a baking tray with a drizzle of olive oil and a pinc
 
 Give everything a good mix up and put the tray in the oven for an initial 18 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678289186240-x200.jpg)
 
 ### Step 2
 
@@ -44,16 +46,19 @@ Add half your ground smoked paprika (save the rest for later!) to a plate with a
 
 Add the basa fillets to the plate and turn until fully coated, then set aside – these are your smoky basa fillets
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678289200884-x200.jpg)
 
 ### Step 3
 
 Chop your cherry tomatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678289205733-x200.jpg)
 
 ### Step 4
 
 Trim, then chop your green beans in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678290609117-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Add the chopped tomatoes and chopped green beans to the tray with a drizzle of o
 
 Sprinkle over the remaining ground smoked paprika and give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678290618538-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Return the tray to the oven for a further 12-15 min or until the fish is cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678290622989-x200.jpg)
 
 ### Step 7
 

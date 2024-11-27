@@ -25,6 +25,7 @@ Short on time? Make a plateful of golden seared mushroom and truffle linguine in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1985.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1985.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, crumble and tear (or chop) the portobello and chestnut mushrooms into 
 
 Cook for 6-7 min or until caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1985.-step-3.new-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Peel and grate (or finely chop) the garlic
 
 Carefully cut the ciabatta<span class="text-danger">[s]</span> into 6-8 slices, without going all the way through the base
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1985.-step-4-x200.jpg)
 
 ### Step 4
 
 Mash the softened butter with the grated garlic, parsley and a pinch of salt and pepper – this is your garlic butter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1985.-step-5.new-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Sprinkle with a 1/3 of the grated Italian hard cheese (save the rest for later!)
 
 Put the tray in the oven for 5-6 min or until the cheese is starting to brown - this is your garlic bread
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1985.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Cook for 4-5 min or until reduced to a pasta sauce-like consistency
 
 Stir through the remaining grated Italian hard cheese and the creme fraiche
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1985.-step-7-x200.jpg)
 
 ### Step 7
 

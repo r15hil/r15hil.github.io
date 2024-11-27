@@ -26,6 +26,7 @@ Everyone needs a lasagne recipe in their repertoire, and if you'll allow us to b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/841.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil
 
 Once hot, add the sliced shallot with a generous pinch of salt and cook for 4 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/841.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Peel and finely chop (or grate) the garlic 
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/841.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once softened, add the beef mince to the shallot, breaking it up with a wooden s
 
 Increase the heat to high and cook for 4 min or until browned and caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/841.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Dissolve the beef stock cube<span class="text-danger">[s]</span>, tomato paste,
 
 Grate the cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/841.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Add the crumbled mushrooms and chopped garlic and cook for 1 min 
 
 Add the tomato stock and cook for 5 min or until thickened to a ragù-like consistency
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/841.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Add 350ml<span class="text-danger"> [700ml]</span> milk gradually &amp; whisk f
 
 Remove from the heat, season with salt &amp; pepper and stir through the cheese – this is your béchamel
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/841.-step-7-x200.jpg)
 
 ### Step 7
 

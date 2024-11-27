@@ -27,6 +27,7 @@ You won't believe how this low carb tray bake is. You'll season pepper, chickpea
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1625508951338-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the sliced pepper to a baking tray lined with tin foil with a drizzle of veg
 
 Put the tray in the oven for an initial 6-7 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1625508956589-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, peel and finely chop (or grate) the garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1625508961278-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the juice of 1/2 <span class="text-danger">[1] </span>lemon and season with 
 
 Add the basa fillets to the tandoori marinade and mix well until they're completely coated – this is your tandoori basa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1625509184890-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Trim, then chop the green beans in half
 
 Drain and rinse the chickpeas
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1625509204849-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the peppers have begun to soften, remove the tray from the oven and switch 
 
 Add the drained chickpeas and halved green beans with the ground cumin, a drizzle of vegetable oil and a pinch of salt and pepper and give everything a good mix up – these are your spiced pepper & green beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1625509209055-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Lay the tandoori basa on top of the spiced pepper & green beans and put the tray
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1625509212471-x200.jpg)
 
 ### Step 7
 

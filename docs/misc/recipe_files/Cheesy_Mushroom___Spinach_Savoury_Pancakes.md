@@ -25,6 +25,7 @@ End Shrove Tuesday on a high with crispy crêpe-style pancakes. You'll whip up a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1611577903727-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Combine your egg[s] with 200ml<span class="text-purple"> [300ml]<span class="tex
 
 Whisk the liquid into the flour a little at a time until you end up with a smooth batter (adding the liquid gradually helps prevent a lumpy batter!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1611577908365-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Combine your cider vinegar with 2 tbsp<span class="text-purple"><span class="tex
 
 Chop the tomato<span class="text-danger">[es]</span> roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1611577912994-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Grate the cheddar cheese
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1611683890300-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once hot, add the sliced mushrooms to the pan with a pinch of salt and cook for 
 
 Add the chopped garlic and thyme and cook for 2 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1611577926386-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Set the mushroom mix aside and reserve the pan
 
 Wipe the pan clean with kitchen paper, then return to a medium-high heat with a knob of butter
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1611577938101-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Once evenly spread, cook for 2 min or until the pancake is set
 
 Once set, use a spatula to carefully flip the pancake over
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611577943598-x200.jpg)
 
 ### Step 7
 

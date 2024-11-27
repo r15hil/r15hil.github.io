@@ -26,6 +26,7 @@ Pork is the number one choice of meat in Chinese cooking. It can be cooked quick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/708.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/708.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large, wide-based pan (or wok) over a medium-high heat with 1 tbsp <span 
 
 Once&nbsp;hot, add the pork and ginger and cook for 3-4 min or until lightly browned all over
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/708.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop the celery into bite-size pieces
 
 Add the carrot and celery to the pan and cook for a further 3-4 min or until they begin to brown and soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/708.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Tip: slicing a small bunch at a time makes it a bit easier and faster
 
 Add the mange tout to the pan and continue to stir-fry for a further 1-2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/708.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,11 +86,13 @@ Meanwhile, dissolve the stock cube<span class="text-danger">[s]</span> in 250ml 
 
 Add the flavoured stock to the pan, bring to the boil and reduce for a couple of min, until your sauce begins to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/708.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop the&nbsp;peanuts roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/708.-step-7-x200.jpg)
 
 ### Step 7
 

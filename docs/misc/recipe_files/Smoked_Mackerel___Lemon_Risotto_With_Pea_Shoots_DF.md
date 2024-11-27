@@ -21,6 +21,7 @@ Smoked mackerel and lemon are the perfect way to brighten up a weeknight risotto
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1642154178462-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Peel and finely dice the brown onion<span class="text-danger">[s]</span>
 
 Dissolve the vegetable stock mix in 500ml <span class="text-danger">[1.4L] </span>boiled water and stir in the single soya – this is your creamy stock
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1642154005522-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) with a large drizzle of veg
 
 Once hot, add the diced onion with a pinch of salt and cook for 4-6 min or until softened but not browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1642154016002-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Add the Chinese rice wine and cook for a further 30 secs or until it has evapora
 
 Reduce the heat to medium-low
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1642154033022-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Add 1/3 of the creamy stock and stir continuously with a wooden spoon until it h
 
 Continue to add the remaining creamy stock, a ladle at a time, stirring more or less continuously for 25-30 min, until all the stock is absorbed and the rice is cooked – this is your risotto
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1642154049553-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Peel the skin off the smoked mackerel and discard
 
 Tear the smoked mackerel into small, rough pieces (watch out for small bones!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1642154252415-x200.jpg)
 
 ### Step 6
 
 Once all the stock has been absorbed, add the smoked mackerel pieces to the pan and stir everything together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1642154206438-x200.jpg)
 
 ### Step 7
 

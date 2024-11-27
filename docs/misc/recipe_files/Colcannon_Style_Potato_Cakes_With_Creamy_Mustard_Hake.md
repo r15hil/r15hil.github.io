@@ -22,6 +22,7 @@ This is one hot potato you won’t want to put down. You’ll shape cheesy sprin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678882018626-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678882024380-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and slice your shallot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678882030104-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add half the sliced spring greens (you'll use the rest later!) and 1 tbsp <span 
 
 Season with a pinch of salt and pepper and give everything a good mix up until fully combined – this is your potato mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678882035851-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Equally divide and shape the potato mix into 4 patties per person and add them t
 
 Add a drizzle of vegetable oil, then put the tray[s] in the oven for 20 min or until golden – these are your colcannon-style potato cakes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678882040030-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Scrunch the edges of the foil to form a sealed parcel[s] and add to a baking tra
 
 Put the tray in the oven for 10-12 min or until the spring greens are tender – these are your buttery spring greens
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678882044402-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once hot, add the coated hake and cook for 3-4 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678882051204-x200.jpg)
 
 ### Step 7
 

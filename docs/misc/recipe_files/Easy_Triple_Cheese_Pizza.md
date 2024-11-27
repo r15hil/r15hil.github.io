@@ -24,6 +24,7 @@ Enjoy crispy homemade pizza with minimum effort and maximum cheese. When your pi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/983.-step1-new-x200.png)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Put a large baking tray (or two!) in the oven to heat up (this will stop the piz
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/983.-step2-new-x200.png)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/983.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add your chopped garlic, dried oregano and tomato paste to a small bowl with
 
 Season with a pinch of salt, sugar and pepper and mix to combine – this is your tomato sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/983.-step4-new-x200.png)
 
 ### Step 4
 
@@ -58,11 +62,13 @@ Top with the grated lighter cheese, Italian hard cheese and torn mozzarella
 
 Put the tray[s] in the oven for 10-15 min or until the cheese is bubbling and starting to brown – these are your triple cheese pizza
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/983.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, peel and chop your shallot[s]<span class="text-danger"> </span>as finely as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/983.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Add the chopped shallot, balsamic vinegar, 2 tbsp <span class="text-purple">[3 t
 
 Season generously with both salt and pepper and mix to combine – this is your balsamic dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/983.-step-7-x200.jpg)
 
 ### Step 7
 

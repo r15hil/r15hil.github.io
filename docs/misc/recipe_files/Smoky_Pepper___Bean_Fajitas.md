@@ -24,6 +24,7 @@ These smoky fajitas are a veg-packed delight. You’ll load warm tortillas with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1673366922532-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Peel and chop your red onion[s] into thick slices
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1673366925562-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Once hot, add the chopped onion and chopped pepper to the pan with a pinch of sa
 
 Give everything a good mix up and cook for 7-8 min or until the vegetables have softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1673366929262-x200.jpg)
 
 ### Step 3
 
 While the vegetables are cooking, drain and rinse your black beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1673366931895-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Grate your cheddar cheese
 
 Chop your tomato[es] roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1673366934656-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Once the vegetables have softened, add your vegetable stock mix and ground smoke
 
 Cook for 1-2 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1673366938729-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Cook for a further 3-4 min or until the beans are beginning to soften
 
 Once beginning to soften, mash some of the beans with a fork and stir everything together until combined – this is your smoky pepper & bean filling
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Seeded-tortilla-on-a-plate-1678980972581-x200.jpg)
 
 ### Step 7
 

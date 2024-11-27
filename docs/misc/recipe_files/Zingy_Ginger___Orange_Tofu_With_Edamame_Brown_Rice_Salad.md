@@ -29,6 +29,7 @@ Ginger's not just a zingy addition to this crispy tofu salad, it's also famous f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644314197962-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644314208854-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Peel and grate your garlic
 
 Cut your orange[s] in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644314219747-x200.jpg)
 
 ### Step 3
 
 Combine the grated ginger, grated garlic, soy sauce and the juice of the orange[s] in a bowl — this is your zingy ginger & orange dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644314240586-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once very hot, add the tofu strips and 1/3 of the zingy ginger & orange dressing (you’ll use the rest later!) and cook for 5-6 min, turning occasionally until golden and crisp – this is your zingy ginger & orange tofu
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644314251896-x200.jpg)
 
 ### Step 5
 
 Add your toasted sesame oil and cider vinegar to the remaining zingy ginger & orange dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644314261491-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Separate the leaves, then wash and pat them dry with kitchen paper
 
 Set aside until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644314270202-x200.jpg)
 
 ### Step 7
 

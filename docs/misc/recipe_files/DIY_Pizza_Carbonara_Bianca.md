@@ -25,6 +25,7 @@ In this tasty twist on carbonara, you'll dress up your no-knead, no-prove pizza 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1595495140301-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your dried yeast<span class="text-danger"> </span>to a large bowl with 100ml
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1595495144764-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add your soft cheese to a bowl with the chopped garlic and a generous grind of b
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water and stir it all together – this is your white sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1595495151249-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Chop your chives finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1595495156728-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Tip the dough ball out onto a floured work surface and cut into 1 ball per pers
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1595495162429-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Keep going until your base is slightly smaller than a side plate (you will make 
 
 Heat a large, dry, wide-based pan (or two!) (preferably non-stick) over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1595495172049-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add the white sauce to each pizza and spread it evenly with the back of a spo
 
 Cook the pizza base[s]<span class="text-danger"> </span>for 3-4 min or until the crust has started to puff up, then remove the heated tray[s] from the oven and slide the pizza base[s] onto the tray[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1595495180428-x200.jpg)
 
 ### Step 7
 

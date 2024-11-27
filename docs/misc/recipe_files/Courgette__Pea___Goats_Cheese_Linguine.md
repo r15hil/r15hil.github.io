@@ -26,6 +26,7 @@ This speedy linguine is perfect for a relaxed evening. You'll stir up a bright, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1701776516091-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving a cup of the starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701776521357-x200.jpg)
 
 ### Step 2
 
 Top, tail and cut your courgette[s] into quarters lengthways, then into batons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701776529604-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Dissolve your vegetable stock mix and soft cheese in 100ml <span class="text-pur
 
 Peel and slice (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701776534419-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick) with 2 tbsp<span class="text
 
 Once hot, add the sliced garlic, courgette batons and a generous pinch of salt and cook for 3-4 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701776539811-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Meanwhile, strip your mint leaves from their stems and chop them roughly, discar
 
 Add your blanched peas to a colander and pour boiled water all over them to refresh them
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701776545856-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Squeeze in the juice of half your<span class="text-danger"> </span>lemon[s] and 
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701776550850-x200.jpg)
 
 ### Step 7
 

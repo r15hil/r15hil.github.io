@@ -26,6 +26,7 @@ You'll bake garlic and coriander naan croutons until golden. Spoon a curried but
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1683103296713-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Tear your garlic & coriander naans into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1683103303439-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the naan pieces to a baking tray with a drizzle of olive oil and a pinch of 
 
 Put the tray in the oven for 7-8 min or until the croutons are crispy – these are your naan croutons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1683103309244-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Drain and rinse your chickpeas
 
 Add the drained chickpeas and half your ground turmeric (you'll use the rest later!) to one side of a separate, baking paper-lined baking tray (or two!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1683103314643-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Remove the skin from your smoked mackerel fillet[s] and discard, then add the sk
 
 Put the tray[s] in the oven for 6-7 min or until everything has warmed through – these are your golden chickpeas and warmed mackerel
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1683103321547-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Add your curry powder and a knob of butter to a heatproof bowl
 
 Put the bowl in the microwave for 1-2 min or until the butter has melted – this is your curried butter
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1683103328395-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Peel your carrot[s], then continue to peel lengths until you end up with a pile 
 
 Add your cider vinegar to a bowl with a drizzle of olive oil and a pinch of salt – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1683103336029-x200.jpg)
 
 ### Step 7
 

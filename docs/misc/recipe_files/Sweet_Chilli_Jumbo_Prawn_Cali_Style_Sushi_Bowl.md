@@ -27,6 +27,7 @@ Poké meets Cali beach flavours in this mouthwatering sushi bowl. You'll top who
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1925.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1925.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ While the rice is cooking, slice your radishes as finely as you can
 
 Add the sliced radishes and rice vinegar to a small bowl and set aside to pickle – these are your quick-pickled radishes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1925.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Cut your avocado[s]<span class="text-danger"> </span>in half lengthways and rem
 
 Using a spoon, scoop the avocado flesh out of its skin and slice thinly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1925.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Combine the grated ginger, soy sauce, and the juice of half the lime[s] with 1 
 
 Give it a good mix up – this is your ginger & lime dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1925.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Heat a large wide-based pan (preferably non-stick) with 1/2 tbsp<span class="tex
 
 Once hot, drain your jumbo king prawns, then add them to the pan and cook for 6-7 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1925.-step-6-x200.jpg)
 
 ### Step 6
 
 Trim, then slice your spring onion[s] finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1925.-step-7--x200.jpg)
 
 ### Step 7
 

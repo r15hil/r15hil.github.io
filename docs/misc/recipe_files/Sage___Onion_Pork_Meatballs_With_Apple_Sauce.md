@@ -23,6 +23,7 @@ This dish has classic Sunday lunch flavours, but it's as easy as a tray bake. Si
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2319-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cook, covered, over a medium heat for 10-15 min or until the apples have softene
 
 Once softened, add a knob of butter and mash with a fork until smooth – this is your apple sauce
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2319-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray in the oven for an initial 10 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2319-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Top, tail, peel and slice the carrot<span class="text-danger">[s]</span> into ro
 
 Chop the sage finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2319-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Divide the pork mixture into 6 <span class="text-danger">[12]</span> and shape i
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2319-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Drizzle the carrot rounds with vegetable oil, season with a pinch of salt and r
 
 Meanwhile, dissolve the chicken stock mix in 250ml <span class="text-danger">[450ml]</span> boiled water and stir in the Marmite – this is your Marmite stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2319-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once melted, add 1/2 tbsp <span class="text-danger">[1 tbsp]</span> flour and
 
 Add the Marmite stock and bring to the boil over a high heat, cooking for 5-6 min or until thickened – this is your gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2319-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ This dish is all about the zhoug, a bright, zingy Middle Eastern-style sauce tha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1578934362492-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and chop your sweet potato[es] into wedges
 
 Drain and rinse your chickpeas
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1578934369197-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the drained chickpeas to the other side of the tray (or use a separate tray!
 
 Put the tray[s] in the oven for 20 min or until the sweet potato is cooked through and tender and the chickpeas are starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1578934373699-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1578934380342-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Toast for 1-2 min or until fragrant, then transfer the toasted seeds to a pestl
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1578934389847-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Chop your coriander roughly, including the stalks
 
 Cut your lemon[s] in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1578934395191-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the chopped garlic (not a big garlic fan? Try using less!), chopped chilli (
 
 Add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-danger">[6 tbsp]</span> olive oil and the juice of half your lemon[s] and stir it all together – this is your zhoug
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1578934400553-x200.jpg)
 
 ### Step 7
 

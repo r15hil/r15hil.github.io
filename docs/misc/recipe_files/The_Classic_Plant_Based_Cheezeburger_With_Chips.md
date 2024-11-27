@@ -24,6 +24,7 @@ These juicy burgers make for a perfect family meal. You'll cook your plant-based
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655828298939-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chips to one side of a baking tray (or two!) with a drizzle of vegetable
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655828303762-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ While the chips are cooking, peel your red onion[s] and slice into 2 rounds per 
 
 Mix your Henderson's Relish and onion marmalade in a bowl – this is your onion marinade mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655828337889-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Once the chips have been cooking for 10 min, remove the tray[s] from the oven, a
 
 Drizzle them with a little olive oil and return the tray[s] to the oven for 20-25 min further or until softened and sticky – these are your sticky onions
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655828341477-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Wash your lettuce, pat it dry with kitchen paper, then remove 1 outer leaf per p
 
 Tear the remaining lettuce into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655828345473-x200.jpg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Line a separate baking tray with baking paper
 
 Add your meat-free burger patty[ies] to the lined tray and put the tray in the oven for 10-12 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655828349722-x200.jpg)
 
 ### Step 6
 
 Mix the torn lettuce and roughly chopped tomato together – this is your salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655828353681-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Filipino adobo is packed with flavour from garlic, soy, and the key ingredient: 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1581673425133-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chopped aubergine to a baking tray with a very generous drizzle of veget
 
 Put the tray in the oven for 25-30 min or until golden and tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1581673435380-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581673440905-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Dissolve the cornflour in 150ml <span class="text-danger">[275ml]</span> boiled water – this is your cornflour slurry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581673445017-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once the aubergine has been cooking for 10 min, heat a large, wide-based pan (pr
 
 Once hot, add the sliced onion and cook for 8-10 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581673449691-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once cool, squeeze the water out of the spinach as much as you can then chop it 
 
 Chop the peanuts roughly and finely slice the red chilli<span class="text-danger">[es]</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581673453906-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the soy sauce, cider vinegar and 1 tsp <span class="text-danger">[2 tsp]</sp
 
 Add the cooked aubergine and cook for 1-2 min, stirring until the sauce sticks to the aubergine – this is your aubergine adobo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581673459050-x200.jpg)
 
 ### Step 7
 

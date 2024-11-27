@@ -23,6 +23,7 @@ This speedy sweet and sour chicken is on the table quicker than your local Chine
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2347-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2347-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2347-Step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the diced chicken breast, red pepper strips and mange tout with a pinch of salt and cook for 2-3 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2347-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Combine the cornflour with 100ml <span class="text-danger">[200ml]</span> boiled
 
 Add the tomato ketchup, chilli jam, soy sauce, rice vinegar and 1 tbsp <span class="text-danger">[2 tbsp]</span> sugar and whisk until smooth – this is your sweet & sour sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2347-Step-5-x200.jpg)
 
 ### Step 5
 
 Add the ginger & garlic paste to the pan and cook for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2347-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Add the sweet & sour sauce and cook for 2-3 min or until thickened and sticky an
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2347-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ After waiting all year for juicy heritage toms, we can't wait for you to try 'em
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1653645132976-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Remove the green stalk<span class="text-danger">[s]</span> from the heritage bee
 
 Use a spoon to scoop the flesh out of each tomato half (reserve the tomato flesh for later!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1653645136946-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the hollowed tomato halves to one side of a baking paper-lined baking tray w
 
 Put the tray in the oven for an initial 10-15 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1653645141320-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add 3/4 of the<span class="text-danger"> </span>soft cheese (save the rest for l
 
 Season with a pinch of salt and pepper and give it a good stir – this is your homemade stracciatella
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1653645147725-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Chop the reserved tomato flesh into small bite-sized pieces
 
 Add the sultanas to a small bowl and cover with boiled water, then set aside to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1-1656239907400-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Roughly chop the sun-dried tomatoes
 
 Mix the chopped sun-dried tomatoes with the remaining soft cheese – this is your sun-dried tomato mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1656239914755-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Drain the softened sultanas and return them to the bowl
 
 Combine the drained sultanas with the red wine vinegar, 1 tbsp<span class="text-danger"> [2 tbsp]</span> olive oil, 1 tsp <span class="text-danger">[2 tsp] </span>sugar and most of the chopped basil (reserve some for garnish) – this is your dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1653645159725-x200.jpg)
 
 ### Step 7
 

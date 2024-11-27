@@ -25,6 +25,7 @@ This rich meat-free mince stew is spiced with aromatic ras el hanout and fiery h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632211207413-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632210937052-x200.jpg)
 
 ### Step 2
 
@@ -47,11 +49,13 @@ Peel and chop your red onion[s] into quarters
 
 Finely slice half the red onion quarters<span class="text-danger"> </span>and set aside in a small bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632210940549-x200.jpg)
 
 ### Step 3
 
 Crush your garlic open by squashing it with the side of a knife and remove the skin
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632210944303-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Cook for 2-3 min, breaking the meat-free mince into large chunks with a wooden s
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632210948374-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add your chopped tomatoes, ras el hanout, harissa paste (can't handle the heat? 
 
 Bring to the boil over a high heat, stir everything together, then put the dish in the oven for 40 min or until thickened and cooked through – this is your baked spicy meat-free mince stew
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632210952125-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Use this time to clear up, set the table, have a cup of tea or simply chill!
 
 Tip: Check the stew halfway and give everything a good stir!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632210955520-x200.jpg)
 
 ### Step 7
 

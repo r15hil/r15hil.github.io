@@ -30,6 +30,7 @@ For this plant-based Japanese dish, you’ll roast aubergines in a sweet miso gl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2135-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil half a kettle, then top
 
 Add the carrot ribbons and sliced radishes to a bowl with half the rice vinegar (you'll use the rest later!), a generous pinch of sugar and 3 tbsp <span class="text-danger">[6 tbsp]</span> boiled water, give everything a mix and set aside for later – this is your quick-pickled veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2135-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Add a drizzle of vegetable oil to the flesh of each aubergine half and put the tray in the oven for an initial 30 min or until tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2135-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Meanwhile, rinse the sushi rice in a sieve under cold running water for 30 secs 
 
 Add the drained rice with 200ml <span class="text-danger">[400ml] </span>cold water and a pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2135-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2135-Step-5-x200.jpg)
 
 ### Step 5
 
 Whilst the rice is cooking, combine the white miso paste and agave in a small bowl with the mirin, remaining rice vinegar, soy sauce and toasted sesame oil and stir it all together – this is your miso glaze
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2135-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Tip: Make sure the glaze gets into the gaps!
 
 Return the tray<span class="text-danger"> </span>to the oven for a further 5-6 min or until the aubergines are caramelised and cooked through – this is your miso-glazed aubergine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2135-Step-7-x200.jpg)
 
 ### Step 7
 

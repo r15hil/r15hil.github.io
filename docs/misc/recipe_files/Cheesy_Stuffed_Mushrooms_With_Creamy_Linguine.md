@@ -25,6 +25,7 @@ Rich, creamy and gloriously cheesy, this spinach linguine is the weekday pick-me
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1675267899366-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine, reserving 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[150ml]</span> starchy pasta water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1675267904839-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely chop (or grate) your garlic
 
 Grate your lighter cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1675267909715-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Combine the sliced spring onion with the chopped garlic and grated cheddar in a 
 
 Add half your pine nuts (you'll use the rest later!) and a generous grind of black pepper and give everything a good mix up – this is your cheesy stuffing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1675267914098-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the stuffed mushroom to the air fryer basket with a spray of olive oil and c
 
 Tip: Air fryers work best when the food is spaced out in a single layer. You may need to do this in batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1675267920906-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ While the mushroom[s] are cooking, dissolve your vegetable stock mix and soft ch
 
 Peel your Italian hard cheese until you end up with a pile of cheese shavings
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1675267925936-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the linguine is cooked, return the pot to the heat with the creamy veg stoc
 
 Tip: Add a splash of water if it's looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1675267930573-x200.jpg)
 
 ### Step 7
 

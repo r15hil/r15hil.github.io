@@ -20,6 +20,7 @@ You'll combine jumbo prawns and curly courgetti in a lusciously light crème fra
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1662455967076-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1662455961750-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Top, tail and peel lengths off your courgette[s] until you end up with a pile of
 
 Stack the courgette ribbons and slice finely, lengthways into thin strips – this is your courgetti
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1662455972519-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the courgetti with a small pinch of salt and cook for 2-3 min or until the courgette has begun to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1662455976802-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Cook your ravioli for 3-4 min or until cooked with a slight bite
 
 Once done, drain the ravioli, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1662719389191-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Drain your jumbo prawns
 
 Once the courgette has softened, increase the heat to high and add the jumbo prawns and sliced garlic to the pan with a good grind of black pepper and cook for 6-7 min or until the prawns are cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1662719397520-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add a splash of the starchy pasta water, mix it all together and cook for 1 min 
 
 Tip: Make sure the pan isn't too hot as this could cause your sauce to split!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1662719405854-x200.jpg)
 
 ### Step 7
 

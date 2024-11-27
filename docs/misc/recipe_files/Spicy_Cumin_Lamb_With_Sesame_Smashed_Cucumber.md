@@ -29,6 +29,7 @@ Unlock the hidden treasures of Western Chinese cuisine. You'll sizzle lamb mince
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1659890662968-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1659890666693-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut your cucumber in half lengthways
 
 Bash the halved cucumber with a rolling pin then slice into bite-sized chunks – this is your smashed cucumber
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1659890670462-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Combine the smashed cucumber and rice vinegar in a small bowl with your toasted 
 
 Give everything a good mix up and set aside – this is your sesame smashed cucumber
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659890674196-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your lamb mince and cornflour to the pan and cook for 4-5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1659890678329-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Meanwhile, trim, then slice your spring onion[s] in half lengthways, then chop r
 
 Peel and chop (or grate) your garlic
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1659890682168-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the lamb has started to brown, add the chopped spring onion to the pan with
 
 Season with a pinch of salt and cook for a further 2-3 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659890686631-x200.jpg)
 
 ### Step 7
 

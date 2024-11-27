@@ -27,6 +27,7 @@ Crispy chicken and spiced rice packed with all the flavours under the island sun
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1650388242121-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5 min <span class="text-danger">[10 min] </span>to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1688725498077-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based, oven-proof casserole dish with a small drizzle of vege
 
 Peel and chop the brown onion<span class="text-danger">[s]</span> into wedges and crush the garlic open by squashing them with the side of a knife and remove the skins
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1688725504937-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the onion wedges to the dish with the crushed garlic and cook for 1-2 min
 
 Whilst the onion and garlic is cooking, drain and rinse the black beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1688725527750-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the ground allspice and ground cumin to the dish with the white long grain r
 
 Season with a generous pinch of salt and pepper then bring to the boil over a high heat, once boiling, cover with a lid and put the dish in the oven for 15-20 min or until all the water has absorbed and the rice is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1688725535523-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Drizzle with vegetable oil and sprinkle over the cayenne pepper (can't handle th
 
 Put the tray in the oven for 15 min or until cooked through (no pink meat!) – this is your Caribbean-style spiced chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1650388369491-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the spinach to the middle with a few small knobs of butter, a generous grind
 
 Scrunch the edges of the foil around the spinach to form 1 <span class="text-danger">[2] </span>sealed parcel<span class="text-danger">[s]</span> then add to the other side of the baking tray with the chicken for the remaining 5-7 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1650388388201-x200.jpg)
 
 ### Step 7
 

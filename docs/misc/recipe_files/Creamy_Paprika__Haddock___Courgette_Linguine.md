@@ -23,6 +23,7 @@ For quick and fancy comfort food, you'll toss together al dente linguine with te
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583418017935-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and slice the shallot<span class="text-danger">[s]</span> finely
 
 Peel lengths off the courgette<span class="text-danger">[s]</span> with a peeler until you end up with a pile of courgette ribbons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-3-1685004688966-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Dissolve the vegetable stock mix and a generous pinch of salt in 50ml<span class
 
 Add the smoked paprika and soft cheese and set aside to infuse – this is your creamy paprika stock
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1685004696349-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add the linguine to a pot of boiled water with a large pinch of salt and bring t
 
 Cook the linguine for 8-10 min or until cooked with a slight bite
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-4-1685004706267-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ While the pasta is cooking, heat a large, wide-based pan (preferably non-stick w
 
 Once hot, add the sliced shallot and chopped garlic and cook for 2-3 min or until beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1685004712743-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Add the haddock bites to the pan, give everything a good mix up and cook for an 
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1685004723140-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Wash the rocket, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1685004733778-x200.jpg)
 
 ### Step 7
 

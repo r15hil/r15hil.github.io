@@ -26,6 +26,7 @@ Honey, dinner’s home. For this speedy stir-fry, you’ll sizzle juicy chicken 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1678178014519-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678178017642-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken breast and cook for 7 min or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678178020951-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Set aside the green tops, then chop the white bases into rough, large pieces
 
 Discard the tough stalk
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678178024143-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Add your fine egg noodles to a large bowl, cover with boiled water and stir 
 
 Set aside to soak for 4 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678178028865-x200.jpg)
 
 ### Step 5
 
 Add most of the chopped spring onion (save the rest for garnish!), the chopped pak choi white bases and your ginger & garlic paste to the chicken and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678178032422-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add your roasted peanuts, white miso paste, honey, soy sauce and a splash of bo
 
 Meanwhile, drain the noodles and return to the bowl, then stir through your toasted sesame oil – these are your sesame noodles
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1688544833201-x200.jpg)
 
 ### Step 7
 

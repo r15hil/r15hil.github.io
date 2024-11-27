@@ -32,6 +32,7 @@ Put a little cauliflower power in this impossibly creamy Malabar-style curry. On
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666100871576-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Chop your cauliflower[s] into bite-sized florets, discarding the leaves and add 
 
 Give everything a good mix up and put the tray in the oven for 12-15 min or until the cauliflower is tender – this is your roasted curried cauliflower
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666100875486-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666100880564-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Peel and finely chop (or grate!) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666100884256-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666100888264-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once hot, add the onion wedges, ground coriander and ground fenugreek
 
 Season with a pinch of salt and cook for 5-6 min or until the onion has started to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666100891934-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Meanwhile, dissolve your vegetable stock mix, tamarind paste, tomato paste and c
 
 Once the onion has softened, add the chopped garlic, chopped ginger and chopped tomato and cook for 30 secs or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666100895509-x200.jpg)
 
 ### Step 7
 

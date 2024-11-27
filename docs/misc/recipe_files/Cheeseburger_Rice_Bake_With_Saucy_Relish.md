@@ -28,6 +28,7 @@ We'll wager you've never had a cheeseburger like this before. You'll bake your r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662456983526-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely slice half your red onion[s]<span class="text-danger"> </span>(
 
 Roughly chop half your tomato[es] (you'll use the rest later!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662456989244-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the sliced red onion, beef mince, ground smoked paprika, chilli fl
 
 Once slightly browned, add the chopped tomato and cook for a further 1-2 min or until the tomato has softened – this is your spiced beef
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662456993024-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add your chicken stock mix, white long grain rice and a pinch of salt with 350ml
 
 Cover tightly with tin foil, and put the dish in the oven for 30 min or until all the water is absorbed and the rice and beef are cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662456998246-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the diced cucumber and diced red onion to a small bowl with your white wine 
 
 Give everything a good mix up and set aside – this is your quick-pickled onion & cucumber
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662457004695-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Dice the remaining tomato
 
 Combine your mustard ketchup, mayo and tomato ketchup in a small bowl – this is your sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1-1662457010282-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the rice is cooked, remove the dish from the oven and discard the foil
 
 Top the cooked rice with the grated cheese and return it to the oven for a further 5 min or until the cheese has melted – this is your 'cheeseburger' rice bake
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662457015169-x200.jpg)
 
 ### Step 7
 

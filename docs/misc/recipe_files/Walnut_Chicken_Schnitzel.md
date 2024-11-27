@@ -22,6 +22,7 @@ Chicken breast crumbed with walnuts, thyme and breadcrumbs - golden and deliciou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/468.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut the potatoes into 2cm chunks, skin on, and peel and roughly chop the garlic&
 
 Add both to a pot, cover with boiled water by 5cm, bring to the boil on a high heat and cook for 10-15 min or until fork tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/468.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: If the stalks are soft, then chop and use them too
 
 Mix the walnuts, thyme and breadcrumbs on a plate and season generously with salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/468.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Crack the egg into another shallow bowl and beat well
 
 Slice the chicken breast<span class="text-danger">(s)</span> in half lengthways, laying your hand over the breasts and sawing through, forming 2 <span class="text-danger">(4)</span> thin escalopes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/468.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Dip it in the egg and coat well, then roll it in the breadcrumbs and press it fi
 
 Repeat with the remaining escalope<span class="text-danger">(s)</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/468.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Transfer them to a baking tray and put them in the oven for a further 5 min or u
 
 Tip: Line the tray with foil to avoid mess
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/468.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Add them to a pot and cover with salted boiling water by 5cm
 
 Bring to the boil on a high heat and cook for 4-5 min or until tender but with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/468.-step-7-new-x200.jpg)
 
 ### Step 7
 

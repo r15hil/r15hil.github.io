@@ -27,6 +27,7 @@ It’s the USA’s favourite Chinese takeaway, yet no one knows if General Tso e
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720452916678-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your white long grain rice to a pot with a lid with 225ml <span class="text-
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed and the rice is cooked, then remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720452921512-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Scrunch the edges of the foil around the broccoli to form sealed parcel[s]
 
 Put the tray in the oven for 15 min or until tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720452926157-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Whilst the broccoli is cooking, peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720452930376-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add your Chinese rice wine and honey and give everything a good mix up – this
 
 Cut your hake fillet[s] into bite-sized pieces and add them to a bowl, then add the remaining cornflour and give everything a good mix up until the hake is fully coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720452940230-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add the coated hake and cook for 3-4<span class="text-danger"> </span>
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720452944475-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Carefully pour away most of the oil and return the pan to a medium heat
 
 Add the chopped garlic, chopped ginger and chilli flakes (can't handle the heat? Go easy!) and cook for 1-2 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720452948325-x200.jpg)
 
 ### Step 7
 

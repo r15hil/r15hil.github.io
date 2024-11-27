@@ -30,6 +30,7 @@ All the flavour of a burrito, minus the tortilla. You'll top rice with crispy cu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1255.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1255.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Wash your lettuce, then pat it dry with kitchen paper and shred
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1255.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once very hot, add your beef mince and cook for 7-8 min or until crispy, breakin
 
 Once crispy, add your ground cumin and cook for 2 min further or until fragrant and the mince is cooked through (no pink meat!) – this is your crispy cumin beef
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1255.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Grate your cheddar cheese
 
 Add your natural yoghurt to a bowl with your chipotle paste (can't handle the heat? Go easy!) and give it a good mix up – this is your chipotle yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1255.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Return the pan (and any oil left from the mince) to a medium heat
 
 Once hot, add the drained black beans, ground smoked paprika and chopped garlic and cook for 1-2 min or until fragrant – these are your smoky beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2155.-step-6.2-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the beef stock and the juice of half your lime[s] to the pan and cook for 3-
 
 Remove the smoky beans from the heat and mash into a semi-smooth paste – these are your smoky refried beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1255.-step-7-x200.jpg)
 
 ### Step 7
 

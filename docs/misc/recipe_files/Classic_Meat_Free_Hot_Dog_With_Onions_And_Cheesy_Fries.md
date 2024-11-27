@@ -25,6 +25,7 @@ Take a bite out of the Big Apple with this street food staple. A cult favourite 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723642042824-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the fries to a non-stick baking paper-lined tray (or two!) with a drizzle of
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723642046096-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add 1<span class="text-danger"> </span>cucumber quarter per person (you'll use t
 
 Tip: Turn the cucumber every now and then to make sure they pickle evenly!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723642051934-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the sliced onion with a small pinch of salt and sugar and a splash
 
 Cook the onions for 6-7 min or until they have softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723642056218-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Meanwhile, add your meat-free hot dog sausage[s] to a baking tray (or two!), use
 
 Put the tray[s] in the oven for 20 min or until the sausage[s] are golden and cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723642059992-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Add the diced cucumber to a pot over a medium heat with a knob of butter and sma
 
 Once softened, pour the pickling liquid from the 'gherkins' into the pot, add the sliced spring onion and cook for a further 2-3 min or until all the liquid has been absorbed – this is your cucumber relish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723642063729-x200.jpg)
 
 ### Step 6
 
 Once the onions have softened, stir in 1/3 of your tomato ketchup (save the rest for later!) and cook for 1-2 min further or until sticky – these are your New York-style sweet onions
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1723642067514-x200.jpg)
 
 ### Step 7
 

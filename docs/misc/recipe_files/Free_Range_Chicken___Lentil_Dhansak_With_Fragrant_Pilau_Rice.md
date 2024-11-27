@@ -32,6 +32,7 @@ Spicy and flavourful, this is the perfect ‘fakeaway’ for busy nights. Mango 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1.jpg-2-1697119943517-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Peel and finely slice your brown onion[s]
 
 Chop your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-25-1697119908239-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once hot, add the sliced onion and halved cherry tomatoes with a pinch of salt a
 
 Once softened, add your garam masala, cayenne pepper (can't handle the heat? Go easy!) and ground turmeric and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-27-1697119951201-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Meanwhile, dissolve your chicken stock mix in 500ml <span class="text-purple">[7
 
 Rinse your red lentils in a sieve under cold running water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-26-1697119955187-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once fragrant, add the rinsed lentils and chicken stock to the pan and cook for 
 
 While the lentils are cooking, crush your cardamom pods open by squashing them with the side of a knife
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-25-1697119958898-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your basmati rice and 300ml <span class="text-purple">[390ml] </span><span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked – this is your pilau rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-23-1697119962184-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the lentils are almost tender, add the chopped chicken and mango chutney 
 
 Once done, stir in the juice of half your lemon[s] – this is your free range chicken & lentil dhansak
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-12-1697119965960-x200.jpg)
 
 ### Step 7
 

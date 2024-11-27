@@ -21,6 +21,7 @@ This creamy chowder has layers of delicious flavour from leeks, smoky fish, pota
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1849.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Wash your leek[s] thoroughly to remove any grit from between the leaves, then to
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1849.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) with a large knob of butte
 
 Once melted, add the sliced leek with a pinch of salt and cook for 5-6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1849.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -46,21 +49,25 @@ Drain your sweetcorn
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1849.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the leek has softened, add the chopped garlic and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1849.-step-5-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the chopped potatoes and creamy vegetable stock and cook for 15-18 min or until the potatoes are almost fork-tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1849.-step-6-x200.jpg)
 
 ### Step 6
 
 While the potatoes are cooking, chop your smoked basa into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1849.-step-7-x200.jpg)
 
 ### Step 7
 

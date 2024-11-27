@@ -27,6 +27,7 @@ To whip up this Indian-style dish in 10 minutes, you'll serve punchy tandoori ki
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622806845475-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1653.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Now, let's get started!
 
 Combine your curry powder, ground paprika and chilli flakes (can't handle the heat? Go easy!) with 1/4 of your natural yoghurt (you'll use the rest later!) and the juice of half your lime[s] – this is your tandoori marinade
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1653.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,11 +55,13 @@ Drain your king prawns, then add them to the tandoori marinade and give everyth
 
 Set aside until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Mini-naans-in-toaster-1687784005758-x200.jpg)
 
 ### Step 4
 
 Add your naan[s] to a toaster for 1-2 min or until warmed through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1653.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Cut your cucumber in half lengthways, then slice finely
 
 Add the chopped tomatoes and sliced cucumber to a bowl with a drizzle of olive oil and a pinch of salt and pepper – this is your tomato & cucumber salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1653.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Combine the remaining natural yoghurt with your mint sauce – this is your min
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1653.-step-7-x200.jpg)
 
 ### Step 7
 

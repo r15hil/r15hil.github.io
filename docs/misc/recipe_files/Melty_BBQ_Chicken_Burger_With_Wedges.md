@@ -20,6 +20,7 @@ This melty BBQ chicken burger is sure to be a family favourite this summer. Our 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2182.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -28,6 +29,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ 395°F/ Gas 6
 
 Cut the potatoes (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2182.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -36,21 +38,25 @@ Add the potato wedges to a baking tray with a drizzle of vegetable oil and pinch
 
 Put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2182.-step-3-x200.jpg)
 
 ### Step 3
 
 Shred half of the red gem lettuce<span class="text-danger">[s]</span> finely and chop the rest roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2182.-step-4-x200.jpg)
 
 ### Step 4
 
 Grate the cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2182.-step-5-x200.jpg)
 
 ### Step 5
 
 Once the wedges have been in the oven for 10 mins, add the chicken burger patties to a separate tray (use non-stick baking paper to prevent them from sticking!) and put the tray in the oven for 12 min or until starting to brown
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2182.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -62,6 +68,7 @@ Add the brioche rolls, cut-side up, to the other side of the tray
 
 Return the tray to the oven for 3 min or until the cheese has melted and the burgers are cooked through (no pink meat!) – these are your melty chicken burgers
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2182.-step-7-x200.jpg)
 
 ### Step 7
 

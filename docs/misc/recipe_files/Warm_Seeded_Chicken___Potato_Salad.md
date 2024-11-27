@@ -28,6 +28,7 @@ This new twist on schnitzel might just super-seed the original. You'll bread chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1612274236839-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop your waxy potatoes (skins on) in half, then add the halved potatoes to a po
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1612274259430-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the onion wedges to one half of a baking tray (or two) with a drizzle of veg
 
 Line the other half of the baking tray[s] with baking paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1612274301684-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Slice your apple[s] finely, then chop into matchsticks (discard the core[s])
 
 Chop your pumpkin seeds roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1612274306546-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Combine your panko breadcrumbs, ground paprika, black sesame seeds, toasted sesa
 
 Cover your chicken breast portion[s] with cling film and bash with a rolling pin until flattened to roughly 1.5cm thick all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1612274329189-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Crack your egg[s] into a shallow bowl and beat with a fork
 
 Coat the chicken in the flour, tap off any excess, then add it into the beaten egg and finally press it into the seeded breadcrumb mixture firmly to evenly coat all over – this is your seeded chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1612274362563-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add the seeded chicken to the other side of the baking tray[s] with the onion we
 
 Put the tray[s] in the oven for 18-20 min or until the chicken is cooked through (no pink meat!), turning once halfway through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1612274372082-x200.jpg)
 
 ### Step 7
 

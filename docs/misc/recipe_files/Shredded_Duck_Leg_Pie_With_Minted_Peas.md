@@ -29,6 +29,7 @@ Pie oh pie, this shredded duck is tender. You’ll roast shredded duck legs befo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-6-1688140459177-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Shred apart the duck leg[s] into large, bite-sized pieces using two forks (watch
 
 Add the pulled duck to an oven-proof dish with the white duck fat and place in the oven for an initial 25 min or until brown and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-6-1688140462529-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once cooked, drain and return them to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-6-1688140466529-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Strip your thyme leaves from their stems and chop them roughly, discard the stem
 
 Grate your cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-7-1688140471004-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Once hot, add the chopped onion, diced carrot and bay leaf[ves]<span class="text
 
 Combine your beef stock mix and red wine paste with 250ml<span class="text-purple"> [325ml] </span><span class="text-danger">[450ml]</span> boiled water – this is your red wine stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-7-1688140475354-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Once the vegetables have softened, add the chopped garlic and tomato paste to th
 
 Once fragrant, add the red wine stock, half the chopped thyme (you'll use the rest later!) and duck jelly and cook for 4-5<span class="text-danger"> </span>min or until the sauce has thickened to a gravy like consistency – this is your pie filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-7-1688140479442-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once the duck has had an initial 25 min, pour the pie filling into the dish with
 
 Top with the mashed potato, grated cheese and remaining chopped thyme and put the dish in the oven for 15-20 min or until golden brown and bubbling – this is your shredded duck leg pie
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-7-1688140482614-x200.jpg)
 
 ### Step 7
 

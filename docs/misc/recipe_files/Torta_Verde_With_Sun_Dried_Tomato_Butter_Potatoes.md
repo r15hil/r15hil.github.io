@@ -24,6 +24,7 @@ Inspired by the Torta Pasqualina from the Italian Riviera, this riff on the spri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678183629257-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely slice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678183744431-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the sliced spring greens, chopped shallot and garlic to the pan an
 
 Once wilted, remove the pan from the heat and stir through your soft cheese and vegetable stock mix – this is your torta filling
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678183749233-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the chopped potatoes to a baking tray with a drizzle of olive oil and a pinc
 
 Put the tray in the oven for 20-25 min or until golden and crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678183756906-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Dust your work surface with a generous sprinkling of flour, unwrap your puff pas
 
 Add the rolled pastry to the tray[s] and prick it all over with a fork (this will stop it getting a soggy bottom!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678183766758-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Tip: Start from one corner and work around in one direction, overlapping the pas
 
 Put the tray[s] in the oven for an initial 9 min or until the pastry edges have puffed up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678183780142-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Crack your egg[s] into the centre, then add a generous grind of pepper
 
 Return the tray[s] to the oven for a final 7-8 min or until the egg[s] are cooked (the yolk should still be a little runny) and the pastry is golden and cooked through – this is your torta verde
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678183808842-x200.jpg)
 
 ### Step 7
 

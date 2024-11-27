@@ -22,6 +22,7 @@ This beef and onion pie is slow cooked in Marmite-enriched gravy, so if you're a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1643797888981-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Season the diced beef with a pinch of salt and 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and give everything a good mix up until fully coated
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1643797896786-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely chop (or grate) the garlic
 
 Top, tail, peel and chop the carrot<span class="text-danger">[s]</span> roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1643797916346-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the chopped carrot and shallot quarters with a pinch of salt to th
 
 Once slightly softened, add the chopped garlic with 1 tsp<span class="text-danger"> [2 tsp]</span> flour and cook for 1-2 min further or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1643797925522-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Return the browned beef and any juices to the pan with the Marmite stock – thi
 
 Bring to the boil over a high heat, then transfer the Marmite beef & onion filling to an oven-proof dish, cover tightly with tin foil and put the dish in the oven for an initial hour or until the meat is tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1643797966594-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Lay the puff pastry sheet over the pie dish and trim off any excess
 
 Press the edges with a fork to seal the pastry to the dish and put the tray in the oven for 15-20 min or until puffed up and golden – this is your Marmite beef & onion pie
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1643797993588-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, once done, drain and return to the pot to steam dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1643798026890-x200.jpg)
 
 ### Step 7
 

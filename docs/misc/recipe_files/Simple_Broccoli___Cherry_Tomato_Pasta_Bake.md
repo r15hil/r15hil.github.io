@@ -24,6 +24,7 @@ For this yummy veggie pasta bake, you'll make a creamy, cheesy béchamel sauce b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1508.-step-1.a-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Boil a kettle
 
 Add the conchiglie pasta to a large pot of boiled water with a pinch of salt, bring to the boil over a high heat and cook for 4 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1508.-step-2.a-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ After 4 min add the broccoli florets and cook for a further 4 min or until just 
 
 Once done, drain and transfer to a plate (or keep in the colander!), reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1508.-step-3.a-x200.jpg)
 
 ### Step 3
 
@@ -69,6 +72,7 @@ Dissolve the vegetable stock cube<span class="text-danger">[s]</span> in 50ml <
 
 Add 400ml <span class="text-danger">[800ml] </span>milk to the stock – this is your creamy stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1508.-step-4.a-x200.jpg)
 
 ### Step 4
 
@@ -83,11 +87,13 @@ Gradually whisk the creamy stock into the roux, a little at a time and cook for 
 
 Season with a pinch of salt and pepper – this is your béchamel sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1508.-step-5.a-x200.jpg)
 
 ### Step 5
 
 Meanwhile, combine the panko breadcrumbs, pumpkin seeds and half the grated cheddar with a drizzle of olive oil and pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1508.-step-6.a-x200.jpg)
 
 ### Step 6
 
@@ -102,6 +108,7 @@ Transfer everything to an oven-proof dish and top with the cheesy breadcrumbs
 
 Put the dish in the oven and cook for 20-25 min or until bubbling and golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1508.-step-7-x200.jpg)
 
 ### Step 7
 

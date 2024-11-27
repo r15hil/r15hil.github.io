@@ -30,6 +30,7 @@ Cottage pie is bursting out of its comfort zone. The rich beef filling is packed
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662482529411-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel your potatoes and chop them into large, bite-sized pieces, then add them to
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662482535024-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add your beef mince with a generous pinch of salt and pepper then cook for 4-5 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662482538831-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Drain and rinse your kidney beans
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1662482542349-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once the beef has browned, add the diced onion to the pan and cook for 3-4 min o
 
 Dissolve your beef stock mix in 250ml<span class="text-danger"> <span class="text-purple">[325ml]</span> [425ml]</span> boiled water with your tomato paste, chipotle paste (can't handle the heat? Go easy!) and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar – this is your chipotle stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662482546306-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once fragrant, add the chipotle stock and drained kidney beans to the pan and br
 
 Once boiling, reduce the heat to medium and cook for 4-5 min or until the sauce has slightly thickened, then remove the pan from the heat – this is your chilli mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662482549541-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Return the drained potatoes to a low heat with 1/3 of your soured cream, half th
 
 Mash until smooth – this is your mashed potato
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662482553376-x200.jpg)
 
 ### Step 7
 

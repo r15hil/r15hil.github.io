@@ -23,6 +23,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1955.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1955.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,26 +53,31 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the diced chicken and baby button mushrooms with a pinch of salt and cook for 2-3 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1955.-step-3-x200.jpg)
 
 ### Step 3
 
 Once starting to brown, add the roasted garlic paste and cook for 30 sec
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1955.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the garam masala with a pinch of salt and cook for 30 sec or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1955.-step-5-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the soy sauce and sultanas and cook for 30 sec further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1955.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the brown basmati rice and cook for 2-3 min or until warmed through, stirring frequently
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1955.-step-7-x200.jpg)
 
 ### Step 7
 

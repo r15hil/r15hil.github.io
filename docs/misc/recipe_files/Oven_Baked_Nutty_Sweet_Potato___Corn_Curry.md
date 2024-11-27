@@ -31,6 +31,7 @@ If you love spice but don’t have hours to spare, this oven-baked sweet potato 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1730110099327-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1688721735337-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of v
 
 Once hot, add the chopped sweet potato and cook for 1-2 min or until the potato is beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1688721739304-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Chop your creamed coconut roughly (if required!)
 
 Drain your sweetcorn
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1688721743054-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the sweet potato is browned, add your ginger & garlic paste and garam masal
 
 Add the chopped red chilli (can't handle the heat? Go easy!) with the drained sweetcorn, vegetable stock mix, chopped creamed coconut, peanut butter and 500ml <span class="text-purple">[750ml]</span> <span class="text-danger">[1L]</span> boiled water and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1688721746903-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Reboil a kettle
 
 Bring to the boil over a high heat, then cover with a lid and put the dish in the oven for 30 min or until the sweet potato is cooked through – this is your oven-baked nutty sweet potato & corn curry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1688721751529-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add your white long grain rice to an oven-proof dish with a generous pinch of sa
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1688721754091-x200.jpg)
 
 ### Step 7
 

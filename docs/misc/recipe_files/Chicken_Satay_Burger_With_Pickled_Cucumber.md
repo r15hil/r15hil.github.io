@@ -23,6 +23,7 @@ This Asian-inspired burger is the definition of East meets West. You'll roast ou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2224.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 25 min or until starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2224.-step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel the carrot<span class="text-danger">[s]</span>, then continue to peel lengths until you end up with a pile of carrot 'ribbons'<br /><br />Peel lengths off the cucumber until you end up with a pile of cucumber 'ribbons'
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2224.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the cucumber &amp; carrot ribbons to a bowl with the <span class="text-highl
 
 Set aside to lightly pickle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2224.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,16 +62,19 @@ Add the chicken burger patties to a separate baking paper-lined baking tray 
 
 Put the tray in the oven for an initial 12-15 min or until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2224.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, add the peanut butter, Sriracha hot chilli sauce (can't handle the heat? Go easy!) and 1 tbsp <span class="text-danger">[2 tbsp]</span> cold water to a bowl and stir it all together – this is your satay sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2224.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the chicken burgers have been cooking for 12-15 min, add the brioche rolls, cut-side up, and return the tray to the oven for 2-3 min further or until the burgers are cooked through (no pink meat!) and the bread is slightly toasted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2224.-step-7-x200.jpg)
 
 ### Step 7
 

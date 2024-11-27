@@ -23,6 +23,7 @@ This family-friendly sausage ragu has a sweet tomato and aubergine base. We've g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/579.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Keep the pan, you'll use it later!
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/579.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Tear the aubergine halves into rough pieces using your hands (alternatively chop
 
 Tip: this is a rustic dish, so the aubergine doesn't have to be neat!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/579.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Cook for 3-4 min or until starting to brown
 
 Meanwhile, boil&nbsp;a kettle for your pasta
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/579.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Slice the sausages open and squeeze the sausagemeat into the aubergine (this is 
 
 Reduce the heat to medium-low and cook for a further 5-8 min or until both the sausagemeat and aubergine has browned &nbsp;&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/579.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Meanwhile, add the pasta to a pot of salted boiled water, bring to the boil over
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/579.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Chop&nbsp;the parsley stalks finely, keeping a small handful of leaves aside for
 
 Add the shallot, garlic and parsley stalks to the sausage and cook for a further 3 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/579.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Grab a taste of the Caribbean with crispy basa coated in an allspice breadcrumb.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/808._step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the zest of your lime[s] (try to avoid the white pith, as this is very bitte
 
 Give everything a good mix – this is your Caribbean-style crumb
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/808._step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Put the tray[s] in the oven for 12-15 min or until the fish is cooked through an
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/808._step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Boil a kettle
 
 Peel and chop your sweet potato[es] into bite-sized chunks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/808._step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once boiling, reduce the heat to medium and cook for 10-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/808._step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ While the sweet potato is cooking, dice your tomato[es]
 
 Trim, then slice your spring onion[s] finely, separating the white parts from the green parts
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/808._step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Cut your lime[s] in half
 
 Add your mango chutney, the juice of half of your lime and a drizzle of olive oil and give everything a good mix up – this is your tomato salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/808.-step--7-x200.jpg)
 
 ### Step 7
 

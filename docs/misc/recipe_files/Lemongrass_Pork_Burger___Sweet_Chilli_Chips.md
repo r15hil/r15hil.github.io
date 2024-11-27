@@ -32,6 +32,7 @@ Bite into a juicy caramelised pork burger this week, infused with fresh, zingy l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1583416464893-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1583416470954-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Strip your mint leaves from their stems, discard the stems
 
 Add the garlic, shallot halves, lemongrass, half the mint leaves and half your coriander (you'll use the rest later!) to a food processor and blitz until finely chopped – this is your lemongrass paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1583416474757-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once blitzed, combine the lemongrass paste, pork mince (remove the paper if requ
 
 Divide the lemongrass pork mince and shape into one burger patty per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1583416478408-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once hot, add the lemongrass patty[ies], press it down firmly with a spatula an
 
 Reduce the heat to medium-high, flip the patty[ies] and cook for a further 5 min or until charred and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1583416483337-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add the carrot ribbons to a bowl with your rice vinegar and give everything a go
 
 Trim, then slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1583416487864-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Slice your ciabatta[s] in half
 
 Add the halved ciabatta[s] to a baking tray (cut side up) and put the tray in the oven for 5 min or until they're hot and crusty
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1583416492592-x200.jpg)
 
 ### Step 7
 

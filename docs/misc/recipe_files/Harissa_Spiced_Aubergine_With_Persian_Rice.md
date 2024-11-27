@@ -26,6 +26,7 @@ This aubergine dish is full of the rich, exotic flavours that characterise Middl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1738.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1738.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Add the aubergine wedges to the marinade and coat well
 
 Transfer the coated aubergine wedges to a baking tray, drizzle them with olive oil and put the tray in the oven for 25 min or until browned and softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1738.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Add the beans to a pot of cold water with a pinch of salt, bring to the boil ov
 
 Once cooked, drain and return to the pot and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1738.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -82,6 +86,7 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Strip the mint leaves from their stems and chop them finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1738.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,6 +98,7 @@ Once hot, add the diced onion and cook for 5 min or until softened
 
 Add the ground cumin and chopped garlic and cook for a further 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1738.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,6 +113,7 @@ Cook for 2-3 min or until the lentils are warmed through
 
 Add the cooked rice and give everything a good mix up – this is your Persian rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1738.-step-7-x200.jpg)
 
 ### Step 7
 

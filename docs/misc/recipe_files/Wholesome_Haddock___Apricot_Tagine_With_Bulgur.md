@@ -27,6 +27,7 @@ This tasty haddock tagine is subtly spiced with ground coriander, cumin and cinn
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1534.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Top, tail, peel and dice the carrot<span class="text-danger">[s]</span>
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1534.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with&nbsp;a drizzle of olive
 
 Once hot, add the chopped onion and carrot with a pinch of salt and cook for 5-8 min or until softened&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1534.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the bulgur wheat to a pot with plenty of boiled water and a pinch of salt (t
 
 Reboil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1534.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Roughly chop the cherry tomatoes&nbsp;
 
 Dissolve the vegetable stock cube<span class="text-danger">[s] </span>in 500ml <span class="text-danger">[800ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1534.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once the onion has softened, add the chopped garlic, ginger,&nbsp;ground cinnamo
 
 Cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1534.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Once fragrant, add the&nbsp;vegetable stock,&nbsp;cherry tomatoes&nbsp;and&nbsp;
 
 Once boiling, reduce the heat to medium and cook for 10-15 min or until the sauce has thickened to a curry-like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1534.-step-7-x200.jpg)
 
 ### Step 7
 

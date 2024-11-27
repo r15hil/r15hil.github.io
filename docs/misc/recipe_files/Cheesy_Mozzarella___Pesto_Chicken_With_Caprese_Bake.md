@@ -22,6 +22,7 @@ This easy dish packs delicious caprese with lean protein. You'll smother chicken
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2327-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,11 +32,13 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Cut your potatoes (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2327-Step-2-x200.jpg)
 
 ### Step 2
 
 Cut your red onion[s] into wedges, leaving the skins on (this helps them cook quicker!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2327-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -45,6 +48,7 @@ Add your balsamic vinegar, a pinch of salt and 2 tbsp <span class="text-purple">
 
 Put the tray[s] in the oven for 25-30 min or until the vegetables are soft and the potatoes are crisp – this is your caprese bake
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599494476159-x200.jpg)
 
 ### Step 4
 
@@ -52,11 +56,13 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chicken-breast-on-a-baking-tray-1599494512326-x200.jpg)
 
 ### Step 5
 
 Add your chicken breast portion[s] to a tin foil-lined baking tray (or two!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2327-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Season with a pinch of salt and pepper
 
 Put the tray[s] in the oven for 18-20 min or until the cheese is golden and the chicken is cooked through (no pink meat!) – this is your cheesy mozzarella & pesto chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2327-Step-7-x200.jpg)
 
 ### Step 7
 

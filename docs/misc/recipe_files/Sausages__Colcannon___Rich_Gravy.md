@@ -21,6 +21,7 @@ When it comes to comfort-food classics, nothing beats sausages and mash. For a t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/880.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boi
 
 Once cooked, drain and leave to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/880.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Trim and finely chop the spring onions
 
 Cut the red <span class="text-highlight">onions</span> into wedges, leaving the skins and root on (this stops them drying out and falling apart when roasting)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/880.-step-4-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Drizzle the onion wedges with olive oil and season with salt and pepper
 
 Put the tray in the oven for 20-25 min or until the sausages are cooked through and the onion wedges have softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/880.-step-3-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Season with a pinch of salt and pepper and add a splash of water
 
 Cook, covered, for 2-3 min or until softened, then transfer to a plate and set aside (reserve the pan for later!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/880.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,6 +96,7 @@ Once hot, add a knob of butter
 
 Once melted, add 1/2 tsp<span class="text-danger"> [1 tsp]</span> flour and cook for 1 min, stirring with a wooden spoon until combined
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/880.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,6 +105,7 @@ Add the Chinese rice wine and cook for 20 sec or until dissolved, then add the 
 
 Cook for 6-8 min or until thickened to a sticky gravy-like consistency, whisking occasionally <span class="text-highlight">–</span> this is your redcurrant jelly gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/880.-step-7-x200.jpg)
 
 ### Step 7
 

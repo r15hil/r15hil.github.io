@@ -22,6 +22,7 @@ To whip up this warm salad, you’ll toss roasted sweet potato and onion with ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-6-1649169973647-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut your red onion[s] into quarters, leaving the skins and root on
 
 Tip: This stops them drying out and falling apart when roasting!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-6-1649169980827-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ Drizzle with olive oil and season with a generous pinch of salt and pepper
 
 Put the tray[s] in the oven for 20-30 min or until the onion is tender and the sweet potato is cooked and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-6-1649169990347-x200.jpg)
 
 ### Step 3
 
 Cover your chicken breast portion[s] with cling film and bash them with a rolling pin until flattened to roughly 1.5cm thick all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-6-1649169997344-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the flattened chicken, season with a pinch of salt and cook for 3 min on each side or until lightly browned, then remove from the heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-5-1649170005076-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Sprinkle your pine nut & seed mix all over
 
 Put the tray in the oven for 14-15 min or until the chicken is cooked through (no pink meat!) and the juices run clear – this is your seeded chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1649170028382-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Meanwhile, combine your white wine vinegar with 2 tbsp <span class="text-purple
 
 Wash your salad, then pat dry with kitchen paper and add to the bowl with the date dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-5-1649170037042-x200.jpg)
 
 ### Step 7
 

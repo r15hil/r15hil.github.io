@@ -25,6 +25,7 @@ Made with succulent lamb, these moreish meatballs are packed with flavour from l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1318.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Slice the cucumber finely and add it to a sieve over the sink
 
 Season with a generous pinch of salt, give everything a good mix up and set aside until later – this is your salted cucumber
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1318.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1318.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Meanwhile, zest your lemon[s]<span class="text-danger"> </span>(try to grate lig
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1318.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Mix thoroughly until fully combined (clean hands is the best way!)
 
 Divide the mixture and roll them into 6 meatballs per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1318.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the meatballs to a baking tray and put the tray in the oven for 15 min or until cooked through (no pink meat!) – these are your lemony lamb meatballs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1318.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Strip your mint leaves from their stems and chop them finely
 
 Chop your dill finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1318.-step-7-x200.jpg)
 
 ### Step 7
 

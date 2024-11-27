@@ -27,11 +27,13 @@ Biryani, pronounced 'beery-anee,' is the paella of Indian food. Traditionally, i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/278_step-1-x200.jpg)
 
 ### Step 1
 
 Peel and dice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/278_step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Once hot, add the diced onion, curry powder and a pinch of salt and pepper
 
 Cook for 2 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/278_step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim and cut your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/278_step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Once the onion is starting to soften, add your lamb mince to the pan and cook fo
 
 Sprinkle in your chicken stock mix and add your tomato paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/278_step-5-x200.jpg)
 
 ### Step 5
 
@@ -60,6 +65,7 @@ Cook for a further 2 min or until the lamb is starting to caramelise
 
 Stir in your basmati rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/278_step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Tip: Add a splash of water if the rice is not fully cooked or the mixture is looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/278_step-7-x200.jpg)
 
 ### Step 7
 

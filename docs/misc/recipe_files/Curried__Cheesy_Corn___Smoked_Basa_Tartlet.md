@@ -25,6 +25,7 @@ Jump-tart your week with this speedy supper. You’ll cook a fragrant curried sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670837820627-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Grate your cheddar cheese finely
 
 Drain your sweetcorn
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670837823514-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter over a
 
 Once the butter has melted, add the chopped shallot and cook for 2-3 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670837826553-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ While the shallot is softening, pat your smoked basa fillet[s] dry with kitchen 
 
 Chop the smoked basa into small bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670837829296-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Cook for 1-2 min or until fragrant
 
 Once fragrant, add 80ml<span class="text-purple"> [120ml] </span><span class="text-danger">[160ml]</span> milk and cook for 2 min further or until a smooth, thick sauce remains – this is your curried béchamel
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670837832708-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the curried béchamel has thickened, add the grated cheddar, drained sweetc
 
 Cook for 2 min further or until the cheese is melted – this is your curried cheesy corn
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670837835952-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the pastry to the tray[s] and score a 1cm border around the edge of the pa
 
 Prick the inside of the border all over with a fork
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670837838747-x200.jpg)
 
 ### Step 7
 

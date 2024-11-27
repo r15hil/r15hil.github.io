@@ -27,6 +27,7 @@ Want a plant-based Christmas dinner this year? Our vegan chicken bites are the p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1600785873868-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add 3 tbsp <span class="text-danger">[6 tbsp]</span> vegetable oil to a baking t
 
 Peel and halve the potatoes, then add them to a pot of boiled water with a large pinch of salt, bring to the boil over a high heat and cook for 10-15 min or until fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1600785877640-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Whilst the potatoes are boiling, dissolve 1/2 <span class="text-danger">[1]</spa
 
 Give everything a good mix up and shape into 4<span class="text-danger"> [8]</span> stuffing balls
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1600785881563-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the parsnips and carrots to one side of a baking paper-lined baking tray wit
 
 Add the stuffing balls to the other side of the tray and put the tray in the oven for an initial 7-8 min or until the potatoes are done
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1600785887952-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Carefully add the potatoes to the tray with the hot oil, turn them until they're
 
 Transfer the vegetable tray to the bottom shelf of the oven, return the potatoes to the top shelf and cook for an initial 30 min or until the potatoes are starting to crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1600785892563-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Return the pot to a medium-low heat with 1 tbsp <span class="text-danger">[2 tbs
 
 Gradually add the stock to the pan and cook for 10-15 min or until thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1600785897222-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once hot, add the sliced sprouts to the pan with a pinch of salt and pepper and 
 
 Combine the wholegrain mustard and agave in a bowl – this is your sweet mustard glaze
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1600785902364-x200.jpg)
 
 ### Step 7
 

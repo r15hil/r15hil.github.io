@@ -21,6 +21,7 @@ Double up on asparagus with this plant-packed plate. You’ll simmer chopped asp
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680535163097-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Once hot, add the capers to the pan and cook for 6-7 min or until crispy, then s
 
 Once crispy, transfer the crispy capers to a plate and reserve the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680535167816-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Peel and finely chop (or grate) the garlic
 
 Chop the cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680535173501-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Return the reserved pan to a medium heat with a drizzle of olive oil
 
 Once hot, add the diced onion and chopped garlic and cook for 3-4 min or until slightly softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680535179512-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Tip: Alternatively, bend the woody ends of the asparagus until they snap!
 
 Chop the asparagus tips away from the stalks and set them aside, then finely chop the asparagus stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680535188884-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the onion and garlic has slightly softened, add the halved cherry tomatoes 
 
 Add the tomato paste to the pan with the chopped asparagus stalks and cook for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680535199274-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add 150ml<span class="text-danger"> [250ml] </span>boiled water to the pan with 
 
 Give everything a good mix up and cook for 3-4 min or until the sauce has slightly thickened – this is your asparagus & tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680535219818-x200.jpg)
 
 ### Step 7
 

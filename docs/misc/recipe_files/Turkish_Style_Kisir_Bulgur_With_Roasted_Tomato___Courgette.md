@@ -29,6 +29,7 @@ Try this Turkish take on bulgur wheat with pepper, onion and aromatic cumin. Sim
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1711454193058-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add your cherry tomatoes and sliced courgette to a baking tray (or two!) with a 
 
 Put the tray[s] in the oven for 25-30 min or until softened – this is your roasted vegetables
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1711454197041-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1711454200838-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once toasted, transfer the toasted walnuts to a plate, set aside and reserve the
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1711454203782-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Return the reserved pan to a medium-high heat with a drizzle of olive oil
 
 Once hot, add the sliced onion and sliced pepper with a pinch of salt and cook for 3-4 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1711454207266-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once softened, add your tomato paste, ground cumin and sweet pepper relish
 
 Cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1711454210811-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Cook, covered, for 7-9 min or until almost all the water has absorbed
 
 Once done, remove the pan from the heat and fluff with a fork – this is your Turkish-style kisir bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1711454214730-x200.jpg)
 
 ### Step 7
 

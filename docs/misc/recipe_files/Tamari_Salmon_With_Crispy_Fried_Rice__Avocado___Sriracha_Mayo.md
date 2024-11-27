@@ -25,6 +25,7 @@ Get your weekly umami fix with juicy soy-marinated salmon and crispy rice pattie
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684236071370-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span c
 
 Once boiling, reduce the heat to low until very gently bubbling and cook, covered, for 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684236074767-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
 After the 5 min, stir through your mirin and transfer the sticky rice to a plate and spread it out flat to help it cool down
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728380651064-x200.jpg)
 
 ### Step 3
 
@@ -52,16 +55,19 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and slice finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684236082507-x200.jpg)
 
 ### Step 4
 
 Add your salmon fillet[s] to a plate with your tamari soy sauce and give everything a good mix up and set aside – this is your tamari-marinated salmon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684236085803-x200.jpg)
 
 ### Step 5
 
 Combine your sriracha (can't handle the heat? Go easy!) with your mayo and a squeeze of lime in a small bowl – this is your sriracha mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684236089662-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once crispy, transfer it to a baking tray, skin-side up and reserve the pan, the
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1684236092964-x200.jpg)
 
 ### Step 7
 

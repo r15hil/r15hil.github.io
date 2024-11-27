@@ -23,6 +23,7 @@ May we present a mini Spanish feast - Gousto style. You'll make sticky honey-bal
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/832.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop the peppers in half (scrape the seeds and pith out with a teaspoon)
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/832.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Place the potatoes and peppers, skin-side up, on a baking tray (use tin foil to 
 
 Put the tray in the oven for 25-30 min or until the potatoes are brown and crispy and the peppers are charred and blistered
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/832.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the onion&nbsp;with a pinch of salt and cook for 10 min or until soft and caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/832.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Add them to the pan and cook them for a further 5 min
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/832.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Meanwhile, peel and finely chop (or grate) the garlic&nbsp;
 
 Add the mayonnaise, chipotle paste&nbsp;and&nbsp;garlic&nbsp;to a mixing bowl with a drizzle of olive oil and a pinch of salt and pepper - this is your spicy aioli
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/832.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the chorizo has had its 5 min, add the balsamic vinegar, honey and 2 tbsp <
 
 Meanwhile, trim then slice the spring onion<span class="text-danger">[s]</span> finely&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/832.-step-7-x200.jpg)
 
 ### Step 7
 

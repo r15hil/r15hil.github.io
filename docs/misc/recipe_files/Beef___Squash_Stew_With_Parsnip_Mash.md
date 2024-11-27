@@ -28,6 +28,7 @@ Simmer up a sumptuous beef stew with butternut squash and mushrooms. For extra h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632474953973-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632474978294-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a l
 
 Once hot, add the chopped onion and garlic with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632474990860-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once the onion has softened, add your beef mince to the pan with 1 tsp <span cla
 
 Increase the heat to medium-high and cook for 3-4 min or until browned, breaking it up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632474995427-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Dissolve your beef stock mix and tomato paste with 300ml <span class="text-purpl
 
 When your mince has browned, add the sliced mushrooms and your butternut squash cubes to the pan and cook for 1-2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632475023482-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the beef stock, Dijon mustard and your Henderson's Relish with a generous gr
 
 Give everything a good mix up and cook, covered, for 20-25 min or until the sauce has reduced, the squash has softened and the the mince is cooked through (no pink meat!) – this is your lighter beef & squash stew
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632475061191-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632475111586-x200.jpg)
 
 ### Step 7
 

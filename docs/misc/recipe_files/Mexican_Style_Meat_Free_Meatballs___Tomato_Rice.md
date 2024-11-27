@@ -24,6 +24,7 @@ These gently spiced meatballs are ready in no time. You’ll simmer meat-free me
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678202909137-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678202915372-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add the meat-free meatballs to the pan and cook for 2 min on each side or until beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678202919170-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Meanwhile, peel and finely slice your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678202922467-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Once the meatballs have browned, add the sliced shallot and a very generous pinc
 
 Once softened, add the chopped garlic, ground smoked paprika and ground coriander to the pan and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678202928489-x200.jpg)
 
 ### Step 5
 
@@ -63,11 +68,13 @@ Once fragrant, add your chopped tomatoes, dried oregano and a generous pinch of 
 
 Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> cold water and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678202933539-x200.jpg)
 
 ### Step 6
 
 Once boiling, cook, covered, for 5-6 min or until the sauce has reduced to a gravy-like consistency – this is your Mexican-style meat-free meatballs with tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678202936891-x200.jpg)
 
 ### Step 7
 

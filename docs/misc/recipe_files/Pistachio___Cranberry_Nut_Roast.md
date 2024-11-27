@@ -26,6 +26,7 @@ Everything you need to create the perfect veggie Christmas dinner! You'll make o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1890.-step-2-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large wide-based pan (preferably non-stick) over a medium-low heat with 
 
 Once hot, add the onion and cook for 5-6 min, then increase the heat to high, add the mushrooms and cook for a further 5-7 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1890.-step-1-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the potatoes to a pot of boiled water with a large pinch of salt, br
 
 Once the potatoes are done, drain and leave them to steam dry, reserving the pot for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1890.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the grated cheese, drained lentils, cranberries, pistachios, panko breadcru
 
 Give everything a good old mix up – this is your nut roast mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1890.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Roast for 40-45 min in the oven or until golden and firm in the middle
 
 Tip: If you don't have a loaf tin, shape into a log instead!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1890.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ While the potatoes are cooking, trim, and halve the Chantenay carrots (no need
 
 Trim the ends from the Brussels sprouts
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1890.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Put the tray in the oven for an initial 15 min or until the carrots and parsnips
 
 After 15 min, add the Brussels sprouts to the tray and return it to the oven for 10 min or until everything has softened – these are your winter roast vegetables
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1890.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This super nutritious noodle salad celebrates hot vs cold with smoky charred pep
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/466.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Tip: Wear an apron and lay a tea towel over the cucumber as the juices splatter!
 
 Cut the broken cucumber into rough, bite-size pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/466.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel the ginger (scrape the skin off with a teaspoon) and chop (or grate) it ver
 
 Mix the cucumber, garlic, ginger, chilli flakes (can't handle the heat? Go easy!), a pinch of sugar and 2 tsp<span class="text-danger"> (3 tsp)</span> salt in sieve over a bowl
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/466.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ When boiling, reduce the heat to low and cook for 6-8 min or until cooked throug
 
 Once cooked, drain them under cold water and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/466.-step-4-new-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Meanwhile, cut the pepper<span class="text-danger">(s)</span> into 1cm strips, s
 
 Cut each mushroom into wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/466.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,11 +87,13 @@ Cook on a high heat for 8-10 min until they've started to char
 
 Tip: This makes them smoky
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/466.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add the miso paste and honey to a very large mixing bowl with 1 tbsp<span class="text-danger"> (2 tbsp)</span> boiled water and whisk thoroughly to combine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/466.step-7-x200.jpg)
 
 ### Step 7
 

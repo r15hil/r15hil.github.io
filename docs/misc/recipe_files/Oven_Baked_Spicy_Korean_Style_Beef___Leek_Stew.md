@@ -26,6 +26,7 @@ Kick beef stew into high gear with our healthy Korean-style twist. You’ll thro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-2-1729177644330-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1703861425732-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a small drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729177628730-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add your diced beef to the dish with 1 tbsp<span class="text-purple"> [1 1/2 tbs
 
 Stir it all together and cook for 2-3 min or until very lightly browned all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1703861725768-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Meanwhile, top, tail and chop your leek[s] into rounds and wash thoroughly to re
 
 Top, tail and chop your carrot[s] into thick discs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1703861505198-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add your beef stock mix, 450ml <span class="text-purple">[590ml]</span> <span cl
 
 Bring to the boil then cover with the lid and put the dish in the oven for an initial 55 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1703861569933-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the stew has been cooking for 25 min, add your white long grain rice to an 
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1703861606180-x200.jpg)
 
 ### Step 7
 

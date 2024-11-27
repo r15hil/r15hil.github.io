@@ -23,6 +23,7 @@ Vibrantly coloured roasted carrot and beetroot, tender chicken breast and fibre-
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1685547591537-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Top, tail and peel the carrots, quarter them lengthways and cut into batons
 
 Cut each beetroot into 8 wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1685626902722-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Sprinkle the cumin seeds over, then drizzle with the honey and 2 tbsp <span class="text-danger">[3 tbsp] </span>olive oil and season generously with salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1685627295959-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Give everything a good mix up
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 20-22 min or until the chicken is cooked through (no pink meat!) and the vegetables are slightly tender with some crunch
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685547604349-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Meanwhile, add the bulgur wheat to a pot with plenty of boiled water and a pinch
 
 Once done, drain and return to the pot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685547610309-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Set the toasted pumpkin seeds aside until serving
 
 Tip: Watch them like a hawk so they don’t burn!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685547614753-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Chop the coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1685547618679-x200.jpg)
 
 ### Step 7
 

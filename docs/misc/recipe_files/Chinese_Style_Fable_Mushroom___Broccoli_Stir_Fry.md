@@ -30,6 +30,7 @@ Feeling stir-fried? This easy dinner will save the day. You’ll sizzle fable mu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-3-1728544314086-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678123322174-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and chop your brown onion[s] into wedges
 
 Once hot, add your Fable pulled mushrooms and onion wedges and cook for an initial 5-6 min or until beginning to char
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678123335066-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Slice your red chilli[es] finely
 
 Chop your Tenderstem broccoli tips away from the stalks and slice in half, then chop the broccoli stalks into quarters lengthways
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678123343905-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Combine your soy sauce and cornflour in a small bowl
 
 Add your ginger paste and Chinese rice wine to the bowl with 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml]</span> boiled water, your hoisin sauce and 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your stir fry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678123353222-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add your toasted sesame oil to the pan with the sliced chilli (can't handle the 
 
 Give everything a good mix up and cook for a further 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678123362435-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once fragrant, add the stir fry sauce and your toasted sesame seeds
 
 Cook for a final 2-3 min or until the sauce has thickened – this is your Chinese-Style Fable mushroom & broccoli stir fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678123373784-x200.jpg)
 
 ### Step 7
 

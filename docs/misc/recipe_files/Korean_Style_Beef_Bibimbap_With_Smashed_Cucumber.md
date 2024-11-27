@@ -30,6 +30,7 @@ Bibimbap (literally "mixed rice"), is a Korean classic. You'll top this irresist
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1122.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Top, tail, peel and grate your carrot[s]
 
 Combine the smashed cucumber and grated carrot in a medium bowl with a pinch of salt and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1122.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1122.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1122.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once browned, add the chopped garlic and ginger and cook for 1-2 min or until 
 
 Add your soy sauce and honey and cook for 1 min further or until cooked through (no pink meat!) – this is your bulgogi
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1122.-step-6-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Return the drained veg to the bowl and add your rice vinegar
 
 Give everything a good mix up and set aside – this is your quick-pickled veg
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1122.-step-7-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Boil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1122.-step-5-x200.jpg)
 
 ### Step 7
 

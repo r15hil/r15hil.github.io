@@ -24,6 +24,7 @@ This fresh tasting super-quick salad is full of Thai flavours like sweet chilli,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2180Step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Wash your fruit and veg
 
 Note: Please make sure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2180Step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the diced chicken with a pinch of salt and the ginger &amp; garlic paste and cook for 5-6 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2180Step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,6 +69,7 @@ Bring to the boil over a high heat and cook for 4-5 min or until tender with a s
 
 Once cooked, drain and rinse under cold water then set aside until they're completely drained
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2180Step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Shred the little gem lettuce<span class="text-danger">[s]</span>
 
 Add both to a large bowl
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2180Step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,11 +90,13 @@ Slice the red chilli<span class="text-danger">[es]</span><span class="text-dange
 
 <span class="text-highlight">Tip: Deseed</span> them if you can't handle the heat!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2180Step-6-x200.jpg)
 
 ### Step 6
 
 Add the chilli jam, soy sauce and Sriracha (can't handle the heat? Go easy!) with 2 tbsp<span class="text-danger"> [4 tbsp]</span> vegetable oil to a small bowl and give everything a good mix up – this is your sweet chilli dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2180Step-7-x200.jpg)
 
 ### Step 7
 

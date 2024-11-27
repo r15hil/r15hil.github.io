@@ -23,6 +23,7 @@ Tuck into our plant-based twist on a seasonal veg pie. While the asparagus-toppe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-3-1647965857402-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Chop your waxy potatoes in half, lengthways
 
 Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a generous pinch of salt and pepper and give everything a good mix up, then put the tray in the oven for 25-30 min or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-3-1647965877938-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the quartered shallots to the pan with a pinch of salt and cook for 3-4 min or until they begin to caramelise and have slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-3-1647965887463-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ While the shallots are caramelising, peel and finely chop (or grate) your garlic
 
 Slice half your<span class="text-danger"> </span>asparagus lengthways, then chop the remaining asparagus into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4--copy-1647965902817-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once softened, add your creamy single soy to the pan with your vegetable stock m
 
 Season with a generous grind of black pepper and bring to the boil over a high heat, once boiling, reduce the heat to low and cook for 6-7 min or until reduced to a thicker consistency
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-3-1647965943215-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Unwrap your puff pastry and roll it out to approx. 1 cm thickness with a rolling
 
 Press the halved asparagus into the pastry diagonally and crimp the borders with a fork
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-3-1647965949231-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add the pastry rectangle[s] to a non-stick baking paper-lined baking tray (or tw
 
 Put the tray[s] in the oven for 15 min or until the pastry is puffed up, golden and cooked through – this is your asparagus pie lid
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-3-1647965958244-x200.jpg)
 
 ### Step 7
 

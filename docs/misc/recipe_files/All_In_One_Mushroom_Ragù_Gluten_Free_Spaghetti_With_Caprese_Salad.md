@@ -28,6 +28,7 @@ Give this Italian-style dish a once-over with grated mushrooms a tangy drizzle o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1696338233854-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1696338237254-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Boil a kettle
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1696338241899-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the grated mushrooms, grated garlic and a knob of butter to the dish
 
 Add your tomato paste and give everything a good mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1696338245642-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add your chopped tomatoes, vegetable stock mix, balsamic vinegar, dried oregano 
 
 Bring to the boil over a high heat, season generously with salt and pepper, then cover with a lid and put the dish in the oven for an initial 30 min – this is your mushroom ragù
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1696338249454-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Break your gluten free spaghetti in half and add it to the dish, giving everythi
 
 Return the dish to the oven and cook, covered, for a final 25 min or until the spaghetti is tender – this is your all-in-one mushroom ragù gluten free spaghetti
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1696338252646-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1696577416349-x200.jpg)
 
 ### Step 7
 

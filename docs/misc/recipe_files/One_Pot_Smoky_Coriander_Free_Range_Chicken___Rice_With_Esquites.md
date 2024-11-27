@@ -29,6 +29,7 @@ For this super speedy one-pot dinner you'll cook juicy free range chicken thighs
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1722345242508-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1722345252388-x200.jpg)
 
 ### Step 2
 
@@ -49,11 +51,13 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a drizzle of ol
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into chunks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722345255327-x200.jpg)
 
 ### Step 3
 
 Once hot, add your free range chicken thighs to the dish with a knob of butter and cook for 3 min or until very lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1722345259089-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Drain your sweetcorn
 
 Rinse your white long grain rice until the water runs clear
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1722345262666-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add 225ml <span class="text-purple">[300ml]</span> <span class="text-danger">[45
 
 Cover with a lid and put the dish in the oven for 25-30 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1722345269484-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the drained sweetcorn to a serving bowl with half the chopped coriander (you
 
 Add a pinch of salt and pepper and give everything a good mix up – these are your esquites
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1722345273183-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Famed from the region of Puglia, burrata is a smooth Italian cheese that's known
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1580131265900-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Remove the burrata from the fridge to bring to room temperature
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1580131270004-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 7-8 min or until starting to caramelise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1580131273850-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Add the sliced tomatoes to a bowl with a pinch of salt and pepper and a drizzle 
 
 Strip the thyme leaves from the stalks, discard the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1580131280238-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Score a 1cm border around the edge of the pastry with a knife
 
 Tip: The pastry border will puff up to give you a nice crust!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1580131283887-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the cherry tomatoes and top with the thyme leaves
 
 Put the tray in the oven for 25 min or until the pastry is cooked through and puffed up – this is your confit tomato tart
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1580131287902-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork tender, then drain and return to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1580131291389-x200.jpg)
 
 ### Step 7
 

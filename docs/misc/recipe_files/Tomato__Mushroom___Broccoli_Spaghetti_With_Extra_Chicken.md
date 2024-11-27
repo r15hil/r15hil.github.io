@@ -27,6 +27,7 @@ Tuck into this speedy spaghetti in 10. You’ll sauté chestnut mushrooms in a c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1731599536003-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1-chicken-breast-in-pan-1731599540961-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid), over a
 
 Add a couple of splashes of water to the pan and cover with a lid and cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1731599555752-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Crumble your chestnut mushrooms roughly into the pan with your hands and cook fo
 
 While the mushrooms are browning, chop your Tenderstem broccoli in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1731599559519-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Cook for 2-3 min or until everything is cooked with a slight bite
 
 Once done, drain the spaghetti & Tenderstem, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1731599563967-x200.jpg)
 
 ### Step 5
 
@@ -78,11 +83,13 @@ Add your roasted garlic paste to the pan with your tomato paste and give everyth
 
 Cook for a further 2-3 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1731599566959-x200.jpg)
 
 ### Step 6
 
 Add your sun-dried tomato pesto, soft cheese and vegetable stock mix to the pan with a splash of the reserved starchy pasta water and stir it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1731599570309-x200.jpg)
 
 ### Step 7
 

@@ -21,6 +21,7 @@ This vibrant little number plates up rugged n’ ready sweet potato cakes over s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/426.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Wash and cut the white potatoes into 3cm cubes
 
 Add them to a large pot with a matching lid on a high heat with enough (salted) boiled water to cover by 2 inches
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/426.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Meanwhile, wash and cut the sweet potatoes into 3cm cubes
 
 Set aside a mixing bowl large enough to fit both the white and sweet potatoes for step 4
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/426.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Mix in the mayonnaise, 1 tbsp<span class="text-danger"> (2 tbsp)</span> of milk 
 
 This is your blue cheese dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/426.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add both to the mixing bowl and coat them in the chipotle paste and then in 4 tb
 
 Season with salt and pepper, shape into 4 <span class="text-danger">(8)</span> patties &amp; dust in flour to seal
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/426.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ When hot, add the cakes and cook on each side for 3 min until golden brown
 
 Tip: Press the cakes down slightly with a spatula (or similar) after turning to flatten them into an even shape&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/426.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Put it in the oven for 10-15 min, or until the cakes are crispy&nbsp;
 
 Add the pecans to a separate baking dish and put them in the oven for 5 min, or until darkened slightly in colour&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/426.-step-7-x200.jpg)
 
 ### Step 7
 

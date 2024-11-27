@@ -28,6 +28,7 @@ For this takeaway classic, you'll coat king prawns in cornflour and fry until go
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1628684215246-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the rice to a plate and spread it out flat to help it cool down
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1628684222273-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ While the rice is cooking, add your cornflour to a bowl along with 1 tsp <span 
 
 Drain your king prawns, add them to the bowl and give everything a good mix up until all the prawns are coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1628684226724-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very large drizzle of
 
 Once the pan is hot, add the coated king prawns and cook for 4-5<span class="text-danger"> </span>min until golden and crispy – these are your crispy king prawns
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1628684231605-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel and finely chop (or grate) your garlic
 
 Finely slice your red chilli[es] into rounds
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1628684237545-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once the prawns are crispy, add the spring onion batons, most of the chilli roun
 
 Once done, transfer everything to a plate (save the pan!) and set aside until serving – these are your salt & pepper king prawns
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1628684241535-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Return the reserved pan to a medium-high heat with a drizzle of vegetable oil
 
 Once hot, add the cooled rice, your blanched peas, toasted sesame oil and soy sauce then stir everything together until combined and cook for 2-3 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1628684246482-x200.jpg)
 
 ### Step 7
 

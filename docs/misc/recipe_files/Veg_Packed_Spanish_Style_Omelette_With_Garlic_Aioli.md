@@ -28,6 +28,7 @@ Try your hand at Spanish home cooking with this take on tortilla. You’ll layer
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1689854045305-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to medium and cook for 10-12 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1689854083279-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your parsley finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1689854093640-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Crack your eggs into a large bowl with your vegetable stock mix, chopped parsley
 
 Whisk it all together – this is your egg mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1689854099792-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1689854106199-x200.jpg)
 
 ### Step 5
 
@@ -87,6 +92,7 @@ Lay the tomato rounds around the base of the reserved pan
 
 Layer the sliced potatoes and smoky veg over the top and return to a medium heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1689854114319-x200.jpg)
 
 ### Step 6
 
@@ -96,6 +102,7 @@ Once brown, put the pan under the grill for 4-6 min or until the egg has set –
 
 Tip: Make sure you leave the pan handle outside of the oven and the door open whilst grilling!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1689854126360-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Learn how to make Mexican-style burritos from scratch! You'll fill these street 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1593440369659-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1593440381656-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the chicken thigh to the pan with the cayenne pepper (can't handle
 
 Cook for 3-4 min on each side or until golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1593440402690-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Drain and rinse the black beans
 
 Dissolve the tomato paste and soy sauce in 100ml <span class="text-danger">[150ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1593440452874-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the chicken is cooked, add the tomato stock and cook, covered, for 10 min f
 
 Once the chicken is almost done, add the tortillas to a tray and put the tray in the oven for 1-2 min or until warmed through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1593440465495-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the chicken is cooked, transfer it to a clean board and shred apart using t
 
 Return the pulled chicken to the pan and give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1593440488137-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Grate the cheddar cheese over the top
 
 Tip: Go light on the filling on your first one so that you don't overfill the burritos!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1593440526308-x200.jpg)
 
 ### Step 7
 

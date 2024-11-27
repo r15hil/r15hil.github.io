@@ -25,6 +25,7 @@ Put some zing in your step with this Gousto twist on good old chicken and rice. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683889549412-x200.jpg)
 
 ### Step 1
 
@@ -34,16 +35,19 @@ Rinse the long grain brown rice, add it to a pot with plenty of cold water and 
 
 Once boiling, reduce the heat to medium and cook for 15-20 min or until it's tender with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683889553805-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683889560711-x200.jpg)
 
 ### Step 3
 
 Combine the chopped ginger, mirin, toasted sesame oil, rice vinegar, tamari soy sauce, chilli flakes (can't handle the heat? Go easy!), 1/2 tsp <span class="text-danger">[1 tsp] </span>sugar and a pinch of salt in a bowl and give everything a good mix up – this is your zingy sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683889564632-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Slice through the thickest part of the chicken breast being careful not to cut a
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683889568540-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once hot, add the butterflied chicken and cook for 4 min on each side until gold
 
 Add the zingy sauce and cook for a further 3-4 min or until cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683889572427-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Peel the carrot<span class="text-danger">[s]</span>, then continue to peel lengths until you end up with a pile of carrot ribbons
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683889575866-x200.jpg)
 
 ### Step 7
 

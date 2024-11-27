@@ -25,6 +25,7 @@ Inspired by a Filipino breakfast dish, you'll cook king prawns in a zingy Filipi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644320444165-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, transfer the rice to a plate and spread it out flat to help it cool down (reserve the pot!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644320453584-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Combine the juice of the orange<span class="text-danger">[s]</span>, soy sauce, 
 
 Add the ground paprika and cornflour to the bowl and whisk everything together – this is your Filipino-style tocino sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644320463204-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Chop the cucumber into quarters lengthways, and then roughly chop
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644320485645-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Heat a large, dry, wide-based pan (preferably non-stick), over a medium-high hea
 
 Once hot, add the Filipino-style tocino sauce to the pan and cook for 1-2 min or until beginning to thicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644320495324-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Drain the king prawns
 
 Once the sauce is beginning to thicken, add the drained king prawns and cook for 4-5 min or until the prawns are cooked through and the sauce has thickened to a syrup-like consistency – these are your Filipino-style sticky king prawns
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644320504343-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once hot, add the sliced garlic and cook for 1-2 min or until softened and begin
 
 Once softened, add the cooled rice and cook for 2-3 min – this is your garlic fried rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644320519915-x200.jpg)
 
 ### Step 7
 

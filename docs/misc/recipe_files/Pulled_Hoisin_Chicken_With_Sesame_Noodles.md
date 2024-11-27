@@ -27,6 +27,7 @@ In this quick, simple dish, you'll smother tender pulled chicken with sweet, fie
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657286811224-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your chicken breast strips with a generous pinch of salt and pepper and cook for 3 min on each side or until they’re browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1589216535171-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut a few chilli rounds (set them aside for garnish), then cut the remaining red
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657286816332-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Boil a kettle
 
 Once the chicken has browned, reduce the heat to medium-low and add a splash of cold water and cook, covered for 12-15 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1589216542289-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ While the chicken is cooking, add your wholewheat noodles to a pot and cover the
 
 Bring to the boil over a high heat and cook for 5-7 min or until tender with a slight bite, then drain and set aside in a bowl and reserve the pot for later
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Shredded-spring-greens-1667822208276-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Wash your spring greens and pat dry with kitchen paper, then rip the leaves off 
 
 Trim, then slice your spring onion[s] finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1589216552944-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Return the pan to a medium heat with the pulled chicken and add the chopped ging
 
 Cook for 3-4 min or until the chicken is coated in a sticky sauce – this is your pulled hoisin chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1589216559392-x200.jpg)
 
 ### Step 7
 

@@ -33,6 +33,7 @@ Our hunger-busting lean chilli comes with a spice blend you’ll make yourself, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1677060185573-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop your brown onion[s]
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1677060189753-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oi
 
 Once hot, add the pepper strips and chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1677060194319-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1677060199235-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Dissolve your beef stock mix and tomato paste in 250ml <span class="text-purp
 
 Drain and rinse your kidney beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1677060204494-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the onion and pepper have softened, increase the heat to medium-high an
 
 Cook for 3-4 min or until the lean beef mince is browned, breaking it up with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1677060208645-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the lean beef is browned, add the tomato stock with the drained kidney bea
 
 Bring to the boil over a high heat and cook for 6-7 min further or until the sauce is thickened to a bolognese-like consistency – this is your chilli con carne
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1677060212832-x200.jpg)
 
 ### Step 7
 

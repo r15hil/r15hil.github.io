@@ -28,6 +28,7 @@ This fragrant curry is inspired by Southern Thai cuisine. You'll make a punchy p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624630527065-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624630529535-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, peel and finely slice your brown onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624630533420-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a dri
 
 Once hot, add the sliced onion and pepper strips and cook for 4-5 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624630537508-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Boil half a kettle
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624630541309-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add your ground turmeric, fish sauce, add a squeeze of lime juice and 1 tsp <spa
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624630545844-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once fragrant, add the peanut stock and cook for 2-3 min further or until the sa
 
 Pat your haddock bites dry with kitchen paper (unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624630555889-x200.jpg)
 
 ### Step 7
 

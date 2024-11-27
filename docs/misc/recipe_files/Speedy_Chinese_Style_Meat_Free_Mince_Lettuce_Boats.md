@@ -23,6 +23,7 @@ Mu Shu, Moo Shu or Mu Xu, is a northern Chinese dish! Here we've enhanced the fl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648564513592-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Meanwhile, combine your meat-free mince and harissa paste (can't handle the heat? Go easy!) with a pinch of salt and pepper – this is your harissa meat-free mince mix
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648564517629-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with 1 t
 
 Once hot, add the harissa meat-free mince mix and cook for 3-4 min or until beginning to brown all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648564521387-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Top, tail and grate your courgette[s]
 
 Trim, then slice your spring onion[s]<span class="text-danger"> </span>finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648564525610-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Once cooked, transfer the harissa meat-free mince to a clean mixing bowl, reserv
 
 Add your soy sauce and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> sugar and mix to combine
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648564530095-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Return the reserved pan to a high heat, and once hot add the grated carrot and g
 
 Return the harissa meat-free mince to the pan, reduce the heat to low and cook for a further 2 min, then remove from the heat and cover to keep warm until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648564534676-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Separate the outer leaves and arrange them on a plate
 
 Shred the inner core[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648564538391-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Mechoui is a bold, aromatic Northern African dish of slow-roasted marinated lamb
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-16-1702990779667-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Remove the string from your lamb leg joint[s], then pat dry with kitchen paper
 
 Rub over most of your ras el hanout (you'll use the rest later!) and a generous pinch of salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-17-1702990787518-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat with a driz
 
 Once hot, add the seasoned lamb to the pan and cook for 3-4 min or until slightly charred on all sides – this is your charred lamb
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-21-1702990811572-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Peel lengths off your courgette[s] with a peeler until you end up with a pile of
 
 Combine the courgette ribbons with the remaining ras el hanout, your white wine vinegar, a drizzle of olive oil and a pinch of salt – this is your courgette salad
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-16-1702990830464-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once the lamb is slightly charred, transfer the onion wedges to a baking tray an
 
 Put the tray in the oven for 8-9 min for rare, 10-12 min for medium-rare and 12-14 min for medium
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-17-1702990866195-x200.jpg)
 
 ### Step 5
 
@@ -68,11 +73,13 @@ Add your couscous to a heatproof bowl with your vegetable stock mix, your choppe
 
 Add 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water, cover and set aside until all of the liquid has been absorbed
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-17-1702990870850-x200.jpg)
 
 ### Step 6
 
 Combine the remaining ground cumin, smoked salt and a pinch of sugar in a small bowl – this is your smoked cumin salt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-16-1702990877463-x200.jpg)
 
 ### Step 7
 

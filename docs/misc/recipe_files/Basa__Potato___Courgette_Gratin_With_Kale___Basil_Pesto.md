@@ -28,6 +28,7 @@ Get your greens in with this Mediterranean-inspired gratin. You'll bake potatoes
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1712067877022-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the sliced potato and onion to a heatproof bowl, then cover the bowl with cl
 
 Put the bowl in the microwave for 8-10 min or until the potatoes are fork-tender, then remove the cling film to allow to cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1712067885140-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Top, tail and slice your courgette[s] into discs
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1712067892836-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Rinse the wilted kale & spinach under cold running water until cool, then squeez
 
 Reboil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1712067897490-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Blitz until very finely chopped – this is your kale & basil pesto
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1712067928309-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Dissolve your tomato paste and vegetable stock mix in 150ml<span class="text-pur
 
 Add the remaining chopped garlic with your dried oregano and a pinch of salt and pepper and give everything a good mix up – this is your herby stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1712067933175-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Tip: Cooking for 3 or more? Use 2 dishes!
 
 Pour the herby stock over the top, then put the dish[es] in the oven and cook for 20-25 min or until the veg is tender and the top has caramelised – this is your potato & courgette gratin
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1712067936516-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Level up the iconic British sausage roll with an aromatic Middle Eastern twist. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657627432960-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Add the carrot and potato chips to a baking tray with a little vegetable oil, h
 
 Give everything a good mix up and put the tray in the oven for 25-30 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657627437564-x200.jpg)
 
 ### Step 2
 
 While the vegetable chips are cooking, combine the lamb mince, ras el hanout, 1 tsp <span class="text-danger">[2 tsp]</span> flour and a generous pinch of salt in a bowl – this is your spiced lamb mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657627440935-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add the spiced lamb mix into the centre of the pastry rectangles, lengthways in 
 
 Press the meat down a little with your fingers to flatten it slightly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657627444678-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Fold the pastry over the mixture and press it together with your fingers to seal
 
 Crimp and seal the edges with a fork – these are your spiced lamb sausage rolls
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657627448627-x200.jpeg)
 
 ### Step 5
 
@@ -67,11 +72,13 @@ Top the spiced lamb sausage rolls with the cumin seeds
 
 Put the tray in the oven for 15-20 min or until the lamb is cooked through and the pastry is puffed up and golden
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657627451951-x200.jpg)
 
 ### Step 6
 
 Combine the mayo with the remaining smoked paprika, half the white wine vinegar (you'll use the rest later!) and a pinch of salt in a small bowl – this is your paprika mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657627456136-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Join the spice trail for chicken and chips with a twist. You’ll coat juicy chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1681285372130-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chips to a baking paper-lined tray (or two) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray<span class="text-danger">[s]</span> in the oven for 22-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681285401787-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Combine the cornflour, garam masala, tomato paste and chicken stock mix in a med
 
 Add 2 tbsp <span class="text-danger">[4 tbsp] </span>cold<span class="text-danger"> </span>water with a generous pinch salt and pepper and give everything a good mix up – this is your masala batter
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681285405333-x200.jpg)
 
 ### Step 3
 
 Add the chicken thighs to the masala batter and mix everything together until the chicken is fully coated
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681285408952-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated chicken and cook for 3 min on each side or until golden and crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681285413345-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Once crispy, remove the tray<span class="text-danger">[s]</span> with the chips 
 
 Return the tray<span class="text-danger">[s] </span>to the oven for a final 12-14 min or until the chicken is cooked through (no pink meat!) – this is your masala chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681285416771-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ While the chicken is in the oven, combine the green tomato chutney with the rema
 
 Add a drizzle of olive oil and a large pinch of salt and pepper – this is your slaw sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681285421265-x200.jpg)
 
 ### Step 7
 

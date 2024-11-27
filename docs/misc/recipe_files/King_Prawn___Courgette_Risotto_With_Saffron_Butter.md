@@ -25,6 +25,7 @@ Touch down in Italia with this creamy Milanese-style risotto. You’ll stir arbo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1701422518505-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Season with a pinch of salt, sugar and a crack of black pepper and give everythi
 
 <span class="text-danger">Tip: Cooking for kids? Slice into rounds and leave plain!</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1701422569429-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and finely chop (or grate) your garlic
 
 Grate your courgette[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1701422586434-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add a splash of<span class="text-danger"> </span>boiled water to a small bowl wi
 
 Add the bowl to the microwave for 20 secs or until the butter is completely melted – this is your saffron butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1701422604138-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion, chopped garlic and grated courgette with a pinch of salt and cook for 5-6 min or until beginning to soften and caramelise
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1701422626408-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Add your arborio rice and cook for 1 min, stirring to coat the grains in the oil
 
 Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1701422644608-x200.jpg)
 
 ### Step 6
 
 When the rice is almost cooked, drain your king prawns, then add them to the pan with your Chinese rice wine and cook for 4-5 min or until the prawns are cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1701422659664-x200.jpg)
 
 ### Step 7
 

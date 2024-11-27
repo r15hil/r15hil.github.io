@@ -29,6 +29,7 @@ Let the oven do the work with this simple tart. You’ll top flaky pastry with f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652258965447-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and sugar, reduce the heat to low and cook for a further 6-7 min or until softened and caramelised
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652258966901-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Rinse the wilted spinach under the cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652258967323-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine your soft cheese in a bowl with your wholegrain mustard, 1 tbsp <span c
 
 Cut your potatoes (skins on) into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652258973609-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Line half a baking tray (or two!) with non-stick baking paper
 
 Add the pastry to the tray[s]<span class="text-danger"> </span>and score a 1cm border around the edge of the pastry with a knife (the border will puff up and form a nice crust)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652258986619-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Spread your soft cheese mix over the pastry within the border and top with the c
 
 Add the chopped potatoes to the other side of the tray[s] with a drizzle of vegetable oil, your dried oregano and a pinch of salt, then put the tray[s] in the oven for 25-30 min or until the pastry is cooked through and puffed up, and the potatoes are golden – this is your spinach & feta tart and crispy potatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652258988504-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Return the reserved pan to a medium heat
 
 Once hot, add your cherry tomatoes with your balsamic vinegar and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> olive oil, cook for 4-5 min or until the tomatoes have started to blister – these are your balsamic tomatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652258997276-x200.jpg)
 
 ### Step 7
 

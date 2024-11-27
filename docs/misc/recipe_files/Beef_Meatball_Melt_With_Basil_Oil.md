@@ -26,6 +26,7 @@ Beef meatballs in a rich tomato sauce, baked with melty mozzarella and topped wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/997__step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Combine the beef mince, panko breadcrumbs and a generous pinch of both salt and 
 
 Divide the beef mince into 14 <span class="text-danger">[28]</span> and shape them into meatballs&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/997__step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the meatballs and cook for 3-4 min, turning occasionally, or until
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/997__step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once the meatballs are browned, transfer them to a plate and return the pan to a
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/997__step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Once the onion and carrot have softened, add the chopped garlic and tomato paste
 
 Meanwhile, boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/997__step-5-x200.jpg)
 
 ### Step 5
 
@@ -90,6 +95,7 @@ Add 150ml <span class="text-danger">[250ml]</span> boiled water and return the m
 
 Cook, covered, for 5-6 min or until the meatballs are cooked through and the sauce has thickened slightly&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/997__step-6-x200.jpg)
 
 ### Step 6
 
@@ -104,6 +110,7 @@ Once thickened, transfer the meatballs and sauce to a baking dish (or individual
 
 Top with the ripped mozzarella, ciabatta,&nbsp;a generous drizzle of olive oil and a pinch of both salt and pepper&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/997__step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ There are few things more comforting than a bowl of carrot and lentil soup. Espe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634575370307-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Top, tail and roughly chop the carrots
 
 Heat a large, wide-based pot with a drizzle of olive oil, over a medium-high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634575477789-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634575481043-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Add the garam masala, ground turmeric, chopped ginger, red lentils and half of 
 
 Rinse the edible sachet of vegetable stock under cold water, then dissolve in 1.2L <span class="text-danger">[2L] </span>boiled water (we've also popped a regular sachet of vegetable stock powder in if you'd prefer to trial the edible stock sachet another time)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634575483826-x200.jpg)
 
 ### Step 4
 
 Once fragrant, add the vegetable stock to the pot and cook for 10-15 min or until the lentils and carrots are tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634575487825-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Place on a baking tray and add a drizzle of olive oil and a pinch of salt
 
 Put the tray in the oven and cook for 5-6 min or until crispy – these are your crispy croutons
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634638118498-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Chop the coriander finely, including the stalks (save some leaves for garnish la
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice!) and cut into quarters
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634575493790-x200.jpg)
 
 ### Step 7
 

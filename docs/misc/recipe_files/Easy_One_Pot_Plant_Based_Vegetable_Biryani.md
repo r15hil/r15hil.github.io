@@ -26,6 +26,7 @@ Traditionally, biryanis are baked for hours, but this plant-based version is a o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/631.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your cauliflower into small florets, then discard the stem and leaves
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> vegetable oil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/631.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once the pan is hot, add the diced onion, cauliflower florets, curry powder and 
 
 Cook for 5 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/631.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the vegetable stock mix to the pan with your tomato paste
 
 Tip: Add a drizzle of oil if the pan looks a little dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/631_step-4-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Cook for a further 2 min or until the cauliflower is starting to colour
 
 Transfer the contents of the pan to a bowl and set aside, reserve the pan  – this is your cauliflower mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/631_step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Add 350ml <span class="text-purple">[525ml]</span> <span class="text-danger">[70
 
 Meanwhile, trim, then chop your green beans in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/631.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Return the cauliflower mixture back to the pan
 
 Add the halved green beans and sultanas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/631.-step-7-x200.jpg)
 
 ### Step 7
 

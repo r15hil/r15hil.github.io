@@ -25,6 +25,7 @@ This is a classic Israeli rice dish flavoured with saffron, sultanas and curried
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/481.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a medium-sized pot (with matching lid) with 1 tbsp <span class="text-danger
 
 Once hot, add the onions and sultanas with a pinch of salt and cook for 3 min or until the onion is softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/481.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Remove from the heat &amp; keep covered until serving
 
 Drain &amp; rinse the chickpeas
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/481.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once hot, add the chickpeas, half the garlic (reserve the rest for later!), cumi
 
 Cook for 5 min or until they're well coated and fragrant, then remove from the heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/481.-step-4.-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Add the yoghurt, remaining garlic, dill, a pinch of salt and pepper and a drizzl
 
 Mix well and set aside for serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/481.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Toss the onion in the flour so it is coated evenly
 
 Transfer the floured onion to a sieve and tap off the excess flour
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/481.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -103,6 +109,7 @@ Once the oil is very hot, carefully add half the floured onions
 
 Cook for 1 min or until darkened slightly in colour
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/481.-step-7-x200.jpg)
 
 ### Step 7
 

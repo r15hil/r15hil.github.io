@@ -22,6 +22,7 @@ Beetroot is simply fantastic for your cardiovascular health, and when combined w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/76.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut into 1cm slices
 
 Crush the garlic with the side of a knife, peel it and chop finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/76.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Boil a kettle
 
 Dissolve the stock cube<span class="text-danger">(s)</span> in 800ml <span class="text-danger">(1.6L)</span> of boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/76.-step3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once the pan is hot, add the walnuts and toast for 3-4 min or until golden brown
 
 Remove the walnuts from the pan and set aside, reserving the pan for the next step&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/76.-step4-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Add 30g <span class="text-danger">(60g)</span> of butter to the pan and return t
 
 Once the butter is foaming, add the garlic and leek and cook for 3 min, stirring often&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/76.-step5-x200.jpg)
 
 ### Step 5
 
 Add the rice and cook for about 5 min or until beginning to turn golden, stirring to coat evenly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/76.-step6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add the oregano and stir through
 
 Allow the stock to absorb fully before gradually adding the rest, a ladle at a time
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/76.-step7-x200.jpg)
 
 ### Step 7
 

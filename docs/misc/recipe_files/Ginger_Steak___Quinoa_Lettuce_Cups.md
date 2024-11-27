@@ -25,6 +25,7 @@ Protein-packed steak is also a tasty source of iron and vitamin B12 – great fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2217Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Remove from the heat and leave to steam-dry, uncovered, until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2217Step-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, pat the rump steaks dry with kitchen paper, rub them with 1/2 tbsp <span class="text-danger">[1 tbsp]</span> vegetable oil and season with a generous pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2217Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steaks are cooked transfer them to a chopping board, cover with a clean tea towel and leave to rest until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2217Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Slice the radishes as finely as you can
 
 Separate 12 <span class="text-danger">[24]</span> outer gem lettuce leaves, wash and pat dry with kitchen paper, then shred the inner cores finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2217Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,11 +75,13 @@ Peel and grate (or finely chop) the garlic
 
 Combine the grated garlic and ginger with the soy sauce, rice vinegar, honey, toasted sesame oil and 1 tbsp<span class="text-danger"> [2 tbsp]</span> vegetable oil in a small bowl – this is your ginger dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2217Step-6-x200.jpg)
 
 ### Step 6
 
 Once the quinoa is cooked, add the carrot ribbons, sliced radishes and shredded lettuce with a pinch of salt and give everything a good mix up – this is your quinoa salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2217Step-7-x200.jpg)
 
 ### Step 7
 

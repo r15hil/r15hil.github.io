@@ -33,6 +33,7 @@ Spicy and flavourful, this is the perfect ‘fakeaway’ for busy nights. Mango 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1482.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Peel and finely slice your brown onion[s]
 
 Chop your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1482.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Once hot, add the sliced onion and halved cherry tomatoes with a pinch of salt a
 
 Once softened, add your garam masala, cayenne pepper (can't handle the heat? Go easy!) and ground turmeric and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1482.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Meanwhile, dissolve your chicken stock mix in 500ml <span class="text-purple">[7
 
 Rinse your red lentils in a sieve under cold running water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1482.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once fragrant, add the rinsed lentils and chicken stock to the pan and cook for 
 
 While the lentils are cooking, crush your cardamom pods open by squashing them with the side of a knife
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1482.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add your basmati rice and 300ml <span class="text-purple">[390ml]</span> <span c
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your pilau rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1482.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once the lentils are almost tender, increase the heat to high and add the choppe
 
 Once done, stir in half the juice of your lemon[s] – this is your chicken & lentil dhansak
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1482.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Pack in the protein with these zingy salmon tacos. You'll pan fry salmon fillet 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1719318953591-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once hot, add your salmon fillet[s] skin side down, season with a pinch of salt 
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1719318957228-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Slice your cucumber into discs on the diagonal
 
 Slice each individual cucumber disc into matchsticks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1719318961898-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Roll your lime[s] with your hand on a hard surface (to release more juice) and c
 
 Trim, then slice your spring onion[s] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1719318965724-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Add the cucumber matchsticks with a drizzle of olive oil and a pinch of salt, pe
 
 Toss everything together – this is your sesame lime slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1719318969045-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add your honey to a separate bowl with your sriracha (can't handle the heat? Go 
 
 Give everything a good mix up – this is your honey sriracha glaze
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1719318972016-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once the salmon is cooked through, transfer to a clean board (remove the pan fro
 
 Remove and discard the skin, then break the cooked salmon into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1719318975234-x200.jpg)
 
 ### Step 7
 

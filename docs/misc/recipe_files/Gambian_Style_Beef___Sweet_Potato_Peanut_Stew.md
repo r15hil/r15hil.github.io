@@ -29,6 +29,7 @@ Domoda, the national dish of The Gambia, is a rich and indulgent peanut stew. Fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-12-1702988371735-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-13-1702988381861-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your diced beef with a generous pinch of salt and cook for 2-3 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-17-1702988387604-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Peel and chop your sweet potato[es]<span class="text-danger"> </span>into bite-s
 
 Slice your red chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-12-1702988392660-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Decrease the heat to medium-high and add the onion wedges, chopped sweet potato 
 
 Add your curry powder, ground paprika and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> flour and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-13-1702988400382-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Bring to the boil over a high heat and season with a pinch of salt and pepper
 
 Cover with the lid and put the dish in the oven for 60 min or until the sauce has thickened and the beef is cooked through – this is your Gambian-style beef & sweet potato peanut stew
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-13-1702988407688-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add your white long grain rice to an oven-proof dish with a pinch of salt and 30
 
 Cover tightly with tin foil and put the dish in the oven for 25-30 min or until all the water has absorbed and the rice is cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-12-1702988418319-x200.jpg)
 
 ### Step 7
 

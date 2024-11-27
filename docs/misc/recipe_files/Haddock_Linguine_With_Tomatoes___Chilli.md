@@ -27,6 +27,7 @@ To rustle up this punchy pasta, you'll stir pan-fried haddock bites into a cherr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/797.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Pat your haddock bites dry with kitchen paper and season them with salt and pepp
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/797.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine and set aside until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/797.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your cherry tomatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/797.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add the chopped garlic and chilli flakes (can't handle the heat? Go 
 
 Add the halved cherry tomatoes with a generous pinch of salt and cook for 2 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/797.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Dissolve your tomato paste and vegetable stock mix in 200ml <span class="text-pu
 
 Chop your chives finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/797.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Cook for 5-7 min or until reduced to a pasta sauce-like consistency
 
 Remove from the heat and stir through a generous knob of butter with half of the chopped chives and a good grind of pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/797.-step-7-x200.jpg)
 
 ### Step 7
 

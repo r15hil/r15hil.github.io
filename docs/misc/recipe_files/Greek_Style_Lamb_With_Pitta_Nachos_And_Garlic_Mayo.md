@@ -26,6 +26,7 @@ Forget your forks for this meaty Greek-inspired twist on the classic nacho platt
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1657627603461-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add half the sliced onion (you'll use the rest later!) with a generous pinch of salt and cook for 4-5 min or until slightly softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1657627614377-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Season with a large pinch of salt and drizzle generously with olive oil
 
 Put the tray[s] in the oven for 8-10 min or until crisp and golden – these are your pitta nachos
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1657627629180-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once the onion has softened, increase the heat to high and add your lamb mince w
 
 Cook for 7-8 min or until the lamb is browned all over and cooked through (no pink meat!), breaking it up with a wooden spoon as you go – this is your Greek-style lamb
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1657627648624-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Chop your tomato[es] finely
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1657627655753-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add half your red wine vinegar (you'll use the rest later!) to a bowl with your 
 
 Add in the sliced cucumber and remaining sliced onion, give it a good mix up and set aside to pickle – this is your quick-pickled salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1657627665145-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your mayo to a bowl with your chopped garlic (don't like raw garlic? Go eas
 
 Give it a good stir – this is your garlic mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1657627672498-x200.jpg)
 
 ### Step 7
 

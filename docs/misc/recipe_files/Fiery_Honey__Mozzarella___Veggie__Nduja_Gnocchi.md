@@ -24,6 +24,7 @@ Give gnocchi the pizza treatment with spicy ‘nduja and melty mozzarella. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1716393002924-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1716393006261-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add your gnocchi and cook for an initial 1-2 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1716393011239-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Meanwhile, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon)
 
 Add your pepper strips to the pan with the gnocchi and cook for a further 5-6 min or until the pepper has started to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1716393015453-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into small, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1716393019014-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Give everything a good mix up and cook for 30 secs or until fragrant
 
 Once fragrant, add your vegetable stock mix with 50ml<span class="text-purple"> [70ml]</span><span class="text-danger"> [90ml]</span> cold water and mix until fully combined
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1716393026671-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Top the gnocchi with the torn mozzarella
 
 Cover the pan with a lid and cook for 3-4 min or until the mozzarella has melted – this is your mozzarella & veggie ‘Nduja gnocchi
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1716393031668-x200.jpg)
 
 ### Step 7
 

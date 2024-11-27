@@ -22,6 +22,7 @@ This dish celebrates simple home comfort everyday flavours. The chicken is pan f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/635.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Slice the potatoes into discs and add to&nbsp;a baking tray (use tin foil to avo
 
 Drizzle with 1 tbsp <span class="text-danger">[2 tbsp]</span> vegetable oil, season&nbsp;with a pinch of salt and pepper and put them oven for 20-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/635.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Season the chicken with a pinch of salt and pepper
 
 Once hot, add the chicken and cook for 3 min, turning halfway until just golden, then&nbsp;transfer to a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/635.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Return the pan to a medium heat, with a drizzle of olive oil&nbsp;
 
 Add&nbsp;the garlic and cook for 1 min, then add the stock, tomato paste, Henderson's relish and oregano (save a pinch for step 7)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/635.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once&nbsp;reduced, pour the sauce into a casserole dish (or a suitably deep oven
 
 Put&nbsp;the dish in the oven for 15 min&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/635.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Trim the green beans and cut them into bite-size pieces (little hands can do thi
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/635.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Wipe the reserved pan clean and return&nbsp;it to a medium heat, with a knob of 
 
 Once hot, add the green beans with a splash of water and cook, covered, for 5 min or until cooked through&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/635.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ Teriyaki is a Japanese glaze made from soy sauce, sugar, mirin (a type of sweet 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-11-1680704072420-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Trim the green stalk[s] off your aubergine[s]<span class="text-danger"> </span>a
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-10-1680704080694-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-9-1680704086873-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Meanwhile, add your shredded kale to a large baking tray with your toasted sesam
 
 Give everything a good mix up and put the tray in the oven for 10-12 min or until crispy – this is your kale seaweed
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-7-1680704090707-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the chopped aubergine and cook for 6-7 min or until it's beginning to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-6-1680704094496-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Whilst the aubergine is cooking, trim, then slice your spring onion[s] finely, k
 
 Top, tail and grate your radishes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-7-1680704098705-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once the aubergine has browned, reduce the heat to medium, add the chopped garli
 
 Add your soy sauce, agave and mirin and cook for 2 min or until a sticky sauce has formed – this is your teriyaki aubergine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-9-1680704102857-x200.jpg)
 
 ### Step 7
 

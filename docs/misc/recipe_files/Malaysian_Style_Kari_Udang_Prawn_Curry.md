@@ -31,6 +31,7 @@ Discover the flavours of Malaysia with this punchy prawn curry. Spiced with turm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724830781431-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Chop your tomato[es] roughly
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and slice lengthways finely – this is your julienne chilli
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724830784517-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724830787961-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ While the rice is cooking, heat a large, wide-based pan (preferably non-stick) w
 
 Once hot, add the sliced onion and half the julienne chilli (can't handle the heat? Go easy!) and cook for 3-4 min or until soft
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724830791725-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Boil half a kettle
 
 Once the onion has softened, add your ginger & garlic paste and tamarind paste with your ground turmeric and garam masala and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724830795120-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix in 250ml <span class="text-purple">[325ml] </span><span class="text-danger">[425ml] </span>boiled water with your creamed coconut and cornflour – this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724830799488-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once fragrant, add the chopped sweet potato, chopped tomato and the coconut stoc
 
 Drain your king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724830803716-x200.jpg)
 
 ### Step 7
 

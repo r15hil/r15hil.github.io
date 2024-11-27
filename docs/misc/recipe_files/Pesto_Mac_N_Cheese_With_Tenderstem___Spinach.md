@@ -23,6 +23,7 @@ Mac 'n' cheese is always a treat, but this one is made extra satisfying thanks t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1298.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1298.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once melted, add the&nbsp;sliced onion&nbsp;with a pinch of salt and cook for 6-
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1298.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Grate the cheddar cheese
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1298.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Once the macaroni has had 5 min, add the Tenderstem broccoli and cook for 2 min 
 
 Once done, drain the macaroni and broccoli, reserving 300ml <span class="text-danger">[600ml]</span> of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1298.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,6 +92,7 @@ Add the basil nut&nbsp;pesto pots, grated cheddar and 200ml <span class="text-da
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1298.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -98,6 +104,7 @@ Tip: add a splash more pasta water if the sauce is looking a bit dry &ndash; rem
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1298.-step-7-x200.jpg)
 
 ### Step 7
 

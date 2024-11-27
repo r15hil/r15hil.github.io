@@ -20,6 +20,7 @@ Red pesto mayonnaise brings zing to this indulgent sandwich. You'll smear it ove
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599055014170-x200.jpg)
 
 ### Step 1
 
@@ -31,11 +32,13 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil and a pi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599555646605-x200.jpg)
 
 ### Step 2
 
 Meanwhile, sprinkle each chicken breast with the dried oregano and a pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599555650703-x200.jpg)
 
 ### Step 3
 
@@ -47,16 +50,19 @@ Once golden add the chicken to one side of a baking tray (line with tin foil to 
 
 Put the tray in the oven for 10-12 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1293.step-4-x200.jpg)
 
 ### Step 4
 
 Combine half of the sun-dried tomato nut pesto with the mayonnaise – this is your pesto mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1293.step-5-x200.jpg)
 
 ### Step 5
 
 Combine the remaining pesto with a generous drizzle of olive oil in a large bowl – this is your pesto dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1293.step-6-x200.jpg)
 
 ### Step 6
 
@@ -64,6 +70,7 @@ Place the ciabatta rolls in the oven for 3 min or until they're hot and crusty
 
 Carefully slice them in half before serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1293.step-7-x200.jpg)
 
 ### Step 7
 

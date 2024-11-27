@@ -27,6 +27,7 @@ Fill your bowl with a selection of umami-rich mushrooms, broccoli, protein-packe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2514Step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top, tail and peel your carrot[s], then continue to peel lengths until you end u
 
 Add the carrot ribbons to a small bowl with your rice vinegar and set aside for later – these are your quick-pickled carrot ribbons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2514Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the sliced chestnut mushrooms and whole flat white mushrooms to one side of
 
 Drizzle over your gluten free soy sauce and 1/2 tbsp <span class="text-purple">[3/4 tbsp]</span><span class="text-danger"> [1 tbsp]</span> vegetable oil and give everything a gentle mix up until coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2514Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the broccoli wedges to the other side of the tray (or use another tray!) wit
 
 Put the tray[s] in the oven and cook for 20-25 min or until everything is cooked through, tender and golden – this is your soy mushrooms & roast broccoli
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2514Step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Once boiling, reduce the heat to medium and cook for 6-10 min or until all the q
 
 Once cooked, drain, return it to the pot until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2514Step-5-x200.jpg)
 
 ### Step 5
 
 Whilst everything is cooking, peel (scrape the skin off with a teaspoon) and grate (or finely chop) your ginger
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2514Step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Combine the grated ginger, your white miso paste, toasted sesame oil and agave 
 
 Stir it all together – this is your miso dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/chilli-rounds-1646410921642-x200.jpg)
 
 ### Step 7
 

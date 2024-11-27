@@ -22,6 +22,7 @@ Veggie mince is such a versatile ingredient. It is a great source of protein, an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/197.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a kettle and preheat the oven to 220&deg;C/ 200&deg;C (fan)/ 425&deg;F/ Gas
 
 Peel and cut the potatoes into approx. 4cm chunks, add to a pot of salted, boiling water and cook for approx. 15 min or until you can pierce them easily with a fork
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/197.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Meanwhile, dissolve the stock cube<span class="text-danger">(s)</span> in 250ml 
 
 Add the stock and allspice to the mince to soak
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/197.-step-3-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop the onion<span class="text-danger">(s)</span>, carrot<span class="text-danger">(s)</span> and garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/197.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Heat 1-2 tbsp olive oil in a pan over a medium-high heat
 
 When hot, add the carrot, onion and garlic and cook for 3-4 min until the vegetables are soft but not coloured
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/197.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Bring the pan to a boil and season generously with salt and pepper
 
 Set aside until your mash is ready&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/197.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Top with mash and grate over the Cheddar cheese
 
 Cook in the oven for 20 min or until piping hot through and golden brown on top
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/197.step--7-x200.jpg)
 
 ### Step 7
 

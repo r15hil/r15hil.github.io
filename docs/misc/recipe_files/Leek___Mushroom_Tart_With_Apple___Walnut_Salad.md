@@ -25,6 +25,7 @@ This flaky, buttery tart is not to be missed. You'll layer golden mushrooms over
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1681899142211-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced chestnut mushrooms and a pinch of salt and cook for 4-5 min or until lightly golden and slightly softened, then transfer to a plate, reserving the pan
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1681899149510-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the chopped potatoes to a baking tray with a drizzle of olive oil and a pinc
 
 Give everything a good mix up and put the tray in the lower part of the oven for 20-25 minutes or until golden and crisp – these are your roasted potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1681899229967-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Return the reserved pan to a medium heat with a drizzle of olive oil
 
 Once hot, add the sliced leeks and cook for 5-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1681899236623-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once the leeks have softened, add the chopped garlic with 1 <span class="text-pu
 
 Remove the pan from the heat and add your soft cheese, half your cider vinegar (you’ll use the rest later!), a splash of cold water, a pinch of salt and pepper and stir it all together – these are your creamy leeks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1681899241177-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the pastry to the tray[s] and score a 1cm border around the edge with the ti
 
 Tip: The pastry border will puff up to give you a nice crust!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1681899248440-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Add the onion wedges to the tray[s] around the pastry
 
 Put the tray[s] in the top part of the oven and cook for 15-18 min or until the pastry is cooked through, puffed up and golden – these are your leek & mushroom tarts
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1681899254266-x200.jpg)
 
 ### Step 7
 

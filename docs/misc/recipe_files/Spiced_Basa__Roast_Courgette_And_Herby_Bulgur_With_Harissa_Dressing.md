@@ -25,6 +25,7 @@ For tasty slow-release energy, you'll spice fish fillets with ras el hanout. Add
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1630426525037-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top, tail then slice your courgette[s] into rounds
 
 Add the pepper strips and courgette rounds to a baking tray (or two!) with 1/2 tbsp<span class="text-purple"> [3/4 tbsp]</span> <span class="text-danger">[1 tbsp]</span> olive oil and a pinch of salt and give it a good mix up
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630426530122-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Put the tray[s] in the oven for 15-20 min or until everything is cooked through 
 
 Meanwhile, wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630426534516-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once cooked, drain and return to the pot
 
 Meanwhile, heat a large, dry, wide-based pan (preferably non-stick with a matching lid) over a medium-high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630426539602-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once toasted, transfer to a plate and reserve the pan
 
 Add your basa fillet[s] to a separate plate with the ras el hanout and rub until fully coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630426544093-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add the coated basa fillets with a pinch of salt and a couple of splas
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630426548645-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Chop your parsley finely, including the stalks
 
 Add most of the chopped parsley and mint (save the rest for garnish!) to the cooked bulgur wheat and give it a good mix up – this is your herby bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630426552178-x200.jpg)
 
 ### Step 7
 

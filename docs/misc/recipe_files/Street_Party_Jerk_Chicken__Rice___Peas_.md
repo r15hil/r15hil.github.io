@@ -25,6 +25,7 @@ Jerk chicken recipes usually combine ingredients from all over the world to achi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop the spring onions finely, discarding the roots
 
 Drain and rinse the kidney beans
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once&nbsp;hot, add the spring onion and cinnamon and cook for 30 sec, or until f
 
 Stir in&nbsp;the rice, then add the kidney beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Tip: keep the seeds in if you dare!
 
 Strip the thyme leaves from their stems and chop finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once&nbsp;hot, add the chicken skin-side down and cook for 6-7 min, or until gol
 
 Meanwhile,&nbsp;combine the soy sauce, allspice, honey, garlic, vinegar, thyme, chilli (can't handle the heat, go easy!) and 1 tbsp <span class="text-danger">[2 tbsp]</span>&nbsp;sugar for the jerk sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Return the chicken, skin-side up
 
 Place the pan into the oven to cook for 5-8 min, or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-x200.jpg)
 
 ### Step 7
 

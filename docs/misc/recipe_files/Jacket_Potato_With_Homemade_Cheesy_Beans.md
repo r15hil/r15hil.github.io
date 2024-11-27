@@ -27,6 +27,7 @@ The kids will go mad for this classic crowd pleaser. You'll top fluffy baked pot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1688738007057-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Boil half a kettle
 
 Pierce your red potato[es] a few times with a fork, then add to a heatproof bowl and cook in the microwave for 8-9 min or until slightly softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-4-1688738010594-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Trim your green beans
 
 Drain and rinse your cannellini beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-4-1688738017507-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-4-1688738021739-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ While the potato is in the oven, heat a large, wide-based pan (preferably non-st
 
 Once hot, add the chopped onion and chopped garlic to the pan and cook for 3-4 min or until slightly softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-4-1688738025426-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add 200ml <span class="text-purple">[260ml]</span><span class="text-danger"> [35
 
 Add 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp] </span>sugar, mix everything together and cook for 5-6 min or until the sauce has thickened – these are your homemade cheesy beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-4-1688738029077-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Scrunch the foil around the green beans to form a tightly sealed parcel[s] and a
 
 Put the tray in the oven for 10-12 min or until the green beans are tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-4-1688738032673-x200.jpg)
 
 ### Step 7
 

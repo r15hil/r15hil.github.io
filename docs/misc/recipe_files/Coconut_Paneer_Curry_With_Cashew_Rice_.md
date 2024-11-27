@@ -25,6 +25,7 @@ Paneer is a mild Indian cheese, similar in texture to halloumi, but without the 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/665.-step--1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut the paneer into bite-size cubes, cover in boiled water and set aside
 
 Chop the cashews roughly then add them to a dry pot (with a matching lid) over a medium-low heat and toast for 1-2 min or until just starting to brown (you will use this pot for your rice)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/665.-step--2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add 350ml <span class="text-danger">[700ml]</span> cold water and a pinch of sal
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/665.step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once hot, add the diced&nbsp;onion and a pinch of salt
 
 Cook for 5&nbsp;min or until the onion has softened slightly, then reduce the heat to medium and cook for a further 2-4 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/665.-step--4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add the chopped&nbsp;ginger and cumin seeds to the pan&nbsp;and cook for a furth
 
 Add the ground&nbsp;turmeric, ground coriander, curry powder, &nbsp;a generous pinch of pepper and a large knob of butter to the pan and cook for 2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/665.-step--5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Meanwhile, remove the coconut cream from the sachet<span class="text-danger">[s]
 
 Dissolve the coconut and the vegetable stock cube<span class="text-danger">[s]</span> in 300ml <span class="text-danger">[600ml]</span> boiled water - this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/665.-step--6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Meanwhile, chop the coriander finely, including the stalks, keeping the stalks a
 
 Add the coriander stalks to the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/665.-step--7-x200.jpg)
 
 ### Step 7
 

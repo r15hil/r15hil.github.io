@@ -30,6 +30,7 @@ Pack in the plants with this Middle Eastern favourite. You’ll caramelise onion
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1688482338780-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once hot, add the sliced onion with a generous pinch of salt and 1 tsp<span clas
 
 Reduce the heat to low and cook the onions for 10-12 min or until they have softened and caramelised, stirring frequently
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688482342573-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688482346927-x200.jpg)
 
 ### Step 3
 
@@ -63,21 +66,25 @@ Trim the woody ends off your asparagus, then chop the asparagus tips away from t
 
 Dissolve your vegetable stock mix in 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[175ml]</span> boiled water and add your sultanas to soak – this is your sultana stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1688482352053-x200.jpg)
 
 ### Step 4
 
 Once the onion has caramelised, add the chopped garlic, yellow mustard seeds, chilli flakes (can't handle the heat? Go easy!) and cumin seeds and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688482357456-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the chopped asparagus, drained lentils and sultana stock and cook, covered, for 2-3 min or until the asparagus is tender with a slight bite
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688482362656-x200.jpg)
 
 ### Step 6
 
 While the asparagus is cooking, chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688482368179-x200.jpg)
 
 ### Step 7
 

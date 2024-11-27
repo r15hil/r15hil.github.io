@@ -30,6 +30,7 @@ We're pretty certain this is the easiest curry ever. You'll start cooking the ri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1616087897203-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5 min <span class="text-danger">[10 min] </span>to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1597676307653-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Cut the lemongrass in half and the tomatoes into wedges, then add these to the dish
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1597676311078-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Cut the ginger in half (no need to peel!)
 
 Add the crushed garlic and halved ginger to the dish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1597676314673-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the rinsed brown rice, curry powder, ground turmeric and lime leaves to the 
 
 Add in the vegetable stock mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1597676318019-x200.jpg)
 
 ### Step 5
 
@@ -77,11 +82,13 @@ Add the chopped creamed coconut and 500ml<span class="text-danger"> [1L] </span>
 
 Once boiling, cover with a lid and put the dish in the oven for 20 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Cup-of-tea-1651582507333-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604418786935-x200.jpg)
 
 ### Step 7
 

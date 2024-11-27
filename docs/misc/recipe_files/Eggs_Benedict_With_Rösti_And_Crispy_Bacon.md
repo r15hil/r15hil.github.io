@@ -23,6 +23,7 @@ Turn Mother's Day brunch into the perfect breakfast in bed. You'll top crisp, go
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614004427040-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Grate the potatoes (skins on)
 
 Trim and finely slice the spring onions
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614004442269-x200.jpg)
 
 ### Step 2
 
 Add the grated potato to the middle of a tea towel and bring the four corners together to form a ball, then twist the ball and squeeze out as much liquid as you can
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614004454585-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Add 1 tbsp <span class="text-danger">[2 tbsp]</span> flour and 1 tbsp <span clas
 
 Separate the mixture into 4 <span class="text-danger">[8]</span> and shape into firm potato cakes, approx 1cm thick
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614004495212-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once done, add them to a plate and set aside (reserve the pan) – these are you
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1614004506449-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Tip: Cooking for 4? Use two trays!
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 10-15 min until the bacon is crispy and the asparagus has softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614004516075-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Crack the eggs into the water and cook for 3-4 min
 
 Once done, gently transfer the poached eggs with a slotted spoon to kitchen paper and season them with black pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1614004558218-x200.jpg)
 
 ### Step 7
 

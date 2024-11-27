@@ -27,6 +27,7 @@ This lamb keema pav is based on a popular Indian street food dish. It's deliciou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1303.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boi
 
 Once almost tender, add the green beans and cook for 3-4 min or until cooked with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1303.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Cut the brioche rolls in half
 
 Once hot, add the brioche, cut-side down, and cook for 3 min or until toasted and charred, then set them aside until serving and save the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1303.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Meanwhile, peel and finely chop the garlic
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1303.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Once crispy, crumble in the&nbsp;chicken stock cube<span class="text-danger">[s]
 
 Add the chilli jam and cook for 1 min further or until sticky &ndash; this is your lamb keema
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1303.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -88,6 +93,7 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1303.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,6 +108,7 @@ Once melted, add the chopped garlic, fennel seeds, cumin and chilli flakes (Can'
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1303.-step-7-x200.jpg)
 
 ### Step 7
 

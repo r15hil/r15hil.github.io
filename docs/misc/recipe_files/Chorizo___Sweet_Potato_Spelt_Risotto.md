@@ -22,6 +22,7 @@ For a heartier twist on a classic risotto, we've used spelt, an ancient wholegra
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1239.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and chop the sweet potatoes into bite-sized pieces
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1239.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,16 +49,19 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat with a dr
 
 Once hot, add the sliced red onion and chopped&nbsp;chorizo&nbsp;with a pinch of salt&nbsp;and cook for 3-5 min until the onion is starting to soften and the chorizo is browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1239.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve the chicken&nbsp;stock cube<span class="text-danger">[s] </span>in 600ml<span class="text-danger"> [1L]</span> boiled water&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1239.-step-4-x200.jpg)
 
 ### Step 4
 
 Once the red onion is softened, add the chopped garlic&nbsp;with the smoked paprika&nbsp;and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1239.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Cook, covered, for a further 20 min or until the liquid has reduced and the&nbsp
 
 Tip: if it's looking dry add a splash more water!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1239.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Cut the lemon<span class="text-danger">[s]</span> in half&nbsp;
 
 Cut 1/2 <span class="text-danger">[1]&nbsp;</span>lemon&nbsp;into wedges&nbsp;&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1239.-step-7-x200.jpg)
 
 ### Step 7
 

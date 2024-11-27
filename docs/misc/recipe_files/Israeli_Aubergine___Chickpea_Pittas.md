@@ -26,6 +26,7 @@ For a plant-based twist on 'sabich,' an Israeli sandwich, you'll stuff pitta bre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1594053045004-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Add the sliced red onion to a bowl, cover with boiled water and set aside for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1594053054480-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Give everything a good mix up until evenly coated
 
 Put into the oven for 20-25 min or until the aubergine is cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1594053068432-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Chop the parsley roughly, including the stalks
 
 Add everything to a bowl with a drizzle of olive oil and a pinch of salt and pepper – this is your Israeli-style chopped salad
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1594053084543-x200.jpg)
 
 ### Step 4
 
@@ -70,11 +74,13 @@ Return to the bowl and add the juice of 1/2<span class="text-danger"> [1]</span>
 
 Stir to combine and set aside for later – these are your pink-pickled onions
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1594053103761-x200.jpg)
 
 ### Step 5
 
 Add the cayenne (can't handle the heat? Go easy!) to the mango chutney pot and carefully stir to combine – this is your spicy mango sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1594053112821-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Combine the tahini with the juice of the remaining<span class="text-danger"> </s
 
 Add a pinch of salt and pepper – this is your tahini dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1594053121758-x200.jpg)
 
 ### Step 7
 

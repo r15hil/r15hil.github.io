@@ -25,6 +25,7 @@ Take a bite out of The Big Apple with this New York-style sandwich. You’ll lay
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680171993568-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely slice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680171997285-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the chopped potatoes to a baking tray (or two!) with the chopped garlic, gro
 
 Season with a pinch of salt and give everything a good mix up and put the tray[s] in the oven for an initial 25 min or until the potatoes are golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680172001036-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once hot, add the sliced onion with a pinch of salt and sugar and cook for 8-9 m
 
 Once softened, transfer your caramelised onion to a small bowl (reserve the pan!), with your red chilli relish and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water – this is your sweet onion chilli relish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680172005350-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Dice your tomato[es]
 
 Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680172010024-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Grate your lighter cheese
 
 Slice your brioche bun[s] in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680172712850-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once the potatoes have been cooking for 25 min, move them to one side of the tra
 
 Top the brioche base[s] with the grated cheese and put the tray[s] in the oven for a final 5 min or until the brioche halves are crusty and the cheese has melted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680172721295-x200.jpg)
 
 ### Step 7
 

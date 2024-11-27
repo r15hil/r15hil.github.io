@@ -24,6 +24,7 @@ This recipe uses a Chinese cooking technique known as 'velveting'. It involves c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/620.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the cashew nuts to a small baking tray or heatproof dish
 
 Put them in the oven for 5-10 min or until they have darkened slightly in colour
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/620.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/620.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Tip:&nbsp;we love tearing our veg, it creates a nice, rustic look and means you don't need knife skills!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/620.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Heat a large, wide-based pan (preferably non-stick) or a wok with 1 tbsp <span c
 
 Once hot, add the peppers and mushrooms and cook for 8-10 min or until starting to soften and colour&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/620.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Slice the spring onions finely, discarding the root ends
 
 Combine the chopped garlic, chilli jam, honey and soy sauce in a mixing bowl with 1 tbsp <span class="text-danger">[2 tbsp]</span> hot water and mix thoroughly &ndash; this is your chilli&nbsp;sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/620.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Gradually whisk the egg<span class="text-danger">[s]</span> into the cornflour u
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/620.-step-7-x200.jpg)
 
 ### Step 7
 

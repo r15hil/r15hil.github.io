@@ -26,6 +26,7 @@ In this recipe you'll steam rice, spinach and black beans with smoked paprika, t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1602080820718-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Chop 1 <span class="text-danger">[2]</span> red onion<span class="text-danger">[
 
 Grill for 8-10 min or until charred then remove and keep to one side to cool slightly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1602080889353-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, cook for 7 min for perfect mid-boiled eggs
 
 Tip: The salt prevents the eggs from cracking!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1602080912114-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Blitz until you have a chunky sauce – this is your Shito-style chilli sauce
 
 Tip: Add a splash more water if the sauce is looking a little thick
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1602080959836-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once hot, add the chopped red onion with a pinch of salt and cook for 6-8 min or
 
 Meanwhile, dissolve the Kallo vegetable stock cube and smoked paprika in 300ml<span class="text-danger"> [600ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1602081002599-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Meanwhile, drain and rinse the black beans
 
 Peel and grate the carrot<span class="text-danger">[s]</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1602081029705-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Whilst the rice is cooking, peel the cooled eggs and cut them in half
 
 Chop the chives roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1602081038061-x200.jpg)
 
 ### Step 7
 

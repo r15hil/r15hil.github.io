@@ -24,6 +24,7 @@ Recreate a pub-style roast at home. You'll serve herb-crusted pork steaks with r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1617713443208-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel your potatoes and chop them into quarters, then add to a pot with plenty of
 
 Once boiling, reduce the heat to medium and cook for 10-12 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1617713449724-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Cook, covered, over a medium heat for 10-12 min or until the apple has softened
 
 Once done, transfer the softened apple to a bowl with a knob of butter and mash until smooth – this is your apple sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1617713476284-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Give it a good mix up – this is your herby crumb
 
 Trim, then chop your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1617713492587-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Give everything a good mix up and put the tray[s] in the oven for an initial 10 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1617713524607-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Meanwhile, crush your garlic open by squashing with the side of a knife and remo
 
 Reboil a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1617713548712-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add 250ml <span class="text-purple">[325ml] </span><span class="text-danger">[42
 
 Bring to the boil and cook for 5-6 min or until thickened, then set aside for later – this is your garlic-infused gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1617713568264-x200.jpg)
 
 ### Step 7
 

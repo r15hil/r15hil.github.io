@@ -27,6 +27,7 @@ This super-quick tagine is packed with chickpeas, pre-chopped Mediterranean veg 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1616577621096-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the Mediterranean veg mix with a pinch of salt and cook for 2-3 min until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616577626428-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, drain and rinse the chickpeas
 
 Add the 5 grain mix to a large, heatproof bowl and put the bowl in the microwave for 3-4 min or until piping hot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1-1616577631155-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once the veg has started to soften, add the ginger & garlic paste and ras el han
 
 Once fragrant, add the drained chickpeas and diced apricots and cook for 1 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616577635499-x200.jpg)
 
 ### Step 4
 

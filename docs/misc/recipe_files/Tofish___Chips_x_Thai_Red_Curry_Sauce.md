@@ -28,6 +28,7 @@ Curry sauce, you’ve got another thing coming. Bold, beguiling and sweet-spicy-
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661873525564-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chunky chips to a baking tray (or two!) with a drizzle of vegetable oil 
 
 Put the tray[s] in the oven for 25-30 min or until the chips are golden and cooked through – these are your chunky chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661873567784-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add half the creamed coconut and your red Thai curry paste to a pot with a lid w
 
 Once boiling, cook for 4-5 min or until the sauce has reduced to a thick curry-like consistency, then cover with a lid and set aside for later – this is your Thai red curry sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661873578858-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add your cornflour and 30g <span class="text-purple">[45g]</span> <span class="t
 
 Add half the chopped coriander and 80ml <span class="text-purple">[120ml]</span> <span class="text-danger">[160ml] </span>very cold water and give everything a good mix up – this is your batter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661873595467-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Pat the tofu pieces dry with kitchen paper, sprinkle with flour, then tap off an
 
 Dip the floured tofu into the batter and turn it several times until fully coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661873606684-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated tofu to the pan and cook for 4-5 min on each side until golden and crispy – this is your tofish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661873616943-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add your blanched peas, remaining chopped creamed coconut and a splash of cold w
 
 Once warm, mash the peas roughly until you have a mix of mushed and whole peas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661873627248-x200.jpg)
 
 ### Step 7
 

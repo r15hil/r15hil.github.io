@@ -28,6 +28,7 @@ These coconutty noodles will curry your favour. You’ll simmer spinach, pepper 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683217844245-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once softened, drain the noodles, reserving a cup of the starchy noodle water an
 
 Reboil half a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683217851474-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Tear the tofu into bite-sized pieces
 
 Add the tofu pieces to a bowl with your gluten free soy sauce and your cornflour and give everything a good mix up until all the tofu is coated – this is your coated tofu
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1683217857088-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the coated tofu to the pan and cook for 6-7 min or until golden an
 
 Once crispy, set aside and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683217863951-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Trim, then slice your spring onion[s]
 
 Dissolve your vegetable stock mix, creamed coconut and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml] </span>boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683217868635-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Once hot, add the sliced pepper and cook for 2-3 min or until starting to soften
 
 While the pepper is cooking, wash your spinach and pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683217873856-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once the pepper has started to soften, add the chopped garlic and ground turmeri
 
 Cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683217880219-x200.jpg)
 
 ### Step 7
 

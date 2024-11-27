@@ -22,6 +22,7 @@ Tuck into punchy pasta straight from the sun-baked coast of Calabria. You’ll w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706875510823-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706875514213-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely slice (don't chop!) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706875518559-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the pepper strips to the pan and cook for 5-6 min or until startin
 
 Meanwhile, wash your lettuce, then pat it dry with kitchen paper and roughly shred
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706875523257-x200.jpg)
 
 ### Step 4
 
@@ -62,16 +66,19 @@ Cook the tagliatelle for 3-4 min or until cooked with a slight bite
 
 Once done, drain the tagliatelle, reserving 175ml <span class="text-purple">[230ml]</span> <span class="text-danger">[300ml] </span>starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706875526785-x200.jpg)
 
 ### Step 5
 
 Once the pepper has softened, add the sliced garlic and your 'Nduja (can't handle the heat? Go easy!) to the pan and cook for a further 3-4 min, breaking it up with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706875530608-x200.jpg)
 
 ### Step 6
 
 Once fragrant, remove the pan from the heat and add your soft cheese with your chicken stock mix and reserved starchy pasta water and mix it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706875533874-x200.jpg)
 
 ### Step 7
 

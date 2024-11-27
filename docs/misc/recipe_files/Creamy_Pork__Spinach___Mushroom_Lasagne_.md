@@ -23,6 +23,7 @@ A tasty twist on a family favourite: lasagne sheets layered with pork mince, spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1596.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Crumble the baby chestnut mushrooms&nbsp;(this saves time and creates an interes
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1596.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Once caramelised, wash then add the baby leaf spinach and cook for 1-2 min or un
 
 Once wilted, transfer everything to a plate (reserve the pan)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1596.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Peel and finely chop (or grate) the garlic&nbsp;
 
 Strip the thyme leaves from the stems, discarding the stems,<span class="text-highlight"> and chop them finely</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1596.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,6 +83,7 @@ Meanwhile, dissolve the beef stock <span class="text-highlight">cube<span class=
 
 Add 250ml <span class="text-danger">[500ml]</span> milk and a grind of black pepper<span class="text-highlight">&nbsp;&ndash;</span> this is your stock&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1596.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,6 +98,7 @@ Add&nbsp;the stock&nbsp;gradually <span class="text-highlight">and</span> whisk 
 
 Meanwhile, grate the cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1596.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,6 +107,7 @@ Once done, remove the <span class="text-highlight">bay leaf<span class="text-dan
 
 Layer approx 1/3 of the&nbsp;b&eacute;chamel over the bottom of an&nbsp;oven-proof dish, then top with half the pork mixture followed by <span class="text-highlight">3</span>&nbsp;lasagne sheets
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1596.-step-7-x200.jpg)
 
 ### Step 7
 

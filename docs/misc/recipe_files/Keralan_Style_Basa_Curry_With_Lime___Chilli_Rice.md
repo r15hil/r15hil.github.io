@@ -31,6 +31,7 @@ This vibrant Kerala-inspired curry is filled with bright colours and bold flavou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1630427070496-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Tip: Watch them like a hawk so they don't burn!
 
 Once toasted, transfer to a food processor and reserve the pan for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630427074041-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Once browned, add the ground turmeric and cook for a further 1 min
 
 Transfer the cooked basa to a plate, reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630427077882-x200.jpg)
 
 ### Step 3
 
@@ -68,6 +71,7 @@ Peel and roughy chop the garlic
 
 Trim and chop the green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630427081529-x200.jpg)
 
 ### Step 4
 
@@ -79,6 +83,7 @@ Chop the creamed coconut roughly (if required!)
 
 Dissolve the vegetable stock mix and chopped creamed coconut in 200ml<span class="text-danger"> [350ml]</span> boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1630427084972-x200.jpg)
 
 ### Step 5
 
@@ -88,6 +93,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630427088757-x200.jpg)
 
 ### Step 6
 
@@ -99,6 +105,7 @@ Once fragrant, add the halved green beans and coconut stock and cook for 5-7 min
 
 Once thickened, return the cooked basa to the pan and cook for 1-2 min further or until warmed through – this is your Keralan-style basa curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1630427092481-x200.jpg)
 
 ### Step 7
 

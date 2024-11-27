@@ -24,6 +24,7 @@ Break from the indulgence with this feel-good winter warmer. Fibre-rich honey mu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1606140093451-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut the Brussels sprouts in half
 
 Peel and chop the red onion<span class="text-danger">[s] </span>into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1606140099545-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Drizzle with olive oil and a pinch of salt and pepper and give it a good mix up
 
 Put the tray in the oven for an initial 10 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1606140105419-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Tip: Watch them like a hawk so you don't burn them!
 
 Transfer the toasted almonds to a plate and reserve the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1606140112717-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered, until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1606140120106-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Add the coated chicken breasts to the tray, over the roasting vegetables and dri
 
 Return the tray to the oven for a further 10 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1606140128324-x200.jpg)
 
 ### Step 6
 
 Whilst everything is cooking, combine the Dijon mustard with the juice of the remaining lemon, cider vinegar, honey, 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your honey mustard dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1606140134564-x200.jpg)
 
 ### Step 7
 

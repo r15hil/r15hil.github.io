@@ -28,6 +28,7 @@ For the ultimate club sandwich, you'll stuff crusty ciabatta with British chicke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2166.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2166.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ While the chips are in the oven, chop your smoked streaky bacon in half
 
 Add your chicken breast portion[s] and chopped bacon to a separate baking tray (or two!) and put the tray[s] in the oven for 18-20 min or until the chicken is cooked through (no pink meat!) and the bacon is crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2166.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Wash your lettuce, pat it dry with kitchen paper, then tear off 2 outer leaves p
 
 Chop the remaining lettuce into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2166.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Combine your wholegrain mustard (not a mustard fan? Go easy!) with your mayo and
 
 Grate your cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2166.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Once the chicken and bacon are cooked, remove the tray[s] from the oven and set 
 
 Put your ciabatta[s] in the oven for 2-3 min or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2166.-step-6-x200.jpg)
 
 ### Step 6
 
 Transfer the cooked chicken to a clean board and roughly shred using two forks – this technique is known as 'pulling'
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2166.-step-7-x200.jpg)
 
 ### Step 7
 

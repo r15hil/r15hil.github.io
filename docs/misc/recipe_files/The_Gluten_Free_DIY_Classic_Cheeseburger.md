@@ -30,6 +30,7 @@ This juicy gluten free burger makes for a perfect family meal. You'll pack your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679312462044-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Chop your potatoes (skins on) into chips and add them to a baking tray (or two!)
 
 Give everything a good mix up and put the tray[s] in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679312467167-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Dice the remaining red onion as finely as you can
 
 Tip: Alternatively, pop the remaining red onion into a mini food processor and blitz until finely chopped
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679312477579-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add the red onion round[s] to a separate tin foil-lined baking tray (or pop them
 
 Put the tray in the oven for 20-25 min or until softened and lightly golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679312482064-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Mix together for 1-2 min or until really well combined (clean hands is the best 
 
 Divide and shape into equal-sized patties (1 per person!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679312489212-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Tear the remaining lettuce into rough, bite-sized pieces
 
 Slice your cheddar cheese into 3 slices per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679312493625-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the patty[ies], press them down firmly with a spatula and cook for
 
 Mix most of the torn lettuce (save a handful for later!) and roughly chopped tomato together – this is your salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679312505199-x200.jpg)
 
 ### Step 7
 

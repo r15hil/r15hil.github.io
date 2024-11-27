@@ -22,6 +22,7 @@ Sizzle this up in no time! You'll flash-fry tender beef strips with broccoli and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1616584365257-x200.jpg)
 
 ### Step 1
 
@@ -29,11 +30,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped broccoli & green beans with a pinch of salt and cook for 2-3 min or until starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616584391402-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add the broccoli brown rice to a large, heatproof bowl and put the bowl in the microwave for 2-3 min or until piping hot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616584402141-x200.jpg)
 
 ### Step 3
 
@@ -41,6 +44,7 @@ Once the vegetables have started to soften, add the beef strips, half the chilli
 
 Sprinkle over the cornflour and a generous grind of black pepper and cook for 1-2 min, to sear the beef strips, but prevent them from overcooking
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1616584418797-x200.jpg)
 
 ### Step 4
 

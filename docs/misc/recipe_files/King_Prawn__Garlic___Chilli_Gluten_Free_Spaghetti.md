@@ -25,6 +25,7 @@ Create a classic Sicilian gluten free pasta with chilli, garlic, parsley and jui
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1730459308315-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Trim, then chop your spring onion[s] roughly
 
 Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1730459313419-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once done, drain the cooked spaghetti, reserving a cup of the starchy pasta water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1730459318961-x200.jpg)
 
 ### Step 3
 
 Mix the chopped chilli (can't handle the heat? Go easy!) and spring onion together and chop them until you are left with a finely chopped mixture – this is your chilli & spring onion mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1730459323674-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once hot, add the chilli & spring onion mixture to the pan with a generous pin
 
 Drain your king prawns, then add them to the pan along with the chopped garlic and cook for 4-5 min or until the prawns are cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1730459327932-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ While the prawns are cooking, chop your parsley finely, including the stalks
 
 Chop your cherry tomatoes in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1730459333002-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Season with a generous pinch of salt and pepper
 
 Squeeze in the juice of half your lemon[s] and stir until the sauce sticks to the spaghetti – this is your king prawn, garlic & chilli gluten free spaghetti
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730459337540-x200.jpg)
 
 ### Step 7
 

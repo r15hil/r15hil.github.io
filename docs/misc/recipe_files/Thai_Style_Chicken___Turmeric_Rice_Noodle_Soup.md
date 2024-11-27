@@ -28,6 +28,7 @@ Soak up some Thai-style flavour with this warming soup. You’ll build your brot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1692111812248-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain the noodles and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1692111815783-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and finely slice your shallot[s]
 
 Peel lengths off your courgette[s]<span class="text-danger"> </span>with a peeler until you end up with a pile of courgette ribbons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1692111819276-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Dissolve your creamed coconut and rice vinegar in 500ml <span class="text-purple
 
 Chop your chicken breast strips into smaller strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1692111823206-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the chicken breast strips with a generous pinch of salt and cook for an initial 4-5 min or until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1692111827897-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once brown, add the sliced shallot to the pan and cook for 1-2 min or until star
 
 Once softened, add your ground turmeric and ginger & garlic paste and cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1692111832468-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once fragrant, add the coconut stock to the pan and cook for an initial 4 min
 
 After 4 min, add the courgette ribbons to the pan and cook for 1-2 min until the courgette is tender and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1692111836956-x200.jpg)
 
 ### Step 7
 

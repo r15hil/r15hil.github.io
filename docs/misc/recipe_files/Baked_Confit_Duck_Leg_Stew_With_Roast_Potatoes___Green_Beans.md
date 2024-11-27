@@ -26,6 +26,7 @@ For this French classic, you'll whip up a rich stew in 5 minutes, top it with co
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1661183431579-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1661183398456-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Separate your duck leg[s] from the white fat and duck jelly (you'll use these in
 
 Add the white duck fat to a baking tray (or two!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1661183434225-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and cut your brown onion[s] into wedges
 
 Add the onion wedges to the dish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1661183436928-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Peel and chop your potatoes into quarters
 
 Top, tail and slice your carrot[s] into discs, on the diagonal (no need to peel!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1661183439489-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Bring to the boil over a high heat and top with the duck leg[s]
 
 Once boiling, put the dish in the oven and cook, uncovered, for 35 min – this is your baked confit duck leg stew
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1661183442827-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Give everything a good mix up and put the tray[s] in the oven for an initial 30 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661183445067-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Give loaded fries a meaty Italian twist with rich, tomatoey beef bolognese ragu 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715602207100-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the fries to a baking paper-lined tray (or two!) with a drizzle of vegetable
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715602211696-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715602218440-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Once hot, add your beef mince with a pinch of salt and pepper and cook for 3-4 m
 
 Dissolve your beef stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715602223777-x200.jpg)
 
 ### Step 4
 
 Once the beef mince has browned, add the diced onion to the pan and cook for a further 3-4 min or until the onion is beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715602228086-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once softened, add the chopped garlic and your dried oregano and cook for 1 min 
 
 Once fragrant, add your finely chopped tomatoes and the beef stock with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and cook for 8-10 min or until the sauce has thickened to a ragù-like consistency and the beef is cooked through (no pink meat!) – this is your bolognese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715602233036-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the chopped tomato to a bowl with your balsamic vinegar, chopped basil and a
 
 Season with a pinch of salt and pepper and mix it all together – this is your balsamic tomato & basil salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715602236868-x200.jpg)
 
 ### Step 7
 

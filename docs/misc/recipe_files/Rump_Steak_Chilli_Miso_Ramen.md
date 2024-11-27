@@ -28,6 +28,7 @@ Few dinners can beat a steaming bowl of Japanese-style noodles in homemade ramen
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2167.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your egg[s] to a large pot of boiled water with a pinch of salt over a high 
 
 Boil for exactly 8 min for a perfect, mid-boiled egg, then fill a bowl of ice cold water (use the Gousto ice packs!) and add the cooked egg[s] to the bowl and set aside, reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2167.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Top, tail, peel and grate your carrot[s]
 
 Trim, then slice your spring onions finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2167.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop the roots from the pak choi and separate the leaves, discarding the roots
 
 Chop any larger pak choi leaves in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2167.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once hot, add the chopped ginger, chopped garlic, chilli flakes (can't handle th
 
 Add 700ml <span class="text-purple">[1L]</span><span class="text-danger"> [1.4L]</span> boiled water and give everything a good mix up, then add your rice vinegar, soy sauce and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and simmer gently – this is your broth
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2167.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Pat your rump steak[s] dry with kitchen paper, drizzle with vegetable oil and se
 
 Once very hot, add the steak to the pan: for rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on each side; for medium, cook for 3-4 min on each side
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2167.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once boiling, cook for 4-5 min or until tender, then add the pak choi and cook 
 
 Once done, add any resting juices from the steak into the broth – this is your chilli miso ramen
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2167.-step-7-x200.jpg)
 
 ### Step 7
 

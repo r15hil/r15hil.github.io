@@ -26,6 +26,7 @@ Makhani is a well-known dish eaten across Northern India. For this veggie versio
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1618234747054-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Boil a kettle
 
 Chop the paneer into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1618234751229-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Once fragrant, add the chopped paneer and cook for 4-6 min or until charred slig
 
 Once done, set the spiced paneer aside and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1618234756067-x200.jpg)
 
 ### Step 3
 
 While the paneer is cooking, add the cashew nuts to a bowl, cover with boiled water and set aside for 5-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1618234760270-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop the ginger
 
 Peel and roughly chop the garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1618234764160-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Drain the soaked cashews
 
 Add the drained cashews, chopped ginger, garlic and red onion to a food processor and blitz to form a paste – this is your cashew paste
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1618234768897-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Tip: Add a drizzle of vegetable oil if the pan looks a little dry
 
 Reboil half a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1618234821263-x200.jpg)
 
 ### Step 7
 

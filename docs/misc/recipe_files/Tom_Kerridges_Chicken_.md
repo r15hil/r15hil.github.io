@@ -22,6 +22,7 @@ This easy, one-dish chicken dinner is like the top of a really good pizza – wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/473.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Lightly season the chicken with salt
 
 Place a dry, wide-base pan (with a matching lid) over a medium-high heat and, once hot, add the chicken (skin-side down) and cook for 5 min or until golden and crispy, without turning
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/473.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once golden, transfer the chicken, skin-side up, into an ovenproof dish
 
 Discard the oil from the chicken pan but leave behind any bits at the bottom for step 7 (to lend extra flavour to the bulgur)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/473.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,11 +55,13 @@ Toss the whole cherry tomatoes, olives, garlic and oregano in a bowl
 
 Trickle over about 20ml/2.5 tbsp&nbsp;<span class="text-danger">(40ml/5 tbsp)</span>&nbsp;olive oil (preferably extra virgin) and toss the tomatoes again to coat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/473.-step-4-x200.jpg)
 
 ### Step 4
 
 Tip the dressed tomatoes over the chicken, pushing them down well with a spoon so that everything is well mixed together
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/473.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Tip: This ensures that the onion layers stay together whilst cooking
 
 Lay the salami and onion wedges over the chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/473.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Bake for 30-35min, or until the chicken is cooked through, the onions are charre
 
 Once the chicken has been cooking for 15 min, boil a kettle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/473.-step-7-x200.jpg)
 
 ### Step 7
 

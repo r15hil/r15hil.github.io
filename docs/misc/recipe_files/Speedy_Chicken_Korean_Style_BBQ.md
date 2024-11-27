@@ -27,6 +27,7 @@ Korean BBQ flavours in 10 minutes? We've got you. You'll sizzle succulent chicke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1653402439365-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1653319765980-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chicken thigh with a pinch of salt and cook for 10 min or until golden and cooked through (no pink meat!) – this is your crispy chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1653319773743-x200.jpg)
 
 ### Step 3
 
@@ -58,16 +61,19 @@ Trim, then slice your spring onions in half, then finely slice lengthways until 
 
 Wash your lettuce and pat dry with kitchen paper, then remove the outer leaves and set aside, then shred the inner core
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1653319777789-x200.jpg)
 
 ### Step 4
 
 Combine your gochujang paste (can't handle the heat? Go easy!) and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> cold water in a large bowl with a pinch of sugar – this is your gochujang dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1653319790279-x200.jpg)
 
 ### Step 5
 
 Add the grated carrot to the gochujang dressing with the spring onion strips and shredded lettuce and give everything a good mix up – this is your gochujang slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1653319799515-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1653319808912-x200.jpg)
 
 ### Step 7
 

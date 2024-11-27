@@ -27,6 +27,7 @@ Hey pizza, meet kebab. For this cheeky fakeaway, you’ll top pizza bases with t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681804053257-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your beef mince and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681804056146-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Cook for 30 secs or until fragrant
 
 Once fragrant, set aside until you're ready to build your pizza – this is your doner beef
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681804059280-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add your tomato paste to a bowl with 3 tbsp <span class="text-purple">[4 1/2 tbs
 
 Grate your cheddar cheese finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681804062297-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Remove the heated tray[s]<span class="text-danger"> </span>from the oven and add
 
 Divide the tomato sauce between the pizza bases and spread it evenly all over them with the back of a spoon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681804070949-x200.jpg)
 
 ### Step 5
 
 Top the pizza bases with the doner beef and grated cheddar and put the tray in the oven for 8-10 min or until the cheese has melted, the bases are crisp and the beef is cooked through (no pink meat!) – these are your pizzas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681804073423-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ While the pizzas are cooking, peel and finely slice your shallot[s]
 
 Add the sliced shallot to a small bowl with your white wine vinegar and a pinch of salt and sugar and give everything a good mix up – this is your quick-pickled shallot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681804647538-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ For this Jamaican-inspired dish you'll pan-fry diced British chicken breast in a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623399205452-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1809.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Meanwhile, slice the spring onion<span class="text-danger">[s]</span> finely
 
 Slice the red chilli<span class="text-danger">[es]</span> finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1809.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add the diced chicken breast to the pan and cook for 30 secs
 
 Add half of the red chilli (can't handle the heat? Go easy!) with the curry powder, ground allspice and ground coriander and cook for 1-2 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1809.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Meanwhile, remove the creamed coconut from the sachet<span class="text-danger">[
 
 Add the chopped creamed coconut to the pan with the soy sauce and 150ml <span class="text-danger">[275ml]</span> boiled water and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1809.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Bring to the boil over a high heat and cook for 2-3 min further or until the sau
 
 Note: please ensure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1809.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Meanwhile, heat a separate, large, wide-based pan (preferably non-stick) over a 
 
 Drain and rinse the kidney beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1809.-step-7-x200.jpg)
 
 ### Step 7
 

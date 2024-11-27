@@ -30,6 +30,7 @@ Black beans, smoky chipotle paste and cumin are the star ingredients in this del
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1624882375131-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1624882378050-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ While the rice is cooking, add your butternut squash cubes to a baking tray (or 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until tender and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1624882383253-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Heat a pot with a drizzle of vegetable oil and a knob of butter over a medium h
 
 Once hot, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1624882386323-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix and your chipotle paste (can't handle the heat? Go easy!) in 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[350ml]</span> boiled water – this is your chipotle stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1624882389993-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Drain and rinse your black beans
 
 Once fragrant, add the drained black beans and chipotle stock and cook, covered for 5-7 min or until the beans are soft enough to mash
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1624882393889-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Trim, then slice your spring onion[s] finely
 
 Once the beans are done, add a generous knob of butter and mash until smooth – these are your Brazilian-style black beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1624882396529-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ These rich, unctuous noodles are engineered for maximum impact. Hit your spicy c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1656241194866-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1656241198082-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Slice your chestnut mushrooms finely
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1656241202423-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the halved green beans, sliced mushrooms and sliced onion with a pinch of salt and cook for 4-5 min or until the onion has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1656241207594-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Meanwhile, dissolve your creamed coconut and vegetable stock mix in 250ml <span 
 
 Stir in your soy sauce and sriracha (can't handle the heat? Go easy!) – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1656241212210-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once softened, add the sliced pepper to the pan with the chopped garlic and ging
 
 Once fragrant, add your Chinese rice wine and cook for 30 secs or until evaporated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1656241216138-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Stir everything together and cook for a further 3 min – these are your Thai-st
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1656241220589-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ From the northern Mexican state of Baja California (not to be confused with Cali
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636731083498-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Pat the basa fillets dry with kitchen paper
 
 Cut the fillets at an angle, leaving 3 equally sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1592916557132-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the sliced basa to the spice plate and give everything a good mix up until f
 
 Add 60g <span class="text-danger">[120g]</span> flour, the white wine vinegar and a pinch of salt to a separate bowl with 80ml <span class="text-danger">[160ml] </span>very cold water and mix thoroughly, then set aside for later – this is your batter
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1592916565106-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Dice the mango flesh finely, discarding the stone
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1592916580758-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Combine in a bowl the diced mango, chopped green chilli (not a fan of spice? Just add a little!), diced tomato and sliced spring onion with the juice of 1/2 <span class="text-danger">[1]</span> lime, a pinch of salt and a drizzle of olive oil – this is your mango salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636735492278-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add a handful of flour to the sliced basa and give everything a good mix up unti
 
 Dip the floured basa in the batter (turn several times to coat completely)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1636731544748-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once very hot, add the battered basa to the pan and cook for 3-4 min, on each si
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1592916643673-x200.jpg)
 
 ### Step 7
 

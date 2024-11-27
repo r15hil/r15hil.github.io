@@ -24,6 +24,7 @@ To make this lighter twist on a classic gnocchi lower in fat and saturates, you'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626787001767-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the portobello mushrooms to a tray and drizzle over the soy sauce
 
 Put the tray in the oven for 15-20 min or until the mushrooms are cooked through and tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1626787092146-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Drain and rinse the butterbeans
 
 Dissolve the veg stock mix in 150ml<span class="text-danger"> [250ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1626787106893-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <span class="t
 
 Once hot, add half the drained butterbeans and the chopped garlic with a pinch of salt and cook for 2-3 min or until the garlic has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626787128859-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the veg stock and a pinch of salt and pepper and blitz until smooth – this
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626787143690-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, tear the chestnut mushrooms straight into the pan and cook for 4-5 min
 
 Add the remaining butterbeans and the gnocchi and cook for a further 5-6 min or until everything is starting to crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626787261452-x200.jpg)
 
 ### Step 6
 

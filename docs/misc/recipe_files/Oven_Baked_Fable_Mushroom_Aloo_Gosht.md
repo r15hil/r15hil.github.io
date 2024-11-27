@@ -30,6 +30,7 @@ Aloo gosht is a fragrant South Asian dish packed with flavour. You’ll cook a q
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1722349309846-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1722349339600-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a large, hob-safe oven-proof casserole dish with a generous drizzle of vege
 
 Once hot, add your Fable pulled mushrooms and cook for 2-3 min or until starting to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1722349345697-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Chop your potato[es] (skins on) into bite-sized pieces
 
 Slice your red chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1722349356047-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Reduce the heat to medium and add the chopped onion and chopped tomato to the di
 
 Add your curry powder with your garam masala and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> flour and give everything a good mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1722349362603-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Bring to the boil over a high heat and season with a generous pinch of salt and 
 
 Once boiling, put the dish in the oven, uncovered, for 25-30 min or until the sauce has thickened – this is your Fable mushroom aloo gosht
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1722349380390-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add your basmati rice to an oven-proof dish with a pinch of salt and 300ml <span
 
 Cover tightly with tin foil and put the dish in the oven for 25-30 min or until all the water has absorbed and the rice is cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1722349388488-x200.jpg)
 
 ### Step 7
 

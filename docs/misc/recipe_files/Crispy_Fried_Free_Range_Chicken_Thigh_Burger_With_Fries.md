@@ -26,6 +26,7 @@ Who doesn't love a chicken burger? This crowd-pleaser's full of free range chick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1729594355079-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your potatoes (skins on) into fries
 
 Line a baking tray (or two!) with non-stick baking paper and add the fries to the tray[s] with a drizzle of vegetable oil and a pinch of salt and pepper, give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crispy – these are your fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1729594361669-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Add your cornflour, dried oregano and 1 tbsp <span class="text-purple">[1 1/2 t
 
 Tip: For a spicier burger, go heavy on the black pepper!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1729594367416-x200.jpg)
 
 ### Step 3
 
 Remove the chicken thighs from the bowl and firmly press each one into the herbed flour mix, making sure to evenly coat them on both sides – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729594372354-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the coated chicken and cook for 9-10 min on each side or until golden brown, crispy and cooked through (no pink meat!) – this is your crispy fried free range chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1729594381377-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Meanwhile, cut your brioche bun[s] in half
 
 Add the brioche halves to a separate baking tray and put the tray in the oven for 4-5 min or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1729594385991-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Wash your lettuce, then pat it dry with kitchen paper and shred finely
 
 Dice your tomato[es]<span class="text-danger"> </span>finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1729594390857-x200.jpg)
 
 ### Step 7
 

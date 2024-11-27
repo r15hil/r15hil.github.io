@@ -25,6 +25,7 @@ To whip up a delicious dinner in half an hour, you'll sear juicy free range chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1705910381745-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add your bulgur wheat to a pot with plenty of boiled water and a generous pinch 
 
 Cook over a high heat for 7-9 min or until tender with a slight bite, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1705910384124-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Once hot, add your walnuts and toast for 3-4 min, or until they've darkened in 
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1705910387955-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Transfer the toasted walnuts to a food processor and reserve the pan for later
 
 Tip: If you don't have a food processor, chop the walnuts with a knife, then add to a pestle & mortar!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1705910391245-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add the chopped basil, chopped garlic and crumbled cheddar to the food processo
 
 Blitz together to form a coarse purée – this is your walnut & cheddar pesto
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1705910393891-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add the sliced chicken with a pinch of salt and cook for 3-4 min on each side un
 
 Tip: Grind a generous amount of pepper onto the chicken for an extra kick of spice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1705910396685-x200.jpg)
 
 ### Step 6
 

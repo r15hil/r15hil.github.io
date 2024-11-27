@@ -24,6 +24,7 @@ The secret to this quick lamb dish? Ras el hanout, a smoky-sweet spice blend inf
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/531.-tep-1-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil a kettle
 
 Peel and finely slice your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/531.-tep-1-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Once hot, add the sliced onion with a pinch of salt and sugar
 
 Cook for 4 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/531.-tep-1-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/531.-tep-1-4-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Stir your ras el hanout and tomato paste into the onion
 
 Increase the heat to high, then add your lamb mince and cook for 7-10 min or until the lamb is cooked through (no pink meat!), then add 125ml <span class="text-purple">[160ml]</span> <span class="text-danger">[200ml]</span> boiled water to create a ragù-like sauce – this is your spiced lamb
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/531.-tep-1-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Scrape out the seeds with a teaspoon and discard
 
 Dice the halved cucumber
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/531.-tep-1-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Strip your mint leaves from their stalks, discard the stalks
 
 Finely chop the mint leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/531.-tep-1-7-x200.jpg)
 
 ### Step 7
 

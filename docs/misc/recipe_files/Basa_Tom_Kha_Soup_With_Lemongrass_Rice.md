@@ -29,6 +29,7 @@ Based on the silky Thai soup, tom kha, you’ll infuse basa and coconut stock wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1---Kha-soup-1637665013649-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Bash your lemongrass with a rolling pin, remove the tough outer layers and set a
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-kha-soup-1637665018170-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your lemongrass rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3---kha-soup-1637665036826-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once hot, add the sliced onion and a pinch of salt and cook for 4-5 min or until
 
 Slice your chestnut mushrooms finely, then chop your creamed coconut roughly (if required!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723544689653-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Dissolve your vegetable stock mix, sriracha (can't handle the heat? Go easy!), 1
 
 Once the onion has softened, add the chopped lemongrass, chopped ginger, sliced mushrooms and chilli flakes (can't handle the heat? Go easy!) to the pan and cook for 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723544726415-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once thickened, add the chopped basa and cook, covered, for 4-5 min further or u
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-kha-soup-1637665057748-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Whilst everything is cooking, pick your coriander leaves from their stalks
 
 Chop your coriander stalks finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723544776378-x200.jpg)
 
 ### Step 7
 

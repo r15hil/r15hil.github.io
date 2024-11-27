@@ -28,6 +28,7 @@ Roasting the cauliflower first will add even more flavour to this rich, luxuriou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612195687147-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your cauliflower[s] into small florets (discard the stem and leaves), then a
 
 Put the tray in the oven for 20-25 min or until the cauliflower has softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612195691058-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, peel and finely slice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612195695365-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut and vegetable stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[450ml]</span> boiled water – this is your coconut stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612195699583-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once boiling, add your cloves and a pinch of salt, reduce the heat to very low a
 
 Once cooked, remove from the heat and keep covered until serving – this is your fragrant rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612195703675-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add your ground turmeric and curry powder to the pan and cook for 1 min or until
 
 Once fragrant, add the coconut stock and 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> sugar and cook for 5-6 min further or until thickened – this is your korma sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Flaked-almonds-on-tray-1654610805252-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Whilst the sauce is cooking, add your flaked almonds to a baking tray and put th
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612195714088-x200.jpg)
 
 ### Step 7
 

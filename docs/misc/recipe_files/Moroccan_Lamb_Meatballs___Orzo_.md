@@ -26,6 +26,7 @@ Redolent with the aromatic flavours of ginger and cinnamon, these Moroccan-inspi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1263.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Grate the remaining onion&nbsp;
 
 Dissolve the chicken stock cube<span class="text-danger">[s]</span> in 350ml<span class="text-danger"> [700ml]</span> boiled water&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1263.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Heat a large pot (preferably non-stick) over a low heat with a large knob of but
 
 Once hot, add the chopped onion and cook for 6-7 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1263.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Mix thoroughly with clean hands for 2-3 min or until everything's combined, then
 
 Refrigerate until later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1263.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Add the chicken&nbsp;stock and cook for 10-12 min or until tender and all the li
 
 Tip: stir the orzo occasionally so it doesn't stick to the bottom of the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1263.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhie, heat a large, wide-based pan (preferably non-stick) with a matching li
 
 Once hot, add the&nbsp;meatballs&nbsp;and cook for 4-5 min, turning occasionally, until they are&nbsp;browned all over&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1263.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Chop the walnuts roughly&nbsp;
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1263.-step-7-x200.jpg)
 
 ### Step 7
 

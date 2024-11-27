@@ -26,6 +26,7 @@ We’ve based this dish on a Chinese street food classic. Wholewheat noodles dre
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1093.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Peel the red onion<span class="text-danger">[s]</span> and cut into wedges
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1093.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Bring to the boil over a high heat and cook for 5-7 min until they're tender wit
 
 Keep the pot for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1093.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Once hot, add the paneer&nbsp;with a generous pinch of salt&nbsp;and cook for 3-
 
 Once golden, set aside on a plate and keep the pan for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1093.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -79,6 +83,7 @@ Remove the coconut cream from the sachet<span class="text-danger">[s]</span> and
 
 Once dissolved, add the soy sauce and roughly half of the reserved pineapple juice&nbsp;&ndash; this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1093.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -93,6 +98,7 @@ Once softened, add the&nbsp;chopped pineapple and cook for 2 min further or&nbsp
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1093.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,6 +113,7 @@ Add 1 tsp<span class="text-danger"> [2 tsp]</span> flour and&nbsp;cook for 1 min
 
 Cook for 4 min or until thickened&nbsp;to the consistency of a loose curry sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1093.-step-7-x200.jpg)
 
 ### Step 7
 

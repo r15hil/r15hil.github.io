@@ -29,6 +29,7 @@ If souvlaki doesn't top your sandwich list yet, it will now. You'll stuff ciabat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1689327780301-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, and take your chicken out of th
 
 Cut your potatoes (skins on) into fries, then add them to a baking tray (or two!) with a drizzle of olive oil, dried oregano and a pinch of salt, then give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp – these are your herby fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1689327784461-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and grate (don't chop!) your garlic
 
 Add the sliced shallot to a large bowl with your free range chicken thighs, cumin seeds, ground smoked paprika, red wine vinegar, half the grated garlic (you'll use the rest later!) and a drizzle of olive oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1689327788044-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Give everything a good mix up and season with a very generous pinch of salt and 
 
 Thread the marinated free range chicken thighs onto the soaked skewers in a snake-like fashion – these are your marinated free range chicken thigh skewers
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-3-1689327793443-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Put the tray[s] in the oven for 22-25 min or until the chicken is slightly charr
 
 Once cooked through, slide and slice half of the free range chicken thigh souvlaki off each skewer on a clean board
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1709116154668-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Cut the remaining cucumber in half lengthways, scrape out the inner seeds with a
 
 Grate the deseeded cucumber and squeeze out any excess water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-5-1689327804220-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Slice your tomato[es] into rounds
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-11-1689327812551-x200.jpg)
 
 ### Step 7
 

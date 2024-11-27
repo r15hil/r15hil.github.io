@@ -20,6 +20,7 @@ Save on washing up with this meat-free sausage tray bake. You’ll roast sweet p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2452Step-1-x200.jpg)
 
 ### Step 1
 
@@ -27,16 +28,19 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your sweet potato[es] (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2452Step-2-x200.jpg)
 
 ### Step 2
 
 Cut your red onion[s] into wedges, leaving the skins on (this helps them cook quicker)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2452Step-3-x200.jpg)
 
 ### Step 3
 
 Top, tail and slice your courgette[s] into rounds
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2452Step-4-x200.jpg)
 
 ### Step 4
 
@@ -48,11 +52,13 @@ Drizzle with 1 tbsp <span class="text-purple">[1 1/2 tbsp]<span class="text-dang
 
 Put the tray[s] in the oven for an initial 10-15 min or until everything is starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2452Step-5-x200.jpg)
 
 ### Step 5
 
 Once everything is starting to soften, remove the tray[s] from the oven and add your meat-free sausages on top of the vegetables
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2452Step-6-x200.jpg)
 
 ### Step 6
 
@@ -60,6 +66,7 @@ Return the tray[s] to the oven and cook for a further 25-30 min or until everyth
 
 Tip: Carefully cut off the root and remove the skin from the onion once everything’s cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2452Step-7-x200.jpg)
 
 ### Step 7
 

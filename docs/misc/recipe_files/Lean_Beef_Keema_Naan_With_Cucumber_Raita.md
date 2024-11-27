@@ -26,6 +26,7 @@ For this Indian-inspired treat, you'll top naan breads with lean, richly spiced 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1610968449392-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Put a large baking tray (or two!) in the oven to heat up (this will stop the bas
 
 Peel and finely slice your shallot[s], then combine the sliced shallot with your red wine vinegar, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a pinch of salt in a small bowl and set aside – this is your quick-pickled shallot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610968455124-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan with a drizzle of vegetable oil over a high heat
 
 Once hot, add your lean beef mince and cook for 5-6 min or until browned, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1610968461212-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Chop the tomato[es] into wedges
 
 Dissolve your<span class="text-danger"> </span>chicken stock mix in 100ml<span class="text-danger"> </span><span class="text-purple">[125ml]</span><span class="text-danger"> [150ml] </span>boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1610968477299-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Push the browned lean beef mince to one side of the pan
 
 Add your ground cumin and garam masala to the other side of the pan and cook for 1-2 min until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610968473011-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Add the tomato wedges and chicken stock to the pan and stir everything together
 
 Cook for 1-2 min or until reduced and the beef is cooked through (no pink meat!) – this is your spiced lean beef mince
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610968481974-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Top the naan[s] with the spiced lean beef mince
 
 Put the tray in the oven and cook for 5-10 min or until golden – these are your lean beef keema naan[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1610968486482-x200.jpg)
 
 ### Step 7
 

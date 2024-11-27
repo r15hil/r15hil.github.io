@@ -30,6 +30,7 @@ Thanks to our spicy cumin and oregano dry rub, this succulent chicken burger is 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1679664976621-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cut your potatoes (skins on) into fries, then add to a baking tray (or two!) w
 
 Put the tray[s] in the oven for 25-30 min or until golden and crispy – these are your paprika fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679664981332-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Gently stir it all together – this is your spice mix
 
 Add your chicken breast portion[s] to the plate and turn several times until fully coated in the spice mix
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679664986146-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the spiced chicken and cook for 3 min on each side or until browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679664989488-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Grate your cheddar cheese
 
 Combine your mayo and white wine vinegar in a bowl and set aside for later – this is your zingy mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679664994495-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Meanwhile, wash your lettuce, then pat dry with kitchen paper, remove 2 outer le
 
 Dice your tomato[es]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679664998412-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Put the tray in the oven for 3-4 min or until warmed through and slightly crispy
 
 Tip: Cooking for 4 or more? You may need to use 2 trays!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679665003277-x200.jpg)
 
 ### Step 7
 

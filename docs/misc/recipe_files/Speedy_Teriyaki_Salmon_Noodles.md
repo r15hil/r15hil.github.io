@@ -23,6 +23,7 @@ These Japanese-style noodles are ready in a flash. You'll toss wholewheat noodle
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612879639714-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Slice half of the red chilli<span class="text-danger">[es]</span> finely into ro
 
 Chop the remaining red chilli in half lengthways, deseed and chop finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612879655541-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the wholewheat noodles to a pot and cover them with boiled water until fully
 
 Bring to the boil over a high heat and cook for 5-7 min until tender with a slight bite, then drain reserving a cup of starchy noodle water and return them to the pot until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612879670389-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Dissolve the cornflour in a small bowl with 3 tbsp<span class="text-danger"> [5 
 
 Stir in the soy sauce, mirin and honey – this is your teriyaki sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612879681079-x200.jpg)
 
 ### Step 4
 
@@ -57,16 +61,19 @@ Once hot, add the chopped chilli (save the rounds for later!) and half of the sh
 
 Cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612879742721-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add the sliced sugar snap peas and Tenderstem broccoli and cook for 2-3 min further
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612879750295-x200.jpg)
 
 ### Step 6
 
 Add the salmon flakes to the pan along with the teriyaki sauce and cook for 1-2 min or until the sauce has thickened a little
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612879766929-x200.jpg)
 
 ### Step 7
 

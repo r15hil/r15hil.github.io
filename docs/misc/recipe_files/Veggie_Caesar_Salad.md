@@ -25,6 +25,7 @@ A Caesar salad typically combines lettuce, croutons, cheese, egg, Worcestershire
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/748.step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Rip the ciabatta into small pieces&nbsp;onto one side of a baking tray,&nbsp;dri
 
 Trim the green beans and cut them in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/748.step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Scrunch up the edges of the foil slightly, then add 1 tbsp<span class="text-dang
 
 Add the parcel to the other half of the tray and put it in the oven for 15 min, or until the ciabatta has crisped and the green beans are tender with a slight bite&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/748.step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Boil&nbsp;the eggs for exactly 7 min (perfect, mid-boiled eggs)
 
 Meanwhile, fill a bowl of very cold water with ice (Gousto's ice packs are perfect) ready for step 5 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/748.step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Combine the mayonnaise, vinegar and Henderson's relish, with 3 tbsp <span class=
 
 Grate in&nbsp;the garlic and add half of the cheese and half of the chives - this is your dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/748.step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Once the eggs are done, drain and add them to your ice water (this stops them fr
 
 Tip: no ice? Run them under very cold running water for 3 min and then set aside&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/748.step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Add the corn salad, capers, remaining chives and cheese
 
 Mix to combine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/748.step-7-x200.jpg)
 
 ### Step 7
 

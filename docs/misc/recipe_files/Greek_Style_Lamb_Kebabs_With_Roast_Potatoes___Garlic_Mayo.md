@@ -26,6 +26,7 @@ Homemade takeaway the Greek way. You’ll pack juicy lamb kebabs with fragrant h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678302864823-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop the potatoes into small, bite-sized pieces
 
 Chop the tomato<span class="text-danger">[es]</span> roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678302868804-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chopped potatoes and chopped tomato to a baking paper-lined baking tray 
 
 Give everything a good mix up and put the tray in the oven for an initial 15 min or until the potatoes are lightly golden - these are your roast potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678302874534-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel and finely chop half the shallot<span class="text-danger">[s]</span>
 
 Slice the remaining shallot finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678302880499-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide the lamb mixture into 4 <span class="text-danger">[8]</span> and press it onto each skewer to form a long sausage shape – these are your lamb skewers
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678302886009-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the lamb skewers to the pan and cook for 2 min on each side or until browned – these are your Greek-style lamb kebabs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678302893558-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ After the potatoes have had an initial 15 min, remove the tray from the oven and
 
 Return the tray to the oven for 10-15 min or until the kebabs are cooked through (no pink meat!) and the potatoes are golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678302912889-x200.jpg)
 
 ### Step 7
 

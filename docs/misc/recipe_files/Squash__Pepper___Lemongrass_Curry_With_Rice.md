@@ -29,6 +29,7 @@ By combining Indian spices with slow-cooked pepper, coconut and coriander, you'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1632300776377-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add your butternut squash cubes to a baking tray (or two!) with a generous drizz
 
 Give everything a good mix up and put the tray[s] in the oven for 15-20 min or until tender and golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1632300781290-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and finely slice your red onion[s]
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1632300785997-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the pepper strips and sliced onion with a big pinch of salt and s
 
 Cook for 5 min, then reduce the heat to low and cook for 15 min or until softened and caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1632300790781-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Peel your ginger (scrape the skin off with a teaspoon) and your garlic, then fin
 
 Bash your lemongrass with a rolling pin, cut it down the middle lengthways, remove the tough outer layers (save for later!) and chop the soft inner core[s] finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1632300795931-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your lemongrass rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1632300801589-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the chopped ginger, chopped garlic, chopped lemongrass core, curry powder
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1632300806820-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ This dish combines French cooking techniques with rich North African flavours. C
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1590.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Using a sharp knife, score the duck skin on a diagonal, being careful not to c
 
 Add the scored duck, skin-side down, to a cold, dry pan over a low-medium heat. Cook for 10-15 minutes, skin-side down only, or until the skin is golden and crispy.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1590.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the chopped sweet potatoes to a pot of boiled water over a high heat and b
 
 Once done, drain and return them to the pot and cover to keep warm.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1590.new.step.3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Dissolve 1/2 <span class="text-danger">[1]</span> <span class="text-highlight">
 
 Once the duck fat has rendered, transfer the duck to a baking tray, skin-side up, and set it aside for later.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1590.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -82,6 +86,7 @@ Once hot, add the chicken stock, pomegranate molasses and honey and cook for 8-1
 
 Once done, remove from the heat and reheat just before serving.
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1590.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,6 +101,7 @@ Add the Tenderstem broccoli to a tray with a drizzle of vegetable <span class="
 
 After 5 minutes, add the pistachios to one side of the tray and cook for <span class="text-highlight">another 3 minutes or</span> <span class="text-highlight">until toasted.</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1590.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -107,6 +113,7 @@ Meanwhile, return the drained sweet potatoes to a very low heat with the grated 
 
 Season with a pinch of salt and pepper – this is your sweet potato purée.
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1590.-step-7-x200.jpg)
 
 ### Step 7
 

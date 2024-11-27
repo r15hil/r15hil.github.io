@@ -27,6 +27,7 @@ Celebrate Neapolitan style with this classic dish from Campania. Traditionally m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677863197983-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Combine the pork mince and egg<span class="text-danger">[s]</span> in a bowl wit
 
 Give everything a good mix up until thoroughly combined (clean hands are the best way!) and shape into 6 <span class="text-danger">[12]</span> meatballs – these are your pork meatballs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677863207421-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the pork meatballs to the pan and cook for 3-4 min on each side or
 
 Once the meatballs have browned, transfer them to a plate (these will finish cooking in the broth later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677863212819-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Wash, the spring greens then pat it dry with kitchen paper
 
 Rip the leaves off the spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677863217218-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once softened, add the chopped garlic and Chinese rice wine to the pan with the 
 
 Cook for a further 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677863221674-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once fragrant, add the orzo pasta and 900ml <span class="text-danger">[1.8L] </s
 
 Bring to the boil then reduce the heat to medium-high
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677863228550-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Cook for 12-15 min or until the meatballs are cooked through (no pink meat!) and
 
 Tip: Stir the orzo occasionally to stop it from sticking
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677863233264-x200.jpg)
 
 ### Step 7
 

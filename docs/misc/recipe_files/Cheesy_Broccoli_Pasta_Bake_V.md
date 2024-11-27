@@ -21,6 +21,7 @@ There’s nothing better than a hearty pasta bake. You’ll whip up a cheesy whi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674755329352-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Cook for an initial 4-5 min
 
 Reboil half a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674754867181-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ After the initial 4 min, add the broccoli florets to the pot with the pasta and 
 
 Once done, drain and return to the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674754871607-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ While the broccoli is cooking, peel and finely slice the shallot<span class="tex
 
 Grate the cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674754876112-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once hot, add the sliced shallot and cook for 2-3 min or until softened
 
 Meanwhile, dissolve the vegetable stock mix in 100ml <span class="text-danger">[200ml]</span> boiled water and add 250ml <span class="text-danger">[500ml]</span> milk – this is your creamy stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674754880106-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Once the shallot has softened, add 1 tbsp<span class="text-danger"> [2 tbsp]</sp
 
 Gradually whisk the creamy stock into the roux, a little at a time, and cook for 5 min or until a smooth, thick sauce remains – this is your white sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674754884705-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once thick, stir through half the grated cheese (you'll use the rest later!), so
 
 Add the drained conchiglie & broccoli to the cheese sauce with a generous grind of black pepper and stir it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674755012199-x200.jpg)
 
 ### Step 7
 

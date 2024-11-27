@@ -33,6 +33,7 @@ Fresh coriander and lime give this basa curry a mouthwatering zing. You'll stir 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1732019278351-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1615907753604-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Once fragrant, transfer the coriander seeds to a pestle & mortar and crush rough
 
 Reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1615907759718-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once hot, add the basa pieces with a pinch of salt and cook for 3-4 min on each 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1615907765378-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Once cooked, transfer the basa to a plate, reduce the heat to medium-low and add
 
 Cook for 4-5 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1615907775258-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your vegetable stock mix, peanut butter and chopped creamed coconut in 350ml <span class="text-purple">[455ml]</span> <span class="text-danger">[595ml]</span> boiled water – this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1615907780832-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Once the onion has softened, add the chopped garlic, chopped ginger, ground tur
 
 Increase the heat to medium, add your cherry tomatoes and coconut stock and cook for 7-9 min or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1615907790978-x200.jpg)
 
 ### Step 7
 

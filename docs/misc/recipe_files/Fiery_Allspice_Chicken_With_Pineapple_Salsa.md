@@ -29,6 +29,7 @@ You'll make D.I.Y. seasoning (with added smoky paprika for a barbecue flavour) a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/993.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the ground allspice, smoked paprika, cayenne pepper (can't handle the heat? 
 
 Mix all the spices together – this is your allspice seasoning
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/993.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the coated chicken (skin-side down) and cook for 7-8 min, until the skin is crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/993.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Deseed the sweet pointed pepper<span class="text-danger">[s]</span> (scrape the 
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/993.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Return the pan with the remaining oil to a medium heat
 
 Once hot, add the diced onion and pepper strips and cook for 3-4 min or until softened but not coloured
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/993.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Dissolve the chopped creamed coconut and chicken stock mix in 250ml<span class="
 
 Once the onion and pepper have softened, add most of the chopped chilli (not a fan of spice? Just add a little!) and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/993.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Add the coconut stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook, covered, for 10-15 min or until all the stock has absorbed and the rice is cooked – this is your coconut rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/993.-step-7-x200.jpg)
 
 ### Step 7
 

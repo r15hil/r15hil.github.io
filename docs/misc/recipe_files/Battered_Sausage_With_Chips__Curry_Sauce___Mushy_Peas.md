@@ -24,6 +24,7 @@ Give the chippy a run for its money with our take on battered sausage. You'll fr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1715600272848-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715600277768-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Meanwhile, combine your Marmite and 60ml <span class="text-purple">[90ml]</span>
 
 Soak your skewer[s] in cold water (this prevents them from burning whilst cooking)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715600283080-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add 30g <span class="text-purple">[45g] </span><span class="text-danger">[60g]</
 
 Stir everything together thoroughly until there are no lumps, then set aside – this is your batter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715600287309-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Thread the floured hot dog sausage[s] onto your soaked skewer[s]
 
 Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle of vegetable oil (enough to cover the whole base of the pan) over a medium-high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715600294315-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once hot, dip the floured sausage[s] into the batter and turn several times unti
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715600298904-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once everything is almost ready, combine the remaining cornflour and soy sauce i
 
 Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> cold water and give everything a good mix up, then put the bowl in the microwave for 2 min or until thickened, stirring halfway – this is your curry sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715600303196-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Smoked paprika, cayenne pepper and herbs give this Cajun-style rice some real So
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1681919057381-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1681919063078-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Drain and rinse your black beans
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1681919067222-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and chopped pepper with a pinch of salt and cook for 8-10 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1681919071709-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add your mayo to a bowl with a small squeeze of lime juice, a small drizzle of o
 
 Give everything a good mix up – this is your lime mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1681919076979-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add a pinch of salt and pepper and stir it all together – this is your Cajun-s
 
 Chop your basa fillet[s] into bite-sized pieces and pat dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1681919081237-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Mix it all together and cook for 1 min or until fragrant, then transfer to the p
 
 Give everything a good mix up, then cover and set aside (reserve the pan!) – this is your Cajun-style rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1681919088765-x200.jpg)
 
 ### Step 7
 

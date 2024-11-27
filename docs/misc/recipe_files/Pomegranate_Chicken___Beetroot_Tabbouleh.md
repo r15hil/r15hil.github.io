@@ -26,6 +26,7 @@ This bright pink twist on tabbouleh is flavoured with sweet, earthy beetroot, mi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1612880255607-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Pour in the beetroot juice from the packet, cover and set aside
 
 Tip: The beetroot juice will turn your bulgur bright pink!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1612880274598-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, add most of the ground sumac (save a pinch for garnish!), soy sauce 
 
 Add the chicken breasts and turn until well coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1612880283904-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil�
 
 Once hot, add the coated chicken and cook for 6-7 min on each side or until cooked through (no pink meat!) – this is your pomegranate chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1612880299827-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Discard the seeds and finely dice the cucumber
 
 Grate the beetroot roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1612880306431-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Chop the parsley finely, including the stalks
 
 Trim and finely slice the spring onion<span class="text-danger">[s]</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1612880318175-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the grated beetroot, diced cucumber, sliced spring onion, chopped herbs and 
 
 Add a grind of black pepper and gently mix it all together – this is your beetroot tabbouleh
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1612880334998-x200.jpg)
 
 ### Step 7
 

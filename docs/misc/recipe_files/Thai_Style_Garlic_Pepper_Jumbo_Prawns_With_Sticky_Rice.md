@@ -31,6 +31,7 @@ Fancy a Thai takeaway? These crispy garlic pepper prawns will hit the spot. Pair
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692890508475-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692890513254-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692890520575-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Strip your coriander leaves from their stalks and chop them both finely, keeping
 
 Wash, then slice your pak choi in half lengthways and pat dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692890524209-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Grind to a paste, then add your fish sauce with 1 tsp <span class="text-purple">
 
 Drain, then add your jumbo king prawns to a bowl with the garlic pepper marinade, give everything a good mix up and set aside to marinate
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692890527952-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Scrunch the foil around the veg to form a tightly sealed parcel (or two!) and ad
 
 Put the tray in the oven for 10-12 min or until the greens are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692890532446-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Whilst the veg is cooking, chop your red chilli[es] in half lengthways, deseed (
 
 Combine your soy sauce and toasted sesame oil in a bowl with the juice of your lime[s], the chopped chilli (can't handle the heat? Go easy!), remaining chopped garlic and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar – this is your chilli dipping sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692890536046-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Prep our take on a traditional keema aloo mattar (spiced beef mince, potato and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1652182936663-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1652182938865-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Chop your tomato[es] into wedges
 
 Peel and chop your brown onion[s] into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1652182942791-x200.jpg)
 
 ### Step 3
 
@@ -59,11 +62,13 @@ Add your beef mince to the dish, breaking it up into rough, large chunks and coo
 
 Once browned, stir in 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>flour
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1652182944777-x200.jpg)
 
 ### Step 4
 
 Meanwhile, crush your garlic open by squashing with the side of a knife and remove the skin
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1652182948282-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Sprinkle in your curry powder, ground cumin and ground turmeric, then add your b
 
 Once boiling, cover with a lid and put the dish in the oven for an initial 25 min – this is your keema aloo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652182950232-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Meanwhile, add your natural yoghurt to a small bowl with your mint sauce
 
 Season with a small pinch of salt and stir it all together, then put it in the fridge until serving – this is your mint yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652182952861-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ This feast from the east is a Japanese treat. You’ll pan-fry chicken till cris
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678182426960-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a pot with a matching lid with 2 tbsp <span class="text-purple">[3 tbsp]</s
 
 Once crispy, carefully pour the oil into a heatproof bowl and set aside, reserving the pot – this is your crispy chilli oil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678182435659-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once boiling, reduce the heat to low until very gently bubbling and cook, covere
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678182443732-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ While the rice is cooking, add your diced chicken thigh to a large bowl with hal
 
 Soak your skewer[s] in cold water (this prevents them from burning whilst cooking)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678182452829-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Peel and grate the remaining garlic
 
 Combine the grated garlic & ginger, remaining soy sauce and toasted sesame oil in a bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp] </span>sugar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>cold water – this is your teriyaki sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678182460732-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add your cornflour to the marinated chicken and give everything a good mix up u
 
 Once hot, add the coated chicken and cook for 5-6 min on each side or until golden, crispy and cooked through (no pink meat!) – this is your karaage chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678182471372-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ While the chicken is cooking, drain your king prawns, then add them to the teriy
 
 Thread the coated prawns onto the soaked skewer[s], then add to a tin foil-lined baking tray and put the tray under the grill for 4-5 min, turning half way or until cooked through – this is your teriyaki prawn skewer
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678182480459-x200.jpg)
 
 ### Step 7
 

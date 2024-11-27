@@ -25,6 +25,7 @@ Treat yourself to comfort food – Taiwanese-style. Enjoy rich, juicy pork that'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1165_step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Slice the pork belly finely with a sharp knife
 
 Rub the five-spice and a pinch of salt all over the sliced pork belly so that it's fully coated in spice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1165_step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely slice (don't chop!) the garlic
 
 Combine the tamari soy sauce and rice vinegar with 150ml <span class="text-danger">[250ml]</span> boiled water – this is your braising liquid
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1165_step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the braising liquid and bring to the boil
 
 Once boiling, reduce the heat to low and cook, covered, for 40-45 min or until the pork belly is tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1165.step-4.new-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ While the pork belly is cooking, peel (scrape the skin off with a teaspoon) and 
 
 Crush the roasted peanuts with a rolling pin (keep them in the bag so you don't lose them!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1165_step-5...-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1165_step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Heat a separate large, wide-based pan or wok (preferably non-stick) with a drizz
 
 Once hot, add the pak choi, chopped ginger, remaining sliced garlic and a pinch of salt and cook for 4-5 min or until the pak choi is tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1165_step-7-x200.jpg)
 
 ### Step 7
 

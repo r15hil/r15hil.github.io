@@ -26,6 +26,7 @@ Rich and comforting, kedgeree is a supper staple! Made with smoky fish, golden-f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/969.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your cherry tomatoes in half and add them to a baking tray with a pinch of s
 
 Put the tray in the oven for 15-20 min or until softened – these are your roasted tomatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/969.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a v
 
 Once melted, add the chopped onion with a pinch of salt and cook for 4-5 min or until softened but not coloured
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/969.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once boiling, cook for exactly 7 min for a perfect, mid-boiled egg
 
 Meanwhile, fill a bowl of very cold water with ice (Gousto's ice packs are perfect) ready for cooling your egg[s] quickly later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/969.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add 300ml<span class="text-purple"> [390ml]</span> <span class="text-danger">[60
 
 Once boiling, reduce the heat to medium-low and cook, covered, for 10-12 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/969.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the egg[s] is done, drain and add to the ice water (this stops any further 
 
 Tip: No ice? Run under very cold running water for 3 min, then set aside in a bowl of cold water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/969.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Meanwhile, peel the boiled egg[s] then cut into quarters
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/969.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ This squash-packed tart is a work of art. You’ll layer flaky pastry with spicy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1674039112200-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add your butternut squash cubes and onion wedges to a baking tray (use tin foil 
 
 Give everything a good mix up and put the tray in the oven for 12-15 min or until the butternut squash is starting to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674039115227-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Line a baking tray (or two!) with non-stick baking paper
 
 Add the pastry rectangle[s] to the tray[s] and score a 1cm border around the edge of the pastry with a knife (the border will puff up and form a nice crust)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674039119817-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Top with the cooked butternut squash & red onion and a small drizzle of olive oi
 
 Put the tray[s] in the oven for an initial 15 min or until the pastry is golden and crisp and the edges have puffed up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674039128358-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add the chopped potatoes to a pot of plenty of boiled water with a pinch of salt
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674039153249-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box gr
 
 Wash your salad and pat dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674039157248-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Return the tray[s] to the oven for a final 3-4 min or until the almonds are toas
 
 Once golden, remove the tart[s] from the oven and crumble over your feta and lemon zest, then season with a grind of black pepper – this is your ras el hanout butternut squash & feta tart[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674039160321-x200.jpg)
 
 ### Step 7
 

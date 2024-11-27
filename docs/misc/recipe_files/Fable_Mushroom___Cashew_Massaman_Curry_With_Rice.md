@@ -27,6 +27,7 @@ One bite of this mouthwatering massaman will take you straight to the heart of T
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723200898577-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723200902133-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your Fable pulled mushrooms and cook for 2-3 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723200905609-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Roll your lime[s] with your hand on a hard surface (to release more juice) and c
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723200913780-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger"
 
 Add your waxy potatoes and cashew nuts
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723200916786-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Give everything a good mix up and bring to the boil over a high heat and season 
 
 Put the dish in the oven and cook, uncovered, for 45 min or until the potatoes are tender – this is your Fable mushroom & cashew massaman
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723200920830-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add your basmati rice to an oven-proof dish with 300ml <span class="text-purple"
 
 Cover tightly with tin foil and put the dish in the oven for 25-30 min or until all the water is absorbed and the rice is cooked – this is your baked rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723200924281-x200.jpg)
 
 ### Step 7
 

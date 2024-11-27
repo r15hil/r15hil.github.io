@@ -26,6 +26,7 @@ Ready to impress? In this cheesy recipe, you'll top no-knead, no-prove dough wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599495284805-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your dried yeast to a large bowl with 100ml <span class="text-purple">[150
 
 Give it a good mix up and set aside for 5-10 min for the yeast to develop
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599495289446-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add 4 tbsp <span class="text-purple">[6 tbsp]</span> <span class="text-danger">[
 
 Drain your mozzarella, then pat it dry with kitchen paper and tear into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620829732417-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once cool, squeeze out any excess water (as much as you can!)
 
 Pick your basil leaves from their stems, discard the stems
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599495307134-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Tip the dough ball out onto a floured work surface and cut into<span class="tex
 
 Toss each dough ball in a light dusting of flour until coated, rounding the ball as you go (no need to knead!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599495319166-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Keep going until your base is slightly smaller than a side plate (you will make 
 
 Heat a large, dry, non-stick, wide-based pan[s] over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599495325963-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Divide the tomato sauce evenly between each pizza and spread it evenly with the
 
 Cook the pizza base[s] for 3-4 min or until the crust has started to puff up, then remove the heated tray[s] from the oven and slide the pizza base[s] onto the tray
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599495338101-x200.jpg)
 
 ### Step 7
 

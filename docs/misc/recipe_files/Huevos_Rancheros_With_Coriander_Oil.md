@@ -30,6 +30,7 @@ Huevos Rancheros ('rancher's eggs') is a warming, hearty dish from Mexico. For o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1654600728434-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Chop your tomato[es] roughly
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and dice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1654600736312-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add your ground smoked paprika, ground cumin and chopped garlic and co
 
 Add the diced pepper, chopped tomato and chipotle paste (can't handle the heat? Go easy!) and cook for 2-3 min or until the pepper is beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1654600740884-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Dissolve your vegetable stock mix in 100ml <span class="text-purple">[150ml] </s
 
 Add the drained black beans to the pot with the tomato and cook for 5-8 min or until the sauce has thickened – these are your spicy beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1654600743324-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Grind the coriander to a paste, then add 2 tbsp <span class="text-purple">[3 tbs
 
 Tip: Don't have a pestle and mortar? Just chop the coriander finely and mix it with the oil!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1654600748965-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add your tortillas to a plate and pop in the microwave for 20 secs on high or un
 
 Meanwhile, grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1654600751219-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the sauce has thickened, remove the spicy beans from the heat, squeeze in t
 
 Gently crush some of the beans lightly with a masher and season with a generous pinch of salt – these are your Mexican-style beans
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1654600753558-x200.jpg)
 
 ### Step 7
 

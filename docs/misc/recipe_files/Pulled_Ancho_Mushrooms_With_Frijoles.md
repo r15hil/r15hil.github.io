@@ -24,6 +24,7 @@ Don't miss the sizzling flavours of Mexican street food, with pulled portobello 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1594130461266-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cover the dried ancho chilli<span class="text-danger">[es]</span> in boiled wate
 
 Tear the portobellos and oyster mushroom mix into small pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1594130476495-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the torn mushrooms to a non-stick baking paper-lined baking tray with a driz
 
 Put the tray in the oven for an initial 10-15 min or until the mushrooms have started to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1594130515724-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1594130522591-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Whilst the rice is cooking, carefully remove the ancho chilli<span class="text-d
 
 Combine the chopped ancho chilli with the smoked paprika, half the tamari soy sauce (save the rest for later!), 1 tsp <span class="text-danger">[2 tsp]</span> sugar and 1 tbsp<span class="text-danger"> [2 tbsp] </span>olive oil – this is your ancho chilli sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1594130536330-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the ancho chilli sauce and give everything a good mix up
 
 Return the mushrooms to the oven for 10 min further or until golden and caramelised – these are your pulled ancho mushrooms
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1594130546362-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once hot, add the drained black beans and ground cumin and cook for 1-2 min or u
 
 Once fragrant, add the remaining tamari soy sauce with the juice of 1/2<span class="text-danger"> [1]</span> lime, 50ml<span class="text-danger"> [75ml]</span> boiled water and mash until smooth – these are your frijoles
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1594130566161-x200.jpg)
 
 ### Step 7
 

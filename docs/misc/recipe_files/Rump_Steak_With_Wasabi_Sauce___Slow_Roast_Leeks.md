@@ -23,6 +23,7 @@ This simple Japanese-inspired dish showcases wasabi's punchy, delicious heat. Yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2141Step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the drained rice with 200ml<span class="text-danger"> [400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2141Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2141Step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ While the rice is cooking, chop the leek<span class="text-danger">[s]</span> in 
 
 Cut the halved leek<span class="text-danger">[s]</span> into rough bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2141Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Scrunch the edges of the tin foil together around the leeks to form a sealed par
 
 Put the tray in the oven for 25 min or until the leeks have softened – these are your slow-roast leeks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2141Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Trim, then slice the spring onion<span class="text-danger">[s] </span>finely
 
 Pat the rump steaks dry with kitchen paper, drizzle them with vegetable oil and season with a pinch of salt on both sides
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2141Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ For medium, cook for 3-4 min on each side
 
 Once the steaks are cooked, transfer them to a plate to rest
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2141Step-7-x200.jpg)
 
 ### Step 7
 

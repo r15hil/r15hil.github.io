@@ -21,6 +21,7 @@ We're celebrating the best of British produce and have partnered up with Rosary 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/572.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Slice your aubergine<span class="text-danger">[s]</span>&nbsp;lengthways into 4 
 
 Season both sides with salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/572.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a wide-based pan (preferably non-stick with a matching lid), with 2 tbsp<sp
 
 Once hot,&nbsp;add the aubergine and cook, covered, for 3-4 min each side or until nicely browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/572.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Transfer the coloured aubergine to the baking tray (use tin foil to avoid mess!)
 
 Reserve the pan for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/572.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Meanwhile, mix the pomegranate molasses and the honey together - this is your gl
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/572.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Return the reserved pan to a medium-high heat and add the tomatoes, cut-side-dow
 
 Cover and cook for 3-4 min or until nicely charred and blackened in colour
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/572.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Tip: Working one at a time prevents the glaze from running off the aubergine and
 
 Place the baking tray on the top rack of your oven and cook for 5-7 min or until the breadcrumbs are golden brown in colour
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/572.-step-7-x200.jpg)
 
 ### Step 7
 

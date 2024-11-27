@@ -23,6 +23,7 @@ Brunch just got better. Start your day strong with a one-tray Christmas brunch. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-11-1728642301272-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skins on) into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-11-1728642308790-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Tip: Cooking for 3 or more? Use 2 trays!
 
 Put the tray[s] in the oven for an initial 15-20 min or until the potatoes are starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-11-1728642312438-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Once the potatoes are starting to soften, move the potatoes to one side and add 
 
 Return the tray[s] to the oven for a further 9-10 min or until the bacon is lightly golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-11-1728642317461-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Whilst the bacon is cooking, combine your tomato ketchup with your cranberry sau
 
 Boil a full kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-11-1728642321713-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Tip: Give your egg a little shake before you crack for a perfectly centred yolk!
 
 Add your brioche bun[s] on top of the potatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-11-1728642325685-x200.jpg)
 
 ### Step 6
 
 Return the tray[s] to the oven for 3-5 min or until the egg is done to your liking, the bacon is crisp and golden and the brioche is warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-11-1728642329590-x200.jpg)
 
 ### Step 7
 

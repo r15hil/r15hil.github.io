@@ -27,6 +27,7 @@ Get ready for the ultimate jacket potato. You’ll whip up smoky chipotle black 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723202748621-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Pierce your red potato[es] a few times with a fork, then add to a heatproof bowl
 
 Add the softened potato[es] to a baking tray (or two!) with a drizzle of olive oil, put the tray[s] in the oven for 20-25 min or until cooked and crispy on the outside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/26-06-24_12h22m28s-APIC-1719497697208-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely chop (or grate) your garlic
 
 Trim your green beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723202753736-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Combine half your chipotle paste (save the rest for later!) with your soured cre
 
 Strip your coriander leaves from their stalks and chop the stalks finely (save the leaves for garnish!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723202757261-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Dissolve your vegetable stock mix, ground paprika, and a pinch of salt in 150ml 
 
 Drain and rinse your sweetcorn and black beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723202763197-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once slightly softened, add the drained black beans and sweetcorn with the remai
 
 Cook for 6-8 min or until the sauce has thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723202767405-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Tip: Cooking for 3 or more? Make 2 separate parcels!
 
 Put the tray in the oven for 10-12 min or until the green beans are tender with a slight bite
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723202773711-x200.jpg)
 
 ### Step 7
 

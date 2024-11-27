@@ -21,16 +21,19 @@ Our finger food is perfect for adding the wow-factor to your festive celebration
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1867.-step-1-x200.jpg)
 
 ### Step 1
 
 Run a small knife along the back of the king prawns, cutting halfway through (make sure not to cut the whole way through) to butterfly the prawns
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1867.-step-2-x200.jpg)
 
 ### Step 2
 
 Peel and finely chop the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1867.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -39,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the chopped garlic and cook for 30 <span class="text-highlight">sec</span> or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1867.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -47,6 +51,7 @@ Once fragrant, add the butterflied prawns and chilli flakes (Can't handle the
 
 Once done, transfer the prawns to a bowl and set them aside to cool
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1867.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -55,6 +60,7 @@ Meanwhile, cut the roots from the little gem lettuce<span class="text-danger">[
 
 Pick 6 <span class="text-danger">[12] </span>of the biggest lettuce leaves – these are your lettuce cups
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1867.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -63,6 +69,7 @@ Cut the lime<span class="text-danger">[s]</span> into wedges
 
 Slice the red chilli<span class="text-danger">[es]</span> finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1867.-step-7-x200.jpg)
 
 ### Step 7
 

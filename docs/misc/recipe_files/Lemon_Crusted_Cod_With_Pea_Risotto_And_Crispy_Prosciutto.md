@@ -26,6 +26,7 @@ This lemon crusted cod is an easy classic. You’ll top creamy pea risotto with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1686322517190-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop your shallot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1686322530393-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped shallot and half the chopped garlic (you'll use the rest later!) with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1686322543594-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Once the shallot is beginning to soften, add your arborio rice and cook for 1 mi
 
 Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1686322555902-x200.jpg)
 
 ### Step 4
 
 Whilst the risotto is cooking, add your sliced prosciutto to a baking paper-lined baking tray (or two!), then put the tray[s] in the oven for 6-7 min or until crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1686322574825-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Meanwhile, chop your parsley finely, including the stalks
 
 Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1686322578701-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Put the tray[s] in the oven for 13-15 min or until cooked through – this is yo
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1686322595199-x200.jpg)
 
 ### Step 7
 

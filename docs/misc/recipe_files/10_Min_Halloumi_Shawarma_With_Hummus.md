@@ -22,6 +22,7 @@ A posh veggie kebab in ten minutes? Yes please! You'll pan-fry halloumi till gol
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1535.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1628.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Preheat the oven to 200°C/ 180°C (fan)/ 395°F/ Gas 6
 
 Add the wholemeal pittas to a baking tray with the pumpkin seeds and put the tray in the oven for 6 min or until warmed through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1628.-step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, drain the chickpeas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1628.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add the <span class="text-highlight">juice</span> of 1/2 <span class="text-dange
 
 <span class="text-highlight">Add a</span> very generous pinch of salt and whizz for 1 min or until smooth – this is your hummus
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1628.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,11 +82,13 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Meanwhile, slice the halloumi into 6 <span class="text-danger">[12]</span> slices
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1628.-step-6-x200.jpg)
 
 ### Step 6
 
 Once hot, add the halloumi slices and cook for 1-2 min on each side or until golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1628.-step-7-x200.jpg)
 
 ### Step 7
 

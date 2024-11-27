@@ -22,6 +22,7 @@ These little crispy nuggets are served with sticky rice, which is stirred vigoro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/400.-400_.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Add the basmati&nbsp;rice, 400ml <span class="text-danger">[800ml]</span>&nbsp;w
 
 Once boiling, reduce the heat to medium-low and stir vigorously for 1 min, before covering for 15-20 min or until most of the water is absorbed, stirring occasionally&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/400.-400_.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Once&nbsp;the rice is cooked, set aside and keep covered until serving&nbsp;
 
 Meanwhile, slice the basa fillets in half lengthways and cut each half into bite-sized pieces&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/400.-400_.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Add the panko breadcrumbs to a large mixing bowl
 
 Add the fish pieces and coat them in the breadcrumbs to make fish nuggets (press the breadcrumbs onto the fish with clean hands)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/400.-400_.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Combine the ginger, soy sauce, sesame oil, chilli flakes (Can't handle the heat?
 
 Mix well &ndash;&nbsp;this is your Asian dipping sauce&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/400.-400_.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Transfer the charred sugar snaps to a bowl and cover to keep warm
 
 Reserve the pan for the next step
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/400.-400_.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Transfer the cooked nuggets to a plate and season generously with salt and peppe
 
 Tip:&nbsp;cook in batches if needed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/400.-400_.-step-7-x200.jpg)
 
 ### Step 7
 

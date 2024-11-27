@@ -26,6 +26,7 @@ Cosy up to a rich, golden mac 'n' cheese. You'll whip up a decadent sauce with l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1578320877895-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit from be
 
 Peel and finely dice your shallot[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1578320887052-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once melted, add the sliced leek and diced shallot with a generous pinch of salt
 
 Once softened, add 15g <span class="text-purple">[20g]</span> <span class="text-danger">[30g] </span>flour and stir with a wooden spoon for 1-2 min or until a sandy paste coats the leek – this is your leek roux
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1578320890333-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once done, drain, then set aside until later
 
 Tip: It doesn't need to be fully cooked, as it will go in the oven later!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1578320896557-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Whilst the macaroni is cooking, gradually whisk 300ml <span class="text-purple">
 
 Once the sauce has thickened, stir through your Dijon mustard, crème fraîche and vegetable stock mix and season with a pinch of salt and pepper – this is your leek béchamel sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1578320916037-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Grate your cheddar cheese
 
 Combine half your grated cheese (save the rest for later!) with your panko breadcrumbs and a drizzle of olive oil – these are your cheesy breadcrumbs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1578320926149-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the drained macaroni to the pan with the leek béchamel sauce
 
 Add the remaining grated cheese, season with pepper and give everything a good mix up until the cheese has meltedl
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1578320930594-x200.jpg)
 
 ### Step 7
 

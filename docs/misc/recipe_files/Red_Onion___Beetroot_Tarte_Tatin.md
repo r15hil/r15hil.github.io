@@ -22,6 +22,7 @@ You'll prove tarte tatin isn't just for dessert with this tasty roasted beetroot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2467Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Drain the beetroot in a colander over the sink
 
 Slice the drained beetroot into discs (approx 1/2cm thick)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2467Step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the sliced onion and beetroot to a baking tray with a drizzle of olive oi
 
 Give everything a good mix up put the tray in the oven for 10-15 min or until everything is beginning to brown and soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2467Step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Once boiling, reduce the heat to low and add 30g <span class="text-danger">[60g]
 
 Stir it all together until the butter has melted and everything is fully combined, then remove the pan from the heat – this is your caramel
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2467Step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Add the crushed walnuts and grated carrot to a bowl with the rocket and gently
 
 Strip the thyme leaves from their stems and chop them roughly, discard the stems
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2467Step-5-x200.jpg)
 
 ### Step 5
 
 Once the onions and beetroot are done, add them to the caramel with the chopped thyme leaves and mix until evenly coated – this is your tart mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2467Step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Unroll the puff pastry and place it over the top
 
 Crimp the edges of the pastry (slightly turn over the edges) and put the dish<span class="text-danger">[es]</span> in the oven for 20 min or until the pastry is golden and crisp – this is your tarte tatin
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2467Step-7-x200.jpg)
 
 ### Step 7
 

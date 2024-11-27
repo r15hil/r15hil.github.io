@@ -31,6 +31,7 @@ Whip up this fable mushroom madras in minutes with cardamom, curry spices and ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-2-1689772035893-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your fragrant rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1689772039849-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add your Fable pulled mushrooms and cook for 5-6 min or until browned, breaking them up with a wooden spoon as you go – these are your pulled mushrooms
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1689772043389-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Chop your tomato[es] roughly
 
 Crush your cardamom pod[s] open by squashing them with the side of a knife
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1689772046942-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix, tomato paste and ginger & garlic paste in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[425ml] </span>boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1689772050521-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1689772054202-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add your curry powder to the pan with your garam masala, crushed cardamom pods, 
 
 Cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1689772058147-x200.jpg)
 
 ### Step 7
 

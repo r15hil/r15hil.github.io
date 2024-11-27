@@ -26,6 +26,7 @@ For this brilliant burger, you'll coat chicken breasts in spices, soy and cornfl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676375702456-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676375705184-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Add your soy sauce to the bowl and mix to combine
 
 Add your cornflour to the bowl and give everything a good mix up until the chicken is fully coated in the cornflour mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676375708726-x200.jpg)
 
 ### Step 3
 
 Combine your sriracha (not a fan of spice? Just add a little!) with your mayo and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water – this is your sriracha mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676375712410-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Cut the remaining lettuce[s] in half
 
 Slice your tomato[es] finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676375715773-x200.jpg)
 
 ### Step 5
 
 Combine your white wine vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676375719793-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once hot, add the coated chicken strips and cook for 4-5 min on each side or u
 
 Tip: Add more oil to the pan if it is looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676375724730-x200.jpg)
 
 ### Step 7
 

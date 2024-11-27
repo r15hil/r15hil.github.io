@@ -26,6 +26,7 @@ Sizzle up a spicy Middle Eastern-style stew, with golden halloumi and baby leaf 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728995563988-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1730291556730-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add your chicken breast portion and cook for 3 min on each side or unt
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728995572566-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Chop your halloumi into bite-sized pieces
 
 Once hot, add the chopped halloumi to the pan and cook for 1-2 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728995575865-x200.jpg)
 
 ### Step 4
 
@@ -68,16 +72,19 @@ Add your couscous and sultanas to the bowl then stir well, cover and set aside â
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728995578978-x200.jpg)
 
 ### Step 5
 
 Once the halloumi has started to brown, add your baharat and chilli flakes (can't handle the heat? Go easy!) and cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728995582200-x200.jpg)
 
 ### Step 6
 
 Once fragrant, add<span class="text-danger"> </span>your chopped tomatoes, spinach and a splash of boiled water and cook for 2-3 min or until the spinach has wilted and the sauce has thickened to a pasta sauce-like consistency â€“ this is your spicy halloumi stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728995585104-x200.jpg)
 
 ### Step 7
 

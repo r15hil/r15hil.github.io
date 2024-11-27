@@ -24,6 +24,7 @@ Learn to make your own baba ganoush – a smoky aubergine dip – in this easy m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1597.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Chop the aubergine<span class="text-danger">[s] </span>into 4 <span class="text-
 
 Add the pierced aubergine wedges and wrapped&nbsp;garlic cloves&nbsp;to a baking tray, then put the tray in the oven and cook for 30-35 min or until the aubergine is soft and brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1597.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Mix thoroughly with clean hands until fully combined, then shape into 6 <span cl
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1597.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Put the tray in the oven and cook for 15-20 min until the onions are tender and 
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1597.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a generous pi
 
 Wash, then add the baby leaf spinach&nbsp;to the bowl and give it a gentle mix up until coated in the dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1597.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,6 +99,7 @@ Add the tahini, 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1597.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -111,6 +117,7 @@ Squeeze the soft roasted garlic out of&nbsp;its skin&nbsp;
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1597.-step-7-x200.jpg)
 
 ### Step 7
 

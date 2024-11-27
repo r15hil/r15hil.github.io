@@ -25,6 +25,7 @@ This rich risotto is wholesome, warming and perfect for the whole family. You'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600693510380-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and cook for 4-5 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600693515061-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Dissolve your chicken stock mix in 750ml <span class="text-purple">[975ml]</span
 
 Chop your cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600693520014-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the onion is beginning to soften, add the chopped garlic and arborio rice t
 
 Add your Chinese rice wine and cook for 30 secs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600693527409-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add your chopped tomatoes and halved cherry tomatoes to the pan and give everyth
 
 Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is almost cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600693618266-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Meanwhile, grate your Italian hard cheese
 
 Wash your shredded kale, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600693628893-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once hot, squeeze your sausage meat from the skins into the pan (clean hands is 
 
 Break the sausage meat up with a wooden spoon and cook for 6-7 min or until golden, crisp and cooked through (no pink meat!) – this is your crispy sausage meat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600693657761-x200.jpg)
 
 ### Step 7
 

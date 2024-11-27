@@ -31,6 +31,7 @@ This comforting orzo dish is bursting with flavour from roasted red pepper, onio
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1728995077182-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut th
 
 Chop your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728995080011-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Give everything a good mix up and put the tray[s] in the oven for 20-25 min or u
 
 Add your chicken breast portion to a separate tray with a drizzle of olive oil, then put the tray in the oven and cook for 18-20 min or until cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728995083449-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 550ml <span class="text-purple">[825ml]</span> <span class="text-danger">[1.1L]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728995086898-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once hot, add the chopped garlic and chilli flakes (can't handle the heat? Go ea
 
 Add your orzo and tomato paste and cook for 1 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728995089900-x200.jpg)
 
 ### Step 5
 
@@ -78,11 +83,13 @@ Once boiling, reduce the heat to medium-low and cook, covered, for 15 min or unt
 
 Tip: Stir the orzo occasionally to prevent it from sticking!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728995092890-x200.jpg)
 
 ### Step 6
 
 While the orzo is cooking, chop your basil finely, including the stalks (saving a few leaves for garnish)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728995097816-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Fatteh is a Levantine classic. Like nachos, but you’ll layer spiced beef and a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2340Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and cut into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2340Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the chopped aubergine to a baking tray with a drizzle of olive oil and a pin
 
 Put the tray in the oven and cook for 25-30 min or until cooked through and tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2340Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add the sliced red onion with a pinch of salt and cook for 5-6 min or
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2340Step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the cumin seeds, ras el hanout, tomato paste and most of the chopped garlic 
 
 Add 150ml <span class="text-danger">[200ml] </span>boiled water and cook for 8-10 min or until the sauce has thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2340Step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add the pitta triangles to a tray 
 
 Put the tray in the oven for 8-10 min or until crisp and starting to brown
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2340Step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Combine the natural yoghurt with the remaining chopped garlic, a pinch of salt, 
 
 Strip the mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2340Step-7-x200.jpg)
 
 ### Step 7
 

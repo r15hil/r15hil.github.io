@@ -26,6 +26,7 @@ Meet the best thing since chicken noodle soup. You’ll pack your macaroni with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680605102389-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680605105001-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Carefully pull the chicken skin off your chicken thighs
 
 Add the chicken skin to a baking paper-lined baking tray and season with a pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680605107970-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Put the stacked baking trays in the oven for 25-30 min or until the chicken skin
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680605113865-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once the dish is hot, add the skinless chicken thighs with a pinch of salt
 
 Cook for 3-4 min or until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680605119930-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Peel and chop your brown onion[s] into wedges
 
 Crush your garlic open by squashing them with the side of a knife and discard the skins
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680605123136-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add your bay leaf[ves],<span class="text-danger"> </span>mix it all together and
 
 Once boiling, cover with a lid and place the dish in the oven for an initial 10 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680605126937-x200.jpg)
 
 ### Step 7
 

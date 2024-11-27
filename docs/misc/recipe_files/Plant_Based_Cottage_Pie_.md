@@ -21,6 +21,7 @@ This is British comfort food at its best. You’ll rustle up a tomatoey plant-ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679393008108-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add the chopped potatoes to a pot of boiled water and bring to the boil over a h
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679393011668-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Top, tail, peel and finely dice your carrot[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679393015685-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion, diced carrot and chopped garlic with a pinch of salt and cook for 5-8 min or until slightly softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679393019805-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Once softened, add your ultimate vegan burger patty[ies] to the pan, breaking it
 
 Tip: Try not to stir too often so the mince gets nice and brown!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679393024055-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once the meat-free mince has browned, add your chopped tomatoes, vegetable stock
 
 Season with a generous grind of black pepper and cook for 3-4 min or until slightly thickened – this is your pie mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679393028419-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Meanwhile, return the drained potatoes to a low heat with a splash of milk and a
 
 Mash until smooth and season with a pinch of salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679393032064-x200.jpg)
 
 ### Step 7
 

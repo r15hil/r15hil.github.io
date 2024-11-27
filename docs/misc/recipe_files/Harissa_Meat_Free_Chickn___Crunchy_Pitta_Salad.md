@@ -26,6 +26,7 @@ For this satisfying salad, you'll toss crunchy pittas with baby leaf salad, cucu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1684850513559-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Top, tail and grate your carrot[s] (no need to peel!)
 
 Strip your mint leaves from their stems and chop them roughly, discard the stems, then chop your dill finely, including the stalks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1684850537049-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the pitta triangles to a baking tray with 1/2 tbsp<span class="text-danger">
 
 Give it a mix up and put the tray in the oven for 8-10 min or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1684850540682-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <span class="t
 
 Once hot, add your meat-free chick'n with a pinch of salt and cook for 3 min on each side or until golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1684850549465-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once the meat-free chick'n has browned, reduce the heat to medium and add the ha
 
 Cook for a further 3-4 min, until the meat-free chick'n is warmed through and the stock has reduced
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684850558501-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Whilst everything is cooking, combine your vegan mayo with the juice of half you
 
 Give it a good mix up until it's smooth – this is your lemony dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1684850563489-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once the meat-free chick'n is cooked, transfer it to a clean board and shred it 
 
 Return the meat-free chick'n to the pan with a pinch of salt and pepper and give everything a good mix up until fully coated in the sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-4-1687249694011-x200.jpg)
 
 ### Step 7
 

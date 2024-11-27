@@ -26,6 +26,7 @@ Make moussaka a little less rich with layers of melt-in-your-mouth aubergine, gr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1618924538070-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the aubergine slices to a tray (or two!) with a drizzle of<span class="text-
 
 Put the tray[s] in the oven and cook for 15-20 min or until lightly browned and tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_10h09m26s-APIC-1718806892125-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your lighter cheese finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1618924586317-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Meanwhile, dissolve your vegetable stock mix in 50ml <span class="text-purple">[
 
 Drain and rinse your green lentils
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1618924667958-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook for 5-6 min or until thickened – this is your lentil filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_10h30m46s-APIC-1718806907881-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add 100ml <span class="text-purple">[200ml]</span> <span class="text-danger">[30
 
 Cook over a medium-high heat for 3-4 min, stirring frequently, or until the cheese has melted and the sauce has thickened – this is your white sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_10h37m01s-APIC-1718807005025-x200.jpg)
 
 ### Step 6
 
@@ -90,11 +96,13 @@ Cover with the white sauce, spreading it over the aubergine slices with the back
 
 Top with the chopped lighter cheese and put the dish in the oven for 15-20 min or until golden – this is your aubergine & lentil moussaka
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1618924735954-x200.jpg)
 
 ### Step 7
 
 Whilst the moussaka is cooking, chop your parsley roughly, including the stalks
 
+![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/17-06-24_12h36m50s-APIC-1718807046763-x200.jpg)
 
 ### Step 8
 

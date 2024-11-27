@@ -26,6 +26,7 @@ Cook up a luscious Mediterranean-style stew with tender salmon fillets poached i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614612263509-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop (or grate) the garlic
 
 Boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614612287543-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the star anise and cook for 6-8 min, or until the onion is starting to softe
 
 Meanwhile, chop the black olives coarsely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614612309227-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once the onion has softened, add the tomato paste and cook for 1 min, stirring 
 
 Cook for 5 min or until reduced by half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614612323657-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Add the mayo, remaining chopped garlic, white wine vinegar and season with peppe
 
 Add a drizzle of olive oil – this is your sunny aioli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614612338564-x200.jpg)
 
 ### Step 5
 
 Add the ciabatta rolls to a baking tray, drizzle them with a little olive oil and put the tray in the oven for 8-10 min, or until they're hot and crusty
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614612345639-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Gently add the salmon fillets into the pan and cook, covered for 8-9 min, turnin
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1614612358005-x200.jpg)
 
 ### Step 7
 

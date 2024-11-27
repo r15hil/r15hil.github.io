@@ -29,6 +29,7 @@ This sticky stir-fried mushroom rice is an umami-packed treat. You’ll fry flat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1685091862174-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> cold water to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1685091864421-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1690538196887-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Peel and cut your brown onion[s] into wedges, then separate the wedges so you en
 
 Chop your Tenderstem broccoli tips away from the stalks and slice in half, then chop the broccoli stalks into quarters lengthways
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1685091870480-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Chop your coriander roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1685091873034-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once browned, reduce the heat to medium-high and add the broccoli tips and stalk
 
 Cook for 4-5 min further or until the broccoli is softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1685091875562-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the five-spice cashews to a baking paper-lined baking tray, then put the tra
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1685091878248-x200.jpg)
 
 ### Step 7
 

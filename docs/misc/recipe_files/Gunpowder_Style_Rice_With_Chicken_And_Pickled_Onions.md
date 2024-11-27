@@ -31,6 +31,7 @@ Spice up your rice with this South Indian-inspired dinner. You'll pan-fry chicke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1708533943222-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add 1/4 of the sliced onion (you’ll use the rest later!) to a bowl with your w
 
 Give everything a good mix up and set aside to pickle – this is your quick-pickled onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1708533950707-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1708533958750-x200.jpg)
 
 ### Step 3
 
@@ -60,16 +63,19 @@ Once hot, add the remaining sliced onion and your chicken breast strips with a p
 
 Cook for 10-12 min or until the chicken is cooked through (no pink meat!) and the onion has softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1708533966778-x200.jpg)
 
 ### Step 4
 
 Meanwhile, peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1708533972962-x200.jpg)
 
 ### Step 5
 
 Once the chicken is cooked through, add your tomato paste and the chopped garlic to the pan and give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1708533979931-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add your curry powder to the pan with your black mustard seeds, chilli flakes (c
 
 Cook for 30 secs or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1708533991675-x200.jpg)
 
 ### Step 7
 

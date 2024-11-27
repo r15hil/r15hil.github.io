@@ -29,6 +29,7 @@ Time to take tofu to the next level. You'll stir crispy tofu through a tangy lim
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1623677932246-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml<span class="text-danger"> <span class="text-purple">[300ml] </span>[400ml] </span>cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1623677939514-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623677945452-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the tofu cubes to a bowl with half your soy sauce (you'll use the rest later
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1623677955619-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Zest your lime[s] (try to grate lightly and avoid grating the white pith, as thi
 
 Add half the sliced onion (you'll use the rest later!) to a small bowl and squeeze the juice of half your<span class="text-danger"> </span>lime[s] over, then place the squeezed half[ves] on top for added pickling – this is your zingy quick-pickled onion
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623678011262-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Once the tofu is golden, transfer it to a clean plate then return the pan to a medium-high heat with a little drizzle of vegetable oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623678022526-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once softened, remove the pan from the heat and add the spinach with a splash of
 
 Return the pan to the heat and cook for 2-3 min or until the spinach has wilted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623678036597-x200.jpg)
 
 ### Step 7
 

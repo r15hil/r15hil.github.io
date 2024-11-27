@@ -30,6 +30,7 @@ Mix up curry night with these fresh and fragrant flavours. Make curry paste usin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678788971636-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with 
 
 Chop your coriander finely, including the stalks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678788980714-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Meanwhile, crush your cardamom pods open by squashing them with the side of a kn
 
 Discard the outer green pods
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678788990726-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Add most of the chopped coriander (save some for garnish!) and half the chopped 
 
 Once the onion has softened, add the curry paste and your butternut squash cubes to the pan and cook for 2-3 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678788999234-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678789008102-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once fragrant, add the coconut stock to the pan with a pinch of sugar and bring 
 
 Once boiling, reduce the heat to medium-high and cook, covered, for 10-12 min or until the sauce has thickened and the vegetables are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678789021175-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Add your Tenderstem broccoli to a baking tray with a drizzle of olive oil and a 
 
 Put the tray in the oven for 10-12 min or until tender and slightly charred – this is your roasted broccoli
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678789030885-x200.jpg)
 
 ### Step 7
 

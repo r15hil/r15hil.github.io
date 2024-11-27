@@ -22,6 +22,7 @@ Salty, squeaky halloumi cheese meets sharp balsamic, which turns into a sweet an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/538.-step-2-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Tip: Bash the nuts in their bag with a rolling pin or use a pestle and mortar
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/538.-step-1-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the slices to a heatproof bowl, cover with boiled water (this takes some of 
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/538.-538.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Cook for 1 min, then add the ras el hanout and cook for 1 min further, stirring 
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/538.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Bring to the boil, then cover with&nbsp;a lid and remove from the heat
 
 Set aside, covered, until serving&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/538.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Dice into small, bite-size pieces&nbsp;
 
 Roughly chop (or tear) the basil, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/538.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Roughly chop (or tear) the basil, including the stalks
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/538.-step-7-x200.jpg)
 
 ### Step 7
 

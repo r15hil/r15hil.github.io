@@ -27,6 +27,7 @@ Our Nashville-style hot chicken is a little healthier, and gets a hefty hit of h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1719999980708-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add your ground almonds, half your ground paprika and half your cayenne pepper (
 
 Add 100ml<span class="text-purple"> [150ml]<span class="text-danger"> </span>[200ml] </span>milk<span class="text-danger"> </span>to a bowl
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1719999988050-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Slice through the thickest part of the chicken breast, being careful not to cut 
 
 Cover with cling film and bash with a rolling pin until you have an even thickness – this is your butterflied chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1719999992245-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add the coated chicken to a baking tray (or two!) lined with non-stick baking p
 
 Put the tray[s] in the oven for 25 min or until the chicken is cooked through (no pink meat!) – this is your Nashville-style hot free range chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1719999995760-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ While the chicken is in the oven, trim, then slice your spring onion[s] finely
 
 Combine your shredded red cabbage, sliced spring onion (save a little for garnish), your wholegrain mustard, half your cider vinegar and most of your natural yoghurt (you'll use the rest later!) in a bowl and season generously with salt and pepper – this is your slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1719999999218-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the cucumber batons, chopped dill and remaining cider vinegar to a bowl and 
 
 Stir everything together and set aside – this is your quick-pickled cucumber
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720000003179-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Slice your ciabatta[s] in half
 
 Once hot, add the sliced ciabatta, cut-side down, and cook for 3-4 min or until toasted and charred, then set aside until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720000006659-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ For this elegant protein hit, you'll pan fry sea bass fillets until crispy and g
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-14-1726499151021-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once toasted, transfer to a bowl and set aside until serving, and reserve the pa
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-15-1726499155319-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cook the giant couscous for 8 min or until tender with a slight bite
 
 Once done, drain the giant couscous and reserve the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-16-1726499164377-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Chop your tomato[es] roughly
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-17-1726499168419-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Once hot, add your sea bass fillet[s], skin side down with a pinch of salt and p
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-16-1726499172890-x200.jpg)
 
 ### Step 5
 
 Dissolve your vegetable stock mix and traditional Italian pesto in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[170ml]</span> boiled water – this is your pesto stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-17-1726499177042-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once fragrant, add the spinach and drained giant couscous to the pot and give ev
 
 Set aside until serving – this is your tomato & spinach couscous
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-14-1726499181303-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ This chipotle veggie burger is topped with nacho chilli cheese sauce and a Mexic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1616515179135-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the potato rounds to a baking tray (or two!) with a drizzle of vegetable oil
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1616515200873-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ Using clean hands, give everything a very good mix up until fully combined
 
 Divide the mixture into 1 thin patty per person – this are your chipotle veggie patty[ies]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1616515220509-x200.jpg)
 
 ### Step 3
 
 Add the chipotle veggie patty[ies] to a baking tray and put in the oven for 10-12 min or until cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1616515231377-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Chop your coriander roughly, including the stalks
 
 Add everything to a bowl with a pinch of pepper and set aside – this is your pico de gallo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1616515249604-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Grate your cheddar cheese
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1616515265526-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[25
 
 Remove from the heat and stir through the grated cheese and chopped green chilli (not a fan of spice? Just add a little!) – this is your nacho chilli cheese sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1616515286360-x200.jpg)
 
 ### Step 7
 

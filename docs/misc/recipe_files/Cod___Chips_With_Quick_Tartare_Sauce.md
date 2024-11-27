@@ -20,6 +20,7 @@ A healthier cod & chips with all the flavours of the nation's favourite, only a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/643.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the wedges to a baking tray, drizzle with vegetable oil and season generousl
 
 Put the tray in the oven for 30-35 min or until the wedges are crispy and coloured
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/643.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Combine the mayonnaise with 2&nbsp;tsp <span class="text-danger">[4 tsp]</span>&
 
 Season with salt and pepper and set aside &ndash; this is your lemon mayo
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/643.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the sugar snaps, a knob of butter and a splash of water&nbsp;
 
 Cover and cook for 3 min or until the peas have turned bright green
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/643.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Transfer the sugar snaps to a food&nbsp;processor with a little squeeze of the r
 
 Return the mushy&nbsp;sugar snap peas&nbsp;to the cooking pot and set aside&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/643.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Heat a large, wide-based pan (preferably non-stick) with 2 tbsp <span class="tex
 
 Once hot, carefully add the capers and cook for 1-2 min until they have puffed up a little, then transfer them to kitchen paper with a slotted spoon and set aside until serving &ndash; these are your crispy capers
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/643.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Pat the cod&nbsp;dry and season with a little salt&nbsp;
 
 Once&nbsp;the pan is hot, add the cod&nbsp;and cook for 2 min, flipping halfway through (your fish is cooked once it flakes easily)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/643.-step-7-x200.jpg)
 
 ### Step 7
 

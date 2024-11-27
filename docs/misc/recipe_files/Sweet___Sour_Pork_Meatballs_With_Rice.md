@@ -27,6 +27,7 @@ This is sweet and sour pork with a meaty twist. You’ll pan-fry pork meatballs 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1678875088193-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1678875117583-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide the pork mixture and shape into 5 small meatballs per person – these are your pork meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1678875150564-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add the pork meatballs to the pan and cook for 2 min on each side or u
 
 Reduce the heat to medium-high and cook, covered, for a further 6 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1678875159287-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Top, tail, peel and chop your carrot[s] into batons
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and chop into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1678875172842-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add your cornflour to a bowl with 125ml <span class="text-purple">[165ml]</span>
 
 Add your tomato ketchup, rice vinegar, soy sauce and a pinch of sugar and mix until smooth – this is your sweet & sour sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1678875185200-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once the pork meatballs are cooked through and browned, transfer to a plate and 
 
 Return the pan to a medium heat and add the chopped pepper and carrot batons with a pinch of salt and cook for 4-5 min or until beginning to soften
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1678875200261-x200.jpg)
 
 ### Step 7
 

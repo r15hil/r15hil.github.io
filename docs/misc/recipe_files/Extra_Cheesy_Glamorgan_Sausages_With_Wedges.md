@@ -22,6 +22,7 @@ To create this cheesy Welsh classic, you'll mix pan-fried sliced leek with bread
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1619444693903-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Add the leek with a pinch of salt and cook, covered, for 12 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1619444704848-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ While the leek is softening, grate the cheddar cheese
 
 Combine the grated cheese with the panko breadcrumbs and a generous grind of black pepper – these are your cheesy breadcrumbs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1619444718665-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Set the egg white aside for later
 
 In a separate bowl, combine the egg yolk with the Dijon mustard
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1619444724077-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the wedges to a baking tray with a drizzle of vegetable oil and a pinch of s
 
 Give everything a good mix up and put the tray in the oven for 30 min or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1619444737827-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Divide the mixture into 6 <span class="text-danger">[12]</span> and carefully ro
 
 Tip: They don't have to be perfect, but make sure they're packed tightly!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1619444802889-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Coat the Glamorgan sausages in the flour, tap off any excess, then add to the be
 
 Add to a baking paper-lined baking tray and put in the oven for 20 min or until crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1619444845354-x200.jpg)
 
 ### Step 7
 

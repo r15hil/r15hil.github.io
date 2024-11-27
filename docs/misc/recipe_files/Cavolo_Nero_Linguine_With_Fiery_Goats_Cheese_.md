@@ -21,6 +21,7 @@ This striking, delicious bright green linguine is super quick to prepare. You’
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1325.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cook the linguine for 8-10 min or until cooked with a slight bite
 
 Once done, drain the linguine and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1325.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Meanwhile, reboil a kettle
 
 Roughly chop the cavolo nero
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1325.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add the chopped cavolo nero to a pot of boiled water with a large pinch of salt 
 
 Cook the cavolo nero for 5-6 min Once done, drain the cavolo nero
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1325.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Meanwhile, roll the goats' cheese log<span class="text-danger">[s]</span> over t
 
 Cut the chilli goats&rsquo; cheese into slices (or break it up into rough pieces) and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1325.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Peel and chop the garlic roughly
 
 Dissolve the vegetable stock cube<span class="text-danger">[s]</span> in 50ml <span class="text-danger">[100ml]</span>&nbsp;boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1325.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the whole almonds, drained cavolo nero, grated cheddar, chopped garlic, vege
 
 Blitz for 2 min or until a smooth sauce remains &ndash; this is your cavolo nero pesto
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1325.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Prep this spicy veg-packed pilaf, then bake until your rice is cooked through. T
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/empty-pot-1661415977305-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of v
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don’t have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1652179976891-x200.jpg)
 
 ### Step 2
 
@@ -46,16 +48,19 @@ Peel and chop your red onion[s]<span class="text-danger"> </span>into wedges
 
 Chop your tomato[es] into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1652179980444-x200.jpg)
 
 ### Step 3
 
 Cut your aubergine[s] in half lengthways (including the stalk)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1652179983081-x200.jpg)
 
 ### Step 4
 
 Once hot, add the onion and tomato wedges to the dish with a generous grind of black pepper and cook for 1-2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1652179986320-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Add your honey and half of your harissa paste (can't handle the heat? Go easy!) 
 
 Put the tray[s] in the oven for 30 min or until the aubergine is soft and golden – this is your honeyed harissa aubergine
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1652179988770-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add your white long grain rice and sultanas with 300ml<span class="text-purple">
 
 Once boiling, cover with a lid and put the dish in the oven for 15-20 min or until all the water has absorbed and the rice is cooked – this is your tomato pilaf
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1652179991436-x200.jpg)
 
 ### Step 7
 

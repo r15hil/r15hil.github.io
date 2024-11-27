@@ -28,6 +28,7 @@ Summer's here and that means one thing. BBQ! Whip up Kansas-style BBQ chicken fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1622554669889-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Grate your cheddar cheese
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1622554681147-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Cook the macaroni for 7-8 min or until cooked with a slight bite
 
 Once cooked, drain the macaroni and save 120ml<span class="text-danger"> <span class="text-purple">[135ml]</span> [150ml]</span> starchy pasta water (save the pot for later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1622554715577-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Meanwhile, combine the chopped garlic, ground smoked paprika, tomato ketchup, to
 
 Add 25ml <span class="text-purple">[40ml]</span><span class="text-danger"> [50ml]</span> cold water and give everything a good mix up – this is your Kansas-style BBQ sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1622554725832-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Season your chicken breast portion[s] with a pinch of salt and pepper
 
 Once hot, add to the pan and cook for 3 min on each side or until lightly browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1622554753031-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add your soft cheese, remaining mustard ketchup, drained macaroni and most of th
 
 Add the starchy pasta water, give everything a good mix up and season with a pinch of salt and pepper – this is your cheesy macaroni
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1622554763990-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Put the dish in the oven and cook for 15 min or until bubbling and golden – th
 
 Tip: The cheese sauce will thicken in the oven!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1622554777141-x200.jpg)
 
 ### Step 7
 

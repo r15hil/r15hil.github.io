@@ -26,6 +26,7 @@ From street hawkers to high-end restaurants, you’ll find mie goreng everywhere
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723202035511-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal, then slice 
 
 Wash then cut your pak choi in half, separating the white base and green tops, then pat it dry with kitchen paper and chop the into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723202038393-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the carrot matchsticks and chopped pak choi white bases with a pinch of salt and pepper and cook for 6-8 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723202042159-x200.jpg)
 
 ### Step 3
 
@@ -55,16 +58,19 @@ Set aside to soak for 4 min or until softened
 
 Drain the soaked noodles, reserving a cup of starchy noodle water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1-1723202045866-x200.jpg)
 
 ### Step 4
 
 Combine your sambal with your ketjap manis, soy sauce, tomato ketchup and toasted sesame oil in a bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> boiled water – this is your mie goreng sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723202050151-x200.jpg)
 
 ### Step 5
 
 Once the veg has softened, add the chopped garlic and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723202054119-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Cover with a lid and cook for 2-3 min or until done to your liking
 
 Tip: Give your egg a little shake before you crack for a perfectly centred yolk
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723202057723-x200.jpg)
 
 ### Step 7
 

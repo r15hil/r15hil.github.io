@@ -22,6 +22,7 @@ A fabulously tasty curry in a hurry! Our curry powder gives authentic flavour in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1677058665524-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1674472156410-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Boil half a kettle
 
 Chop the tomatoes into large bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1674472164033-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Meanwhile, pat the haddock bites dry with kitchen paper
 
 Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1674472175511-x200.jpg)
 
 ### Step 4
 
 Add the curry powder, ground paprika, tomato paste and ginger & garlic paste to the pan and cook for 1 min further until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1674472180862-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Cook, covered, for 4-5 min further or until the fish is cooked through
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1674472193446-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1674472205334-x200.jpg)
 
 ### Step 7
 

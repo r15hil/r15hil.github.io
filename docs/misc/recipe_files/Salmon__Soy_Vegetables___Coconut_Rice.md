@@ -24,6 +24,7 @@ Here, we embrace South East Asian flavour and freshness. You'll learn how to coo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/493__step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Submerge the coconut cream sachet<span class="text-danger">[s]</span>&nbsp;in bo
 
 Meanwhile, peel and finely slice the red onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/493__step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once done, remove from the heat and leave covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/493__step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Deseed the red chilli<span class="text-danger">[es]</span>&nbsp;(scrape the seed
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/493__step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once hot, add the salmon, skin-side down, and cook for 2 min
 
 Meanwhile, combine the soy sauce and fish sauce with 2 tbsp <span class="text-danger">[4 tbsp]</span>&nbsp;sugar (brown sugar if you have it) in a bowl and mix well
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/493__step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Meanwhile, return the pan to a medium-high heat with 1 tbsp <span class="text-da
 
 Add the sliced onion, sugar snaps, garlic and chilli (can't handle the heat? Go easy!) and stir-fry for 3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/493__step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Meanwhile, halve the lime<span class="text-danger">[s]</span>
 
 Strip the mint leaves from their stalks and chop finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/493__step-7-x200.jpg)
 
 ### Step 7
 

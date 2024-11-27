@@ -27,6 +27,7 @@ A classic pathia is sweet and tangy, with a slight kick from the fragrant spices
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1620229920710-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Once the pan is hot, add the chopped onion with a generous pinch of salt and cook for 6-8 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1620229924642-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once hot, add the cumin seeds and cook for 1-2 min or until sizzling
 
 Once the cumin seeds start to sizzle, carefully add the basmati rice and stir it all together
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1620229927996-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Once cooked, remove from the heat and keep covered until serving – this is you
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620229933680-x200.jpg)
 
 ### Step 4
 
 While the rice is cooking, chop the cauliflower into small florets
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1620229942515-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once fragrant, add the ground cumin, curry powder and cayenne pepper (can't han
 
 Tip: Add a little more vegetable oil if the pan's looking a little dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620229938232-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the tamarind paste with 200ml<span class="text-danger"> [300ml] </span>boile
 
 Give everything a good mix up, then add the cauliflower florets and cook, covered, for 8-10 min or until the cauliflower is tender – this is your cauliflower pathia
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620229949312-x200.jpg)
 
 ### Step 7
 

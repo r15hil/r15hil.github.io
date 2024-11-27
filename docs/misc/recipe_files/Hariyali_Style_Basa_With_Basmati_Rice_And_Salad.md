@@ -30,6 +30,7 @@ Hariyali fish is a popular North Indian dish also known as 'green fish'. For thi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600417090119-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Slice half your green chilli[es] into rounds and set aside for garnish
 
 Chop the remaining green chilli[es] roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600417094372-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop your coriander roughly, including the stems
 
 Pick your mint leaves from their stems, discard the stems
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600417107083-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the mint leaves, chopped coriander and your natural yoghurt with a generous 
 
 Blitz until smooth – this is your Hariyali-style marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600417128511-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600417146611-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Combine the chopped tomato[es] and shredded lettuce in a large bowl and set asid
 
 In a separate bowl, combine the juice of the remaining lemon with 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt – this is your zingy lemon dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600417182899-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Season the chopped basa with a generous pinch of salt
 
 Add the seasoned basa to a bowl with the Hariyali-style marinade and give everything a good mix up – this is your marinated basa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600417195618-x200.jpg)
 
 ### Step 7
 

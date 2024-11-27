@@ -25,6 +25,7 @@ This creamy tofu pasta dish is a surefire winner. You’ll whip up an easy pea s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1673871526786-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Tear the tofu into bite-sized pieces and add to a bowl with your soy sauce
 
 Give everything a good mix up until all the tofu is coated – this is your marinated tofu
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1673871530503-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Top, tail and chop your courgette[s] into quarters lengthways, then chop into bi
 
 Peel and roughly chop your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1673871534957-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add half your blanched peas and half your chives (you'll use the rest later!) to
 
 Blitz until smooth – this is your pea & chive sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1673871539480-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once hot, add the marinated tofu to the pan and cook for 5-6 min, turning occasi
 
 Whilst the tofu is cooking, chop the remaining chives finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1673871545237-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni, reserving 75ml <span class="text-purple">[115ml]</span><span class="text-danger"> [150ml] </span>starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1673871549991-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once melted, add 20g <span class="text-purple">[30g] </span><span class="text-da
 
 Gradually whisk in the pea & chive sauce and cook for 2-3 min or until a smooth, thick sauce remains
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1673871557800-x200.jpg)
 
 ### Step 7
 

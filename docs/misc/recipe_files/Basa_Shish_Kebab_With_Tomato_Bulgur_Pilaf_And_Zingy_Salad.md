@@ -27,6 +27,7 @@ These Turkish-inspired kebabs are hold-me-back good. You'll marinate basa in lem
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624292048654-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Slice the basa fillets into thin strips, then add them to a bowl with the ground
 
 Season with a generous pinch of salt and pepper and give everything a good mix up, then put in the fridge to marinate until later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624292051977-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced red onion and cook for 6 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624292057206-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking!
 
 Dissolve the vegetable stock mix and tomato paste in 400ml <span class="text-danger">[750ml] </span>boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624292061182-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the tomato stock to the pan and bring to the boil over a high heat
 
 Once boiling, reduce the heat to low and cook, covered, for 15 min or until the water has absorbed and the bulgur is cooked – this is your tomato bulgur pilaf
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624292064556-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ While the bulgur wheat is cooking, preheat the grill to high
 
 Thread the marinated basa strips evenly onto 4 <span class="text-danger">[8] </span>soaked skewers, leaving a small gap between each piece – these are your basa shish kebabs
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624292068214-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 While the fish is cooking, add the natural yoghurt to a bowl with a pinch of salt and a small squeeze of lemon juice (save the rest for later!) – this is your lemon yoghurt
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624292071571-x200.jpg)
 
 ### Step 7
 

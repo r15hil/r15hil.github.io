@@ -26,6 +26,7 @@ This tahini chicken bowl is full of flavour and wholesome goodness. Nourishing q
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1348.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1348.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Grate 1/2 <span class="text-danger">[1]</span> red cabbage, discarding the tough
 
 Add the&nbsp;grated cabbage&nbsp;to the bowl, give everything a good mix up and set aside until later to pickle slightly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1348.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Combine the tahini, oregano, chopped garlic, 50ml&nbsp;<span class="text-danger"
 
 Place your hand flat onto the chicken breast<span class="text-danger">[s]</span>&nbsp;and slice in half as if you were cutting a burger bun
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1348.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced chicken breast and cook for 4-5 min on each side or until browned and cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1348.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,11 +86,13 @@ Dice the cucumber
 
 Chop the mint leaves finely, discarding the stalks (save some leaves for garnish!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1348.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the chicken is browned, add the tahini sauce and cook for 1-2 min further or until the sauce has thickened and coated the chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1348.-step-7-x200.jpg)
 
 ### Step 7
 

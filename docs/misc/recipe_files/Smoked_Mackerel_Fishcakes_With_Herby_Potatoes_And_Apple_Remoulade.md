@@ -22,6 +22,7 @@ If you love Scandi flavours, serve up crisp mackerel and leek fishcakes with her
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1765.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Heat a large, wide-based pan (preferably non-stick) with a large knob of butter�
 
 Once melted, add the sliced leek, a pinch of salt and 30ml<span class="text-danger"> [60ml]</span> cold water, then cook for 5 min or until the water has evaporated
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1765.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the halved potatoes to a pot of boiled water with a pinch of salt, bring to 
 
 Once cooked, drain and return to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1765.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Combine the flaked mackerel in a large bowl with the soft cheese, panko breadc
 
 Season with a pinch of both salt and pepper, knead well and divide the mixture into 2 <span class="text-danger">[4] </span>then shape into patties – these are your smoked mackerel fishcakes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1765.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once hot, add the smoked mackerel fishcakes and cook for 3-4 min on each side 
 
 Tip: Flip gently and resist moving the patties so they hold their shape!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1765.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Chop the chives finely (keep both herbs separate)
 
 Cut the apple<span class="text-danger">[s]</span> (skin on) into very fine matchsticks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1765.-step-6-x200.jpg)
 
 ### Step 6
 
 Combine the mayo, wholegrain mustard, chopped dill and apple matchsticks with a pinch of pepper – this is your apple remoulade
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1765.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ We've swapped lamb for delicious Meatless Farm mince for a plant-based take on o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2473Step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2473Step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ Once hot, add the diced onion, chopped ginger, chopped garlic and curry powd
 
 Cook for 4-5 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2473Step-3-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim the green beans and cut them in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2473Step-4-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Cook for 3-4 min, breaking it up with a wooden spoon as you go
 
 Add the vegetable stock mix and tomato paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2473Step-5-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Cook for a further 2 min or until the meat-free mince is starting to brown
 
 Stir in the basmati rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2473Step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Add the halved green beans and sultanas
 
 Once boiling, reduce the heat to low and cook, covered, for 10-12 min or until the water is absorbed and the rice is cooked
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2473Step-7-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ This super grain bowl (fibre-packed lentils and brown rice) is packed with flavo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1580806107771-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1580806112243-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Give it a good mix up until it forms a paste
 
 Add your chicken breast portion[s] to the plate and turn them until fully coated in the spice paste – this is your coated chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1580806116899-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add the coated chicken to a tin foil-lined baking tray (or two!) with the onion 
 
 Add a small drizzle of olive oil to the onion wedges and put the tray in the oven for 18-20 min or until cooked through and golden (no pink meat!) – this is your curried chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1580806121550-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Whilst the chicken is cooking, add the sliced red onion to a bowl with your cide
 
 Set aside to pickle – this is your quick-pickled onion
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1580806126118-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your cherry tomatoes in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1580806130504-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Wash your spinach, then pat dry with kitchen paper
 
 Drain the quick-pickled onion and discard the liquid
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1580806135480-x200.jpg)
 
 ### Step 7
 

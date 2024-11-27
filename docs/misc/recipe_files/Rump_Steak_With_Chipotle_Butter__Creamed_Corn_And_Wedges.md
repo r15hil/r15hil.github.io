@@ -26,6 +26,7 @@ Steak your claim on dinner tonight. Rustle up a juicy rump cut with a fragrant c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1639052577614-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel your potatoes and chop them into wedges, add them to a pot with plenty of b
 
 Once boiling, reduce the heat to medium and cook for 12 min, then drain and shake them around in the colander to fluff up the edges before baking, reserve the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1639052587502-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Meanwhile, top, tail and slice your courgette[s] into thick discs on a diagonal,
 
 Add a knob of butter to a heatproof bowl and put it in the microwave for 10 secs or until slightly softened (not melted!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1639052610263-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Strip your mint leaves from their stems, discard the stems, then chop most of th
 
 Combine the chopped herbs and half the chopped garlic (save the rest for later!) with the softened butter and mix until combined – this is your herby butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1639052617310-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Put the chipotle butter in the fridge to cool, then reboil half a kettle
 
 Add the parboiled wedges to the other side of the baking tray[s] with a drizzle of vegetable oil and a generous pinch of salt and add to the oven for 25 min or until crispy and golden
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1639052621819-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Return the reserved pot to a medium heat with a little drizzle of vegetable oil 
 
 Add the drained sweetcorn to the pot with your soft cheese and 150ml<span class="text-purple"> [195ml] </span><span class="text-danger">[250ml]</span> boiled water and cook for 7-8 min or until thickened, then remove from the heat and set aside until later – this is your creamed corn base
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1639052627726-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ When the wedges have 15 min left, heat a large, wide-based pan (preferably non-s
 
 For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on each side; for medium, cook for 3-4 min on each side
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1639052632539-x200.jpg)
 
 ### Step 7
 

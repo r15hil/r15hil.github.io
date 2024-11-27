@@ -26,6 +26,7 @@ Biryani is dished up by street vendors across India, where rich curry is layered
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629302996729-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Cut the carrot<span class="text-danger">[s]</span> (no need to peel) and green b
 
 Peel and finely chop the garlic and ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629303002171-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the chopped onion, carrot and green beans with a pinch of salt and
 
 Once softened, add the curry powder, half the cumin seeds (save the rest for later!) and the chopped garlic and ginger and cook for 1 min further or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629303007000-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Cook the rice for 7-8 min or until cooked with a slight bite
 
 Once done, drain the rice and return it to the pan with a knob of butter (or butter alternative)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629303011368-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Chop the tomatoes finely
 
 Once the spices are fragrant, add the tomato stock and chopped tomatoes to the pan and cook, covered, for 8 min or until the sauce has thickened slightly and the vegetables are cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629303016316-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Top the vegetable layer with half of the cooked rice and repeat this process unt
 
 Tear half of the mint leaves over the rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629303021662-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Brush with a little milk (or milk alternative) and sprinkle over the remaining c
 
 Cut 2 holes in the pastry and put the dish in the oven for 15-18 min or until cooked through – this is your veggie biryani
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629303026831-x200.jpg)
 
 ### Step 7
 

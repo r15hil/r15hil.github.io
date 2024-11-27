@@ -31,6 +31,7 @@ Turn up the heat with this Indian-inspired veggie tray bake. You’ll roast gara
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-7-1699434889303-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop your potatoes (skins on) into bite-sized pieces
 
 Peel and chop half your brown onion[s] into wedges, then finely slice the remaining brown onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-8-1699434901703-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Sprinkle over your ground turmeric, black mustard seeds and half your curry powd
 
 Put the tray[s] in the oven for an initial 15 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-7-1699434908757-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Cut your paneer into 4 strips per person
 
 Wash, then rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-7-1699434928235-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add the paneer strips to the plate and turn them several times until fully coate
 
 After the Bombay potatoes have had an initial 15 min, add the coated paneer to the other side of the tray[s] with a drizzle of vegetable oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-7-1699434933313-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Line a separate baking tray with a large piece of tin foil and add the sliced sp
 
 Scrunch the edges of the foil to form a sealed parcel and put the tray in the oven for 10-12 min or until the greens are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-7-1699434942616-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, add the sliced onion to the pan and cook for 2-3 min or until the onio
 
 Dissolve your vegetable stock mix and tomato paste in 200ml<span class="text-purple"> [260ml]</span> <span class="text-danger">[350ml] </span>boiled water – this is your tomato stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-7-1699434949349-x200.jpg)
 
 ### Step 7
 

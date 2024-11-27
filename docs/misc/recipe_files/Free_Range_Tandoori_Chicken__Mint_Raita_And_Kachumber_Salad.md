@@ -25,6 +25,7 @@ For a quick tandoori-style dish, you'll char marinated chicken under the grill t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1698840383279-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Add your basmati rice, nigella seeds, a pinch of salt and 300ml <span class="te
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your nigella rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1698840386948-x200.jpg)
 
 ### Step 2
 
 Chop your free range chicken breast portion[s] into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1698840390683-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Combine half of your natural yoghurt (you'll use the rest later!) and your curry
 
 Add the chopped chicken pieces and mix well until they're completely coated – this is your coated chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1698840395042-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Cover a baking tray (or two!) with tin foil (to avoid mess!)
 
 Add the coated chicken to the baking tray[s] and put it under the grill for 10-12 min or until the chicken is cooked through and starting to char (no pink meat!) – this is your free range tandoori chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1698840398774-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Peel and finely dice your shallot[s]
 
 Dice your tomato[es]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1698840404130-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Combine the diced cucumber, tomato and shallot in a bowl with 1 tbsp <span class
 
 Season with a pinch of salt – this is your kachumber salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1698840408606-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Try something new with this aromatic fish dish, steamed 'en papillote' (in a par
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637071288224-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Wash your pak choi, trim off the roots and discard, then separate the leaves
 
 Cut pieces of baking paper (or tin foil) approx. the size of A3 sheets of paper, then lay the pak choi leaves in the middle of 2 pieces of baking paper (doubling it up prevents any leakages) and add to a baking tray (or two!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637071291919-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Tip: Not a fan of spice? Remove the seeds!
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637071296088-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Combine the chopped creamed coconut in a jug with your tamari soy sauce, ginger 
 
 Mix until fully combined – this is your fiery coconut sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637071302529-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Rinse your blanched edamame beans under cold running water
 
 Sprinkle the edamame beans over the pak choi, then top with half the sliced red chilli (not a fan of spice? Just add a little!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637071310940-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Top with your cod fillet[s], then divide the remaining fiery coconut sauce evenl
 
 Scrunch the edges of the baking paper around the fish to form 1 sealed parcel per person, making sure to leave space between the top of the fish and the paper (this is to prevent sticking)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637071318998-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Put the tray[s]<span class="text-danger"> </span>in the oven for 15 min or until
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637071330245-x200.jpg)
 
 ### Step 7
 

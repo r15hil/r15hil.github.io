@@ -24,6 +24,7 @@ This simple salad brings together the classic flavour combination of pork, apple
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1483.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil a kettle
 
 Peel and chop your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1483.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add your fennel seeds to a pestle & mortar with 1 tsp <span class="text-purple">
 
 Grind to a coarse powder, add a drizzle of olive oil and mix to combine – this is your fennel paste
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1483.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the onion wedges to the tray with a drizzle of olive oil and a pinch of salt
 
 Put the tray in the oven for 15-20 min or until cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1483.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once done, drain and rinse under cold water until cool
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1483.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,11 +70,13 @@ Meanwhile, combine your wholegrain mustard, cider vinegar and onion marmalade wi
 
 Season with a pinch of salt and pepper – this is your mustard & onion dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1483.-step-6-x200.jpg)
 
 ### Step 6
 
 Finely slice your apple[s], discarding the core[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1483.-step-7-x200.jpg)
 
 ### Step 7
 

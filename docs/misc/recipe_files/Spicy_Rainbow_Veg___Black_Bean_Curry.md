@@ -32,6 +32,7 @@ This veg-packed curry is low in carbs and seriously tasty! The black beans add t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1606305351911-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Crush your garlic open by squashing with the side of a knife and discard the ski
 
 Add the crushed garlic and halved onion to a food processor and blitz until finely chopped – this is your onion & garlic paste
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1606305356710-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once hot, add the onion & garlic paste, curry powder, ground paprika, chilli fla
 
 Give everything a good mix and cook for 2-3 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1606305361999-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Meanwhile, deseed your peppers (scrape the seeds and pith out with a teaspoon) a
 
 Chop your Tenderstem broccoli in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1606305367467-x200.jpg)
 
 ### Step 4
 
@@ -66,16 +70,19 @@ Wash your spinach then pat dry with kitchen paper
 
 Add the halved Tenderstem broccoli, chopped peppers and spinach to the pan with a splash of cold water, mix everything together and cook for 1-2 min or until the spinach has wilted
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1606305373577-x200.jpg)
 
 ### Step 5
 
 Drain and rinse your black beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1606305379345-x200.jpg)
 
 ### Step 6
 
 Add the drained black beans and chopped tomatoes to the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1606305384609-x200.jpg)
 
 ### Step 7
 

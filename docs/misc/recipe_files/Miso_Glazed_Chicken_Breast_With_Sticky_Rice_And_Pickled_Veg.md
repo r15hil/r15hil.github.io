@@ -28,6 +28,7 @@ Take your chicken dinner up a level with this umami-packed miso glaze. You’ll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1717155606125-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Rinse your sushi rice in a sieve under cold running water for 30 secs (use your 
 
 Add the drained rice with 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml] </span>cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1717155609252-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1717155639000-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Top, tail and slice your radishes (as finely as you can)
 
 Peel your carrot[s], and continue to peel lengths until you end up with a pile of carrot ribbons
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1717155642814-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Meanwhile, add the carrot ribbons and sliced radishes to a bowl with your rice v
 
 Give everything a good mix up and set aside for later – this is your pickled veg
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1717155650329-x200.jpg)
 
 ### Step 5
 
 Add your white miso paste, honey, ginger & garlic paste and mirin to a bowl with 1/2 tbsp<span class="text-purple"> [3/4 tbsp]<span class="text-danger"> </span>[1 tbsp] </span>boiled water and stir it all together – this is your miso glaze
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1717155654602-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add a couple of splashes of water and the miso glaze to the pan
 
 Cook for a further 10-12 min, covered, or until the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1717155658830-x200.jpg)
 
 ### Step 7
 

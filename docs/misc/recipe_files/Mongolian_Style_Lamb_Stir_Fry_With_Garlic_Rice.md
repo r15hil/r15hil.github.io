@@ -30,6 +30,7 @@ An Aussie takeaway favourite, this stir-fry owes its tasty roots to Northern Chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1685604988499-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a pot with a matching lid over a low heat and add a knob of butter
 
 Once melted, add the chopped garlic with a pinch of salt and cook for 1 min or until fragrant
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1685604997605-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your garlic rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1685605002410-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Slice each individual carrot disc into matchsticks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1685605006101-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once hot, add your lamb mince with a generous pinch of salt and cook for 3-4 min
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1685605009725-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the mince is browned, add the onion petals and carrot matchsticks to the pa
 
 Cook for 4-5 min, stirring frequently until starting to soften and the mince is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1685605013273-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add your soy sauce, Chinese rice wine, five-spice mix and half your chilli flake
 
 Season with a generous pinch of salt and a pinch of sugar – this is your hoisin stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1685605017758-x200.jpg)
 
 ### Step 7
 

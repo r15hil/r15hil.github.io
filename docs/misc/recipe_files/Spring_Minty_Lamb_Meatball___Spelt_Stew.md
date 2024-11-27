@@ -25,6 +25,7 @@ Put a spring in your step with these juicy lamb meatballs. You’ll sizzle your 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678294389584-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Top, tail, peel and slice your carrot[s]<span class="text-danger"> </span>into d
 
 Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then top, tail and chop into large chunks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678294413450-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Give everything a good mix up – this is your lamb mixture
 
 Divide the lamb mixture<span class="text-danger"> </span>and shape into 3 meatballs per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678294423059-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add the lamb meatballs to the pan and cook for 2 min on each side unti
 
 Once the meatballs have browned, transfer them to a plate and set aside, these will finish cooking in the sauce later (reserve the pan!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678294431637-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Return the reserved pan to a medium heat with a knob of butter and a drizzle of 
 
 Once hot, add the chopped leek with a pinch of salt and pepper and cook for 4-5 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678294440431-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ While the leek is cooking, dissolve your chicken stock mix and soy sauce in 650m
 
 Once the leek is soft, add the remaining chopped garlic and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> flour and cook for 30 secs or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678294463731-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once fragrant, add the chicken stock, spelt and bay leaf[ves]<span class="text-d
 
 Once boiling, reduce the heat to medium and cook, covered, for an initial 13 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678294472590-x200.jpg)
 
 ### Step 7
 

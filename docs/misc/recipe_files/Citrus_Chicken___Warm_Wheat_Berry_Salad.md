@@ -24,6 +24,7 @@ This zesty lemon chicken dish is served with a simple wheat berry salad packed w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/343__step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the wheat berries to a large pot with plenty of boiled water and a pinch of 
 
 Cook over a high heat for 10 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/343__step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Trim, then finely&nbsp;slice the spring onions&nbsp;
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/343__step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ When the beans are tender, drain and return to the pot
 
 Add the chopped tomatoes, radishes and spring onions&nbsp;to the drained wheat berries and set aside&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/343__step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,6 +84,7 @@ Add the sliced chicken to the bowl of lemon zest with a generous drizzle of oliv
 
 Give everything a good old mix up
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/343__step-5-x200.jpg)
 
 ### Step 5
 
@@ -97,6 +102,7 @@ Chop the chives and parsley finely, including the stalks&nbsp;
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/343__step-6-x200.jpg)
 
 ### Step 6
 
@@ -111,6 +117,7 @@ Cook for 30 sec-1 min or until melted&nbsp;
 
 Add the chopped capers and the juice of 1/2 <span class="text-danger">[1]</span> lemon and a pinch of salt&nbsp;&ndash; this is your caper butter dressing&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/343__step-7-x200.jpg)
 
 ### Step 7
 

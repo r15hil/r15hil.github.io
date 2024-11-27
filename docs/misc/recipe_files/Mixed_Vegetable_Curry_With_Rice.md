@@ -26,6 +26,7 @@ Curry night just got even easier. You’ll simmer potato, red pepper, green bean
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678954018389-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil half a kettle
 
 Chop your potato[es] into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678954021289-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped potato with a pinch of salt and cook for 3-4 min or until lightly golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678954024422-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Meanwhile, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon)
 
 Trim, then chop your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678954028154-x200.jpg)
 
 ### Step 4
 
@@ -54,11 +58,13 @@ Once the potato is lightly golden, add your tomato paste to the pan with your gi
 
 Give everything a good mix up and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678954031366-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add 300ml <span class="text-purple">[400ml]</span> <span class="text-danger">[500ml]</span> boiled water with your vegetable stock mix and a pinch of sugar and salt and mix it all together
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678954034136-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Once boiling, reduce the heat to medium and cook, covered, for an initial 10-12 
 
 After the initial 10 min, remove the lid and cook for a final 4-5 min – this is your mixed vegetable curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678954038511-x200.jpg)
 
 ### Step 7
 

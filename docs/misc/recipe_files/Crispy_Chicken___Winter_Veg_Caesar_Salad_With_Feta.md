@@ -24,6 +24,7 @@ Go back to your roots with this wintery twist on the classic caesar salad. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1670333240905-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Pat your chicken thighs dry with kitchen paper and season them on both sides with half your dried sage and a generous pinch of salt, then add skin-side down and cook for 10 min or until the skins have browned and crisped
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1670333244745-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Meanwhile, top, tail, peel and chop your parsnip[s] in half lengthways, then int
 
 Drain your beetroot in a colander over the sink, then chop it roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1670333248024-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Line a baking tray (or two!) with baking paper
 
 Add the chopped beetroot and parsnip batons to the lined baking tray[s] with a drizzle of vegetable oil and a generous pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1670333251468-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Once browned, transfer the crispy chicken thighs, skin side up, to the baking tr
 
 Put the tray[s] in the oven for 20-25 min or until the veg is roasted and tender and the chicken is cooked through (no pink meat!) – this is your crispy chicken & roast winter veg
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1670333261511-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Peel and grate (don't chop!) your garlic
 
 Crumble your feta
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1670333264878-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add your white wine vinegar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span
 
 Give everything a good mix up – this is your winter Caesar dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1670333268390-x200.jpg)
 
 ### Step 7
 

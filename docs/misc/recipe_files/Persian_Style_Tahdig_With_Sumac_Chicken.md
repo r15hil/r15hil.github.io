@@ -28,6 +28,7 @@ Tahdig, meaning ‘bottom of the pot’ is a Persian crowdpleaser. To make yours
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680105449919-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680105455236-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the diced onion and cook for 2-3 min or until softened
 
 Once softened, add half the chopped garlic (you'll use the rest later!) and ground turmeric and cook for a further 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680105462213-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add 300ml <span class="text-purple">[390ml]</span> <span class="text-danger">[60
 
 Once boiling, top the rice with your sultanas, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680105467044-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine the diced chicken thigh and remaining chopped garlic in a bowl with your
 
 Give everything a good mix up – this is your spiced chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680105471627-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once hot, add the spiced chicken and cook for 8-10 min or until cooked through (
 
 Once cooked through, add your spinach and cook for 2-3 min or until the spinach has wilted – this is your sumac chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680105475443-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the rice has cooked, increase the heat to medium-high and cook, covered, fo
 
 Tip: don't worry if some has stuck, just scrape it out, the crispy bits are the best bit!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680105479425-x200.jpg)
 
 ### Step 7
 

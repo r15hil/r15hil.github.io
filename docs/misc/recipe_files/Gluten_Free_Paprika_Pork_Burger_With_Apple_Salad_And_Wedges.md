@@ -24,6 +24,7 @@ For this smoky pork burger, you'll sizzle juicy pork with smoked paprika, then s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679311966467-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the potato wedges to a baking tray with a drizzle of vegetable oil, then se
 
 Give everything a good mix up and put the tray in the oven for 20-25 min until crisp – these are your paprika wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679311985957-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Combine your pork mince (remove the paper if required!) with the remaining groun
 
 Divide and shape into patties for 1 per person and refrigerate (this helps them hold their shape whilst cooking) – these are your paprika pork patty[ies]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679311990215-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Slice your gluten free brioche buns in half
 
 Once the pan is hot, add the brioche halves, cut-side down, and cook for 3 min or until lightly toasted, then set aside until serving and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679311994927-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the red onion rings and cook for 4-5 min or until the onions have
 
 Once caramelised, set aside until serving and reserve the pan – these are your caramelised onion rings
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679312006616-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Meanwhile, combine your red wine vinegar, mayo, remaining sliced spring onion, 
 
 Slice your apple[s] (skin on) thinly, discard the core[s] then add to the salad dressing and give everything a good mix up – this is your dressed apple
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679312021781-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Tip: Cooking for 5? You may need to do this in batches!
 
 Flip each paprika pork patty and reduce the heat to medium-high and cook for 5 min further until cooked through and charred (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679312078315-x200.jpg)
 
 ### Step 7
 

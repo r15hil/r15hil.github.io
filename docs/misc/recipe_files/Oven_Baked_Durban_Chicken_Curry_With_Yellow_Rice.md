@@ -31,6 +31,7 @@ This South African staple is extra crispy and packed with curry spices. Pair you
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-6-1705061411856-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have o
 
 Take your chicken out of the fridge, open the packet and let it air
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-42-1705061421714-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Once hot, add your chicken thighs with a pinch of salt, skin-side down and cook for 3 min or until golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-44-1705061426793-x200.jpg)
 
 ### Step 3
 
@@ -62,11 +65,13 @@ Chop your tomato[es] into quarters
 
 Peel and chop your brown onion[s]<span class="text-danger"> </span>into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-43-1705061432221-x200.jpg)
 
 ### Step 4
 
 Once browned, remove the chicken from the dish and add the chopped potato, chopped tomato, onion wedges, curry powder, garam masala and tomato paste to the casserole dish with 1 tbsp <span class="text-purple">[1 1/2]</span><span class="text-danger"> [2 tbsp]</span> flour
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-41-1705061437717-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Bring to the boil, then return the chicken to the dish, skin side up
 
 Put the dish in the oven, lid off, for an initial 30-35 min or until the chicken is cooked through (no pink meat!) and the potatoes are tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-39-1705061441452-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add your white long grain rice to an oven-proof dish with 300ml <span class="tex
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your yellow rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-31-1705061445919-x200.jpg)
 
 ### Step 7
 

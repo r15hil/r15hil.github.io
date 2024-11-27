@@ -22,6 +22,7 @@ Add some pizzazz to your salad with this creamy, lemony avocado dressing. Drizzl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1631017876324-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Tear your ciabatta[s] into rough, bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1631017883989-x200.jpg)
 
 ### Step 2
 
@@ -36,6 +38,7 @@ Add the torn ciabatta[s] to a baking tray with a drizzle of olive oil and a pinc
 
 Put the tray in the oven for 5 min or until golden and crisp – these are your croutons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1631017938527-x200.jpg)
 
 ### Step 3
 
@@ -43,6 +46,7 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and dice roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1631017948500-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Chop your basil roughly, including the stalks
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1631017984424-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Add the juice of half your lemon[s], 1 tbsp <span class="text-purple">[1 1/2 tbs
 
 Blitz until smooth – this is your avo dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1631018015919-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once hot, drain your king prawns, then add them to the pan with the remaining sl
 
 Once cooked, squeeze in the juice of the remaining lemon – these are your lemony king prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1631018039058-x200.jpg)
 
 ### Step 7
 

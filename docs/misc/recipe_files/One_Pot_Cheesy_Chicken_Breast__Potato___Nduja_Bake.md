@@ -24,6 +24,7 @@ Because of the flavour-packed 'Nduja sausage, this spicy one-pot takes no time t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1729851180331-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1729851225692-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Add your 'Nduja to the dish, breaking it into small chunks and cook for 1 min or until it begins to release its oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1729851235479-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Chop your potatoes (skins on) into small, rough pieces
 
 Chop your tomato[es]<span class="text-danger"> </span>into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1729851242810-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add your diced chicken breast to the dish with the chopped potatoes, red onion w
 
 Give everything a good stir and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1729851250260-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once boiling, cover the dish with a lid and put it in the oven for 35-40 min or 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1729851256315-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Wash your salad, then pat dry with kitchen paper
 
 Add the salad to a bowl with a drizzle of olive oil and your balsamic vinegar and season with a pinch of salt and pepper – this is your dressed salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1729851264723-x200.jpg)
 
 ### Step 7
 

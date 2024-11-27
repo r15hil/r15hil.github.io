@@ -28,6 +28,7 @@ Shake up a childhood classic with this adventurous twist. You'll coat fish in cu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1133.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Slice each half into 3 pieces (roughly the size and shape of fish fingers) so th
 
 Add your curry powder and a pinch of salt to a plate with the fish fingers and coat them in the spices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1133.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Coat the fish fingers in the flour, tap off any excess, then add them to the bea
 
 Add the breaded fish fingers to a plate and pop them in the fridge until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1133.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Add the chopped potatoes to a pot of boiled water with a pinch of salt, bring to
 
 Once done, drain, set aside and reserve the pot for later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1607623711650-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Peel and finely slice (don't chop!) your garlic
 
 Combine your mayo with your mango chutney in a small bowl – this is your mango mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1133.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once hot, add the sliced onion[s] with a generous pinch of salt and cook for 3-
 
 Once softened, add the sliced garlic, drained potatoes, your ground turmeric, garam masala and nigella seeds and cook for 7-8 min or until crisp and golden – these are your masala potatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1133.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Put the tray in the oven and cook for 12-15 min or until the fish is golden, cri
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1133.-step-7-x200.jpg)
 
 ### Step 7
 

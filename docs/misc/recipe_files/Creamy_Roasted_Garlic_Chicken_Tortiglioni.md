@@ -24,6 +24,7 @@ Roasting the garlic beforehand helps add a delicious depth of flavour to this cr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1597746321151-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut 1 piece<span class="text-danger"> </span>of baking paper (or tin foil) appro
 
 Lay the garlic cloves (skins on) in the middle of the paper, drizzle with olive oil and season with a pinch of salt, then scrunch the edges of the baking paper together around the garlic to form a sealed parcel
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1597746339456-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the chicken breast portions to one side of a baking tray with a drizzle of o
 
 Add the garlic parcel to the other side of the tray and put the tray in the oven for 15-20 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1597746363975-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite
 
 Once done, drain the tortiglioni and drizzle with a little olive oil in the colander, reserve the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1597746375837-x200.jpg)
 
 ### Step 4
 
@@ -58,11 +62,13 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Dissolve the chicken stock mix in 50ml <span class="text-danger">[100ml] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1597746405791-x200.jpg)
 
 ### Step 5
 
 Combine the balsamic vinegar with 2 tbsp<span class="text-danger"> [4 tbsp]</span> olive oil and a pinch of salt in a bowl and give everything a good mix – this is your balsamic dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1597746425149-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the chicken is done, carefully squeeze the roasted garlic out of the skins 
 
 Return the drained tortiglioni and mashed roasted garlic to the pot and mix it all up – this is your creamy roasted garlic tortiglioni
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1597746455596-x200.jpg)
 
 ### Step 7
 

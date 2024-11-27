@@ -28,6 +28,7 @@ Our rich ‘Nduja stew is packed with veg and topped with crispy, melt-in-the-mo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1663092164811-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663092295560-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Boil a full kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of olive oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663092301437-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Season with a generous pinch of salt and rub it into the criss-cross pattern
 
 Add the scored pork belly, fat-side down, to the dish and cook for 2 min or until the fat is golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1663092304409-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Top, tail and chop your carrot[s] into quarters lengthways, then into batons
 
 Once golden, transfer the golden pork belly to a plate and reduce the heat to medium
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1663092326631-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add your roasted garlic paste, Chinese rice wine, fennel seeds, 300ml <span clas
 
 Tear your 'Nduja into the dish (can't handle the heat? Go easy!), give everything a good mix up and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1663092331763-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Put the dish in the oven and cook, uncovered, for an initial 50 min – this is 
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1663092339612-x200.jpg)
 
 ### Step 7
 

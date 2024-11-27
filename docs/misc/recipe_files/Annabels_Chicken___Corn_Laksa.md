@@ -27,6 +27,7 @@ Mealtimes should be about exploring a world of flavour, and Annabel’s Asian-in
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1054_step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the chicken breast fillet<span class="text-danger">[s]</span> to a baking tr
 
 Put the tray in the oven for 15-20 min or until cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1054_step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Set aside for 15 min or until the noodles have softened and are tender
 
 Once done, drain the noodles and divide them between bowls
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1054_step-3-x200.jpg)
 
 ### Step 3
 
@@ -66,6 +69,7 @@ Heat a large,&nbsp;wide-based deep pan or pot (preferably non-stick)&nbsp;with a
 
 Once hot, add the chopped onion and garlic with a pinch of salt and cook for 6-8 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1054_step-4-x200.jpg)
 
 ### Step 4
 
@@ -80,6 +84,7 @@ Remove the coconut cream from&nbsp;the sachet<span class="text-danger">[s]</span
 
 Combine&nbsp;the green curry paste, chopped&nbsp;coconut cream, chicken stock cube<span class="text-danger">[s]</span>,&nbsp;1 tsp<span class="text-danger"> [2 tsp]</span> sugar&nbsp;and soy sauce&nbsp;with 750ml<span class="text-danger"> [1.5L]</span> boiled water&nbsp;&ndash; this is your laksa stock&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1054_step-5-x200.jpg)
 
 ### Step 5
 
@@ -94,6 +99,7 @@ Once boiling, reduce the heat to medium and add the garden peas and&nbsp;sweetco
 
 Cook for 4 min or until the peas are tender&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1054_step-6-x200.jpg)
 
 ### Step 6
 
@@ -114,6 +120,7 @@ Taste for seasoning, adding&nbsp;salt&nbsp;and&nbsp;pepper&nbsp;if needed
 
 &nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1054_step-7-x200.jpg)
 
 ### Step 7
 

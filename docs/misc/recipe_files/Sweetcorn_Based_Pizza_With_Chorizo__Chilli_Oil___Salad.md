@@ -25,6 +25,7 @@ Give your pizza party a creamy twist. You’ll blitz a speedy sweetcorn purée f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680018300218-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a pot with 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class
 
 Once hot, carefully pour the heated oil into the bowl, give it a good mix up and set aside for later, reserving the pot – this is your chilli oil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680018316940-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and finely chop (or grate) your garlic
 
 Drain your sweetcorn
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680018325898-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once fragrant, add your chicken stock mix and 50ml <span class="text-purple">[75
 
 Once boiling, reduce the heat to medium and cook for 3-4 min further or until the sweetcorn is tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680018333724-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Meanwhile, drain your mozzarella, then pat and squeeze as much liquid out as you
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680018393972-x200.jpg)
 
 ### Step 5
 
 Once tender, add the sweetcorn to a food processor with a splash of milk and a generous grind of black pepper and blitz until smooth – this is your sweetcorn purée
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680018404878-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Divide the sweetcorn purée between the pizza bases and spread it evenly all
 
 Top with your diced chorizo and torn mozzarella and return the tray[s] to the oven for 12-15 min or until the cheese has melted and the bases are crisp – these are your chorizo & sweetcorn pizzas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680018413094-x200.jpg)
 
 ### Step 7
 

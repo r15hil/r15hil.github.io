@@ -27,6 +27,7 @@ Everything tastes better with garlic. You’ll smother brioche with garlic butte
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724229726732-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut your potatoes (skins on) into fries
 
 Strip your rosemary leaves from their stems and chop them roughly, discard the stems
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724229730319-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the fries and chopped rosemary to a baking paper-lined baking tray (or two!)
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your rosemary fries
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724229734128-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Put the tray in the oven for an initial 20 min
 
 Meanwhile, peel and finely slice your red onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724229737900-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the sliced onion, half your balsamic vinegar (you'll use the rest 
 
 Reduce the heat to very low and cook for 10-12 min or until softened and caramelised – this is your balsamic caramelised onion
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724229741230-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add a generous knob of butter to a bowl with the chopped garlic, chopped parsley
 
 Tip: If your butter is not soft then microwave for a few secs or until soft to the touch but not melted!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724229769619-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once the sausage[s] has had an initial 20 min remove the tray from the oven and 
 
 Return the tray to the oven for 2-3 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724229772815-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ This delicious dinner will have you dreaming of German Christmas markets. You'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1636999901162-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Line a baking tray with non-stick baking paper
 
 Cut your potatoes (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1636999908537-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put the tray[s] in the oven for 25-30 min or until the sausages are cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1636999913967-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the sliced onion with a generous knob of butter alternative, a pin
 
 Cook for 12-15 min or until golden and caramelised, then transfer them to a bowl and reserve the pan for later – these are your caramelised onions
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1636999921781-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Roughly chop your dried cranberries and grate your apple[s]
 
 Combine the chopped sprouts with the chopped cranberries, grated apple, your mayo, white wine vinegar and a generous pinch of salt and pepper – this is your Brussels sprout slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1636999928936-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add a splash of cold water and cook for 2-3 min or until the sauce has thickened
 
 Once the curry ketchup has thickened, remove the pan from the heat and set aside for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1636999936696-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Return the tray[s]<span class="text-danger"> </span>to the oven for 2-3 min or u
 
 Chop the cooked meat-free sausages into small bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1636999946692-x200.jpg)
 
 ### Step 7
 

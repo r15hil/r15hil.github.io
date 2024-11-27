@@ -24,6 +24,7 @@ It’s all about the glaze on this sticky, spicy pork belly. You’ll smother yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1714736538554-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut your pork belly lengthways into 3 slices per person and then pat dry with ki
 
 Season with a generous pinch of salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1714736570849-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the pork belly slices to an ovenproof dish and cover with tin foil
 
 Put the dish in the oven for an initial 20-25 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1714736617781-x200.jpg)
 
 ### Step 3
 
@@ -49,11 +52,13 @@ Add the chips to a baking tray (or two!) with a pinch of salt and a drizzle of v
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1714736642578-x200.jpg)
 
 ### Step 4
 
 Meanwhile combine your sriracha (can't handle the heat? Go easy!) and honey in a small bowl with a drizzle of vegetable oil and a pinch of salt – this is your sriracha honey glaze
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1714736655613-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Top, tail, peel and grate your carrot[s]
 
 Trim, then slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1714736667345-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Add the chopped apple, grated carrot and sliced spring onion to a bowl with your
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your slaw
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1714736686500-x200.jpg)
 
 ### Step 7
 

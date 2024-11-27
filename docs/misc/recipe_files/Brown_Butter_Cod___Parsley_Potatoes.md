@@ -20,6 +20,7 @@ The twist to this classic, clean dish is in the vinaigrette; made by soaking cho
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/661.step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut the waxy potatoes (skins on) into thick discs
 
 Add the potatoes to a pot of boiled water with a large pinch of salt and cook over a high heat for 15 min or until they're fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/661.step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Meanwhile, peel and dice 1/2 <span class="text-danger">[1]</span> shallot fi
 
 Add the white wine vinegar and set aside to pickle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/661.step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Add the hazelnuts to a small baking tray or heatproof dish
 
 Put them in the oven for 5 min or until they have darkened in colour and started to crack slightly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/661__-step-4-x200.jpg)
 
 ### Step 4
 
 Chop the parsley finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/661_step-5-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Cook the potatoes and green vegetables together for a further 4 min, then drai
 
 Once done, leave the toasted hazelnuts to cool slightly then chop them roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/661.step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Pat the cod fillets dry, rub them with a little vegetable oil and season both s
 
 Once hot, add the cod to the pan and cook for 4 min, carefully flipping once halfway through (your fish is cooked once it flakes easily), then transfer to a plate and keep the pan for the next step
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/661.step-7-x200.jpg)
 
 ### Step 7
 

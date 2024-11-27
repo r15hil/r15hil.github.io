@@ -27,6 +27,7 @@ To whip up a tasty risotto in half the time, you'll swap rice for a rice-shaped 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1678194893960-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely dice your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1678194898976-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Tip: If your butter is not soft then microwave for a few secs or until soft to t
 
 Add your portobello mushroom[s] to a baking tray and top with the garlic butter, then put the tray in the oven for 20-25 min or until the mushroom[s] is tender and juicy – this is your garlic roasted portobello mushroom
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1678194907418-x200.jpg)
 
 ### Step 3
 
@@ -56,11 +59,13 @@ Once hot, tear your chestnut mushrooms roughly into the pan and cook for 4-5 min
 
 Once the mushrooms have browned, add the diced onion to the pan with a pinch of salt and cook for 2-3 min or until beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1678194915630-x200.jpg)
 
 ### Step 4
 
 Dissolve your vegetable stock mix in 400ml <span class="text-purple">[520ml]</span> <span class="text-danger">[700ml]</span> boiled water and 100ml <span class="text-purple">[125ml]</span> <span class="text-danger">[150ml]</span> milk – this is your stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1678194924032-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the stock and soft cheese and cook, covered, stirring frequently, for 10-12
 
 Tip: Stirring the orzo will release the starch from the pasta, making it creamier!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1678194931515-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ While the orzo is cooking, grate your cheddar cheese
 
 Chop your basil finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1678194940588-x200.jpg)
 
 ### Step 7
 

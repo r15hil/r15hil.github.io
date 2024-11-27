@@ -24,6 +24,7 @@ Low carb comfort doesn't get much better than this. You'll add blitzed cauliflow
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1615470589538-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the conchiglie to a pot of boiled water with a large pinch of salt and bring
 
 Cook the conchiglie for an initial 4-5 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1615470566386-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once done, drain and set aside in the colander
 
 Reserve the pot for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1615470649987-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and roughly chop the garlic
 
 Dissolve the veg stock mix in 250ml <span class="text-danger">[450ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1615470949898-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the veg stock with 200g<span class="text-danger"> [400g] </span>of the reser
 
 Tip: Roast any remaining cauliflower with some spices for a tasty snack!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1615470965255-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Blitz the cauliflower mixture with a (stick) blender until smooth – this is yo
 
 Tip: Alternatively, transfer everything to a food processor and blitz!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1615471045905-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Transfer to an oven-proof dish and top with grated Italian hard cheese
 
 Put the dish in the oven for 15-20 min or until bubbling and golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1615471122394-x200.jpg)
 
 ### Step 7
 

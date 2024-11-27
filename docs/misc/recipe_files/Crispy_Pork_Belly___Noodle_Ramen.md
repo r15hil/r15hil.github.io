@@ -25,6 +25,7 @@ Learn to make a steaming bowl of Japanese comfort food at home, with crispy roas
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/854.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Boil a kettle
 
 Score the fatty side of the pork belly in a criss-cross pattern by drawing a sharp knife through the skin, deep enough to reach the meat below
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/854.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat
 
 Once very hot, add the pork belly, fat-side down and cook for 3-5 min or until nicely coloured, then flip and cook for 2 min on the other side
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/854.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add 300ml <span class="text-danger">[600ml]</span> boiled water to the tray
 
 Put it in the oven for 40-45 min, or until it's crisp on the outside and cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/854.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Meanwhile, fill a bowl of cold water with ice (Gousto's ice packs are perfect!)
 
 Once the eggs are done, drain and add them to your ice water and set them aside until step 7 (save the pot for later!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/854.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Top, tail and peel the carrots, then continue to peel lengths until you end up w
 
 Re-boil a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/854.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, add the garlic and ginger and cook for 1 min
 
 Add the miso paste, soy sauce, chilli flakes (can't handle the heat? Go easy!), 1 tsp <span class="text-danger">[2 tsp]</span> sugar and 600ml <span class="text-danger">[1.2L]</span> boiled water – this is your broth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/854.-step-7-x200.jpg)
 
 ### Step 7
 

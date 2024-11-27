@@ -24,6 +24,7 @@ Ethiopia meets Italy in this bold matchup, packed with colourful veg, smoked mac
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681829449746-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and finely chop (or grate) your garlic
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681829452777-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and pepper strips and cook for 5-6 min or until the veg is softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681829458534-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add your tortiglioni to a pot of boiled water with a small pinch of salt and bri
 
 Cook the tortiglioni for 8-10 min or until cooked with a slight bite, then drain it, reserving a cup of starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681829461281-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once the veg is softened, add the chopped garlic and berbere seasoning to the pa
 
 Cook for a further 3-4 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681829464054-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once fragrant, add the mackerel pieces and chopped tomatoes to the pan with your
 
 Give everything a good mix up and cook for a further 4-5 min or until the sauce has thickened and the mackerel is warmed through – this is your berbere mackerel sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681829467004-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Crumble your feta
 
 Add the chopped coriander and crumbled feta to a small bowl with a generous drizzle of olive oil and crack of black pepper – this is your marinated feta
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681829471371-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2240-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop the cherry tomatoes roughly
 
 Chop the coriander finely, including the stalks (save some leaves for garnish!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2240-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Scoop the avocado out of the skin<span class="text-danger">[s]</span> using a sp
 
 Blitz until smooth, then stir through the chopped tomatoes with 3/4 of the chopped onion, half the coriander, half the chilli flakes (can't handle the heat? Go easy!) and a pinch of salt – this is your chunky guacamole
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2240-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once hot, add the remaining chopped onion and cook for 3-4 min or until softened
 
 Drain and rinse the black beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2240-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,11 +77,13 @@ Cook for 1 min or until fragrant, then add 150ml<span class="text-danger"> [250m
 
 Once boiling, reduce the heat to medium and cook for 5-8 min or until thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2240-Step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, add the seeded tortilla wraps to a baking tray and put the tray in the oven for 3-4 min or until beginning to crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2240-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, crack the eggs<span style="color:#e86754;"> </span>into the pan
 
 Cover with a lid and cook for 2-3 min or until done to your liking
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2240-Step-7-x200.jpg)
 
 ### Step 7
 

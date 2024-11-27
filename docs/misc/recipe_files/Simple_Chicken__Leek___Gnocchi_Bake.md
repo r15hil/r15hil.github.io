@@ -21,6 +21,7 @@ Easy, creamy, dinnertime dreamy. You’ll pop your chicken and gnocchi in the ov
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-19-1694163458510-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Add a drizzle of olive oil to a large oven-proof dish (or two!), then add the di
 
 Coat your gnocchi in a little olive oil and add it to the other side of the dish[es]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-19-1694163467557-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Put the dish[es] in the oven for an initial 30 min or until the chicken is cooke
 
 Tip: Check your gnocchi after 20 min and give it a stir for even crispiness!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-19-1694163473208-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Top, tail, peel and dice your carrot[s] finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-19-1694163476682-x200.jpg)
 
 ### Step 4
 
@@ -55,11 +59,13 @@ Heat a large, wide-based pan with a drizzle of vegetable oil over a medium-hig
 
 Once hot, add the sliced leek, diced carrot and chopped garlic to the pan and cook for 5-6 min until the leek is softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-18-1694163480572-x200.jpg)
 
 ### Step 5
 
 Dissolve your chicken stock mix in 350ml <span class="text-purple">[450ml]</span> <span class="text-danger">[550ml]</span> boiled water and add your soft cheese and a very generous grind of pepper – this is your creamy stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-17-1694163485036-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Line a baking tray with a large piece of tin foil, add the sliced spring greens 
 
 Put the tray in the oven for 15 min or until the greens are tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-21-1694163489281-x200.jpg)
 
 ### Step 7
 

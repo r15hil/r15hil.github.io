@@ -24,6 +24,7 @@ So indulgent, and supremely delicious. You'll stud potatoes with Swiss Rablochoi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1604489277933-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the potato discs to a baking tray with a drizzle of olive oil and a pinc
 
 Put the tray in the oven for 15-20 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1604489290258-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the chopped bacon and cook for 3-4 min or until beginning to crisp
 
 Once crisp, transfer to kitchen paper, set aside and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1604489295981-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Return the reserved pan to a medium heat and once hot, add the sliced onion with
 
 Tip: Add a splash of oil if your pan is looking a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1604489305954-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add 1 tsp<span class="text-danger"> [2 tsp]</span> flour, 150ml <span class="tex
 
 Once done, remove the pan from the heat and stir through the crispy bacon – this is your tartiflette sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1604489317685-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Top with the remaining potatoes, pour over the remaining sauce and top with the 
 
 Put the dish in the oven for 20-25 min or until bubbling and cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1604489330696-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Chop the cornichons and parsley finely, including the stalks
 
 Combine the chopped cornichons and parsley with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt – this is your cornichon salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1604489347278-x200.jpg)
 
 ### Step 7
 

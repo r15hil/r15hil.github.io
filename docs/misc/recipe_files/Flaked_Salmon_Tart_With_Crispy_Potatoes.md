@@ -21,6 +21,7 @@ While your potatoes roast, you'll top pastry with herby crème fraîche and tend
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614005586206-x200.jpg)
 
 ### Step 1
 
@@ -32,11 +33,13 @@ Add the chopped potatoes to a baking tray (or two!) with a generous drizzle of
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614005606281-x200.jpg)
 
 ### Step 2
 
 While the potatoes are cooking, add your crème fraîche and dried oregano to a bowl with a pinch of salt and a few grinds of black pepper – this is your creamy base mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614005620496-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Add the pastry to the tray[s]<span class="text-danger"> </span>and score a 1cm
 
 Tip: The pastry border will puff up to give you a nice crust!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614005639259-x200.jpg)
 
 ### Step 4
 
 Spread the creamy base mixture over the pastry (keep it within the borders!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1614005645974-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Top the creamy base mixture with your salmon flakes and a grind of black pepper
 
 Put the tray[s] in the oven for 15 min or until the pastry is golden and crisp and the edges have puffed up – this is your flaked salmon tart
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614005672552-x200.jpg)
 
 ### Step 6
 
 While the tart is cooking, add your balsamic vinegar to a bowl with a generous drizzle of<span class="text-danger"> </span>olive oil and a pinch of salt and pepper – this is your balsamic dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1621872930490-x200.jpg)
 
 ### Step 7
 

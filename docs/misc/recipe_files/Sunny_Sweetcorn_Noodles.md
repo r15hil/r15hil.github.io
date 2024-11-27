@@ -25,6 +25,7 @@ A bright yellow, wholesome and warming noodle dish with fragrant spices and a li
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/800.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and thinly slice the garlic
 
 Boil a kettle&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/800.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Set the green tops aside and cut the whites into bite-sized pieces&nbsp;
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/800.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the white pak choi and a generous pinch of salt, cover with a lid and cook f
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/800.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 Re-boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/800.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,11 +91,13 @@ Add the coconut stock, chilli flakes&nbsp;(can't handle the heat? Go easy!) and 
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/800.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add the sweetcorn (no need to drain) and the green pak choi to the pan and cook for 1-2 min or until the greens have wilted - this is your broth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/800.-step-7-x200.jpg)
 
 ### Step 7
 

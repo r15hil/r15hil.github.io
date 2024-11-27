@@ -23,6 +23,7 @@ For this hearty salad, you'll tumble sausages and herby croutons with sweet cher
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1147.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add your Cumberland sausages to a baking tray (use tin foil to avoid mess!)
 
 Put the tray in the oven for 20-25 min or until the sausages are golden and cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1147.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,11 +41,13 @@ Meanwhile, chop your basil finely, including the stalks
 
 Chop your baby plum tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1147.-step-3-x200.jpg)
 
 ### Step 3
 
 Combine your Dijon mustard, chopped basil, balsamic vinegar, and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil with a pinch of salt and sugar in a very large bowl and give it a good mix up – this is your Italian dressing
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1147.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Shave your Italian hard cheese with a peeler, until you end up with a pile of ch
 
 Once you can't peel anymore, crumble the remaining cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1147.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Add the ciabatta pieces to a separate baking tray with your dried oregano, a dri
 
 Put the tray in the oven for 5-6 min or until golden and crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1147.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the sausages are done, remove them from the oven and slice them on a diagonal into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1147.-step-7-x200.jpg)
 
 ### Step 7
 

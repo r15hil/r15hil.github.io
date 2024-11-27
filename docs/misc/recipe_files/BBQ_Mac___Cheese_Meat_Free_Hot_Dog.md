@@ -27,6 +27,7 @@ Bring on The BBQ Banger. This American triple threat is part creamy mac ‘n’ 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1695196392537-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add your meat-free hot dog sausage[s] to one side of a baking tray (use tin foil
 
 Put the tray in the oven for an initial 20 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1695196399464-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the sliced shallot to a small bowl with your white wine vinegar and set asid
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1695196410220-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Cook for 7 min or until it's cooked with a slight bite
 
 Once done, drain the macaroni, reserving the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1695196416230-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once hot, add your panko breadcrumbs, chopped garlic and a small pinch of salt a
 
 Cook for 6-8 min or until golden, stirring frequently – these are your garlic breadcrumbs
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1695196420956-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Gradually add 200ml <span class="text-purple">[300ml]</span> <span class="text-d
 
 Grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1695196425818-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once the sausage[s] has had an initial 20 min, add your hot dog bun[s] to the ot
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1695196435633-x200.jpg)
 
 ### Step 7
 

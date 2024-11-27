@@ -22,6 +22,7 @@ For a light, no-fuss dinner, these flavour-packed skewers can be rustled up with
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654618089478-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654618097974-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
 Chop the coriander roughly, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654618104159-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the pepper strips, sliced onion and a pinch of salt, then cook for
 
 Once softened, reduce the heat to low and cook for 10 min or until caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654618108881-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Place the basa strips in a large mixing bowl with the smoked paprika and a pinch
 
 Thread each coated basa strip onto a soaked skewer in a snake-like fashion and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654618113245-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Add half of the red wine vinegar (you’ll use the rest later!) to the bowl with
 
 Stir through the chopped coriander – this is your pepper & onion salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654618118376-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once browned, reduce the heat to medium-high, cover with a lid and cook for a fu
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654618123131-x200.jpg)
 
 ### Step 7
 

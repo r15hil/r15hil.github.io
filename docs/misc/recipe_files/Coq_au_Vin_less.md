@@ -22,6 +22,7 @@ Like all good French cooking this dish is simple, full-flavoured and délicieux!
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/199-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Preheat the oven to 200&deg;C/ 180&deg;C (fan)/ 400&deg;F/ Gas 6&nbsp;
 
 Remove 30g <span class="text-danger">(60g)</span>&nbsp;butter from the fridge and allow it to reach room temperature
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/199-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the chicken thighs, skin-side down, and cook for 5-6 min on each side or unt
 
 Transfer the chicken to a plate, discarding the fat from the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/199-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Return the pan to a low heat and add the pancetta
 
 Cook gently for 8 min, or until slightly crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/199-step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Peel and chop the shallots finely
 
 Add the mushrooms, shallot and bay leaf<span class="text-danger">(ves)</span> to the pancetta
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/199-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Remove from the heat and whisk&nbsp;in the butter-flour mixture gradually
 
 Return to the heat, bring to the boil and pour into an oven-proof dish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/199-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Put in the oven for 25 min or until the chicken is cooked through&nbsp;
 
 Chop the parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/199-step-7-x200.jpg)
 
 ### Step 7
 

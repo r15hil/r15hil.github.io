@@ -30,6 +30,7 @@ Pack in the plant-powered protein with this spicy twist. You’ll bake sweet pot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1667323000500-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Add the fries to a baking tray with a drizzle of vegetable oil and a pinch of sa
 
 Put the tray in the oven for 20 min or until the fries are tender and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1667323220192-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add half the diced onion (you'll use the rest later!) with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1667323224647-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Drain and rinse your chickpeas
 
 Combine your vegetable stock mix and chopped tomatoes with 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[175ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1667323229562-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once the onion has softened, add the chopped garlic, ginger paste, garam masala 
 
 Once fragrant, add the drained chickpeas and tomato stock and cook for 8-10 min or until the chickpeas are tender and the sauce has thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1667323234167-x200.jpg)
 
 ### Step 5
 
@@ -81,11 +86,13 @@ Grind the chopped herbs in a pestle & mortar with a small pinch of salt until y
 
 Add your white wine vinegar, a pinch of sugar and a drizzle of olive oil to the paste and mix to combine – this is your coriander chutney
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1667323238200-x200.jpg)
 
 ### Step 6
 
 Combine the sliced cucumber, diced tomato and remaining diced onion in a bowl with the coriander chutney and give everything a good mix up – this is your kachumber salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1667323242906-x200.jpg)
 
 ### Step 7
 

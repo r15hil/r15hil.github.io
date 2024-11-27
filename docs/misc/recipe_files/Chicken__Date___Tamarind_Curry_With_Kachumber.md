@@ -31,6 +31,7 @@ To create a luxurious chicken curry, you'll infuse rich coconut stock with sweet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599839569640-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Boil a kettle
 
 Peel and slice your red onion[s] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599839575404-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a k
 
 Once melted, add most of the sliced onion (you'll use the rest later!) with a pinch of salt and cook for 8-10 min or until softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/687.-step-4-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599839585514-x200.jpg)
 
 ### Step 4
 
@@ -65,11 +69,13 @@ Whilst the rice is cooking, peel (scrape the skin off with a teaspoon) and finel
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599839590780-x200.jpg)
 
 ### Step 5
 
 Dissolve your chicken stock mix in 400ml <span class="text-purple">[600ml]</span><span class="text-danger"> [800ml]</span> boiled water then add your chopped dates, tamarind paste and chopped creamed coconut – this is your date & tamarind stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599839601095-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the date & tamarind stock, give everything a good mix up, then add the chick
 
 Cook, covered, for 18 min (turning half way) or until the chicken is cooked through (no pink meat!) and the sauce has reduced to a curry-like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599839624054-x200.jpg)
 
 ### Step 7
 

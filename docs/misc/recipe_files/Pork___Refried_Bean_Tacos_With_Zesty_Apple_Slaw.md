@@ -30,6 +30,7 @@ These delicious pork and bean tacos are rich, smoky and a little spicy. When ser
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/766.step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add your red wine vinegar, 2 tsp <span class="text-purple">[3 tsp]</span> <span
 
 Peel and slice half your red onion[s] as thinly as you can, then add to the bowl and set aside to pickle – this is your quick-pickled onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/766__.step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add the drained black beans, soy sauce and 150ml <span class="text-purple">[225
 
 Cook, covered, for 10 min or until the beans are very soft
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/766.step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Core and slice the apple[s] into matchsticks
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/766.step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,16 +74,19 @@ Add your chipotle paste (can't handle the heat? Go easy!), chopped garlic and�
 
 Season with salt and pepper and cook for 7-8 min until the pork is crispy and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/766.step-5-x200.jpg)
 
 ### Step 5
 
 While the pork mince is cooking, combine the apple matchsticks with the lime juice, lime zest and mayo in a small bowl – this is your zesty apple slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/766.step-6-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/766__.step-7-x200.jpg)
 
 ### Step 7
 

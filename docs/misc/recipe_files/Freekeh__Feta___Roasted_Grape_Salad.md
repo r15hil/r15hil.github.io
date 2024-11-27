@@ -22,6 +22,7 @@ This simple salad isn't just pretty, it's bursting with goodness too. You'll cru
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/455_step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Rinse your freekeh under cold water, then add it to a pot with plenty of cold wa
 
 Cook for 20-25 min or until tender but with a bite, then drain and set aside for serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/455_step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the halved grapes and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><
 
 Place the tray in the oven for an initial 10 min or until the grapes have started to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/455_step-3-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ While the grapes are in the oven, combine your red wine vinegar with 3 tbsp <spa
 
 Trim then finely slice your spring onions
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/455_step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Once the grapes have had 10 min, add your feta to the same tray
 
 Sprinkle your ground cumin over the feta and return the tray to the oven for approx. 5 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1600244792748-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Meanwhile, wash your salad, then pat it dry with kitchen paper
 
 Chop it roughly and set it aside until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/455_step-6-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Return the tray to the oven for a final 3-5 min or until the almonds have darken
 
 Tip: Watch these like a hawk to make sure they don't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/455_step-7-x200.jpg)
 
 ### Step 7
 

@@ -27,6 +27,7 @@ We're taking you to Sicily with our colourful caponata. You'll cook up a veg-pac
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1615479356568-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Trim the green stalk<span class="text-danger">[s]</span> off the aubergine<span 
 
 Add the chopped aubergine to a baking tray with a generous drizzle of olive oil and a pinch of salt and pepper and put in the oven for 16-18 min or until the aubergine is golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1615479370123-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion and chopped garlic and cook for 3-4 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1615479386255-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Chop the sultanas roughly
 
 Dissolve the vegetable stock mix in 250ml <span class="text-danger">[450ml]</span> boiled water and add the chopped sultanas – this is your sultana stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1615479414401-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Whilst softening, chop the olives, capers and basil roughly
 
 Reboil a full kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1615479438190-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the pepper has slightly softened, add the chopped tomatoes and sultana stoc
 
 Add the chopped olives, capers, chilli flakes (can't handle the heat? Go easy!) and most of the chopped basil (save some for garnish!) and cook for 6-7 min or until the sauce has started to thicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1615479467882-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once done, drain the linguine, reserving a cup of the starchy pasta water
 
 Grate the cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1615479486148-x200.jpg)
 
 ### Step 7
 

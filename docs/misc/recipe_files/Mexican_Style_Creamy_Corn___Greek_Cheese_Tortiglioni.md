@@ -24,6 +24,7 @@ The stradas of Italia meet the streets of Mexico city. You’ll cream charred co
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1674051269061-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once the pan is hot, add the drained sweetcorn with a small pinch of salt and co
 
 Once done, transfer to a bowl and set aside for later (reserve the pan!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1674051273845-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Wipe the reserved pan clean and return to a medium heat with a drizzle of olive 
 
 Once hot, add the sliced shallot and chopped garlic and cook for 2-3 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1674051277212-x200.jpg)
 
 ### Step 3
 
@@ -59,11 +62,13 @@ Once done, drain the tortiglioni, reserving a cup of the starchy pasta water, th
 
 Reboil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1674051280361-x200.jpg)
 
 ### Step 4
 
 While the tortiglioni is cooking, dissolve your vegetable stock mix in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[150ml] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1674051284303-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the vegetable stock, your soft cheese, chipotle paste (can't handle the heat
 
 Blitz until smooth – this is your creamy corn
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1674051288002-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Crumble your Greek cheese into rough bite-sized pieces
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1674051291426-x200.jpg)
 
 ### Step 7
 

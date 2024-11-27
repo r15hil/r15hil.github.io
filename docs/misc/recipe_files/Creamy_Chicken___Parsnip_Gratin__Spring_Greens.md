@@ -24,6 +24,7 @@ Nothing says cosy nights in like gratin! We've thrown in some juicy shredded chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1203.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Cook for 1-2 min on each side or until they've browned
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1203.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Once the chicken thighs are browned, reduce the heat to&nbsp;medium-low
 
 Add the chopped onion and cook for 5-6 min or until softened&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1203.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -69,6 +72,7 @@ Strip the rosemary and thyme leaves and chop finely, discarding the stems
 
 Dissolve the chicken stock cube<span class="text-danger">[s]</span> in 200ml <span class="text-danger">[35</span><span class="text-danger">0ml]&nbsp;</span>boiled water&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1203.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Increase the heat to medium, add the chopped garlic, rosemary and thyme and cook
 
 Add the chicken stock and sliced parsnips and cook, covered, for 6-7 min&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1203.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -91,6 +96,7 @@ Once done, transfer the chicken to a clean board and shred it apart, using two f
 
 Return the shredded chicken and the sour cream to the pan and season with salt and pepper&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1203.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -102,6 +108,7 @@ Sprinkle with the panko &amp; cheese crumb&nbsp;
 
 Put the dish in the oven and cook for 10-15 min or until bubbling and golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1203.-step-7-x200.jpg)
 
 ### Step 7
 

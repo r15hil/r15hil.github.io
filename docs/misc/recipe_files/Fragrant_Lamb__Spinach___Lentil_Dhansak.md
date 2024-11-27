@@ -30,6 +30,7 @@ Dial up your tender lamb dhansak with hearty lentils, fragrant cardamom and spin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1110.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Crush your cardamom pods open by squashing them with the side of a knife
 
 Once the butter has melted, add the cardamom seeds to the pan and cook for 2-3 min or until fragrant
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1110.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Increase the heat to medium and cook for 2-3 min or until softened
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Rice-in-pot-with-water-1688043804015-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1110.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add the chopped sultanas, chopped garlic and tomato paste and cook for 1 min fu
 
 Add 200ml <span class="text-purple">[260ml]</span> <span class="text-danger">[340ml]</span> boiled water with your beef stock mix and season with a generous pinch of salt then cook for 5-6 min or until thickened slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-13.56.52-1688043615949-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Meanwhile, chop your tomato[es] roughly
 
 Wash your spinach
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1110.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the chopped tomato and remaining shallot to a bowl and drizzle with olive 
 
 Season with a pinch of salt and pepper and give everything a good mix up - this is your tomato & shallot salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1110.-step-7-x200.jpg)
 
 ### Step 7
 

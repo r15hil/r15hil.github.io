@@ -27,6 +27,7 @@ This rich, hearty dish can be prepped in moments. You'll cook macaroni, vegetabl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1610813557139-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with tin foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606745718268-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Boil a kettle
 
 Top, tail, peel and grate the carrot<span class="text-danger">[s]</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606745723826-x200.jpg)
 
 ### Step 3
 
@@ -54,11 +57,13 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Add the grated carrot, champagne lentils and chopped tomatoes to the dish and cook for 30 secs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606745731045-x200.jpg)
 
 ### Step 4
 
 Meanwhile, trim the green beans, then chop them into bite-sized pieces and add them to the dish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606745735793-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add the thyme (chuck it in, stalk and all!), dried oregano, roasted garlic paste
 
 Add a pinch of sugar and the chilli flakes (can't handle the heat? Go easy!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606745740451-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Stir in the vegetable stock mix and add 600ml <span class="text-danger">[1.2L] <
 
 Stir through the macaroni and shredded kale and bring to the boil over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606745749647-x200.jpg)
 
 ### Step 7
 

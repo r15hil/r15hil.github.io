@@ -25,6 +25,7 @@ A risotto that starts with chorizo is always a winner. You'll also add crisp man
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1492-v2-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your diced chorizo and cook for 5-6 min or until golden and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1492-v2-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ While the chorizo is cooking, peel and finely dice your brown onion[s]
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1492-v2-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Return the pan to a medium heat
 
 Once hot, add the diced onion and cook for 4-5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1492-v2-Step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, dissolve your chicken stock mix in 750ml <span class="text-purple">[975ml]</span> <span class="text-danger">[1.4L] </span>boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1492-v2-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once the onion has softened, add your Chinese rice wine, arborio rice and the s
 
 Add the chicken stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1492-v2-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Chop your mangetout at an angle
 
 Grate your Italian hard cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1492-v2-Step-7-x200.jpg)
 
 ### Step 7
 

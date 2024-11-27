@@ -25,6 +25,7 @@ Take Thailand’s iconic green curry to the next level with this seafood sensati
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1723199526529-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1723199530327-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Chop half of your Thai basil finely, including the stalks and keep the remaining
 
 Crush your garlic open by squashing it with the side of a knife and remove the skins
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1723199534250-x200.jpg)
 
 ### Step 3
 
@@ -48,11 +51,13 @@ Add the crushed garlic and chopped Thai basil to a pestle & mortar with 1 tsp <s
 
 Add your Thai green curry paste with a drizzle of vegetable oil and stir it all together – this is your fragrant Thai green curry paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1723199537709-x200.jpg)
 
 ### Step 4
 
 Peel and finely slice your brown onion[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1723199541350-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once hot, add the sliced onion and cook for 3-4 min or until beginning to soften
 
 Boil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1723199549701-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once softened, add the fragrant Thai green curry paste with 2 tsp <span class="t
 
 Once fragrant, add your creamed coconut and lime leaf[ves] with 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml]</span> boiled water and give everything a mix up until the coconut has dissolved
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1723199552881-x200.jpg)
 
 ### Step 7
 

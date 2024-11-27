@@ -24,6 +24,7 @@ This pan-fried sea bass is ready in no time. You’ll serve your crispy bass wit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1726502693763-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and bring to the b
 
 Once boiling, reduce the heat to medium and cook for 10-12 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1726502699309-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ While your potatoes are cooking, trim, then slice your spring onion[s] finely, k
 
 Wash your shredded kale and pat dry with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1726502706011-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Tip: Cooking for 3 or more? Make 2 separate parcels!
 
 Put the tray in the oven for 12-15 min or until the Tenderstem broccoli is tender with a slight bite
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1726502714602-x200.jpg)
 
 ### Step 4
 
 While the vegetables are cooking, combine your soft cheese, vegetable stock mix, roasted garlic paste and Chinese rice wine to a jug with 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml] </span>boiled water and mix until fully combined – this is your stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1726502723045-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Return the pot to a low heat with a knob of butter, a splash of milk and the fin
 
 Mash together until fully combined and season with a generous pinch of salt and pepper, then keep covered until serving – these are your colcannon potatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1726502729498-x200.jpg)
 
 ### Step 6
 

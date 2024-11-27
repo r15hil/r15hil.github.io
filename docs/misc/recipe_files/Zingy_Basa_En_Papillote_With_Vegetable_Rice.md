@@ -29,6 +29,7 @@ This bright, zingy dish features a classic French technique, 'en papillote' (ste
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/310.step-1-1-x200.jpg)
 
 ### Step 1
 
@@ -38,16 +39,19 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 20-25 min or until it's tender with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/310.step-1-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/310.step-1-3-x200.jpg)
 
 ### Step 3
 
 Combine the chopped ginger, mirin, toasted sesame oil, rice vinegar, soy sauce, chilli flakes (can't handle the heat? Go easy!) and 1/2 tsp <span class="text-purple">[3/4 tsp] </span><span class="text-danger">[1 tsp]</span> sugar in a bowl and give it a good mix – this is your zingy marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/310.step-1-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Spoon the zingy marinade evenly over the basa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/310.step-1-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Put the baking tray[s] in the oven for 15 min or until cooked through – this i
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/310__step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Trim then slice your spring onion[s] finely
 
 Peel your carrot[s], then continue to peel lengths until you end up with a pile of carrot ribbons
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/310__step-7-x200.jpg)
 
 ### Step 7
 

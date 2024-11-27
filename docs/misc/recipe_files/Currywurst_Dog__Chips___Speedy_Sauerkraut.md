@@ -22,6 +22,7 @@ If you've been to Germany, you’ve probably seen the currywurst – a sausage s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1215.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Slide the chips to one side of the baking tray and add the Cumberland sausages
 
 Put the tray in the oven for 25-30 min or until the sausages are cooked through and the chips are golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1215.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Grate the carrot<span class="text-danger">[s]</span> (skin on)&nbsp;
 
 Shred (or grate!) the baby white cabbage<span class="text-danger">[s]</span> finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1215.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Dissolve 1 tsp <span class="text-danger">[2 tsp]</span> sugar in 2 tsp <span cla
 
 Once dissolved, add the white wine vinegar and a generous pinch of salt &ndash;&nbsp;this is your pickling liquor
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1215.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the shredded cabbage and grated carrot to the pickling liquor and set aside until serving &ndash; this is your&nbsp;speedy sauerkraut
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1215.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once fragrant, add the tomato frito and cook for 3-4 min or until thickened to t
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1215.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Return the pan to a medium-low heat with a drizzle of vegetable oil
 
 Once hot, add the sliced onion with a pinch of salt and cook for 10-12 min or until soft and caramelised&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1215.-step-7-x200.jpg)
 
 ### Step 7
 

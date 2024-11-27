@@ -21,6 +21,7 @@ Baked hake sits on top of luxurious lemon mashed potato. You'll roast cherry tom
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1690285282199-x200.jpg)
 
 ### Step 1
 
@@ -32,11 +33,13 @@ Add them to a pot, cover with boiled water and a pinch of salt and bring back
 
 Once boiling, cook for 10-15 min until the potatoes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1690285288416-x200.jpg)
 
 ### Step 2
 
 Meanwhile, cut the cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1690285295375-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Drizzle with olive oil and season with a pinch of salt and pepper, then put the
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1690285301945-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Chop the parsley and basil roughly, including the stalks
 
 Slice the lemon<span class="text-danger">[s] </span>in half and cut 2 <span class="text-danger">[4]</span> wedges and set them aside for serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1690285307186-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Drizzle over enough olive oil to loosen the mix, then add a squeeze of lemon 
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1690285312123-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Drain the cooked potatoes and leave them to steam-dry for 5 min
 
 Tip: This allows the potatoes to dry out, making them perfect for mashing later!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1690285317913-x200.jpg)
 
 ### Step 7
 

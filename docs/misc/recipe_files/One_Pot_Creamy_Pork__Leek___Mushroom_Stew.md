@@ -21,6 +21,7 @@ This one-pot is one for all the family! You'll cook succulent British pork mince
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1851.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the pork mince and cook for 5-8 min or until browned all over and starting to caramelise
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1851.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Meanwhile, roughly tear the <span class="text-highlight">chestnut</span> mushro
 
 Wash the leek<span class="text-danger">[s]</span> carefully to remove any grit from between the leaves, then top, tail and slice finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1851.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the pork has browned, add the chopped leek and torn mushrooms with a pinch of salt and cook for 4-6 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1851.-step-4.new-x200.png)
 
 ### Step 4
 
@@ -53,6 +57,7 @@ Peel and finely chop (or grate) the garlic
 
 Strip the thyme leaves and chop finely, discarding the stems
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1851.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,11 +69,13 @@ Add the soft cheese to the stock – this is your creamy stock
 
 Chop the potatoes into small bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1851.-step-6-x200.jpg)
 
 ### Step 6
 
 Once the leek and mushroom have softened, add the chopped thyme and garlic and cook for 1 min or until fragrant
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1851.-step-7-x200.jpg)
 
 ### Step 7
 

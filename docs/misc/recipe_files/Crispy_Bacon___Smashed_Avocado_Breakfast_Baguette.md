@@ -18,6 +18,7 @@ This breakfast baguette will brighten up your morning. First, pan-fry bacon till
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073707103-x200.jpg)
 
 ### Step 1
 
@@ -27,6 +28,7 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in or wrap up ready for your day!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1728311525750-x200.jpg)
 
 ### Step 2
 
@@ -38,21 +40,25 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a medium heat
 
 Once hot, add your smoked streaky bacon to the pan and cook for 3 min on each side or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1728311534630-x200.jpg)
 
 ### Step 3
 
 Once crisp, transfer the crispy bacon to kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728311544596-x200.jpg)
 
 ### Step 4
 
 Add your baguette[s] to a baking tray and put the tray in the oven for 2-3 min or until warmed through and crusty
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728311557420-x200.jpg)
 
 ### Step 5
 
 Slice each warmed baguette in half lengthways
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728311567289-x200.jpg)
 
 ### Step 6
 

@@ -23,6 +23,7 @@ This treat-yourself ‘fakeaway’ sees fiery chipotle and savoury miso come tog
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679315559484-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chips to a large baking tray with a drizzle of vegetable oil and a pinch
 
 Put the tray in the oven for 20-25 min or until the chips are golden and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679315563227-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the halved brioche, cut-side down, and cook for 3 min or until toa
 
 Reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679315567186-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the cornflour to a shallow bowl
 
 Add the chicken breasts to the cornflour and coat well
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679315573277-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Return the reserved pan to a medium-high heat with a very generous drizzle of ve
 
 Once hot, add the coated chicken and cook for 5 min on each side or until golden and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679315577568-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Meanwhile, combine the shredded red cabbage, mayo and red wine vinegar in a sepa
 
 Trim, then slice the spring onions finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679315582138-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Return the pan to a medium heat and add the miso paste and chipotle paste (can't
 
 Whisk until fully combined and cook for 2 min or until thickened and warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679315591784-x200.jpg)
 
 ### Step 7
 

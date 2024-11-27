@@ -26,6 +26,7 @@ Yakisoba fried noodles are a popular street food in Japan... and now closer to h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1307.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Deseed the red pepper<span class="text-danger">[s]</span> (scrape the seeds and 
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1307.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the cornflour and soy sauce to a bowl and mix until combined
 
 Add the tofu cubes and mix gently until the cubes are fully coated in the cornflour mixture
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1307.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once hot, add the tofu cubes and cook for 5-6 min or until golden and crisp 
 
 Once crisp, transfer the tofu to kitchen paper and set aside, reserving the pan and oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1307.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 Once tender, drain and reserve a cup of the starchy noodle water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1307.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Return the pan and oil to a medium-high heat
 
 Once hot, add the baby button mushrooms, carrot batons and sliced red pepper and cook for 4-5 min or until beginning to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1307.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Once hot, add the baby button mushrooms, carrot batons and sliced red pepper and
 
 Trim, then slice the spring onions finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1307.-step-7-x200.jpg)
 
 ### Step 7
 

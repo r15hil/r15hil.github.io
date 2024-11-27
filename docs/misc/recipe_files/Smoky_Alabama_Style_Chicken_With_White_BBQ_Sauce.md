@@ -27,6 +27,7 @@ You can't have a barbecue without sauce, and in Alabama this punchy white BBQ sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1595942005644-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Cut your potatoes (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1595942010592-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Add your sweetcorn cobettes to a large piece of tin foil and drizzle with olive 
 
 Scrunch the foil around the corn until tightly sealed and add to the other side of the baking tray[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1595941851674-x200.jpg)
 
 ### Step 3
 
 Put the tray[s] in the oven and cook for 25-30 min or until the wedges are golden and the corn is tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1595941899371-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Meanwhile, combine your ground smoked paprika and dried oregano in a bowl with a
 
 Give everything a good mix up, then add your chicken thighs and turn them until they're fully coated in the spices
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1595941913429-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Heat a dry, large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the marinated chicken thighs, skin-side down, and cook for an initial 10 min or until the skin has started to crisp and char slightly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1595941921484-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger"
 
 Chop your chives finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1595941939237-x200.jpg)
 
 ### Step 7
 

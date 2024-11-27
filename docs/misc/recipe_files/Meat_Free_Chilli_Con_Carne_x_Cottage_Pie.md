@@ -29,6 +29,7 @@ Cottage pie is bursting out of its comfort zone. The meat-free filling is packed
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1662482657937-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel your potatoes and chop them into large, bite-sized pieces, then add them to
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1662482662594-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add your meat free mince (remove the paper if required!) with a generous grind of black pepper then cook for 4-5 min or until beginning to brown all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1662482665737-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Drain and rinse your kidney beans
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1731682719067-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Dissolve your vegetable stock mix in 300ml <span class="text-purple">[390ml]</sp
 
 Once the onion has softened, add the chopped garlic, your ground smoked paprika, ground cumin and 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>flour to the pan and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1662482674801-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once fragrant, add the chipotle stock, drained kidney beans and a pinch of salt 
 
 Once boiling, reduce the heat to medium and cook for 4-5 min or until the sauce has slightly thickened, then remove the pan from the heat – this is your meat free chilli mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1662482679213-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Return the drained potatoes to a low heat with a 1/3 of your soured cream, half 
 
 Mash until smooth – this is your mashed potato
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1662482684103-x200.jpg)
 
 ### Step 7
 

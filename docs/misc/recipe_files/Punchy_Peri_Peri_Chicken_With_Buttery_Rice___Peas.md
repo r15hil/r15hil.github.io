@@ -24,6 +24,7 @@ Spice up your protein with this Portuguese peri peri-inspired chicken. You’ll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723558624510-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723558628221-x200.jpg)
 
 ### Step 2
 
@@ -40,16 +42,19 @@ Add your chicken breast portion[s] to a chopping board
 
 Cover with cling film and bash with a rolling pin until flattened to approx. 1cm thickness
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723558632038-x200.jpg)
 
 ### Step 3
 
 Add most of your peri peri seasoning to a plate (you’ll use the rest later!) with a generous pinch of salt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723558636569-x200.jpg)
 
 ### Step 4
 
 Press your flattened chicken breast portion[s] onto the plate to evenly coat all over – this is your coated chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723558641184-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Once hot, add the coated chicken to the pan and cook for 5-6 min on each side or
 
 Tip: Cooking for 4 or more? Use 2 pans!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723558645834-x200.jpg)
 
 ### Step 6
 
@@ -66,6 +72,7 @@ Whilst the chicken is cooking, combine your mayo with the remaining peri peri se
 
 Add 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> cold water and a pinch of pepper and stir together – this is your peri peri mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1723558652429-x200.jpg)
 
 ### Step 7
 

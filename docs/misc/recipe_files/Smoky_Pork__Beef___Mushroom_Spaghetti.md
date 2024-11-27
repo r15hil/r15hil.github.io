@@ -24,6 +24,7 @@ For this super-quick and tasty meal, you’ll whip up a rich, creamy sauce flavo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1622106240381-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1539.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your pork & beef mince with a generous pinch of salt and cook for 3-4 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1539.-step-3-x200.jpg)
 
 ### Step 3
 
 Whilst the mince is cooking, peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1539_step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Cook the spaghetti for 2-3 min or until cooked with a slight bite
 
 Once done, drain the spaghetti, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1539.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Cook for 2-3 min or until softened
 
 Once softened, add the chopped garlic with most of your ground smoked paprika (save a little for garnish!) and cook for a further 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1539.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, dissolve your beef stock mix and Dijon mustard in 100ml <span class="text-purple">[130ml]</span> <span class="text-danger">[180ml]</span> boiled water – this is your mustard stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1539_step-7-x200.jpg)
 
 ### Step 7
 

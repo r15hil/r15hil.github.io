@@ -27,6 +27,7 @@ Feed your health goals with this protein-packed dinner. You’ll pan-fry flaky s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1720095403776-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once toasted, transfer to a plate and set aside until serving, reserving the pan
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1720095407598-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cook the orzo for 6-8 min or until cooked with a slight bite
 
 Once done, drain the orzo, reserving a cup of the starchy pasta water and the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1720095411095-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Season with a pinch of salt and pepper and cook for 9-10 min, turning once halfw
 
 Tip: Your fish is cooked through when it's opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1720095414672-x200.jpg)
 
 ### Step 4
 
@@ -67,11 +71,13 @@ Meanwhile, chop your sun-dried tomatoes finely
 
 Dissolve your vegetable stock mix in 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[255ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1720095418818-x200.jpg)
 
 ### Step 5
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1720095423544-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once hot, add the chopped sun-dried tomatoes with your roasted garlic paste and 
 
 Once fragrant, add your Chinese rice wine and vegetable stock to the pot and cook for 2-3 min or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1720095428678-x200.jpg)
 
 ### Step 7
 

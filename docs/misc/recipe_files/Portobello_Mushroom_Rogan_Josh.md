@@ -27,6 +27,7 @@ For this plant-based twist on a curry house favourite, you'll flavour your sweet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1581675264572-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ gas 6
 
 Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1581675271377-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion with a pinch of salt and sugar and cook for 8-10 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1581675278245-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Cut the baby button mushrooms in half
 
 Cut the tomatoes into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1581675285447-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Increase the heat to medium and cook for 2-3 min or until fragrant
 
 Meanwhile, dissolve the vegetable stock mix and mango chutney in 100ml <span class="text-danger">[200ml] </span>boiled water – this is your mango stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1581675291532-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the baby button mushrooms and mix until fully coated in the spices
 
 Once coated, add the mango stock and cook, covered, for 15-20 min or until the sauce has thickened – this is your mushroom rogan josh
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581675298288-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 While the rice is cooking, add the sliced portobello mushrooms to a tray and put it in the oven for 10-12 min or until golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1581675308558-x200.jpg)
 
 ### Step 7
 

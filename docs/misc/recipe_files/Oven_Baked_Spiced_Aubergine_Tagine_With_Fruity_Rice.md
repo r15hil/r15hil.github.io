@@ -31,6 +31,7 @@ It’s all about the spices in this smoky tagine. You’ll simmer butternut squa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650991427466-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1715078857550-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Peel and chop your red onion[s] into wedges
 
 Heat a large, wide-based hob-safe oven-proof casserole dish with a generous drizzle of olive oil over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1715078863281-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add your baharat, tomato paste, roasted garlic paste and a very generous pinch o
 
 Stir it all together and cook for 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1715078866889-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add your chopped creamed coconut, chopped tomatoes, vegetable stock mix and umam
 
 Add a knob of butter with a pinch of sugar and 250ml<span class="text-purple"> [325ml] </span><span class="text-danger">[425ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1715078869860-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Give everything a good mix up and bring to the boil over a high heat
 
 Once boiling, cover with a lid and put the dish in the oven for an initial 30-35 min or until the sauce has thickened and the aubergine has softened – this is your oven-baked spiced aubergine tagine
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1715078873724-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add your white long grain rice to an oven-proof dish with your chopped dates, a 
 
 Add a pinch of salt and cover tightly with tin foil, then put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your fruity rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1715078877533-x200.jpg)
 
 ### Step 7
 

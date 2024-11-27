@@ -23,6 +23,7 @@ This Thai-inspired bowl of broth combines fresh vegetables, Thai noodles and aro
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/549.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel the ginger (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Combine the beef mince, Thai red curry paste and ginger in a bowl
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/549.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once hot, add the beef mixture and cook for 4 min or until cooked through (it wi
 
 Once cooked, remove from the heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/549.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Stir to combine - this is your broth
 
 Keep the broth on a medium high heat until step 6&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/549.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Slice the sugar snap peas finely&nbsp;
 
 Tip: you can gather and slice several peas at a time
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/549.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Break the Thai rice noodles in half and add them to the broth
 
 Cover and cook for 4 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/549.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Add half of the sugar snap peas and remove the pot from the heat&nbsp;
 
 Tip: adding the peas last minute ensures they stay crunchy!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/549.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ To whip up dinner in a flash, you'll fire up two pans, one for crispy gnocchi an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1627376619272-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your Mediterranean veg mix and cook, covered, for 5-6 min or until the vegetables have softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1627376623724-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Meanwhile, heat a separate large, wide-based pan (preferably non-stick) with a d
 
 Once hot, add your gnocchi and cook for 4-5 min or until golden and crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1627376629254-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Cook for 1-2 min or until the sauce has thickened slightly
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1627376633929-x200.jpg)
 
 ### Step 4
 

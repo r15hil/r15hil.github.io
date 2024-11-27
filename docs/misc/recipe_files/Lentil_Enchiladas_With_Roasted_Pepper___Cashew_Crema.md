@@ -33,6 +33,7 @@ Nothing beats sizzling enchiladas, straight out of the oven. Our plant-based twi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2355-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -44,6 +45,7 @@ Peel and finely dice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into large strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2355-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the pepper strips and garlic (skin on) to a baking tray with a drizzle of
 
 Put the tray in the oven for 15-20 min or until the pepper has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2355-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a generous d
 
 Once hot, add most of the diced onion (save the rest for garnish!) with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2355-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Drain and rinse your green lentils
 
 Add the drained lentils, soy sauce, tomato paste and 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> boiled water to the pan and cook for 2-3 min further or until the sauce has reduced to a thick, ragù-like consistency – this is your lentil mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2355-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Roll each tortilla up and arrange them in an oven-proof dish (or two!), then
 
 Put the dish[es] in the oven for 8-10 min or until the tortillas are starting to crisp – these are your lentil enchiladas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2355-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the chopped coriander, peeled roasted garlic, roasted pepper, cashew nuts, 
 
 Tip: No food processor? Chop everything up as finely as you can!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2355-Step-7-x200.jpg)
 
 ### Step 7
 

@@ -32,6 +32,7 @@ The Middle Eastern rice dish is said to be the national dish of the Kingdom of B
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657729459233-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Peel and finely chop (or grate) your garlic
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657729461216-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Once hot, add the diced onion, chopped tomato, half the chopped garlic (save the
 
 Cook for 2-3 min or until the onion has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657729463874-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Meanwhile, chop your coriander finely, including the stalks
 
 Combine the juice of your lemon[s]<span class="text-danger"> </span>and<span class="text-danger"> </span>the remaining chopped chilli (not a fan of spice? Just add a little!) in a small bowl with the remaining chopped garlic, half the chopped coriander (save the rest for later!), a pinch of salt and pepper and a drizzle of olive oil – this is your lemon coriander sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657729467252-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the onion has softened, add your baharat and ground turmeric to the pan wit
 
 Cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657729471439-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and stir through the remaining chopped coriander and keep covered until serving – this is your sultana rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657729473979-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ When the rice is nearly ready, heat a separate large, wide-based pan (preferably
 
 Once hot, drain your king prawns, then add to the pan and cook for 4-5 min or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657729476647-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ There are so many different curries in Malaysia, all eaten on a daily basis. Thi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/544.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel the ginger (scrape the skin off with a teaspoon) and chop coarsely
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/544.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/544.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -67,6 +70,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium heat with 2 tb
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/544.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,11 +82,13 @@ Meanwhile, mix the curry powder with 100ml <span class="text-danger">(200ml)</sp
 
 Tip: Diluting the curry powder prevents it from clumping up whilst frying!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/544.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the curry powder mixture, tamarind paste and 1 tsp <span class="text-danger">(2 tsp)</span> salt (fine sea salt preferably) to the pan and cook for 2-3 min, stirring often to prevent sticking to the bottom
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/544.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Add the chicken, 100ml <span class="text-danger">(200ml)</span> boiled water and
 
 Cook until the chicken is cooked through (approx. 7-10 min) and the sauce has thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/544.-step-7-x200.jpg)
 
 ### Step 7
 

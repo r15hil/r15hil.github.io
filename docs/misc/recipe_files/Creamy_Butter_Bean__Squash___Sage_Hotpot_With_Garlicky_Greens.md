@@ -26,6 +26,7 @@ This plant-based hotpot is a buttery dream. You’ll simmer butter beans, squash
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1701170668194-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and finely chop your brown onion[s]
 
 Drain and rinse your butter beans
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1701170681365-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the chopped onion with a pinch of salt and pepper and cook for 4-5 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1701170695365-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Strip your sage leaves from their stems and chop them roughly, discard the stems
 
 Tip: Hold the top of the herb sprigs firmly and slide your fingers down their lengths to easily remove the leaves
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1701170709074-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once fragrant, add your vegetable stock mix, umami seasoning, creamy single soy 
 
 Cook for 3-4 min or until the sauce has started to thicken – this is your creamy butter bean, squash & sage filling
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1701170749444-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Transfer the creamy butter bean, squash & sage filling to an oven-proof dish (re
 
 Season with a pinch of salt and put the dish in the oven for 25-30 min – this is your butter bean, squash & sage hotpot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1701170773961-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ While the hotpot is in the oven, wash your spring greens then pat it dry with ki
 
 Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1701170786463-x200.jpg)
 
 ### Step 7
 

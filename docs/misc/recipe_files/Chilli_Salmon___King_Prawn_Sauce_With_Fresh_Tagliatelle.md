@@ -27,6 +27,7 @@ This one’s a real catch of the day. You’ll whip up a garlicky tomato sauce w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692958193007-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692958196227-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your chopped onion and cook for 6-7 min or until softened and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692958199380-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Dissolve your tomato paste and vegetable stock mix in 225ml <span class="text-pu
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692958202206-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Once fragrant, add the tomato stock and halved cherry tomatoes with a generous p
 
 Tip: Squash the cherry tomatoes with the back of a spoon to release their juices!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692958205342-x200.jpg)
 
 ### Step 5
 
 Once the tomatoes have softened, drain your king prawns, then add them to the pan with your salmon flakes and cook for 4-5 min or until the prawns are cooked through – this is your chilli salmon & king prawn sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692958210830-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once done, drain the tagliatelle, reserving a cup of the starchy pasta water
 
 Combine the salad and balsamic vinegar in a bowl with a drizzle of<span class="text-danger"> </span>olive oil - this is your dressed salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692958258116-x200.jpg)
 
 ### Step 7
 

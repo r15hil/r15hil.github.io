@@ -22,6 +22,7 @@ Our twist on a French classic is destined to wow. The lemon crusted basa with sa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/803.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Zest 1/2 <span class="text-danger">[1]</span> lemon (try to grate lightly and av
 
 Combine the panko breadcrumbs, lemon zest, 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil and a pinch of salt on a plate and give everything a good mix up – these are your lemony breadcrumbs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/803.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Put the tray in the oven for 12-15 min or until the fish is cooked through and t
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/803.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add the potatoes to a pot of boiling water with a pinch of salt over a hig
 
 Once cooked, drain and return to the pot to steam dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/803.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once hot, add the whole spring onions and cook for 2-3 min or until they're soft
 
 Once browned, transfer the spring onions to the same tray as the fish and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/803.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Once the clotted cream has melted, cut and juice the lemon<span class="text-dang
 
 Add the capers and remove the pan from the heat - this is your sage butter sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/803.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/803.-step-7-x200.jpg)
 
 ### Step 7
 

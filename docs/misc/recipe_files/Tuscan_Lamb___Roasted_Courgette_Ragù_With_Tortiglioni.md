@@ -25,6 +25,7 @@ Replicate rich Tuscan flavours with this pasta in a rich lamb and roasted courge
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1586947268053-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the diced red onion and a pinch of salt and cook for 4-5 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1586947272477-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Add the chopped courgette to a baking tray with a drizzle of olive oil and a p
 
 Put the tray in the oven for 25-30 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1586947277703-x200.jpg)
 
 ### Step 3
 
 Add your lamb mince to the onion and cook for 3-4 min, breaking it up with a wooden spoon as you go, or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1586947282132-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Meanwhile, dissolve your beef stock mix in 100ml <span class="text-purple">[150
 
 Add your tomato paste and balsamic vinegar to the pan and cook for 2-3 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1586947288767-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add the beef stock and a pinch of sugar to the pan and cook for 15-20 min or
 
 Chop your basil finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1586947292718-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Meanwhile, add your tortiglioni to a pot of boiled water with a pinch of salt, 
 
 Once cooked, drain and reserve a cup of the starchy pasta water
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1586947299145-x200.jpg)
 
 ### Step 7
 

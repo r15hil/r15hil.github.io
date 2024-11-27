@@ -25,6 +25,7 @@ Fire up burger night with an Indian-inspired twist. You’ll load mouthwatering 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657636048633-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Cut your potatoes (skins on) into thin fries, then add to a baking tray (or two
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20 min or until starting to crisp – these are your paprika fries
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657636053981-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add your chicken thighs to a bowl with your ground cumin, garam masala and a generous pinch of salt and give everything a good mix up – this is your coated chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657636059675-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the coated chicken and cook for 3 min on each side or until lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657636065874-x200.jpg)
 
 ### Step 4
 
@@ -53,11 +57,13 @@ Once browned, transfer the browned chicken to a tin foil-lined baking tray and r
 
 Put the tray in the oven for 12-14 min or until the chicken is cooked through (no pink meat!) – this is your spiced chicken
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657636090946-x200.jpg)
 
 ### Step 5
 
 Combine your mango chutney and half of your mayo (you'll use the rest later!) in a small bowl – this is your mango mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657636097995-x200.jpg)
 
 ### Step 6
 
@@ -67,6 +73,7 @@ Return the tray[s] to the oven for a final 4-5 min or until the ciabatta is hot 
 
 Carefully slice the toasted ciabatta[s] in half before serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657636109984-x200.jpg)
 
 ### Step 7
 

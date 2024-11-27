@@ -28,6 +28,7 @@ For this crowd pleasing Hungarian-inspired supper, you'll simmer up a warming ve
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-potatoes-on-a-board-1636043462296-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Boil a kettle
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1585581776416-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1585581781418-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Top, tail and dice your carrot[s]
 
 Drain and rinse your butter beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1585581800614-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Meanwhile, deseed your pepper[s] (scrape the seeds and pith out with a teaspoon)
 
 Tear your chestnut mushrooms into bite-size pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1585581805102-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add the pepper strips and torn mushrooms with a splash of cold water and cook fo
 
 Reboil half a kettle
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1585581809810-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Line a baking tray with non-stick baking paper and add 3<span class="text-danger
 
 Add a drizzle of olive oil, pat each spoonful of potato mix down and put the tray in the oven for 20 min or until golden – these are your potato cakes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1585581813996-x200.jpg)
 
 ### Step 7
 

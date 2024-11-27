@@ -24,6 +24,7 @@ Get a load of our fresh, zingy prawns. You'll dollop punchy homemade salsa on cr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1683640709098-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the wedges to a baking tray with a drizzle of vegetable oil, half your groun
 
 Give everything a good mix up and put the tray in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1683640713242-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a 
 
 Chop your coriander finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1683640718029-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Chop half your onion[s] into wedges
 
 Dice the remaining onion finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1683640722568-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-dange
 
 Give everything a good mix up – this is your zingy salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1683640727117-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once the potato wedges have had 15 min, add the onion wedges to the tray and ret
 
 Drain your king prawns
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1683640747828-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the seasoned prawns to the pan and cook for 4-5 min or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1683640751449-x200.jpg)
 
 ### Step 7
 

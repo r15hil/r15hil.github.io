@@ -24,6 +24,7 @@ Transport your tastebuds to tropical Hawaii with this takeaway treat! Loco Moco 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1582892104441-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the sliced onion and cook for 5-6 min or until softened and beginning to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1582892108077-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Season with a generous pinch of salt and a very generous grind of black pepper
 
 Give everything a good mix up until well combined, then shape into 2 <span class="text-danger">[4] </span>patties
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1582892111772-x200.jpg)
 
 ### Step 3
 
 Add the patties to a baking tray (use tin foil to avoid mess!) and put the tray in the oven for 15-20 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1582892115742-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Slice the chestnut mushrooms finely
 
 Once the onion has softened, add the sliced mushrooms to the pan with a very generous grind of black pepper and cook for 3-4 min or until beginning to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1582892120239-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1582892124232-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add 1 tsp<span class="text-danger"> [2 tsp] </span>flour and the chopped garlic 
 
 Add the stock, bring to the boil over a high heat and cook for 5-6 min or until thickened – this is your gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1582892127754-x200.jpg)
 
 ### Step 7
 

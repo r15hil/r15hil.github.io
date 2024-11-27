@@ -24,6 +24,7 @@ Warm tortillas are sold throughout Mexico like nothing else. Gracing the dusty s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/722.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/722.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan with a matching lid (preferably non-stick) with a l
 
 Once hot, add the onion, cover with a lid and cook for 5-10 min or until beginning to soften and brown slightly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/722.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surfa
 
 Dice the tomatoe<span class="text-danger">[s]</span> finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/722.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the cumin and chipotle paste to the pan and cook for 5-7 min, breaking the m
 
 Once done, remove from the heat, cover with a lid and set aside to keep warm until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/722.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Grate the cheddar cheese
 
 Cut the little gem<span class="text-danger">[s]</span>&nbsp;in half then shred finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/722.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Combine the lime zest and the juice from the lime<span class="text-danger">[s]</
 
 Add a small pinch of salt and pepper then mix thoroughly - this is your lime mayonnaise
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/722.-step-7-x200.jpg)
 
 ### Step 7
 

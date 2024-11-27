@@ -22,6 +22,7 @@ Turn your kitchen into a Greek taverna with this salty, sweet chilli halloumi. R
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-3-1689607353834-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1718527229737-x200.jpg)
 
 ### Step 2
 
@@ -44,11 +46,13 @@ Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
 Once fork-tender, add a knob of butter and a pinch of salt and pepper and gently mix together – these are your buttery potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1718527238267-x200.jpg)
 
 ### Step 3
 
 Wash your lettuce, then pat dry with kitchen paper and roughly chop
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1718527246767-x200.jpg)
 
 ### Step 4
 
@@ -56,11 +60,13 @@ Bash your cucumber with a rolling pin and chop it into bite-sized pieces – thi
 
 Tip: Bash the cucumber in its bag to avoid mess. By bruising the cucumber, the water is drawn out more easily!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1718527255321-x200.jpg)
 
 ### Step 5
 
 Cut your halloumi into thick slices
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1718527263873-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Heat a large, wide-based pan (preferably non stick) over a high heat
 
 Once hot, add the sliced halloumi and cook for 2-3 min on each side or until golden
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1718527280822-x200.jpg)
 
 ### Step 7
 

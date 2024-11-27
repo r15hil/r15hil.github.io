@@ -20,6 +20,7 @@ Try your hand at simple Southern Italian cooking. Toss delicious spinach and ric
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1655799573730-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1655799583147-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Top, tail and slice your courgette[s]<span class="text-danger"> </span>into disc
 
 Once hot, add the courgette discs to the pan with a pinch of salt and cook for 5-6 min, turning halfway, until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1655799593111-x200.jpg)
 
 ### Step 3
 
@@ -51,16 +54,19 @@ Cook the ravioli for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked spinach & ricotta ravioli, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1655799600813-x200.jpg)
 
 ### Step 4
 
 Peel and slice (don't chop!) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1655799603628-x200.jpg)
 
 ### Step 5
 
 Once the courgette has started to soften, add the sliced garlic to the pan and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1655799612132-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Give everything a good mix up – this is your black pepper sauce
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1655799614931-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ There’s one word for German fast food – fantastisch. You’ll oven roast thi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1665420598722-x200.jpg)
 
 ### Step 1
 
@@ -39,11 +40,13 @@ Peel and chop your sweet potato[es] into bite-sized pieces
 
 Chop your potato[es] (skins on) into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1665420602304-x200.jpg)
 
 ### Step 2
 
 Peel and chop half your red onion[s] into wedges (you'll use the rest later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1665420607234-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add your meat-free sausages, chopped potato, chopped sweet potato and onion wedg
 
 Put the tray[s] in the oven for an initial 25-30 min or until the meat-free sausages are cooked through and the potatoes are golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1665420612318-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Peel and finely chop (or grate) your garlic
 
 Wash your shredded kale, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1665420616256-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, add the diced onion and cook for 3-4 min or until softened
 
 Once softened, add the chopped garlic, most of your curry powder (save a little for garnish!) and your ground smoked paprika and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1665420624805-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Give everything a good mix up and cook for 3-4 min or until the sauce has reduce
 
 Once thickened, remove the pan from the heat and set aside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1665420627890-x200.jpg)
 
 ### Step 7
 

@@ -31,6 +31,7 @@ For this Spanish twist on a Mexican family favourite, you’ll pack spicy rice w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1655803837044-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and finely
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1655803840546-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the diced pepper, chopped garlic and half your diced chorizo (save the rest for later!) to the pan, then cook for 3-4 min or until the peppers are starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1655803845551-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once softened, add your ground smoked paprika, ground cumin, chilli flakes (can'
 
 Tip: Add a drizzle of oil if the pan looks a little dry
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1655803858264-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Tip: Add a splash of water if the rice is not fully cooked or the mixture is looking a little dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1655803861505-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Meanwhile, chop your coriander finely, including the stalks
 
 Drain your sweetcorn
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1655803866546-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once hot, add the remaining diced chorizo and cook for 4-5 min or until crisped
 
 Reduce the heat to medium-low, crack your egg[s] into the same pan and cook, covered, for 2-3 min or until done to your liking
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1655803869287-x200.jpg)
 
 ### Step 7
 

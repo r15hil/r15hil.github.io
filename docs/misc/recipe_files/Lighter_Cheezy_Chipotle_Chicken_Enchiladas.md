@@ -28,6 +28,7 @@ A Tex-Mex classic, chicken enchiladas are a guaranteed crowd-pleaser! You'll mak
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682597540635-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a s
 
 Once hot, add your chicken breast strips with a pinch of salt and pepper and cook for 3 min on each side or until browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682597548155-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Peel and finely chop (or grate) your garlic
 
 Once the chicken is cooked through, transfer to a clean board (reserve the pan) and shred it apart, using two forks – this technique is known as ‘pulling’
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682597552372-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the sliced onion and chopped garlic and cook for 4-5 min or until 
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682597556270-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once fragrant, add 200ml <span class="text-purple">[300ml] </span><span class="t
 
 While the sauce is thickening, drain and rinse your black beans and sweetcorn
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682597560983-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Transfer 1/3 of the chipotle sauce to a medium-sized pot – this is your enchi
 
 Add the drained black beans & sweetcorn and pulled chicken to the pan with the remaining chipotle sauce and give it a good mix up – this is your enchilada filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682597565073-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Reheat the enchilada topping over a high heat for 2-3 min or until the sauce ha
 
 Meanwhile, tear your cheese flavour slices
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682597568484-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ We've given Sausage, chips and beans an Italian transformation with this delicio
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/782_step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Place the Cumberland&nbsp;sausages on a baking tray (lightly oil the tray to pre
 
 Put them in the oven for 30 min or until golden brown and cooked through
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/782.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Place in the oven and cook for 25 min
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/782.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Set aside on a piece of kitchen paper to drain the excess oil
 
 Reserve the pan for later&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/782.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,11 +82,13 @@ Cook for 5-6 min until softened
 
 Add the diced&nbsp;garlic and cook for a further 1-2 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/782.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the Italian&nbsp;balsamic vinegar and cook for 1 min until&nbsp;evaporated
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/782.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Add the drained&nbsp;butter beans, chopped tomatoes, bay leaves and tomato paste
 
 Cook for 8-10 min until reduced
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/782.-step-7-x200.jpg)
 
 ### Step 7
 

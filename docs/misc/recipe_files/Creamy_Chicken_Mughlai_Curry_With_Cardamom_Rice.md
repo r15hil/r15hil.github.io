@@ -29,6 +29,7 @@ This aromatic curry is inspired by Mughlai-style cuisine from Pakistan. You’ll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1705493219415-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Boil a kettle
 
 Peel and dice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1705493222997-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a generous pinch of salt and cook for 6-7 min or until slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1705493226952-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Meanwhile, trim, then chop your green beans into bite-size pieces
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[260ml] </span><span class="text-danger">[350ml] </span>boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1705493232621-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your cardamon rice
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1705493236616-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once the onion has softened, add your ground turmeric and garam masala to the pa
 
 Once fragrant, add your diced chicken breast and ginger & garlic paste and cook for 3-4 min or until browned all over
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1705493240345-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once the chicken has browned, add 1 tsp <span class="text-purple">[1 1/2 tsp] </
 
 Add the chicken stock with your sultanas and chopped green beans and cook for 7-8 min or until the sauce has thickened and the chicken is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1705493243812-x200.jpg)
 
 ### Step 7
 

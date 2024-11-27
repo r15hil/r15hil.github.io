@@ -25,6 +25,7 @@ Look no further than our Mexican take on fish and chips. You'll coat haddock bit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657625699382-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the chopped sweet potato to a baking tray (or two!) with a drizzle of olive
 
 Put the tray[s] in the oven for 25 min or until the sweet potato is cooked through and starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657625710122-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Add the haddock bites to a bowl with your chipotle paste (can't handle the heat? Go easy!) and give them a good mix until the fish is nicely coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657625717764-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add your panko breadcrumbs to a plate
 
 Add the coated haddock to the panko breadcrumbs and press firmly to coat evenly all over
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657625728061-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the breaded haddock with a pinch of salt and cook for 3 min on ea
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657625735422-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Cut your lime[s] in half
 
 Trim, then slice your spring onion[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657625740309-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Combine your mayo with the chopped garlic (not a fan of raw garlic? Go easy!), t
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657625747675-x200.jpg)
 
 ### Step 7
 

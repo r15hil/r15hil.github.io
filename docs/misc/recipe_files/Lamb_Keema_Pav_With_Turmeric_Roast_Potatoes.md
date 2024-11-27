@@ -30,6 +30,7 @@ Lamb keema is central to Mumbai’s street food scene. To make our version, you'
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1832Step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Drizzle with vegetable oil, then add your ground turmeric with a pinch of salt 
 
 Put the tray[s] in the oven for 30-35 min or until crisp and cooked through – these are your turmeric roast potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1832Step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Dice your tomato[es]
 
 Cut your green chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1832Step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ While the onion softens, peel and finely chop (or grate) your garlic
 
 Once the onion has softened, add the chopped garlic with your ground cumin, ground coriander and half the chopped chilli (can't handle the heat? Go easy!) and cook for 1-2 min further or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1832Step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,11 +78,13 @@ Tip: Spoon off any excess fat that may come out of the meat
 
 Meanwhile, boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1832Step-5-x200.jpg)
 
 ### Step 5
 
 Once the lamb mince has browned, add your garam masala to the pan with 150ml <span class="text-purple">[225ml]</span><span class="text-danger"> [300ml]</span> boiled water and cook for 5-6 min further or until the lamb is cooked through (no pink meat!) and the sauce has thickened – this is your lamb keema pav
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1832Step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Add the brioche halves to a baking tray and put in the oven for 3-4 min or until
 
 Once done, spread the warmed brioche halves with butter
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC1832Step-7-x200.jpg)
 
 ### Step 7
 

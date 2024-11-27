@@ -30,6 +30,7 @@ Hailing from Tamil Nadu, this spicy chicken curry packs in plenty of flavour! Se
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1811.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely slice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1811.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Cut your green chilli[es] in half lengthways
 
 Roughly chop your coriander, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Rice-in-pan-with-lid-1687784193721-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1811.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add your black mustard seeds and cumin seeds to the pan and cook for 1 min or u
 
 Add the sliced onion with a pinch of salt and cook for 3-4 min or until the onion is starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Onion-gravy-stock-1592931070486-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once the onion has softened, add your ground turmeric and tomato paste to the p
 
 Meanwhile, dissolve your chicken stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1811.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Once the onion has caramelised, add the chopped garlic, chopped ginger, chilli
 
 Add your diced chicken thigh and chicken stock and cook for 12-14 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened – this is your Chettinad-style chicken thigh curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1697122992903-x200.jpg)
 
 ### Step 7
 

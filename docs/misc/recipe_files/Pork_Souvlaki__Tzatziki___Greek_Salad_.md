@@ -24,6 +24,7 @@ Souvlaki is Greece's answer to the much loved grilled kebab. You'll coat tender 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1069.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Slice the pork loin steaks into large bite-sized pieces
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1069.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the soy sauce, honey, dried oregano and half the chopped garlic (save the re
 
 Add the sliced pork steaks to the bowl and gently mix it all together then set aside to marinate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1069.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Dice the tomato<span class="text-danger">[es]</span>
 
 Deseed the green pepper<span class="text-danger">[s]</span> (scrape the seeds and pith out with a teaspoon) and cut into large, bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1069.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the diced tomato and diced cucumber to a bowl
 
 Drizzle with olive oil and season with a pinch of salt and pepper – this is your Greek salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1069.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the skewers to a baking tray (use tin foil to avoid mess!)
 
 Put the tray under the grill for 12-14 min, turning once halfway through, or until everything's cooked through (no pink meat!) and slightly charred – this is your pork souvlaki
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1069.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Combine the grated cucumber, natural yoghurt and remaining chopped garlic (don
 
 Season with salt and pepper – this is your tzatziki
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1069.-step-7-x200.jpg)
 
 ### Step 7
 

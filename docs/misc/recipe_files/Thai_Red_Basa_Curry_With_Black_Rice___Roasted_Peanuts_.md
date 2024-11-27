@@ -26,6 +26,7 @@ Our twist on Thai red curry is one of the simplest dinners you'll make. It's equ
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1652178820797-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the black rice to a pot of plenty of boiled water and cook over a high heat 
 
 Once cooked, drain and return to the pot, then cover with a lid until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1652178823293-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1652178826234-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a dri
 
 Once hot, add the pepper strips with a generous pinch of salt and cook for 5-6 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1652178828581-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ While the pepper is cooking, chop the creamed coconut roughly (if required!)
 
 Dissolve the vegetable stock mix, soy sauce, 1 tsp <span class="text-danger">[2 tsp]</span> sugar, lime leaf<span class="text-danger">[ves]</span> and chopped creamed coconut in 150ml <span class="text-danger">[250ml]</span> boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1652178831953-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Crush the roasted peanuts in the bag with a rolling pin
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1652178834592-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the pepper has softened, add the Thai red curry paste, chopped ginger, chop
 
 Once fragrant, add the coconut stock and cook for 2-3 min or until the sauce has started to thicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1652178837984-x200.jpg)
 
 ### Step 7
 

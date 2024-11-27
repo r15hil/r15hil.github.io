@@ -26,6 +26,7 @@ Fill your kitchen with exciting Mexican street food flavours. You'll char chicke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1594129423917-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Scrunch the foil around the corn until tightly sealed and add to a baking tray
 
 Put the tray in the oven for 20-25 min or until the corn is tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1594129436390-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chicken breast portions to a bowl with the chipotle paste, half the caye
 
 Give everything a good mix up, then set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1594129467293-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Blitz until you're left with a green liquid – this is your coriander paste
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1594129478800-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Once melted, add the white long grain rice with a generous pinch of salt and coo
 
 Tip: Watch it like a hawk to make sure it doesn't burn!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1594129487745-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your green rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1594129602027-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Whilst the rice is cooking, heat a large, wide-based pan (preferably non-stick) 
 
 Once hot, add the marinated chicken and cook for 8-9 min on each side or until cooked through and slightly charred (no pink meat!) – this is your chipotle chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1594129608964-x200.jpg)
 
 ### Step 7
 

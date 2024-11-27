@@ -23,6 +23,7 @@ Whip up this tasty one-pot, a takeaway classic with a Thai twist. Stir-fry juicy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1564.-step-1.a-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Wash your fruit and veg
 
 Note: equipment and pan sizes vary. Ensure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1564.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -57,6 +59,7 @@ Meanwhile, microwave your&nbsp;steamed pure basmati rice&nbsp;according to packe
 
 Tip: if you're cooking two packets, pop them in together but increase microwave cook time accordingly!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1564.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Once hot, add the king prawns&nbsp;to the pan and cook for 30 sec
 
 Add the garlic paste and ginger paste and cook for a further 2 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1564.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,11 +77,13 @@ Meanwhile, add the&nbsp;shredded kale&nbsp;to a colander over the sink
 
 Pour the&nbsp;boiled water&nbsp;all over them until bright green and wilted&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1564.-step-5-x200.jpg)
 
 ### Step 5
 
 Add the wilted kale&nbsp;to the pan with the heated rice and cook for 30 sec
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1564.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Cook for a further 1-2 min or until everything's combined and the prawns are coo
 
 Note: please ensure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1564.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Speed up your weeknight with this Spanish-style rice dish. You’ll whip up a to
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1670930173946-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your yellow rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1670930178661-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Cut the remaining onion into thin wedges
 
 Peel and grate your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1670930185823-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of o
 
 Once hot, add the diced onion, 2/3 of the grated garlic (you'll use the rest later!) and a generous pinch of salt and sugar and cook for 3-4 min or until softened and beginning to caramelise
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1670930196521-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Boil half a kettle
 
 Once the onion and garlic has softened, add your ground smoked paprika to the pan with a generous pinch of salt and cook until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1670930204802-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once fragrant, add the sliced pepper and onion wedges to the pan with a crack of
 
 Meanwhile, combine your mayo with the remaining grated garlic (not a big garlic fan? Try using less!), a very small splash of cold water and a pinch of salt – this is your garlic mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1670930213666-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once slightly softened, add your tomato paste to the pan and cook for 1-2 min, t
 
 Add your blanched peas, give everything a good mix up and cook for 2 min or until warmed through – this is your spiced veggie mixture
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1670930221337-x200.jpg)
 
 ### Step 7
 

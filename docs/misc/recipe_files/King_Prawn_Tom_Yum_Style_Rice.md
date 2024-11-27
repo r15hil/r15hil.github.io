@@ -26,6 +26,7 @@ This Thai tom yum-inspired fried rice is full of fragrant flavours. You’ll whi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1724711312241-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724711330645-x200.jpg)
 
 ### Step 2
 
@@ -42,11 +44,13 @@ Peel and finely dice your brown onion[s]
 
 Chop your tomato[es] finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724711341856-x200.jpg)
 
 ### Step 3
 
 Combine half of your sriracha (can't handle the heat? Go easy!) with your fish sauce, ginger & garlic paste, a squeeze of lime juice and 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> sugar – this is your tom yum-style sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724711349928-x200.jpg)
 
 ### Step 4
 
@@ -56,16 +60,19 @@ Once hot, add the diced onion and cook for 2-3 min or until beginning to soften
 
 Once softened, drain then add your king prawns with the chopped tomato and cook for 4-5 min or until cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724711357707-x200.jpg)
 
 ### Step 5
 
 Once cooked through, add the cooked rice and your garden veg mix and cook for 2-3 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724711366060-x200.jpg)
 
 ### Step 6
 
 Add your vegetable stock mix and the tom yum-style sauce and give everything a good mix up – this is your King prawn tom yum-style rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724711377364-x200.jpg)
 
 ### Step 7
 

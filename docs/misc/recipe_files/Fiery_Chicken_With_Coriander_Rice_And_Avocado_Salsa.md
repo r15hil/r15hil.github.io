@@ -28,6 +28,7 @@ For this fiery Mexican-inspired dish you’ll coat lean chicken with cayenne, pa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2214-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Rinse your brown rice, add it to a pot with plenty of cold water with your chick
 
 Once boiling, reduce the heat to medium and cook for 20-25 min or until it's tender with a slight bite, then drain and return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2214-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add your ground smoked paprika, cayenne pepper (can't handle the heat? Go easy!)
 
 Add the flattened chicken to the plate and turn until well coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2214-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once hot, add the coated chicken and cook for 5-6 min on each side or until coo
 
 Once cooked, remove the pan from the heat and reserve the oil in the pan – this is your spicy oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1668447208582-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cut your avocado[s] in half lengthways, around the stone[s]
 
 Remove the stone[s] using a spoon, then scoop out the avocado flesh and mash roughly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1668447203876-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Wash your lettuce, then pat it dry with kitchen paper
 
 Remove the outer leaves and shred the inner core[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1668447218161-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Add the mashed avocado and diced shallot to a bowl with half the coriander (you'
 
 Give everything a good mix up – this is your avocado salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1668447224032-x200.jpg)
 
 ### Step 7
 

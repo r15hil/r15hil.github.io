@@ -26,6 +26,7 @@ These Swedish meatballs are pure comfort food: juicy pork, creamy mash, homemade
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/779.step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the chopped potatoes to a pot with plenty of boiled water and a generous pin
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, then once done, drain and return to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661422229886-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Mix thoroughly with clean hands until fully combined, then shape into 6 meatbal
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a large knob of butter over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661422233158-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add your dried cranberries to a bowl and cover with boiled water
 
 Once the meatballs have browned, transfer them to a plate and set aside, these will finish cooking in the sauce later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661422237434-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Return the pan to a medium heat, and once hot, add 1 tbsp <span class="text-purp
 
 Gradually whisk in the stock and cook for 2-3 min until slightly thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661422241148-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add most of the chopped dill (save the rest for garnish!) to the thickened sau
 
 Return the meatballs to the pan and cook, covered, for 12-15 min further or until the meatballs are cooked through (no pink meat!) and the sauce has thickened to a gravy-like consistency – these are your Swedish-style meatballs & gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661422244671-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Return the drained potatoes to a low heat and add a knob of butter and a splash 
 
 Mash until smooth, then season with a pinch of salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1661422249548-x200.jpg)
 
 ### Step 7
 

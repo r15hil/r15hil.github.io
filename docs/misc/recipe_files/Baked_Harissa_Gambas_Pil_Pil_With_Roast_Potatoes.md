@@ -26,6 +26,7 @@ Turn this small plate classic into the main event with tonnes of garlic, harissa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1688044239316-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1688044248880-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Chop your potatoes (skins on) into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1688044304014-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cut your lemon[s] into 2 wedges per person
 
 Peel and finely slice (don't chop!) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1688044307350-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add the chopped potatoes to a baking tray with a drizzle of olive oil and a pinc
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1688044310809-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Add 3 tbsp <span class="text-purple">[4 1/2 tbsp]</span> <span class="text-dange
 
 Give everything a good mix up and put the dish in the oven for an initial 15 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1688044315675-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1688044319144-x200.jpg)
 
 ### Step 7
 

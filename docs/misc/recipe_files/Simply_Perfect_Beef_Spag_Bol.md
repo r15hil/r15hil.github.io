@@ -27,6 +27,7 @@ Brilliant for weeknights and slurp-tastic for adults and children alike. Rustle 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1938.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop the brown onion<span class="text-danger">[s]</span>
 
 Top, tail, peel and finely chop the carrot<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1938.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and carrot with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1938.-step-3-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1938.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Once the onion and carrot are beginning to soften, add the beef mince to the pan
 
 Cook for 3-4 min further or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1938.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite then drain an
 
 Meanwhile, dissolve the beef stock mix, Henderson’s Relish and soy sauce in 100ml <span class="text-danger">[200ml]</span> boiled water – this is your stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1938.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Add the chopped garlic, tomato paste, stock, chopped tomatoes, dried basil and d
 
 Season with a grind of black pepper, bring to the boil over a high heat and cook for 4-5 min further or until thickened – this is your beef bolognese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1938.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ Switch up your low carb dinner roster with smoky chicken thighs, and flavour-pac
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1607345429262-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Preheat the grill to medium-high, then take your chicken out of the fridge, open
 
 Add your chicken thighs to an oven-proof dish (make sure the chicken isn't overlapping!) with a drizzle of olive oil and your chipotle paste (can't handle the heat? Go easy!) – this is your BBQ chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1607345438579-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ While the chicken is grilling, peel and finely chop (or grate) your garlic
 
 Drain your sweetcorn
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1607345443524-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the chopped garlic, drained sweetcorn, chilli flakes (not a fan of spice? Ju
 
 Crumble in your feta, season with a pinch of salt and pepper and stir to combine – this is your fritter mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1607345453427-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Once hot, spoon the fritter mixture into the pan, roughly divided into 2 per per
 
 Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1637942976271-x200.jpg)
 
 ### Step 5
 
 While the fritters are cooking, chop your chives finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1607345462841-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Combine most of the chopped chives (save some for garnish!) with your mayo
 
 Add a little splash of cold water to loosen and season with a crack of black pepper – this is your chive mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1607345467042-x200.jpg)
 
 ### Step 7
 

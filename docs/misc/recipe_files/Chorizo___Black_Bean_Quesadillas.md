@@ -25,6 +25,7 @@ Here’s a cheesy dinner with a little Mexican flavour. You’ll load tortillas 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-3-1680004005095-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat
 
 Once hot, add your diced chorizo with 3/4 of the sliced onion (save the rest for later!) to the pan and cook for 6-7 min or until the chorizo has crisped and the onion has softened slightly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-2-1680004009811-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Dice your tomato[es] finely
 
 Drain and rinse your black beans
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-2-1680004014550-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Cook for 1 min or until fragrant, then add the drained black beans and 50ml <spa
 
 Reduce the heat to medium and cook for 2-3 min or until the liquid has absorbed and the beans have softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-2-1680004021727-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Add half your cider vinegar (you'll use the rest later!) to a bowl with a drizzl
 
 Add the remaining sliced onion and diced tomato to the dressing and set aside – this is your tomato & onion salsa
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-2-1680004025846-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the beans have softened, remove the pan from the heat and crush the beans u
 
 Add the grated cheese and remaining cider vinegar and stir it all together – this is your chorizo & black bean filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-2-1680004029408-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Divide the chorizo & black bean filling between your tortillas, covering only ha
 
 Fold each tortilla over and press down firmly so you're left with 3 half moon-shaped quesadillas per person – these are your quesadillas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1680004033327-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Prepped in just 5 mins, this Korean-style rice bowl is packed with spicy, garlic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1682088768816-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682088780729-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Trim the green stalk[s] off your aubergine[s] and chop into 4<span class="text-d
 
 Once hot, add the aubergine wedges to the dish and cook for 2-3 min or until lightly browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682088786233-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Whilst the aubergine is browning, deseed your pepper[s] (scrape the seeds and pi
 
 Crush your garlic open by squashing with the side of a knife and remove the skin
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682088792812-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add 50ml <span class="text-purple">[65ml]</span> <span class="text-danger">[85ml
 
 Cover with a lid and put it in the oven for 25 min or until the aubergine wedges are tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682088796736-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add the drained rice to an oven-proof dish with 250ml <span class="text-purple">
 
 Cover tightly with tin foil and put the dish in the oven for 25 min or until all the water is absorbed and the rice is cooked – this is your sticky rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682088800595-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Rinse your blanched edamame beans under cold running water
 
 Add your rice vinegar, mayo, the remaining gochujang paste (not a fan of spice? Just add a little!), refreshed edamame beans and smashed cucumber to a bowl and mix everything together – this is your gochujang cucumber & edamame salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682088804685-x200.jpg)
 
 ### Step 7
 

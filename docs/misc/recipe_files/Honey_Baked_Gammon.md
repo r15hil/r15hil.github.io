@@ -20,6 +20,7 @@ Gammon is essentially uncooked ham. It's taken from the hind of pork leg and is 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/412.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Heat a dry pan (preferably non-stick) over a high heat
 
 Once hot, add the baby gammon joint<span class="text-danger">[s]</span>&nbsp;and cook on all sides until browned (this is known as searing) for approx. 5 min&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/412.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Meanwhile, combine the honey with half of the&nbsp;mustard, reserving&nbsp;the r
 
 Cover the cranberries in enough boiled water to cover them and set&nbsp;them aside, this rehydrates them so they plump up a little&nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/412.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Pour the honey mustard mixture over the gammon
 
 Place the tray in the oven for 30-40min&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/412.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Place&nbsp;the potatoes on a separate baking tray and drizzle with 2 tbsp <span 
 
 Put&nbsp;the potatoes in the oven for 25-30 min or until crispy and golden
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/412.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Combine the remaining&nbsp;mustard with the mayonnaise and set aside until servi
 
 Grab a tea, or take some time to clear up while the gammon and potatoes tick away&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/412.-step-6-x200.jpg)
 
 ### Step 6
 
 Remove the cooked gammon from the oven and allow it to rest on a clean chopping board for 5 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/412.-step-7-x200.jpg)
 
 ### Step 7
 

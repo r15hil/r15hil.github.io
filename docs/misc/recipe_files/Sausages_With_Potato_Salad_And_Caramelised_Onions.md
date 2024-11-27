@@ -24,6 +24,7 @@ We’ve given British bangers and mash a summery spin. You'll bake (or BBQ if th
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/609__step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the sausages to a tin foil-lined baking tray
 
 Put them in the oven for 20-25 min or until they are browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/609-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add the sliced red onion with a pinch of salt
 
 Cook for 5 min, or until the onion has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/609-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Add them to a pot, cover with plenty of cold water and a pinch of salt
 
 Bring to a boil over a high heat and cook for 20 min or until fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/609-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Once the red onion has softened, add 1 tsp <span class="text-danger">[2 tsp]</s
 
 Reduce the heat to its lowest setting and cook the onions for a further 20 min, or until they're sticky and sweet – these are your caramelised onions
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/609-step-5-x200.jpg)
 
 ### Step 5
 
 While the onions are caramelising, combine the mayo, wholegrain mustard and white wine vinegar with 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of pepper in a small bowl – this is your dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1627028901338-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Wash the baby leaf salad, then pat it dry with kitchen paper
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/609-step-7-x200.jpg)
 
 ### Step 7
 

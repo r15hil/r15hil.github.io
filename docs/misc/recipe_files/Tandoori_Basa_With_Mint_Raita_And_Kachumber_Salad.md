@@ -26,6 +26,7 @@ For a quick tandoori-style dish, you'll char marinated fish under the grill to i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add your basmati rice, nigella seeds, a pinch of salt and 300ml <span class="te
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked – this is your nigella rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once cooked, remove the rice from the heat and keep covered until serving
 
 Cut your basa fillet[s] in half lengthways, and then chop into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Combine half of your natural yoghurt (you'll use the rest later!) with your curr
 
 Add the chopped basa pieces and mix well until they're completely coated – this is your coated basa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Add the coated basa to the baking tray[s] and place under the grill for 6-7 min 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916_step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Peel and finely chop your shallot[s]
 
 Dice your tomato[es]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Combine the diced cucumber, chopped shallot and diced tomato with 1 tbsp <span 
 
 Season with a pinch of salt – this is your kachumber salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/916.-step-7-x200.jpg)
 
 ### Step 7
 

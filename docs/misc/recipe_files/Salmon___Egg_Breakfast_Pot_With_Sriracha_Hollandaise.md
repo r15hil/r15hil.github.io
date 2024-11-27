@@ -21,6 +21,7 @@ Get an early start with this easy breakfast pot. You’ll load soft-boiled eggs 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Breakfast-Step-1-1-1729073739421-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Skim through these steps and get all your equipment ready, then wash your fruit 
 
 Once done, simply dig in or wrap up ready for your day!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727446613248-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add your egg[s] to a pot of boiled water with a pinch of salt and bring to the b
 
 Once boiling, cook for exactly 6 min for perfect, soft-boiled eggs, then fill a bowl of very cold water and add the cooked egg[s] to the bowl and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727446617335-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the spinach with a pinch of salt and cook for 2-3 min or until starting to wilt
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727446621345-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once melted, add your mayo and sriracha (can't handle the heat? Go easy!) to the
 
 Stir it all together until you have a thick sauce – this is your sriracha hollandaise
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1727446624762-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Once the spinach has started to wilt, push it to one side of the pan and add you
 
 Cover with a lid and cook for 2-3 min or until warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727446629327-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once toasted, spread with a knob of butter and cut in half diagonally – this i
 
 Peel the cooled egg[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727446632339-x200.jpg)
 
 ### Step 7
 

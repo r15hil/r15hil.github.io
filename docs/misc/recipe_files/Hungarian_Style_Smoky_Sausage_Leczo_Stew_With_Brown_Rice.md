@@ -28,6 +28,7 @@ Keep those hunger pangs at bay with this Hungarian-style stew. You’ll simmer s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1706615989053-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your hot dog sausage[s] and cook for 1-2 min on each side or until browned all over
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1706615997799-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Cut narrow slices widthways (about the width of a pound coin) into the hot dog s
 
 Add the sliced hot dog sausage[s] to a tin foil-lined baking tray and put the tray in the oven for 15-18 min or until the sausage[s] is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1706616006815-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1706616013977-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Chop your tomato[es] into wedges
 
 Deseed your peppers (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1706616021331-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once hot, add the sliced onion, pepper strips and bay leaf[ves]<span class="text
 
 Dissolve your chicken stock mix in 250ml <span class="text-purple">[325ml]</span> <span class="text-danger">[450ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1706616029323-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once fragrant, add the chicken stock to the pan with 1 tsp <span class="text-pur
 
 Once boiling, reduce the heat to medium and cook for 5-6 min or until the vegetables are tender and the stock has thickened to a stew-like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1706616036906-x200.jpg)
 
 ### Step 7
 

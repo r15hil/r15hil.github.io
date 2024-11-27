@@ -23,6 +23,7 @@ You’ll want your pan smokin’ hot to treat these juicy chicken thighs right. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680080403640-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Trim, then chop the green beans in half
 
 Dissolve the chicken stock mix in 250ml <span class="text-danger">[500ml]</span> boiled water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680080410496-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680080416307-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Pat the chicken thighs dry with kitchen paper and season them generously on both
 
 Once hot, add the chicken thighs, skin-side down and cook for 10 min or until the skins have browned and crisped
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1-1680080420318-x200.jpg)
 
 ### Step 4
 
@@ -63,11 +67,13 @@ Once hot, add the sliced onion with a pinch of salt and cook for 3 min or until 
 
 Once softened, add the chopped garlic, diced sweet potato and dried thyme and cook for 3-4 min further or until fragrant and starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680080428126-x200.jpg)
 
 ### Step 5
 
 Once starting to brown, add the chicken stock and halved green beans and cook, covered, for a final 10 min or until the sweet potato is fork-tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680080434304-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once browned, turn the crispy chicken thighs and cook them for a further 6 min o
 
 Once done, transfer the chicken to a clean board and set aside to rest for a couple of min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680080440262-x200.jpg)
 
 ### Step 7
 

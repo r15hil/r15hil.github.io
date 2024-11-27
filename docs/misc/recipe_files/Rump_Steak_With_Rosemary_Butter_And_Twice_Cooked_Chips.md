@@ -24,6 +24,7 @@ Steak night just got a buttery boost. You’ll pan-fry your steak till perfectly
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1700570878091-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the thick chips to a pot with plenty of boiled water and a pinch of salt and
 
 Once boiling, reduce the heat to medium and cook for 5 min, then drain and rinse with cold water to cool them slightly (save the pot!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1700570882658-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the par-boiled chips to a baking tray (or two!) with a drizzle of vegetable 
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your twice cooked chips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700570888036-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Crush your garlic open by squashing it with the side of a knife and discard the 
 
 Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then top, tail and slice finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700570893162-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Blitz until you are left with a smooth paste – this is your onion & rosemary b
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1700570897448-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Wash your spinach then add to a colander and pour boiled water all over it so th
 
 Rinse the wilted spinach under cold running water until it's cool, then squeeze as much water out of the spinach as you can
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1700570902577-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cook for 3-4 min or until thickened – this is your creamed leek and spinach
 
 Heat a large, wide-based pan (preferably non-stick) over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1700570906771-x200.jpg)
 
 ### Step 7
 

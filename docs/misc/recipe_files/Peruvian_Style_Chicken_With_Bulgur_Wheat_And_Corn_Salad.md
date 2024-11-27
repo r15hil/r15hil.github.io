@@ -27,6 +27,7 @@ This lime chicken 'Buddha Bowl' brings the flavours of Peru to your table. Peruv
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1697475443445-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Combine your chicken breast strips and ground cumin in a bowl with your dried oregano, a drizzle of vegetable oil and a generous pinch of salt – this is your coated chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1697475456428-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve half your chicken stock mix (you'll use the rest later!) in 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[150ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1697475461097-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once the chicken has browned, add the chopped garlic and your chilli flakes (can
 
 Once fragrant, add the chicken stock and cook, covered, for a further 10 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1697475465851-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain, return to the pot and stir through the remaining chicken stock mix with a grind of black pepper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1697475470335-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Chop your tomato[es] finely
 
 Zest half your lime[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter!), then chop the zested lime[s] in half
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1697475474014-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Drain your sweetcorn
 
 Combine the drained sweetcorn and chopped tomato in the bowl with the dressing and give everything a good mix up – this is your corn salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1697475478329-x200.jpg)
 
 ### Step 7
 

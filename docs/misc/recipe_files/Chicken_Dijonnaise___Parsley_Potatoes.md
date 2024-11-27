@@ -23,6 +23,7 @@ Chicken Dijonnaise is a classic, easy to make French casserole that the whole fa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/955.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once hot, add the chicken, skin-side down and cook for 10 min, turning once
 
 Boil <span class="text-highlight">a full kettle</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/955.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boi
 
 Once cooked, drain and leave them to steam dry in a colander, keep the same pot for later!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/955.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Peel and slice the shallot<span class="text-danger">[s]</span> finely
 
 Chop the parsley finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/955.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Once the skin is crispy, transfer the chicken to a baking tray, skin-side up
 
 Put the tray in the oven for 12-14 min or until the chicken is cooked through<span class="text-highlight"> (no pink meat!)</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/955.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Add the chopped mushrooms with a pinch of salt and cook for 5-6 min or until t
 
 Meanwhile, dissolve 1/2 <span class="text-danger">[1]</span> <span class="text-highlight">Knorr</span> chicken stock cube in 200ml <span class="text-danger">[400ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/955.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -95,6 +101,7 @@ Once hot, add the sliced shallot and drained potatoes and cook for 3-4 min or
 
 Add the chopped parsley, season with a pinch of salt and pepper and mix until well coated – these are your parsley potatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/955.-step-7-x200.jpg)
 
 ### Step 7
 

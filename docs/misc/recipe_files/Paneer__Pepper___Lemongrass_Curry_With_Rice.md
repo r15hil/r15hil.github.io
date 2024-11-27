@@ -29,6 +29,7 @@ By combining Indian spices with slow-cooked pepper, yoghurt and coriander, you'l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1682589725861-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut i
 
 Peel and finely slice your red onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1682589728650-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Once hot, add the cubed paneer and cook for 3-5 min or until beginning to golden
 
 Once cooked, transfer the golden paneer to a plate, reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1682589732610-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the pepper strips and sliced onion with a small pinch of salt and sugar
 
 Cook for 5 min, then reduce the heat to low and cook for a further 15 min or until softened and caramelised
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1682589736274-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Peel and finely chop (or grate) your garlic
 
 Bash your lemongrass with a rolling pin, cut down the middle lengthways, remove the tough outer layers and set aside for later, then chop the soft inner core[s] finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1682589739240-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat, discard the outer lemongrass layers and keep covered until serving – this is your lemongrass rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1682589742201-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the chopped ginger, chopped garlic, chopped lemongrass core, your curry p
 
 Chop your coriander finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1682589744874-x200.jpg)
 
 ### Step 7
 

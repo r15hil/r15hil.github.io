@@ -22,6 +22,7 @@ Try this knockout combo! You'll stuff chunky ciabatta rolls with golden-fried ha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/449_step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Cut the potatoes (skins on) into wedges, add them to a baking tray and drizzle
 
 Season generously with salt and pepper and put the tray in the oven for 30 min or until they're crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/449_step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Peel then grate the carrots into a large mixing bowl
 
 Add the rice vinegar and a large drizzle of olive oil, season with salt and pepper, mix well and set aside – this is your carrot slaw
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/449_step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add 500ml <span class="text-danger">[800ml] </span>boiled water to a wide pot a
 
 Once boiling, carefully add the halloumi slices and boil for 5-8 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/449_step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ While the ciabattas are toasting, chop the coriander finely, including the stalk
 
 Combine the harissa paste and mayo in a small bowl for serving – this is your harissa mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/449_step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once hot, remove the ciabatta rolls from the oven and leave to cool before slici
 
 Add the chopped coriander and nigella seeds to the carrot slaw and give everything a good mix
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/449_step-6-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once softened, drain and pat the halloumi slices dry with kitchen paper
 
 Using a rolling pin, flatten and roll out each piece into a size similar to the ciabatta – these are your halloumi steaks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/449_step-7-x200.jpg)
 
 ### Step 7
 

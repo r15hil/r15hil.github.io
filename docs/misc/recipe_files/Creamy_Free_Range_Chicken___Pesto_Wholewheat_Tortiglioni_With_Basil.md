@@ -24,6 +24,7 @@ For this simple, comforting pasta dish, you’ll whip up a creamy pesto sauce wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599746843993-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add your wholewheat tortiglioni to a pot of boiled water with a pinch of sa
 
 Once done, drain and reserve about 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml]</span> starchy cooking water
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1647884824531-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ While the pasta is cooking, peel and finely slice your red onion[s]
 
 Cut your free range chicken breast portion[s] into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1599746859158-x200.jpg)
 
 ### Step 3
 
@@ -47,11 +50,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced red onion with a pinch of salt and cook for 2-3 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599746869558-x200.jpg)
 
 ### Step 4
 
 Once starting to soften, increase the heat to high, add the chopped chicken and cook for 10-12 min or until golden and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599746877147-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Chop most of your basil, including the stalks (save some whole leaves for garnis
 
 Grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1599746884181-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Add your chicken stock mix with the chopped basil, soft cheese, pesto, half t
 
 Give everything a good mix up and cook for 1-2 min or until the sauce is creamy and starting to thicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599746893803-x200.jpg)
 
 ### Step 7
 

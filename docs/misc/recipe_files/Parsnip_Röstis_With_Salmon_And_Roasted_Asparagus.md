@@ -21,6 +21,7 @@ Breakfast? Brunch? A spot of fa-la-la-lunch? Sounds like the perfect time for a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1631108697235-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Grate the potatoes (skins on)
 
 Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1631108701173-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the sliced onion, grated potato and grated parsnip to the middle of a tea to
 
 Bring the four corners together to form a ball, twist the ball and squeeze out as much liquid as you can
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1631108705383-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Add the onion, potato & parsnip mix to a bowl with a generous pinch of salt and 
 
 Add 3 tbsp <span class="text-danger">[6 tbsp]</span> flour and 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil and give everything a good mix up – this is your rösti mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1631108708741-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Separate the rösti mix into 4 <span class="text-danger">[8]</span> and shape in
 
 Add the potato cakes to the baking tray<span class="text-danger">[s]</span> with a generous drizzle of olive oil and put the tray in the oven for an initial 15 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1631108712436-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Once the parsnip röstis have cooked for 15 min, flip them over and add the aspa
 
 Put the tray<span class="text-danger">[s] </span>back in the oven for a final 10 min or until the asparagus is  tender and the parsnip röstis are golden – these are your parsnip röstis and roasted asparagus
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1631108715786-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Put 3 tbsp <span class="text-danger">[6 tbsp]</span> butter in a pot with the dr
 
 Heat over a medium-low heat until the butter has melted – this is your butter sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1631108719488-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ This coastal Swahili speciality is a moreish street-food staple. You’ll coat c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671539436531-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel your potatoes and chop them into rough bite-size pieces, then add them to a
 
 Once boiling, reduce the heat to medium and cook for 10-12 min, then drain (save the pot!) and shake them around the colander to fluff up the edges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1671539439889-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ While the potatoes are cooking, take your steak[s] out of the fridge, open the p
 
 Coat the steak[s] in your smoked paprika and season generously with salt – this is your spiced steak[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671539445549-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Chop half your<span class="text-danger"> </span>tomato[es] roughly
 
 Peel and chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671539449092-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the coated potatoes to a baking tray with a drizzle of vegetable oil and a g
 
 Put the tray in the oven for 20-25 min or until crispy and golden – these are your viazi karai-style potatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671539459002-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once softened, add 120ml <span class="text-purple">[160ml]</span> <span class="text-danger">[200ml] </span>boiled water with your honey and tamarind paste and cook for a further 6-7 min or until thickened to a syrup-like consistency – this is your tamarind chutney
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671539463348-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Cut your lime[s] in half
 
 Combine the diced cucumber and diced tomato in a medium bowl with the remaining chilli flakes (not a fan of spice? Just add a little!), the juice of the lime[s]<span class="text-danger"> </span>and a pinch of salt – this is your kachumbari salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671539467896-x200.jpg)
 
 ### Step 7
 

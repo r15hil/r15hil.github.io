@@ -24,6 +24,7 @@ Tuck into a sun-kissed Cuban classic. You’ll build your sandwich with garlic b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1680046821838-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Chop your dill finely
 
 Add the sliced cucumber and chopped dill to a bowl with your cider vinegar, 1 tsp<span class="text-danger"> <span class="text-purple">[1 1/2 tsp] </span>[2 tsp]</span> sugar and a pinch of salt and give everything a good mix up, then set aside to pickle – this is your quick-pickled dill cucumber
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1680046827650-x200.jpg)
 
 ### Step 2
 
 Slice your potatoes (skins on) into thin discs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1680046831034-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Add the potato discs to a baking paper-lined baking tray with a drizzle of veget
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are you potato crisps
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1680046834666-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Tip: If your butter is not soft then microwave for a few secs or until soft to t
 
 Grate your cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1680046837968-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Spread the garlic butter evenly between the insides of the ciabattas
 
 Sandwich the drained cucumber, mustard ketchup, sliced prosciutto and grated cheese between the ciabattas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1680046842061-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once hot, add the filled ciabattas and press them down very firmly with a spatul
 
 Cook for 3-4 min on each side or until the bread is golden and the cheese has melted – this is your Cubano-style sandwich
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1680046846079-x200.jpg)
 
 ### Step 7
 

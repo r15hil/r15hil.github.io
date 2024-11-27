@@ -30,6 +30,7 @@ This baby corn and mangetout curry has a silky sauce made with coconut cream and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1623411764520-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Rinse your brown rice, add it to a pot with plenty of cold water and bring to th
 
 Once boiling, reduce the heat to medium and cook for 20-25 min or until it's tender with a slight bite
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1623411769692-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely chop your brown onion[s]
 
 Cut your baby corn in half lengthways
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623411774222-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion and curry powder and cook for 6-7 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623411778505-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Meanwhile, dissolve your vegetable stock mix, creamed coconut and peanut butter 
 
 Peel and finely chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1623411783050-x200.jpg)
 
 ### Step 5
 
 Once the onion is softened, add the halved baby corn and chopped garlic to the pan and cook for 2 min or until the garlic is fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623411787033-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once lightly browned, add your mangetout, peanut stock, soy sauce, lime leaves a
 
 Cook for 6-7 min or until the vegetables are tender
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623411791510-x200.jpg)
 
 ### Step 7
 

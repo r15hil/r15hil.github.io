@@ -28,6 +28,7 @@ Biryani, pronounced 'beery-anee,' is the paella of Indian food. Traditionally, i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1627058404795-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and dice your brown onion[s]
 
 Chop your chicken breast strips into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1627058408630-x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Once hot, add the diced onion, your curry powder and a pinch of salt and pepper
 
 Cook for 2 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1660039829526-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim, then chop your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1627058416021-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Tip: Add a drizzle more oil if the pan looks a little dry
 
 Sprinkle your chicken stock mix into the pan and add your tomato paste
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1627058419995-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Cook for a further 2 min or until the chicken is starting to brown
 
 Stir in your basmati rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1627058424286-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Reduce the heat to low and cook, covered, for 10-15 min or until the water has a
 
 Tip: Add a splash of water if the rice is not fully cooked or the mixture is looking a little dry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1627058428755-x200.jpg)
 
 ### Step 7
 

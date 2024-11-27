@@ -31,6 +31,7 @@ This oven-baked chilli is prepped in a flash. First, you'll toast smoky spices i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611912990602-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606133771136-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid
 
 Peel and chop your red onion[s] into quarters
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606133667386-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Slice 1/4 of the<span class="text-danger"> </span>red<span class="text-danger"> 
 
 Strip your coriander leaves from their stalks (discard the stalks!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606133706024-x200.jpg)
 
 ### Step 4
 
@@ -69,11 +73,13 @@ Drain and rinse your black beans
 
 Crush your garlic open by squashing it with the side of a knife and discard the skin
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606133714629-x200.jpg)
 
 ### Step 5
 
 Add your ground cumin, chilli flakes (can't handle the heat? Go easy!), ground smoked paprika and crushed garlic to the dish and give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606133719956-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Cover with the lid and put the dish in the oven for an initial 20 min or until t
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1646219284517-x200.jpg)
 
 ### Step 7
 

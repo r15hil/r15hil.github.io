@@ -24,6 +24,7 @@ For this rustic Italian-style recipe, you'll crisp up crumbled meat-free sausage
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1620663073780-x200.jpg)
 
 ### Step 1
 
@@ -33,11 +34,13 @@ Break your meat-free sausages into rough pieces
 
 Heat a large, wide-based pan (preferably non-stick, matching lid) with a generous drizzle of olive oil over a medium-high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620663077619-x200.jpg)
 
 ### Step 2
 
 Once hot, add the meat-free sausage pieces with your chilli flakes (can't handle the heat? Go easy!) and a generous grind of black pepper and cook for 6-7 min or until browned all over, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1620663085390-x200.jpg)
 
 ### Step 3
 
@@ -47,6 +50,7 @@ Bring to the boil over a high heat and cook for 10-12 min or until cooked with a
 
 Once done, drain the cooked spaghetti and return to the pot with a drizzle of olive oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1620663090471-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Peel and finely chop (or grate) your garlic
 
 Add the chopped garlic and halved cherry tomatoes to the pan and cook for 4-5 min further or until the tomatoes have begun to break down
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1620663096487-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add your spinach to a colander and pour boiled water all over it until wilted
 
 Rinse the wilted spinach under cold running water until it's cool enough to handle, then squeeze out any excess water (clean hands is best!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1620663101109-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the tomatoes are soft, add the tomato stock to the pan with the wilted spi
 
 Bring to the boil over a high heat and cook, covered, for a further 1-2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1620663104191-x200.jpg)
 
 ### Step 7
 

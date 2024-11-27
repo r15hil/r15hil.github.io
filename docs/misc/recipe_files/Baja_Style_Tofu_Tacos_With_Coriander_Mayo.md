@@ -29,6 +29,7 @@ For these tasty tacos, you'll coat tofu in spices before crisping them up in a p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1647347799437-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely slice your red onion[s]
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1647347803500-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the sliced red onion and pepper strips to a baking tray, drizzle with olive 
 
 Put the tray in the oven for 10-15 min or until soft and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1647347806105-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ While the vegetables are cooking, cut your tofu into 6 strips per person
 
 Add the tofu strips to a bowl, drizzle with your soy sauce and give everything a good mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1647347809694-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add your cornflour, smoked paprika, cayenne pepper (can't handle the heat? Go 
 
 Add the coated tofu strips to the bowl and gently turn them until they're fully coated in the spice mix
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1647347813148-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the spiced tofu strips and cook for 2-3 min on each side or until crisp – this is your crispy tofu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-wraps-on-a-bakin-tray-1677587614207-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ While the tofu strips are cooking, add your tortillas to a baking tray
 
 Put the tray in the oven for 2-3 min or until they're warmed through (alternatively, add them to a plate and microwave for 1-2 min!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1647347820708-x200.jpg)
 
 ### Step 7
 

@@ -21,6 +21,7 @@ Celebrate lamb at its finest with this contemporary twist on a British classic. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1574.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Peel the potatoes (chop any large potatoes in half!)
 
 Add the potatoes to a pot of boiling water with a pinch of salt, bring to the boil over a high heat and cook for 10-15 minutes or until fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1574.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the lamb rump and cook for 4-5 minutes, turning frequently, or unt
 
 Once browned, transfer to a baking tray and set the pan and tray aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1574.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the cooked potatoes to a baking tray with a generous drizzle of vegetable oi
 
 Put the tray in the oven for 35-40 minutes, turning halfway through, or until crispy
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1574.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Gradually mix in the beef stock, Henderson's Relish and redcurrant jelly &amp
 
 Remove from the heat and reheat before serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1574.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Once done, transfer to a plate and set aside to rest for at least 8-10 minutes
 
 Reserve the tray for step 7!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1574.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -99,6 +105,7 @@ Once melted, add the sliced leek<span class="text-danger">[s]</span> with a gen
 
 Once softened, add the soft cheese and a splash of water and cook for 6-8 minutes further
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1574.-step-7-x200.jpg)
 
 ### Step 7
 

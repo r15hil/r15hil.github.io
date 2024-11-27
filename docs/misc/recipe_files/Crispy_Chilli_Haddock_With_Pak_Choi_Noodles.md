@@ -30,6 +30,7 @@ Get crispy haddock bites by tossing them in cornflour, soy and chilli flakes bef
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1732.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Chop the white base into large, rough pieces and set aside the green tops
 
 Trim, then slice your spring onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1620828979313-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Bring to the boil over a high heat and cook for 5-7 min until tender with a slig
 
 Reserve the pot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1732.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ While the noodles are cooking, peel (scrape the skin off with a teaspoon) and ch
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1732.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine 3/4 of your soy sauce (you'll use the rest later!) with your sriracha (can't handle the heat? Go easy!), chopped ginger, 1 tsp <span class="text-purple">[1 1/2 tsp]</span><span class="text-danger"> [2 tsp]</span> sugar, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> vegetable oil and the juice of your lime[s] – this is your sriracha dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1732.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the pak choi tops and give everything a good mix up until they're wilted
 
 Transfer the cooked pak choi to the bowl with the noodles
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1732.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Tip: Unevenly sized haddock bites? Chop any larger ones into bite-sized pieces!
 
 Add your cornflour and mix until fully combined, then sprinkle over your chilli flakes (not a fan of spice? Just add a little!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1732.-step-7-x200.jpg)
 
 ### Step 7
 

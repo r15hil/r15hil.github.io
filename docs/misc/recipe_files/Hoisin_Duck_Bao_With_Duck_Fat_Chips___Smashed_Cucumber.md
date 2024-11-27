@@ -22,6 +22,7 @@ Your quest for the best baos ends here. You’ll pile pillowy buns high with ten
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1687534715184-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the duck leg[s] and half the duck jelly (you'll use the rest later!) to a ba
 
 Put the dish in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1687534720146-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, carefully add the chips to the baking tray with a generous pinch of sa
 
 Put the tray in the oven for 20-25 min or until golden and crisp – these are your duck fat chips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1687534750086-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Meanwhile, add your hoisin sauce to a pot with the remaining duck jelly, half yo
 
 Cook over a low heat for 4-5 min or until slightly thickened, then set aside – this is your hoisin glaze
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1687534754860-x200.jpg)
 
 ### Step 4
 
 Trim, then slice your spring onion[s] lengthways into thirds, then slice each third into thin strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1687534762411-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Bash your cucumber with a rolling pin then chop it into large bite-sized pieces 
 
 Add the smashed cucumber to a medium bowl with the remaining rice vinegar and a pinch of salt, sugar and pepper – this is your smashed cucumber salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1687534765409-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once cooked, remove the duck legs from the oven and shred apart using two forks 
 
 Discard all the bones and mix the duck with the juices – this is your shredded duck
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1687534770167-x200.jpg)
 
 ### Step 7
 

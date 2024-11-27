@@ -22,6 +22,7 @@ Pack in the pulses with this meat-free lasagne. You’ll layer tomatoey lentils 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1676913882890-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676913886659-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion and chopped garlic with a generous pinch of salt and cook for 2-3 min or until starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676913890201-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Once the onion has started to soften, add the drained green lentils, your choppe
 
 Cook for 2-3 min or until starting to thicken to a bolognese-like consistency – this is your lentil lasagne mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676913898773-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Dissolve your soft cheese in 150ml<span class="text-purple"> [225ml]</span> <spa
 
 Grate your cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676913903763-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Gradually whisk in the creamy stock, a little at a time, and cook for 5 min or u
 
 Season with a pinch of salt and pepper – this is your white sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1676913907497-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Cover with the white sauce, then top with the grated cheese
 
 Tip: You may need to layer differently depending on the size of your dish
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676913918818-x200.jpg)
 
 ### Step 7
 

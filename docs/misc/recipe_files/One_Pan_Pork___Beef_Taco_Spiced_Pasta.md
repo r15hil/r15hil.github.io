@@ -30,6 +30,7 @@ All the flavours of your fave tacos in a one pot masterpiece. You’ll spice por
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1707212687630-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Slice the remaining onion finely
 
 Slice your green chilli[es] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1707212695204-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the diced onion with your pork & beef mince (remove the paper if r
 
 Cook for 4-5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1707212702843-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Boil a kettle
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1707212710558-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Add your tomato paste and half the sliced chilli (can't handle the heat? Go easy
 
 Give everything a good mix up and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1707212719790-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Once boiling, reduce the heat to medium and cook, covered, for 11-14 min, or unt
 
 Tip: Stir occasionally to stop it from sticking!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1707212823567-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Combine your white wine vinegar with a drizzle of olive oil and a generous pinch
 
 Add the sliced onion, chopped tomato and remaining sliced chilli (not a fan of spice? Just add a little!) and give it a good mix up – this is your green chilli salsa
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1707212831183-x200.jpg)
 
 ### Step 7
 

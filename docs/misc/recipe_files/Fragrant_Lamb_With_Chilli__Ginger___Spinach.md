@@ -33,6 +33,7 @@ This quick, fiery recipe is inspired by Xinjiang cuisine in China. You'll stir-f
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1152.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Heat a medium size pot with a lid with a drizzle of vegetable oil over a medium
 
 Once hot, add the sliced spring onion and cook for 1 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1152.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1152.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1152.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add your lamb mince, ground cumin and cumin seeds to the pan and cook for 4 min or until starting to crisp, breaking it up with a wooden spoon as you go
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1152.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once cool, squeeze as much water out of the spinach as you can, then chop it rou
 
 Roughly chop your coriander, reserving some leaves for garnish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1152.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -89,6 +95,7 @@ Add the onion wedges to the pan and cook for 3 min or until they're beginning to
 
 Add the sliced chilli (can't handle the heat? Go easy!), garlic and chopped ginger to the pan and cook for 2-3 min further or until the garlic is lightly browned
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1152.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ March on down to the spice markets of Marrakesh for this aromatic take on spaghe
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1705423689417-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your pitted olives roughly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1705423699511-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once done, drain the cooked spaghetti and reserve a cup of the starchy pasta wat
 
 Reboil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1705423709249-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the diced onion and halved cherry tomatoes with a pinch of salt an
 
 Once slightly softened, add the chopped garlic and ras el hanout and cook for a further 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1705423720297-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Meanwhile, dissolve your vegetable stock mix in 150ml<span class="text-purple"> 
 
 Drain and rinse your green lentils
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1705423729318-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Cook for a further 3 min or until the sauce has started to thicken
 
 Once slightly thickened, add the drained lentils and chopped olives and cook for a further 3-4 min or until the lentils have slightly softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1705423737976-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ While the lentils are cooking, chop your basil finely, including the stalks
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1705423747169-x200.jpg)
 
 ### Step 7
 

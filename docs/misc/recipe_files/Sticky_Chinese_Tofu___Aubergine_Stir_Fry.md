@@ -27,6 +27,7 @@ Sticky, moreish and utterly satisfying, this Chinese-inspired aubergine and tofu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1329.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1329.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Cut the red onion<span class="text-danger">[s]</span> into wedges
 
 Chop the tofu into chunky bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1329.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Cook for 6-7 min or until browned all over and cooked through&nbsp;
 
 Tip: cover with a lid to cook the aubergine more evenly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1329.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -77,6 +81,7 @@ Cut the&nbsp;red chilli<span class="text-danger">[es]</span> in half lengthways,
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1329.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -97,6 +102,7 @@ Add the tofu and cook for 4-6 min or until browned all over&nbsp;
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1329.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -108,6 +114,7 @@ Add a&nbsp;drizzle of vegetable oil to the pan
 
 Add the whole baby corn and onion wedges&nbsp;to the pan and cook for 4-6 min or until the baby corn is cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1329.-step-7-x200.jpg)
 
 ### Step 7
 

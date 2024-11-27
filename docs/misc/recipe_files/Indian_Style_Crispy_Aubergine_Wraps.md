@@ -30,6 +30,7 @@ Crispy, fragrant and oozing with flavour, these cumin-spiced aubergine stuffed w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1677586072459-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Transfer the halved tomatoes to a heatproof bowl with a spray of vegetable oil a
 
 Transfer the bowl to the air fryer basket and cook for 5 min or until the tomatoes are charred and starting to break down, then set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1677586082020-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Slice your green chilli[es] finely
 
 Chop your coriander finely, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1677586091758-x200.jpg)
 
 ### Step 3
 
@@ -59,11 +62,13 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[
 
 Combine your cumin seeds and nigella seeds with your panko breadcrumbs on a separate plate with a pinch of salt and pepper – these are your spiced breadcrumbs
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1677586102456-x200.jpg)
 
 ### Step 4
 
 Coat the aubergine wedges in the flour, tap off any excess, then add them to the beaten egg and finally press into the spiced breadcrumbs firmly to evenly coat all over – these are your coated aubergine wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1677586113163-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Cook for 10-12 min, turning once halfway, or until golden and cooked through –
 
 Tip: Air fryers work best when the food is spaced out in a single layer. You may need to do this in batches!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1677586123823-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ While the aubergine is cooking, combine half the chopped coriander (you'll use t
 
 Add your cider vinegar, mango chutney, black mustard seeds, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>sugar and a pinch of salt and leave to pickle – this is your roasted tomato quick-pickle
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1677586139860-x200.jpg)
 
 ### Step 7
 

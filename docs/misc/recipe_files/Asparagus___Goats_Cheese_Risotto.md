@@ -24,6 +24,7 @@ This simple risotto is all about zero waste cooking. You'll make the most of you
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2098.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2098.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, peel and finely chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 700ml<span class="text-danger"> <span class="text-purple">[1050L]</span> [1.4L]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2098.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Once the onion is beginning to soften, add your arborio rice and chopped garlic
 
 Add your Chinese rice wine and cook for 30 secs further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2098.-step-4-x200.jpg)
 
 ### Step 4
 
 Add the vegetable stock a ladle at a time, stirring continuously for 20 min or until most of the stock is absorbed and the rice is almost cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2098.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Roughly chop the asparagus stalks
 
 Grate your cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2098.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once the rice is almost cooked, add the asparagus tips to a baking tray with a d
 
 Put the tray in the oven for 5-6 min or until bright green and tender with a bite – these are your roasted asparagus tips
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2098.-step-7-x200.jpg)
 
 ### Step 7
 

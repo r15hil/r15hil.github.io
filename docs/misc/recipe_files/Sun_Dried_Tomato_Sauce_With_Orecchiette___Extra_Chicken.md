@@ -23,6 +23,7 @@ This speedy pasta will be the highlight of your week. You’ll whip up a creamy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1729502435304-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1729502439563-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Cook for a further 10-12 min or until the chicken is cooked through (no pink mea
 
 Peel and slice (don't chop!) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1729502442872-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
 Reboil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1729502446541-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Add your flaked almonds to a baking tray and put the tray under the grill for 2-
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1729502451074-x200.jpg)
 
 ### Step 5
 
@@ -78,11 +83,13 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can, then chop it roughly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1729502455474-x200.jpg)
 
 ### Step 6
 
 Add your Chinese rice wine, vegetable stock mix and 150ml <span class="text-purple">[195ml]</span> <span class="text-danger">[250ml]</span> boiled water to the pan with the sun-dried tomatoes and bring to the boil over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1729502614899-x200.jpg)
 
 ### Step 7
 

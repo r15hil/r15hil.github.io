@@ -24,6 +24,7 @@ If you're anything like us, you'll want gravy on everything this Christmas. Incl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1606303961514-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add your sausage meat (remove the paper if required!) to a bowl with your dried 
 
 Divide the mixture into 6 per person and roll into small meatballs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1606303967634-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Season with a generous pinch of salt and pepper and give everything a good mix u
 
 Drain your mozzarella, then pat and squeeze as much liquid out as you can with kitchen paper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1606303978520-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1606303990294-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Spread the tomato sauce on your pizza base[s] evenly with the back of a spoon
 
 Top with the torn mozzarella, piles of wilted spinach and the pork & sage stuffing balls
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1606304001243-x200.jpg)
 
 ### Step 5
 
 Put the tray[s] in the oven for 15 min or until the cheese has melted, the base is crisp and the pork & sage stuffing balls are cooked through (no pink meat!) – this is your pork & sage stuffing pizza[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1606304015590-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Whilst the pizza[s] is cooking, heat a large, wide-based pan (preferably non-sti
 
 Once melted, add 15g <span class="text-purple">[25g]</span> <span class="text-danger">[30g]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1606304025078-x200.jpg)
 
 ### Step 7
 

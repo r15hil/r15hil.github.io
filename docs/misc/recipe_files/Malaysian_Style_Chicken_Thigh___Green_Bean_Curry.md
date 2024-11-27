@@ -26,6 +26,7 @@ Make your mouth water with this Malaysian-style chicken curry. You’ll sizzle c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679412132105-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679412136345-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Trim, then chop your green beans in half
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679412143381-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Heat a large, wide-based pan (preferably non-stick, with a matching lid) with a 
 
 Once hot, add your diced chicken thigh and halved green beans to the pan and cook for 4-5 min or until the chicken and green beans are lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679412150600-x200.jpg)
 
 ### Step 4
 
@@ -66,11 +70,13 @@ Add the chopped potato to a large heatproof bowl, cover with cling film and pier
 
 Put the bowl in the microwave for 4-6 min or until the potatoes are fork-tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679412155275-x200.jpg)
 
 ### Step 5
 
 Add your curry powder and red Thai curry paste to the pan with your ginger & garlic paste and cook for 1 min further until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679412247542-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once boiling, reduce the heat to medium and cook, covered, for 5 min further, or
 
 Once the potato is fork-tender, add it to the pan and give everything a good mix up – this is your Malaysian-style chicken thigh & green bean curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679412252327-x200.jpg)
 
 ### Step 7
 

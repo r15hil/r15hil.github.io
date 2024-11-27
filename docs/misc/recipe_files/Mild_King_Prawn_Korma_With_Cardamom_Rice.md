@@ -28,6 +28,7 @@ Tuck into a twist on this favourite. You'll infuse your creamy sauce with fragra
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1603211922527-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a pot (with a matching lid) with a large knob of butter over a medium heat
 
 Once hot, add the crushed cardamom pods and cook for 30 secs or until they're fragrant
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1603211933252-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1603211941972-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1603211949130-x200.jpg)
 
 ### Step 4
 
@@ -66,16 +70,19 @@ Once hot, add the diced onion and a generous pinch of salt and cook for 3-5 min
 
 Once softened, add your garam masala, ground turmeric, chopped garlic and chopped ginger and cook for 1 min further
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vegetable-stock-1654597427656-x200.jpg)
 
 ### Step 5
 
 Meanwhile, dissolve your vegetable stock mix in 150ml <span class="text-purple">[195ml]</span><span class="text-danger"> [250ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1603211971785-x200.jpg)
 
 ### Step 6
 
 Drain your king prawns, then add them to the pan and cook for 2 min or until coated in the spices
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1603211981515-x200.jpg)
 
 ### Step 7
 

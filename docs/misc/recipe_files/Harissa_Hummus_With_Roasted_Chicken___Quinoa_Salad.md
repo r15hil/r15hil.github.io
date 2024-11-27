@@ -30,6 +30,7 @@ Tuck into a plate of goodness. You'll make hummus with a twist by whizzing chick
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680277588185-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Once boiling, reduce the heat to medium and cook for 6-8 min or until all the qu
 
 Once cooked, drain, return it to the pot until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680277592734-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Add the red onion wedges and chicken breast portion[s] to a baking tray (or two!
 
 Put the tray[s] in the oven for 18-20 min or until the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680277596543-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Meanwhile, drain and rinse your chickpeas
 
 Peel and roughly chop your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680277600081-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the drained chickpeas to a food processor with the chopped garlic, 50ml<span
 
 Add your tahini, 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil and your harissa paste (can't handle the heat? Go easy!) with a very generous pinch of salt and blitz for 1-2 min or until fully combined and smooth – this is your harissa hummus
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680277603994-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Top, tail, peel and grate your carrot[s]
 
 Strip your mint leaves from their stems and chop them finely, discard the stems
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680277607620-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the onion wedges are cooked, add them to the pot of drained quinoa with the
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your roasted onion & quinoa salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680277611355-x200.jpg)
 
 ### Step 7
 

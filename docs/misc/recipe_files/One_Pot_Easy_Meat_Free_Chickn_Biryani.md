@@ -27,6 +27,7 @@ Biryani is the paella of Indian food. To make this one pot wonder, you'll cook r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632739384202-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once hot, add your meat-free chick'n and cook for 4-5 min or until crispy, then 
 
 Peel and dice your brown onion[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632739388241-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Once hot, add the diced onion, your curry powder and a pinch of salt and pepper
 
 Cook for 2 min or until the onion is starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632739392583-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim, then cut your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632739395791-x200.jpg)
 
 ### Step 4
 
@@ -57,11 +61,13 @@ Once the onion has started to soften, add your vegetable stock mix and tomato pa
 
 Tip: Add a drizzle of oil if the pan looks a little dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632739399140-x200.jpg)
 
 ### Step 5
 
 Once fragrant, add your basmati rice to the pan and stir to coat the grains in spice and oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632739402608-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once boiling, add the halved green beans and your sultanas
 
 Give everything a good mix, then reduce the heat to low and cook, covered, for an initial 8 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1632739405562-x200.jpg)
 
 ### Step 7
 

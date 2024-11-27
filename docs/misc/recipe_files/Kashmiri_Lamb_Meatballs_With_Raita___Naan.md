@@ -27,6 +27,7 @@ Curry lovers, wait till you try this. You'll serve succulent lamb meatballs with
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1505.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and grate 3/4 of your red onion[s]
 
 Slice the remaining onion as finely as you can
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1505.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Combine your lamb mince, the grated onion, your panko breadcrumbs, ground cumin,
 
 Mix thoroughly with clean hands, then divide the mixture and shape into 3 meatballs per person
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1505.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the meatballs to a baking tray and put them in the oven for 15 min or until cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1505.new.step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Strip your mint leaves from the stems and chop them roughly
 
 Chop your coriander roughly, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1505.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add the chopped mint to a pestle & mortar with a pinch of salt
 
 Grind to a paste, then add your natural yoghurt and mango chutney and give it a good mix up – this is your mango mint raita
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1505.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Add your naan[s] to a baking tray
 
 Put the tray in the oven for 3 min or until the bread has warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1505.newstep-7-x200.jpg)
 
 ### Step 7
 

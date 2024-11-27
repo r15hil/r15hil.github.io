@@ -33,6 +33,7 @@ Turn up the heat with our spicy madras, filled with fragrant spices, chicken and
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1607348447542-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add the basmati rice and 300ml <span class="text-purple">[390ml]</span> <span cl
 
 Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or until the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1607348489006-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Peel (scrape the skin off with a teaspoon) and roughly chop the ginger, then pee
 
 Chop the tomato[es] into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1607348493649-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the chopped onion, chopped ginger, chopped garlic, chopped chilli, curry pow
 
 Blitz until smooth or very finely chopped – this is your spicy madras paste
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1607348513516-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Once hot, add the chopped chicken breast and cook for 3-4 min or until golden
 
 Boil half a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1607348523721-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the spicy madras paste and the tomato wedges to the chicken and cook for 3-4
 
 Dissolve the chicken stock mix in 200ml <span class="text-purple">[260ml]</span><span class="text-danger"> [350ml]</span> boiled water and stir in the tomato paste – this is your tomato stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1607348529933-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Roughly chop the coriander, including the stalks
 
 Add half of the chopped coriander to the sauce (save some for garnish!) and stir it all together – this is your spicy chicken madras
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1607348541586-x200.jpg)
 
 ### Step 7
 

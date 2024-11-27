@@ -28,6 +28,7 @@ This sticky aubergine and chicken stir-fry is unbelievably more-ish. You'll cris
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679395682660-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Trim the green stalk[s] off your aubergine[s] and chop in half widthways, then c
 
 Add your cornflour and aubergine strips to a bowl and mix well so the aubergine is evenly coated
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679395688327-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan (preferably non-stick with matching lid) with a ver
 
 Once hot, add the coated aubergine strips (save any excess cornflour in the bowl for later) and cook for 7-8 min or until starting to brown all over
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679395698915-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679395705782-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add your diced chicken breast to the bowl with the remaining cornflour and mix w
 
 Once the aubergine has browned, add the coated diced chicken breast and cook for a further 10-12 min or until golden and cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679395714034-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Combine the chopped garlic in a bowl with the chopped ginger, soy sauce, Chinese
 
 Add your sriracha (can't handle the heat? Go easy!) with 2 tsp <span class="text-purple">[3 tsp]</span> <span class="text-danger">[4 tsp]</span> sugar to the bowl and give it a good mix up – this is your stir-fry sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679395720553-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked through, add the stir-fry sauce to the pan and cook for 1-2 min or until sticky – this is your sticky chicken breast & aubergine stir-fry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679395728624-x200.jpg)
 
 ### Step 7
 

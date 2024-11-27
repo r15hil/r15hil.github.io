@@ -25,6 +25,7 @@ Whip up this rich and creamy carbonara in just 10 minutes. You’ll fry garlicky
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-2-1686647050051-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727263100068-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of 
 
 Once hot, add your roasted garlic paste and your bacon lardons and cook for 5-6 min or until the lardons are browned and crisped
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727263104652-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ While the bacon is cooking, add your quick cook spaghetti to a pot of boiled w
 
 Cook for 2-3 min or until the spaghetti is cooked with a slight bite then drain, reserving a cup of starchy pasta water and return to the pot with a drizzle of olive oil
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727263109346-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Transfer the yolk from one shell half to the other several times, until all the 
 
 Tip: Hold on to those egg whites! They’re perfect for meringues or a protein-rich omelette (they freeze well too)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727263113276-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the egg yolk[s] to a bowl with your crème fraîche, half your grated Italia
 
 Stir it all together – this is your carbonara sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727263118976-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Wash your salad, then pat dry with kitchen paper
 
 Add the salad to a medium bowl with the chopped tomato[es], your balsamic vinegar and a drizzle of olive oil – this is your tomato salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727263123007-x200.jpg)
 
 ### Step 7
 

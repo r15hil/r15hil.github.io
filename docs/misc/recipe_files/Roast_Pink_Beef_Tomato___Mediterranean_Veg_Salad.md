@@ -24,6 +24,7 @@ For this warm salad you'll roast yellow pepper, aubergine and courgette until go
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2157.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Top, tail, then chop the courgette<span class="text-danger">[s]</span> into bite
 
 Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and chop into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2157.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Give everything a good mix up and put the tray in the oven for 20-25 min or unti
 
 Tip: Remove the tray halfway and give everything another good mix up!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2157.-step-3-1-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Slice the pink beef tomato<span class="text-danger">[es]</span> in half, horizo
 
 Add the tomato halves to one side of a baking tray with a drizzle of olive oil and a pinch of salt and pepper and put the tray in the oven for 15-20 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2157.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ While the tomatoes are in the oven, peel the garlic and chop it roughly
 
 Grate the cheddar cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2157.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add the basil, chopped garlic, grated cheese and flaked almonds to a food proces
 
 Add 3 tbsp <span class="text-danger">[6 tbsp]</span> olive oil and 3 tbsp<span class="text-danger"> [6 tbsp]</span> cold water and whizz until a smooth paste has formed – this is your homemade cheddar pesto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2157.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once the tomatoes have been cooking for 10 min, add the ripped ciabatta to the
 
 Return the tray to the oven for 5 min or until the croutons are beginning to crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2157.-step-7-x200.jpg)
 
 ### Step 7
 

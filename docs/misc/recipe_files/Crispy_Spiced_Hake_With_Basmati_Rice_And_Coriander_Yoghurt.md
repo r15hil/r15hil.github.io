@@ -27,6 +27,7 @@ This hake is banging. You’ll marinate your fish in a fragrant mix of ginger, s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1690285434733-x200.jpg)
 
 ### Step 1
 
@@ -36,11 +37,13 @@ Chop your tomato[es] finely
 
 Chop your coriander finely, including the stalks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1690285440138-x200.jpg)
 
 ### Step 2
 
 Chop your hake fillet[s] into large, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1690285443867-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Combine the chopped hake and soy sauce in a bowl with your ginger & garlic paste
 
 Add your gram flour to a separate bowl with your ground cumin and most of your cayenne pepper (can't handle the heat? Go easy!) and a pinch of salt and mix it all together – this is your spiced gram flour
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1690285451107-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1690285455174-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Combine the chopped cucumber and chopped tomato in a bowl with a drizzle of oliv
 
 Add the marinated hake to the bowl with the spiced gram flour and give everything a good mix up – this is your coated hake
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1690285461397-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once hot, add the coated hake and cook for 3-4 min on each side or until crispy 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1690285466577-x200.jpg)
 
 ### Step 7
 

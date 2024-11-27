@@ -26,6 +26,7 @@ This hearty, home-cooked stew will warm up your weeknight. You’ll simmer smoky
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676043685471-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Chop your potato[es] (skin on) into small, bite-sized pieces
 
 Top, tail, peel and dice your carrot[s]
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1676043689951-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a pot with a matching lid over a medium-high heat
 
 Once hot, add your diced chorizo and cook for 4-5 min or until lightly caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1676043694204-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Whilst the chorizo is cooking, dissolve your chicken stock mix in 350ml <span cl
 
 Drain and rinse your cannellini beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1676043708313-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once the chorizo is caramelised, add the sliced onion to the pot with a pinch of
 
 Once softened, add the sliced garlic and dried thyme with 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> flour and cook for 30 secs or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1676043713707-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the chicken stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium and cook, covered, for 12-15 min or until the veg is tender
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676043719279-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once the veg is almost tender, slice your ciabatta[s] in half and place in the t
 
 Once toasted, spread a knob of butter over the ciabatta halves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1676043726348-x200.jpg)
 
 ### Step 7
 

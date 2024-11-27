@@ -26,6 +26,7 @@ Cook up tasty mushrooms in a smoky, creamy, plant-based sauce and pile them on t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1627644121222-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2521Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add your baby plum tomatoes to a baking tray with a pinch of salt and a drizzle
 
 Put the tray under the grill for 7-8 min, or until the tomatoes are starting to blister
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2521Step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Once hot, tear your baby button mushrooms and flat white mushrooms roughly i
 
 Season with a pinch of salt and pepper and cook for 2-3 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2521Step-4-x200.jpg)
 
 ### Step 4
 
 Whilst everything is cooking, cut your chives finely with scissors
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2521Step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Drain and rinse your butter beans
 
 Wash<span class="text-danger"> </span>your salad, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2521Step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Slice your brioche bun[s] in half
 
 Add the brioche halves to the tray with the tomatoes and return the tray to the grill for 2 min further or until they're toasted and the tomatoes have softened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2521Step-7-x200.jpg)
 
 ### Step 7
 

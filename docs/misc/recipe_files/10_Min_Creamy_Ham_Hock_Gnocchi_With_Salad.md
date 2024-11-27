@@ -21,6 +21,7 @@ This one-pot wonder is the perfect treat for a speedy midweek meal. Fry some gno
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2029.-step-1-new-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2029.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -55,6 +57,7 @@ Trim, then slice the spring onions roughly
 
 Tip: Chop them in a bunch for speed!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2029.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,11 +66,13 @@ Once the pan is hot, add the sliced spring onion and roasted garlic paste and co
 
 Add the gnocchi and cook for 2-3 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2029.-step-4-x200.jpg)
 
 ### Step 4
 
 Dissolve the crème fraîche in 150ml <span class="text-danger">[250ml]</span> boiled water – this is your creamy stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2029.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Once the gnocchi has browned, add the creamy stock and cook, covered, for 2-3 mi
 
 Tip: Don't worry if your sauce looks a bit thin, the cheese and ham will thicken it later!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2029.-step-6-x200.jpg)
 
 ### Step 6
 
 While the gnocchi softens, combine the balsamic vinegar with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil – this is your balsamic dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2029.-step-7-x200.jpg)
 
 ### Step 7
 

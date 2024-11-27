@@ -26,6 +26,7 @@ Fast meets fusion with these tasty tacos. After stuffing your tortillas with mea
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1627985431525-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2--1626950906155-x200.jpg)
 
 ### Step 2
 
@@ -46,16 +48,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your meat-free mince (remove the paper if required!) and cook for 5-6 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626950908530-x200.jpg)
 
 ### Step 3
 
 Meanwhile, top, tail and grate your carrot[s] (no need to peel!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1656425439540-x200.jpg)
 
 ### Step 4
 
 Cut your cucumber into quarters lengthways, then slice into batons
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1626950916301-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Combine your peanut butter, red chilli relish, half your soy sauce (you'll use t
 
 Give everything a good mix up – this is your satay sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1626950919873-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once the meat-free mince has started to brown, add your ginger & garlic paste, 
 
 Give everything a good mix up and cook for 2-3 min or until the meat-free mince has cooked through – this is your sticky meat-free mince
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1627985498136-x200.jpg)
 
 ### Step 7
 

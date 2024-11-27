@@ -32,6 +32,7 @@ This Brazilian-inspired curry is packed with zesty, fragrant flavour. You'll coo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1197.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Once boiling, reduce the heat to medium and cook for 15-20 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1197.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -54,6 +56,7 @@ Once fragrant, transfer the coriander seeds to a pestle & mortar and crush rough
 
 Reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1197.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Return the pan to a high heat with a drizzle of vegetable oil
 
 Once hot, add the chopped chicken with a pinch of salt and cook for 7-8 min or until browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1197.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -74,6 +78,7 @@ Once browned, transfer the chicken to a plate, reduce the heat to medium-low and
 
 Cook for 4-5 min or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1197.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -85,6 +90,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chicken stock mix, peanut butter and chopped creamed coconut in 350ml <span class="text-purple">[455ml]</span> <span class="text-danger">[650ml]</span> boiled water – this is your coconut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1197.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Once the onion has softened, add the chopped garlic, chopped ginger, ground tur
 
 Increase the heat to medium, add your cherry tomatoes and coconut stock and cook for 7-9 min or until thickened
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1197.-step-7-x200.jpg)
 
 ### Step 7
 

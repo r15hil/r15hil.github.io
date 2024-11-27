@@ -24,6 +24,7 @@ Saganaki is named after the small frying pan used to crisp it up to perfection. 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-3-1715176083490-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Crush your remaining garlic open by squashing it with the side of a knife and re
 
 Cut your tomato[es] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1715176091262-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chopped courgette to a baking paper-lined baking tray with the chopped g
 
 Season with a pinch of salt and pepper and put the tray in the oven for 20-25 min or until tender and golden – this is your roasted veg
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1715176094653-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add 2/3 of the drained chickpeas to a food processor with your tahini, peeled ga
 
 Add 1 1/2 tbsp <span class="text-purple">[2 tbsp]</span> <span class="text-danger">[2 1/2 tbsp] </span>olive oil with the juice of half the lemon[s], 30ml <span class="text-purple">[50ml] </span><span class="text-danger">[80ml] </span>cold water and a generous grind of pepper and blitz until smooth – this is your hummus
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1715176098853-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add a handful of flour to a plate
 
 Add the sliced halloumi to the plate and turn several times until fully coated in the flour
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1715176103316-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ When the roasted veg has 10 min left, heat a large, wide-based pan (preferably n
 
 Once hot, add the coated halloumi and cook for 4-5 min on each side or until golden and crispy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1715176111693-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Tip: Cooking for 4 or more? Do this is in batches
 
 When everything's nearly ready, add your sourdough pitta to the oven for 2-3 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1715176122118-x200.jpg)
 
 ### Step 7
 

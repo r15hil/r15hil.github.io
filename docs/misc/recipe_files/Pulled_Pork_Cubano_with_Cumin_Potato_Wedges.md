@@ -23,6 +23,7 @@ The Cubano is one of the sandwich greats for a reason. Make yours with a crusty 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1730220178192-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Transfer your BBQ pulled pork and any juices to an oven-proof dish
 
 Cover with tin foil and put the dish in the oven for an initial 30 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1730220184975-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Slice your cucumber as thinly as you can, then add them to the bowl and set asid
 
 Slice your cheddar cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1730220196728-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the potato wedges to a baking tray (or two!) with a drizzle of vegetable oil
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your cumin potato wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1730220201851-x200.jpg)
 
 ### Step 4
 
@@ -59,11 +63,13 @@ Slice your baguette[s] in half
 
 Spread your dijon mustard over one side of your baguette[s] and half your mayo (you'll use the rest later!) over the other side using the back of a spoon
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1730220211292-x200.jpg)
 
 ### Step 5
 
 Top the baguette[s] with half the quick-pickled cucumbers (you'll use the rest later!), sliced cheddar cheese, and your sliced prosciutto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1730220215683-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Pull the BBQ pulled pork apart using two forks and mix everything through the ju
 
 Add the BBQ pulled pork to half the baguette[s] and top with the remaining baguette[s] – this is your cubano[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1730220267221-x200.jpg)
 
 ### Step 7
 

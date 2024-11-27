@@ -29,6 +29,7 @@ Taco about a five star dinner! You'll top floury tortillas with refried beans, s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1636030525390-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add your panko breadcrumbs to a small bowl with the chopped coriander and a driz
 
 Transfer the breadcrumb mix to a baking tray and put in the oven for 8-10 min or until golden, then allow to cool – this is your Greek cheese crumb
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1636030577063-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a m
 
 Once hot, add a drizzle of vegetable oil, your smoked paprika and cayenne pepper (can't handle the heat? Go easy!) and cook for 1 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1636030586879-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once fragrant, add the drained black beans, a pinch of salt and 150ml<span cla
 
 Reduce the heat to low and cook, covered, for 8-10 min or until the beans are beginning to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1636030594981-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Trim, then finely slice your spring onion[s]
 
 Peel and roughly chop (or grate) your garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1636030625103-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Combine your chopped garlic (not a fan of raw garlic? Just add a little!) with 
 
 Combine the drained sweetcorn, chopped cherry tomatoes, sliced spring onion and the juice of half the lime wedges with a pinch of pepper and a drizzle of olive oil in a separate bowl – this is your corn salsa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1636030656535-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1636030673800-x200.jpg)
 
 ### Step 7
 

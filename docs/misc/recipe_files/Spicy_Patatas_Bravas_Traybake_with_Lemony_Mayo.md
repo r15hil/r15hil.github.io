@@ -23,6 +23,7 @@ To make this Spanish inspired traybake you'll toss sweet potatoes, pepper and ch
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1657543363143-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Before you begin...
 
 This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep, so get your oven-proof dishes and all your ingredients ready, then wash your fruit and veg
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657543378390-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Cut the yellow pepper<span class="text-danger">[s]</span> in half, deseed (scrap
 
 Peel and cut the red onion<span class="text-danger">[s]</span> into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657543393253-x200.jpg)
 
 ### Step 3
 
@@ -54,11 +57,13 @@ Tip: Cooking for 2? Save the remaining cayenne pepper for another recipe!
 
 Give everything a good mix up and put the tray in the oven for an initial 12-15 min or until the sweet potato has begun to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1669132000556-x200.jpg)
 
 ### Step 4
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1669132011410-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ After the initial 12-15 min, remove the tray<span class="text-danger">[s]</span>
 
 Return the tray<span class="text-danger">[s]</span> to the oven and cook for a final 10-12 min or until the tomatoes have softened and are starting to brown – this is your spicy patatas bravas traybake
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1669132024537-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ When everything’s nearly ready, cut the lemon<span class="text-danger">[s]</sp
 
 Combine the mayo with the juice of 1 <span class="text-danger">[2]</span> lemon wedge<span class="text-danger">[s]</span> and a pinch of salt and give everything a good mix up – this is your lemony mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1669132034834-x200.jpg)
 
 ### Step 7
 

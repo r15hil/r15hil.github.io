@@ -29,6 +29,7 @@ For this fragrant curry you'll make lamb meatballs and cook them in a warming co
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2193.-step-2-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the meatballs and cook for 2 min on each side or until browned
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2193.-step-3-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Peel and finely chop (or grate) your garlic
 
 Once done, transfer the browned meatballs to a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2193.-step-3new-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2193.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Meanwhile, chop your creamed coconut roughly (if required!)
 
 Dissolve your chicken stock mix and the chopped creamed coconut in 350ml<span class="text-purple"><span class="text-danger"> [475ml] [600ml]</span> </span>boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2193.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add the coconut stock, bring to the boil over a high heat and cook for 2 min
 
 Add the browned meatballs, reduce the heat to medium and cook, covered, for 12-15 min or until the meatballs are cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2193.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Tip: If you feel resistance against your knife, it means you are hitting the sto
 
 Dice the mango flesh finely, discarding the stone[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2193.-step-7-x200.jpg)
 
 ### Step 7
 

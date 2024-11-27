@@ -27,6 +27,7 @@ Head over to Zanzibar for a taste of their bustling seafood scene. You’ll fry 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1663691442128-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1663691446696-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Deseed the pepper<span class="text-danger">[s]</span> (scrape the seeds and pith
 
 Once hot, add the chopped pepper to the pan and cook for 2-3 min or until slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1663691450916-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the yellow mustard seeds, cumin seeds and a generous pinch of salt to a pe
 
 Add the ginger & garlic paste and ground spice mix to the pan with the ground paprika, ground turmeric and ground coriander and cook for a further 1 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1663691454906-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Meanwhile, roughly chop the creamed coconut (if required!)
 
 Dissolve the vegetable stock mix and chopped creamed coconut in 250ml <span class="text-danger">[450ml]</span> boiled water with the tamarind paste and tomato paste – this is your tomato coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1663691459627-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once fragrant, add the tomato coconut stock to the pan and bring to the boil ove
 
 Once boiling, reduce the heat to medium and cook for 3-4 min or until starting to thicken – this is your curry sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1663691463112-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Tear the top corner of the pouch<span class="text-danger">[es]</span> (just a li
 
 Tip: If you're cooking two pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1663691468118-x200.jpg)
 
 ### Step 7
 

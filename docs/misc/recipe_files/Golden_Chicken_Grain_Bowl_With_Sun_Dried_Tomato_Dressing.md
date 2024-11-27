@@ -24,6 +24,7 @@ Juicy chicken, crunchy kale and nutty quinoa, what more could you want? Toss the
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1727084215790-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the quinoa to a large pot with plenty of boiled water and bring to the boil 
 
 Once boiling, reduce the heat to medium and cook for 6-8 min or until all the quinoa is tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1727084231389-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Tip: Watch them like a hawk to make sure they don’t burn!
 
 Once golden, transfer the toasted seeds to a plate and reserve the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1727084241930-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Return the reserved pan to a high heat with a drizzle of olive oil
 
 Once hot, add the chicken breast strips and cook for 5-6 min on each side or until golden and cooked through (no pink meat!) – this is your cooked chicken
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1727084254683-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Combine your mayo and balsamic sun-dried tomato paste in a large bowl with your 
 
 Transfer some of the dressing (2 tbsp per person!) to a small bowl and set aside for a garnish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1727084268951-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Chop your tomato[es] into thin wedges
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1727084282415-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once cooked, drain and rinse your cooked kale and quinoa under cold running wate
 
 Shake off any excess water and set the sieve over your pot to drain completely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1727084294467-x200.jpg)
 
 ### Step 7
 

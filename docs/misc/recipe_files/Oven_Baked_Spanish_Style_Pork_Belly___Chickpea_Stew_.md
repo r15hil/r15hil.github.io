@@ -24,6 +24,7 @@ This Spanish-style pork belly stew only takes 5 minutes to prep, before slowly c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1643201107379-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ This recipe takes around 5 min <span class="text-danger">[10 min]</span> to prep
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1643201114653-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based oven-proof casserole dish with a matching lid, with a d
 
 Pat the pork belly dry with kitchen paper and use a sharp knife score the fatty side in a criss-cross pattern, then cut into 8 <span class="text-danger">[16]</span> pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1643201117691-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cook, without turning, for 2 min or until golden
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1643201121952-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Peel and cut the shallot<span class="text-danger">[s]</span> into wedges
 
 Drain and rinse the chickpeas
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643201125981-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Add the drained chickpeas to the dish with 400ml [750L] boiled water, shallo
 
 Give everything a good mix up and add the tomato paste to the dish with the red wine vinegar, smoked paprika, dried basil and dried oregano
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643201130398-x200.jpg)
 
 ### Step 6
 
 Bring to the boil over a high heat, then cover with a lid and put the dish in the oven for 1 hr or until the pork is cooked through (no pink meat!) and the potato is tender – this is your Spanish-style pork belly & chickpea stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1643201142773-x200.jpg)
 
 ### Step 7
 

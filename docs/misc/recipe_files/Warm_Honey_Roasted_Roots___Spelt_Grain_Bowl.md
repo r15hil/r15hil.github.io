@@ -29,6 +29,7 @@ Give dinner a boost with this veg-packed bowlful. You’ll cook earthy spelt til
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1677858186657-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Top, tail, peel and chop your parsnip[s] into batons
 
 Peel and cut your red onion[s]<span class="text-danger"> </span>into quarters, then separate the wedges so you end up with a pile of onion petals
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1677858198350-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the carrot batons, parsnip batons and onion petals to a tin foil-lined bakin
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 20 min or until the vegetables are tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1677858213466-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add your flaked almonds and cook for 2-3 min or until toasted and ligh
 
 Tip: Watch them like a hawk to make sure they don’t burn!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677858221803-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Cook for 20 min or until tender (it will still have a slight bite once cooked)
 
 Once cooked, drain and rinse the cooked spelt under cold running water until the spelt has cooled slightly and return to the pot
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1677858232470-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Chop your parsley finely, including the stalks
 
 Zest half your lemon[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter) and cut in half (save the zest for garnish!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677858240902-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once the vegetables are tender, remove the tray[s] from the oven and top with yo
 
 Give everything a good mix up then return the tray[s] to the oven for a final 5 min or until caramelised – these are your honey roasted roots
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1677858249725-x200.jpg)
 
 ### Step 7
 

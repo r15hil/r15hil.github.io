@@ -23,6 +23,7 @@ Think nothing beats bangers ‘n’ mash? Try this on for size. It’s meat-free
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661867160829-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the meat-free sausages to a baking tray
 
 Put the tray in the oven for 25-30 min or until the sausages are cooked through and starting to crisp – these are your meat-free bangers
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1661867047273-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Add the drained rice with 200ml <span class="text-danger">[400ml]</span> cold wa
 
 Tip: Don't let the water fully boil as this will make the rice stick to the pot!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661867051723-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ After 15 min, remove the pot from the heat and keep covered for a further 10 min
 
 Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661867060874-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Combine the ketchup and 150ml <span class="text-danger">[250ml] </span>boiled water in a small bowl with the cornflour, rice vinegar and soy sauce – this is your sweet & sour mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661867075434-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the onion petals with 2 tsp <span class="text-danger">[4 tsp]</span> sugar and cook for 8-10 min or until caramelised
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661867088277-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Once caramelised, add the chopped ginger to the pan and cook for 30 secs or unti
 
 Once fragrant, add the sweet & sour mixture and cook for 1-2 min or until reduced to a gravy-like consistency, then remove the pan from the heat – this is your sweet & sour 'gravy'
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661867095085-x200.jpg)
 
 ### Step 7
 

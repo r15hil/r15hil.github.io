@@ -19,6 +19,7 @@ Sweet seasonal English pear and salty, crumbly Danish Blue cheese isn’t a flav
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/336.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add them to a baking tray, drizzle with vegetable oil and season generously with
 
 Put the tray in the oven until step 4
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/336.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Meanwhile, cut&nbsp;the pear<span class="text-danger">(s)</span> into quarters, 
 
 Peel the onion<span class="text-danger">(s)</span> and chop into&nbsp;wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/336.-step-3-x200.jpg)
 
 ### Step 3
 
 <span class="text-highlight">Crumble the cheese (remember couples use 50g)&nbsp;</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/336.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -54,6 +58,7 @@ Add the&nbsp;onion to the potato tray&nbsp;with an extra drizzle of oil
 
 Place&nbsp;the tray back in the oven until the end of the next step
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/336.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once&nbsp;foaming, arrange the pears in a single layer and cook for 2-4 min per 
 
 Transfer the pears onto the baking tray, return to the oven and reserve the pan for the next step
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/336.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Wipe the pan clean and return it to a medium-high heat
 
 <span class="text-highlight">Once hot</span>, sear the fatty edges of the steaks (using tongs to keep them in place) for 2 min before cooking them for 1 min each side
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/336.-step-7-x200.jpg)
 
 ### Step 7
 

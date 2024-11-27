@@ -32,6 +32,7 @@ Roast the rainbow with this simply spiced chicken breast and veg. Serve with cru
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1679304771498-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pit
 
 Peel and cut your red onion[s] into quarters
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1679304774991-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Top, tail and chop your courgette[s] into quarters lengthways, then into small,
 
 Top, tail, peel and chop your carrot[s] into quarters lengthways, then into small, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1679304778946-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Put the tray[s] in the oven for 20-30 min or until the veg is tender and starti
 
 Peel and grate (or very finely chop) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1679304781947-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Once hot, add your diced chicken breast, chopped garlic, half your ras el hanout
 
 Once cooked, transfer to a plate and reserve the pan
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1679304785859-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Chop your dried cranberries finely
 
 Dissolve your chicken stock mix in 200ml <span class="text-purple">[300ml]</span> <span class="text-danger">[400ml] </span>boiled water with your ground turmeric and remaining ras el hanout – this is your spiced stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1679304788907-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the chopped cranberries and couscous to a bowl with the spiced stock and g
 
 Cover the bowl, then set aside until all of the stock has been absorbed
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1679304791702-x200.jpg)
 
 ### Step 7
 

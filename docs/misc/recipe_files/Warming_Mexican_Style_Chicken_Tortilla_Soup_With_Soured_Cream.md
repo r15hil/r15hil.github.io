@@ -26,6 +26,7 @@ For this mouthwatering Mex-style soup, you'll cook chicken and butter beans in a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657039060232-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based pot (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced chicken thigh with a pinch of salt and cook for 2-3 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657039062640-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657039065621-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Once the chicken has browned, add the diced onion, ground smoked paprika, cumin 
 
 Give everything a good mix up and cook for 6-7 min further or until the onion has started to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657039070201-x200.jpg)
 
 ### Step 4
 
 Whilst the onion is softening, dissolve your chipotle paste (not a fan of spice? Just add a little!) and a pinch of sugar in 350ml<span class="text-purple"> [500ml] </span><span class="text-danger">[650ml] </span>boiled water – this is your spicy stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657039070913-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the tortilla triangles to a baking tray (or two!) with a pinch of salt
 
 Give everything a good mix up and put the tray[s] in the oven for 6-8 min or until golden and crisp – these are your tortilla chips
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657039073343-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Drain and rinse your butter beans
 
 Add the drained butter beans, chopped tomatoes and spicy stock to the pot and cook for 6-8 min or until the soup has thickened slightly and the chicken is cooked through (no pink meat!) – this is your warming Mexican-style chicken soup
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Grated-cheddar-on-a-board-1657039090570-x200.jpg)
 
 ### Step 7
 

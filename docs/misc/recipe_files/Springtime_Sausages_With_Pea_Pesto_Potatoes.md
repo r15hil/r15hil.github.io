@@ -22,6 +22,7 @@ Eat your way into spring with this green twist on sausage and mash. You’ll bli
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1680084069932-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add your sausages to a baking tray (use tin foil to avoid mess!)
 
 Put the tray in the oven for 20-25 min or until the sausages are cooked through (no pink meat!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1680084072251-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Once boiling, cook for 17-18 min or until fork-tender
 
 Once the potatoes are fork tender, drain then return them to the pot and crush gently
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1680084074972-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Chop your Italian hard cheese into small bite-size pieces
 
 Add your blanched peas to a colander and pour boiled water all over them to refresh them
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1680084079238-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Add 2 tbsp<span class="text-purple"> [3 tbsp]</span><span class="text-danger"> [
 
 Tip: No food processor? Chop everything up as finely as you can and mix it together!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1680084083055-x200.jpg)
 
 ### Step 5
 
 Combine the remaining white wine vinegar with a drizzle of olive oil, a pinch of salt and a crack of black pepper – this is your dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1680084085329-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Wash your salad then pat it dry with kitchen paper
 
 Add the salad to the dressing and toss – this is your dressed salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1680084090227-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ This dish is a luxurious yet deliciously comforting example of the beautiful sim
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1645.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Tip: brown the skin and render the fat to add flavour.
 
 Once browned, transfer the duck legs to a plate and reserve the dish for later.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1645.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Prepare the vegetables and stock
 
 Peel and finely dice the brown onion<span class="text-danger">[s]</span> and carrot<span class="text-danger">[s] </span>(skins on). Peel and slice (don't chop!) the garlic. <br /><br />Dissolve the beef stock cube<span class="text-danger">[s]</span> and Just Add Wine sachet<span class="text-danger">[s]</span> in 250ml <span class="text-danger">[400ml]</span> boiled water.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1645.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once hot, add the diced onion, carrot and garlic with a pinch of salt and
 
 Once softened, add the tomato paste, chopped tomatoes, beef stock and a pinch of sugar and cook for 3-4 minutes.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1645.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -78,6 +82,7 @@ Put the dish in the oven for an initial 1 hour 20 minutes or until the duck i
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1645.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -92,6 +97,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Put the tray in the oven for an initial 40 minutes or until starting to crisp.
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1645.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -106,6 +112,7 @@ Crispen the duck skin and finish off the potatoes
 
 Sprinkle the rosemary and<span class="text-highlight"> grated Italian hard cheese </span>over the potatoes and cook everything for a further 10 minutes or until the duck skin and potatoes are golden and crispy.<br /><br /><br />
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1645.-step-7-x200.jpg)
 
 ### Step 7
 

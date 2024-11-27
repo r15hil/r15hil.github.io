@@ -28,6 +28,7 @@ Try your sea bass with a Thai-inspired twist. You’ll serve crispy fish on an i
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/857.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 350ml <span class="text-purple">[450ml]</span> <span class="text-danger">[600ml]</span> boiled water – this is your coconut stock
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25-06-24_14h48m31s-APIC-1719591372818-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once done, remove from the heat and keep covered until serving – this is your coconut rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25-06-24_14h53m35s-APIC-1719591378541-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Dissolve your vegetable stock mix in 300ml <span class="text-purple">[400ml]</sp
 
 Add your fish sauce, kaffir lime leaves and 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and stir it all together – this is your fish stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/857.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Slice your red chilli[es] finely into strips
 
 Tip: Not a fan of spice? Remove the seeds!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/857.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once hot, add the pak choi leaves to the pan, cover with a lid and cook for 2-3 
 
 Transfer the wilted pak choi to a plate and reserve the pan
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/18-06-24_09h18m14s-APIC-1719591415943-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Tip: Your fish is cooked once it turns opaque and flakes easily
 
 Once cooked, transfer your sea bass to the same plate as the wilted pak choi
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/857.-step-7-x200.jpg)
 
 ### Step 7
 
@@ -99,6 +106,7 @@ Add the juice of half your lime[s] to the pan – this is your aromatic broth
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 8 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/25-06-24_15h25m10s-APIC-1719591438891-x200.jpg)
 
 ### Step 8
 

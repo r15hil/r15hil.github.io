@@ -23,6 +23,7 @@ This Middle Eastern-inspired chicken is made with cranberries, almonds and the s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/415.step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Rinse the freekeh under cold water, then add it to a pot with plenty of cold wat
 
 Cook for 20-25 min or until tender but with a slight bite, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/415.step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Heat a large wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the coated chicken thighs and cook on each side for 3 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/415.step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Put the tray in the oven for 10-15 min or until cooked through (no pink meat!)
 
 Once cooked, transfer the chicken to a clean board and leave to cool slightly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/415.step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Chop the dried cranberries coarsely
 
 Add them to a bowl and cover with enough boiled water to cover completely (this helps them become juicy and plump)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/415.step-5-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Once done, remove from the oven and sprinkle with salt
 
 Leave them to cool on the tray
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/415.step-6-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Cook for 2-3 min, then add the cooked freekeh, coating all the grains in the oil
 
 Remove from the heat and set aside until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/415.step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Take eggs up a level with this Filipino-style omelette. You’ll roast aubergine
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1720529477590-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Line a baking tray (or two!) with non-stick baking paper and add the cut aubergi
 
 Drizzle with vegetable oil and put the tray[s] into the oven for 25-30 min or until the aubergine is cooked through and soft
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1720529487519-x200.jpg)
 
 ### Step 2
 
 Meanwhile, combine your sriracha (can’t handle the heat? Go easy!), tomato ketchup and half of your tamari soy sauce with a splash of cold water and a pinch of sugar – this is your spicy ketchup
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1720529490835-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Crack your egg[s] into a large bowl with your vegetable stock mix and 50ml <span
 
 Whisk it all together – this is your egg mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1720529499441-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Add your white long grain rice with 225ml <span class="text-purple">[300ml] </sp
 
 Bring to the boil over a high heat then reduce the heat to very low and cook, covered, for 12-15 min or until all the water has absorbed
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1720529503291-x200.jpg)
 
 ### Step 5
 
 Once the rice is cooked, remove from the heat, add your mangetout to the same pot (over the rice) and put the lid back on for 3 min or until the mangetout are hot and tender but with a slight crunch – this is your garlic rice & mangetout
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1720529508570-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once your aubergine is cooked through and softened, flatten with a plate by pres
 
 Drizzle the remaining tamari soy sauce on the flattened aubergine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1720529516127-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Give your favourite Thai street food a plant-powered boost. You'll pump up rice 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1609945900483-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Set aside for 12-15 min or until softened
 
 Once softened, drain and set aside until later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1609945913940-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Whilst the noodles are softening, deseed your pepper[s] (scrape the seeds and pi
 
 Top, tail, peel and chop your carrot[s] into quarters lengthways, then into thin batons
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1609945933870-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Combine your peanut butter and tamarind paste in a bowl with 2 tbsp <span class=
 
 Give everything a good mix up – this is your peanut butter sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1609945981274-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Crush your roasted peanuts into a fine powder with a rolling pin
 
 Cut your lime[s] in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1609945998072-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, drain your tofu, pat it dry with kitchen paper and crumble it into the
 
 Add your ground turmeric and a pinch of salt and cook for 3-4 min or until golden – this is your golden tofu
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1609946177295-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Once golden, transfer the tofu to a bowl and return the pan to a medium-high hea
 
 Add the carrot batons and pepper strips and cook for 2-3 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1609946287612-x200.jpg)
 
 ### Step 7
 

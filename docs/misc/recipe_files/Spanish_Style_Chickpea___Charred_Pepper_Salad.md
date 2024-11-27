@@ -28,6 +28,7 @@ For this smoky Spanish-inspired salad, you'll roast tomatoes with onions until s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625575333246-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chopped potatoes to a baking tray (or two!) with a drizzle of vegetable 
 
 Sprinkle your dried oregano all over, give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your crispy potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625575340147-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop your tomato[es] into wedges
 
 Add the onion wedges and tomato wedges with a drizzle of olive oil and a pinch of salt and pepper to one side of a separate baking tray (or two!) and set aside for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625575348163-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Drain and rinse your chickpeas and add them to a bowl
 
 Add your ground smoked paprika with a drizzle of vegetable oil and a pinch of salt and pepper and give them a good mix up – these are your paprika chickpeas
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625575355796-x200.jpg)
 
 ### Step 4
 
 Add the paprika chickpeas to the tray[s] with the onion and tomato wedges, then put the tray in the oven for 20-25 min or until the vegetables have softened and the chickpeas are crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625575365737-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Combine your mayo with your red wine vinegar and your cayenne pepper (can't hand
 
 Add the chopped garlic (not a fan of raw garlic? Just add a little!) with a pinch of salt to the bowl and stir it all together – this is your spicy aioli
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625575373155-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped peppers and cook for 4-5 min, turning occasionally, until starting to char and soften – these are your charred peppers
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Roughly-shredded-red-gem-1719233137299-x200.jpg)
 
 ### Step 7
 

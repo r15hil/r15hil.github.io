@@ -25,6 +25,7 @@ This French-inspired dish brings together rich, succulent duck and a creamy must
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1584.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Once very hot, add the duck legs with a generous pinch of&nbsp;salt&nbsp;and coo
 
 Once browned, transfer the duck to a plate and reserve the pan.
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1584.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -56,6 +58,7 @@ Peel and halve the&nbsp;shallots.
 
 Boil a kettle.
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1584.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -70,6 +73,7 @@ Once hot, add the&nbsp;diced onion&nbsp;and&nbsp;chestnut mushrooms&nbsp;and coo
 
 Meanwhile, dissolve the&nbsp;chicken stock cube<span class="text-danger">[s]</span>&nbsp;and the&nbsp;Just Add Wine sachet<span class="text-danger">[s]</span>&nbsp;in 400ml&nbsp;<span class="text-danger">[700ml]</span>&nbsp;boiled water.
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1584.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -90,6 +94,7 @@ Pour the&nbsp;wine braise&nbsp;all over and cover the dish tightly with tin foil
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1584.step-5-x200.jpg)
 
 ### Step 5
 
@@ -110,6 +115,7 @@ Once cooked, drain and return them to the pot.
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1584.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -127,6 +133,7 @@ Meanwhile, clean and scrub the&nbsp;heritage baby carrots to remove any dirt (no
 
 Chop the chives and&nbsp;parsley finely.&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1584.-step-7-x200.jpg)
 
 ### Step 7
 

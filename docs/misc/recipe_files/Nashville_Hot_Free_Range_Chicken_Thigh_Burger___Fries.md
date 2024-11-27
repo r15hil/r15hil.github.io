@@ -23,6 +23,7 @@ Feeling hot, hot, hot. This fiery burger from the Deep South comes with crispy b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1687858306995-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Add 80ml<span class="text-purple"> [120ml]</span><span class="text-danger"> [160
 
 Add your free range chicken thighs to the marinade, give everything a good mix up, then set aside for later (this will help to tenderise your chicken!) – this is your marinated free range chicken
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1687858317709-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the fries to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1687858326360-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Slice half your cucumber finely into discs
 
 Cut the remaining cucumber into batons
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1687858327244-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Add the cucumber discs and cucumber batons to a bowl with the remaining cider vi
 
 Mix it all together and set aside until serving – this is your quick-pickled cucumber
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1687858336489-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add the marinated free range chicken thighs to the flour mix, then press firmly 
 
 Discard any remaining marinade
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1687858337016-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Once hot, add the coated free range chicken and cook for 9-10 min on each side o
 
 Reserve the pan and the remaining cooking oil
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1687858336793-x200.jpg)
 
 ### Step 7
 

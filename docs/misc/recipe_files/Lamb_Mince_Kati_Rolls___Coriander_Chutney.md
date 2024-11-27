@@ -29,6 +29,7 @@ Lamb kati rolls are a sensational Indian street food. You'll make yours with ric
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1585754559698-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Dice the remaining onion and tomato[es] finely
 
 Add the diced tomato to the bowl with the sliced onion with 1/2 tbsp<span class="text-purple"> [3/4 tbsp]<span class="text-danger"> </span>[1 tbsp]</span> olive oil and a pinch of salt and pepper – this is your tomato salad
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1585754566338-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1585754570140-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Cook for 3-4 min further or until browned all over, breaking it up with a wooden
 
 Meanwhile, chop your coriander finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1585754574537-x200.jpg)
 
 ### Step 4
 
 Once the lamb is browned, add the chopped ginger, chopped garlic and curry powder and cook for 4 min further or until cooked through and fragrant (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1585754579170-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Grind to a fine paste, then add your mayo with the juice of 1/4 of your<span cla
 
 Add half your chilli flakes (can't handle the heat? Go easy!) and stir it all together – this is your coriander chutney
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-tortillas-on-a-plate-1683877700061-x200.jpg)
 
 ### Step 6
 
 Add your tortillas to a plate and pop in the microwave for 20 secs on high or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1585754590839-x200.jpg)
 
 ### Step 7
 

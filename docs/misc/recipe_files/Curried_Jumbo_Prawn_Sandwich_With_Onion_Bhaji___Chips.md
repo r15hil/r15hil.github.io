@@ -31,6 +31,7 @@ This seafood sarnie is singing with spice. You'll coat curried jumbo prawns in a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1654015812844-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut your potatoes (skins on) into chips, then add to a baking tray (or two!) wit
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crispy – these are your cumin spiced chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654015816221-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Transfer the coated jumbo prawns to a tin foil-lined tray (or two!) and put the 
 
 Once cooked, set aside to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654015818723-x200.jpg)
 
 ### Step 3
 
@@ -58,11 +61,13 @@ Chop your tomato[es] roughly
 
 Add the sliced cucumber and chopped tomato to a bowl with your rice vinegar and a drizzle of vegetable oil and mix well – this is your tomato & cucumber salad
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654015821852-x200.jpg)
 
 ### Step 4
 
 Once cooled, add the cooked prawns to a bowl with your mayo and mango chutney and mix well – this is your curried jumbo prawn mayo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654015826281-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add 50ml <span class="text-purple">[75ml]</span> <span class="text-danger">[100m
 
 Add the sliced onion to the bowl with the batter and mix until all of the onion is coated – this is your onion bhaji mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654015829282-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once hot, divide the onion bhaji mixture equally into 1 bhaji per person and add
 
 Press down with the back of a spoon to flatten into a patty shape
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654015832081-x200.jpg)
 
 ### Step 7
 

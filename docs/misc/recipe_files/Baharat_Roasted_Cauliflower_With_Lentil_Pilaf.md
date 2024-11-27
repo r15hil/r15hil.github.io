@@ -27,6 +27,7 @@ You'll coat cauliflower wedges in our aromatic baharat spice mix and roast them 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1404.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut the cauliflower<span class="text-danger">[s]</span> into 6 <span class="text
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1404.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Massage the baharat and olive oil into the cauliflower wedges until they're full
 
 Put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1404.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Drain and rinse the can of&nbsp;lentils
 
 Dissolve the vegetable stock cube<span class="text-danger">[s]</span> in 400ml<span class="text-danger"> [800ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1404.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with a d
 
 Once hot, add the basmati rice, ground allspice, cinnamon,&nbsp;ground coriander, turmeric and cumin seeds and cook for 30 sec or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1404.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving &ndash; this is your lentil pilaf
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1404.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Meanwhile, combine the tahini&nbsp;with the juice of 1/2 <span class="text-dange
 
 Whisk to combine and season with a pinch of salt&nbsp;&ndash; this is your tahini sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1404.-step-7-x200.jpg)
 
 ### Step 7
 

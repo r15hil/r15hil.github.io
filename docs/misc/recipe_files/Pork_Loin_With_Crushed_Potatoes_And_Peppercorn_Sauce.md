@@ -23,6 +23,7 @@ Enjoy a comforting pairing of pork loin steaks with plenty of creamy peppercorn 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1587400141872-x200.jpg)
 
 ### Step 1
 
@@ -34,11 +35,13 @@ Add the chopped potatoes to a pot with plenty of boiled water and a pinch of sal
 
 Once boiling, cook for 12-15 min or until fork-tender, then drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1587400159862-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel and finely chop your shallot[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1587400168340-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the seasoned pork and cook for 5-6 min on each side or until it is browned and cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1587400178267-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once hot, add the chopped shallot and cook for 2 min
 
 Reboil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1587400186382-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Add 1/2 tsp<span class="text-purple"> [3/4 tsp]</span> <span class="text-danger"
 
 Add the cracked black pepper, Chinese rice wine and Dijon mustard and bring to the boil over a high heat, then add any resting juices from the plate with the steak and cook for 3-4 min or until thickened – this is your peppercorn sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1587400228714-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Bring to the boil over a high heat and cook for 3-4 min or until tender
 
 Once cooked, drain the green beans and return them to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1587400238225-x200.jpg)
 
 ### Step 7
 

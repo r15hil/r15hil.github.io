@@ -26,6 +26,7 @@ Kati wraps are an Indian street food favourite, usually eaten as an on-the-go sn
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1774.-step-1.2-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable
 
 Once hot, add the paneer with a pinch of salt and cook for 3-4 min <span class="text-highlight">or until golden, then transfer the paneer to a plate (reserve the pan) and cover with tin foil </span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1774.-step-2.2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, peel and finely slice the red onion<span class="text-danger">[s]</sp
 
 Deseed the green pepper<span class="text-danger">[s] </span>(scrape the seeds and pith out with a teaspoon) and cut into thin strips (as finely as you can!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1774.-step-3.2-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Boil a kettle
 
 Preheat the oven to 200°C/ 180°C (fan)/ 395°F/ Gas 6
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1774.-step-4.2-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Return the pan to a medium heat with a drizzle of vegetable oil 
 
 Once hot, add the cumin seeds, chopped ginger and chopped garlic and cook for 1-2 min until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1774.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once fragrant, add the chopped green pepper and sliced red onion with a gener
 
 Meanwhile, combine the soy sauce, chilli jam and tomato ketchup with 60ml <span class="text-danger">[120ml] </span>boiled water – this is your chilli sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1774.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once everything is softened, add the paneer to the vegetables 
 
 Add the chilli sauce and <span class="text-highlight">cook for 2-3 min</span> or until the sauce has thickened and everything is coated in sauce – this is your chilli paneer
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1774.-step-7-x200.jpg)
 
 ### Step 7
 

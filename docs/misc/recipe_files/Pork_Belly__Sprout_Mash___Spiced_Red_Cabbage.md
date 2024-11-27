@@ -22,6 +22,7 @@ Learn how to cook pork belly perfectly with this hearty winter warmer. Delicious
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1313.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Score the fatty side of the pork belly in a criss-cross pattern by drawing a sha
 
 Heat a large, wide-based pan (preferably non-stick) over a medium heat and once very hot, add the pork belly, fat-side down and cook for 3-5 min or until nicely coloured
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1313.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -40,11 +42,13 @@ Put the tray in the oven for 40-45 min, or until it's crisp on the outside and c
 
 Once done, leave the pork to rest
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1631722547322-x200.jpg)
 
 ### Step 3
 
 Meanwhile, boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1313.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -52,6 +56,7 @@ Add the shredded red cabbage, balsamic vinegar, sultanas, star anise, 1 tsp�
 
 Cover the dish tightly with tin foil (or a matching lid) and put the dish in the oven for 35-40 min or until the cabbage is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1313.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -63,6 +68,7 @@ Add the potatoes and Brussels sprouts to a pot of boiled water with a pinch of 
 
 Meanwhile, dissolve 1/2 <span class="text-danger">[1]</span> beef stock cube in 200ml <span class="text-danger">[350ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1313.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Gradually whisk in the beef stock and cook for 1-2 further or until a smooth gra
 
 Stir in the spiced plum chutney – this is your spiced plum gravy
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1313.-step-7-x200.jpg)
 
 ### Step 7
 

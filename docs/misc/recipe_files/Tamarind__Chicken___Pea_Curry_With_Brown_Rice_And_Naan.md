@@ -27,6 +27,7 @@ The tangy, sweet taste of tamarind is what gives this creamy curry a unique, del
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1633002273825-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633002289689-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and grate the garlic
 
 Chop the chicken breasts into large, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633002296041-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the diced shallot with a pinch of salt and cook for 2-3 min or unt
 
 Once soft, add the chopped chicken breast, ginger, garlic and curry powder and cook for 3-4 min further or until the chicken is starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1633002302488-x200.jpg)
 
 ### Step 4
 
@@ -69,11 +73,13 @@ Chop the creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut, tamarind paste, vegetable stock mix and rice vinegar in 150ml <span class="text-danger">[300ml]</span> boiled water – this is your tamarind stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633002307212-x200.jpg)
 
 ### Step 5
 
 Add the chopped cherry tomatoes to the pan and cook for 3-4 min or until soft
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Plain-naan-on-a-baking-tray-1633002369923-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once soft, add the tamarind stock to the pan and cook, on a medium-high heat, fo
 
 Add the naans to a baking tray and put the tray in the oven for 3-4 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633002319168-x200.jpg)
 
 ### Step 7
 

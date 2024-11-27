@@ -23,6 +23,7 @@ Pork partners really well with fruit, in this case fresh pear. You'll use it to 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/487.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Cut the potatoes (skins on) lengthways into chunky chips
 
 Place them on a baking tray, drizzle with vegetable oil and season generously with salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/487.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Place the tray in the oven for 25-30 min or until the chips are golden, turning 
 
 Meanwhile, add the mayonnaise, cider vinegar, 2 tbsp <span class="text-danger">(4 tbsp)</span> olive oil and a generous pinch of salt and pepper to a large mixing bowl and mix well
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/487.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Grate the pear, discarding the inner core
 
 Slice the spring onion<span class="text-danger">(s)</span> finely, discarding the root ends
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/487.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine&nbsp;the grated carrot, celery, pear and spring onion with the mayonnais
 
 Set aside until serving&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/487.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Rub them with 1 tbsp <span class="text-danger">(2 tbsp)</span> vegetable oil and
 
 Season&nbsp;both sides generously with salt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/487.-step_6-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Heat a wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the pork steaks and cook for 2-3 min on each side, until browned on the outside and cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/487.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ Doubly garlicky and doubly delicious, this burger is a one-two punch of flavour.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1686667705529-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Remove 30g <span class="text-purple">[45g]</span> <span class="text-danger">[60g
 
 Cut your potatoes (skins on) into chips and add to a baking tray (or two!) with a drizzle of vegetable oil, ground smoked paprika and a pinch of salt, then put the tray[s] in the oven for 25-30 min or until the chips are golden and starting to crisp – these are your smoky chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1686667708406-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Cut a piece of tin foil approx. the size of an A4 sheet of paper
 
 Lay 1 garlic clove per person (skin on) in the middle of the foil, then add a drizzle of olive oil, a small splash of cold water and a pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1686667712284-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Add the garlic parcel to a separate tray and put the tray in the oven for 15 min
 
 Once soft, carefully remove the skin from the roasted garlic, mash with a fork and set aside – this is your mashed roasted garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1686667716655-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Peel and finely chop (or grate) the remaining garlic
 
 Combine the chopped parsley, chopped garlic and half your grated Italian hard cheese (you'll use the rest later!) in a small bowl with the warmed butter and a generous pinch of salt – this is your cheesy garlic butter
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1686667721080-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Slice your ciabatta[s] in half
 
 Spread the cheesy garlic butter over the outside of the ciabatta lids and the inside of the ciabatta bases, then add to a baking tray and put the tray in the oven for 5-7 min or until crusty – this is your garlic bread
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1686667725501-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add your meat-free chick'n to the pan with a generous grind of black pepper and cook for 4-5 min or until starting to brown
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1686667729895-x200.jpg)
 
 ### Step 7
 

@@ -29,6 +29,7 @@ Bangladesh called, it wants its meatballs back. You’ll pack juicy beef koftas 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1689761563268-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop (or grate) your garlic
 
 Slice half your green chilli[es] into rounds and finely chop the remaining
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1689761567747-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide into 3 per person<span class="text-danger"> </span>and shape into meatballs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1689761571830-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once the meatballs have browned, transfer them to a plate and set aside, these w
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1689761575893-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Chop your tomato[es] finely
 
 Dissolve your chicken stock mix and tomato paste in 120ml<span class="text-danger"> <span class="text-purple">[160ml] </span>[200ml]</span> boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1689761579549-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once softened, add the remaining chopped garlic with the remaining ground corian
 
 Cook for 1-2 min further or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1689761583968-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Once broken down, add the tomato stock and bring to the boil over a high heat
 
 Once boiling, reduce the heat to medium, then return the browned meatballs to the pan and cook, covered, for 12-15 min or until cooked through (no pink meat!) – this is your Bangladeshi-style beef kofta curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1689761592849-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ There’s nothing better than hearty baked beans on toast. Try yours pizza style
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1695656360342-x200.jpg)
 
 ### Step 1
 
@@ -43,6 +44,7 @@ Drain and rinse your butter beans
 
 Chop your basil finely, including the stalks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1695656368864-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1695656374916-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once softened, add the chopped garlic, dried oregano and drained butter beans an
 
 Once fragrant, add your chopped tomatoes, vegetable stock mix and half the chopped basil (you'll use the rest later!) with 200ml<span class="text-danger"> <span class="text-purple">[260ml]</span> [350ml]</span> boiled water and 1 tsp<span class="text-purple"> [1 1/2 tsp] </span><span class="text-danger">[2 tsp]</span> sugar and cook for 5-6 min or until the sauce has thickened – these are your beans
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1695656379666-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Tear the drained mozzarella into rough, bite-sized pieces
 
 Grate your Italian hard cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1695656384284-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add your cherry tomatoes to the other side of the tray and drizzle with half you
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1695656388475-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Top the toasted ciabatta halves with the beans, torn mozzarella, grated Italian 
 
 Put the tray[s] under the grill for 4-5 min or until the cheese has melted and the tomatoes have blistered – these are your pizza-style loaded beans on toast
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1695656393149-x200.jpg)
 
 ### Step 7
 

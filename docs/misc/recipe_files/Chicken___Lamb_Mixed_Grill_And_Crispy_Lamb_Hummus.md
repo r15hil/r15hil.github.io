@@ -31,6 +31,7 @@ This Lebanese-inspired mix grill is hold-me-back good. You'll make your own hari
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1650385860984-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Soak your skewers in cold water (this prevents them from burning whilst cooking)
 
 Combine your baharat and half your harissa paste (can't handle the heat? Go easy!) in a bowl with a little drizzle of olive oil, 1 tsp <span class="text-purple">[1 1/2 tsp]</span> <span class="text-danger">[2 tsp]</span> sugar and a pinch of salt, then cut your chicken thighs into strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1650385868709-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Combine 3/4 of your lamb mince (you'll use the rest later!) and your mint sauce 
 
 Divide and shape the lamb mixture into 1 long, flat sausage per person, then add to the baking tray[s] – these are your minted lamb kebabs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1650385872944-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Meanwhile, peel and grate your garlic
 
 Combine your mayo and half of the grated garlic (not a big garlic fan? Try using less!) in a bowl with a small splash of cold water – this is your garlic sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1650385880972-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Chop your tomato[es] finely
 
 Combine the shredded lettuce and chopped tomato[es] in a bowl with the juice of half your lemon[s] and a little drizzle of olive oil – this is your tomato salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1650385887687-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Drain and rinse your chickpeas, then add the remaining grated garlic to a food p
 
 Add 1 1/2 tbsp <span class="text-purple">[2 1/2 tbsp]</span> <span class="text-danger">[3 tbsp]</span> olive oil, 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water, a generous pinch of salt and the remaining lemon juice and blitz until smooth – this is your hummus
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1650385891939-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once hot, add the remaining lamb mince and cook for 4 min or until brown and beg
 
 Once browned, add the remaining harissa paste (not a fan of spice? Just add a little!) and cook for 3-4 min further or until slightly crispy and cooked through (no pink meat!) – this is your crispy lamb
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1650385898670-x200.jpg)
 
 ### Step 7
 

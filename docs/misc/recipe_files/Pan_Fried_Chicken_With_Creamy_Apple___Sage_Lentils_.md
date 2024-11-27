@@ -23,6 +23,7 @@ A warm and comforting supper? Yes puy-se! While your creamy apple and sage puy-s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650388505564-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
 Heat a large pot over a medium-high heat with a drizzle of vegetable oil, once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650388546252-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Peel and finely chop (or grate) the garlic
 
 Dissolve the chicken stock mix in 450ml <span class="text-danger">[800ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650388567847-x200.jpg)
 
 ### Step 3
 
 Once the onion has softened, add the grated apple, chopped sage (save the whole leaves for later!) and chopped garlic to the pot and cook for 1-2 min further or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650388590677-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Rinse the puy-style lentils in a sieve under cold running water
 
 Add the rinsed lentils to the pot along with the stock, bring to the boil over a high heat, then reduce to medium-low and cook for 30-35 min or until tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650388597681-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ While the lentils are cooking, trim the green beans
 
 Season the chicken breast portions with a pinch of salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650388646369-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Once golden, reduce the heat to medium and add a small splash of water to the pa
 
 Increase the heat to medium high and cook for an initial 5 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650388660566-x200.jpg)
 
 ### Step 7
 

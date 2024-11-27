@@ -31,6 +31,7 @@ Hearty and rich, this quick-to-prep French-style stew is a satisfying weeknight 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1661880633041-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ This recipe takes around 5-10 min<span class="text-danger"> </span>to prep, so g
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1661880713468-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Boil a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a medium-high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1661880709060-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Chop your chestnut mushrooms in half
 
 Chop your waxy potatoes in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1661880700979-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once the dish is hot, add your chicken thighs and bacon lardons along with a gri
 
 Cook for 2 min or until the chicken is very lightly browned
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1661880695795-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the crushed garlic, chopped shallot, chopped mushrooms and chopped waxy pota
 
 Give everything a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1661880690887-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Trim your green beans
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1661880686316-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Put the jar back in the cupboard, it's time to make your own pickle. You'll simm
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1714667151691-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Top, tail, peel and dice half your carrot[s] finely, then dice half your apple[s
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1714667156507-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the chopped shallot, diced carrot, diced apple and chopped garlic 
 
 Once softened, add your ground allspice with 2 tsp<span class="text-danger"> <span class="text-purple">[3 tsp] </span>[4 tsp] </span>brown sugar and cook for 1-2 min or until fragrant
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1714667162424-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once done, set aside to cool slightly – this is your pickle
 
 Tip: Cooling will help to thicken the pickle!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1714667166838-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1714667171313-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Tear the drained mozzarella into rough, bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1714667176862-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the toasted ciabatta[s] to a baking paper-lined baking tray (or two!) and to
 
 Put the tray[s] in the oven for 8-10 minutes or until the cheese has melted and starting to brown
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1714667180472-x200.jpg)
 
 ### Step 7
 

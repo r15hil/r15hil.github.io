@@ -28,6 +28,7 @@ Dinner in a snap. You'll load juicy harissa-spiced chicken into fluffy sourdough
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1723816259212-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a small drizzle of oliv
 
 Once hot, add your diced chicken breast and cook for 10-12 min or until cooked through (no pink meat!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1723816273314-x200.jpg)
 
 ### Step 2
 
@@ -44,21 +46,25 @@ While the chicken is cooking, add your bulgur wheat to a pot with plenty of boil
 
 Bring to the boil over a high heat and cook for 7-9 min or until tender with a slight bite
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1723818586174-x200.jpg)
 
 ### Step 3
 
 Peel and finely chop (or grate) your garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1723818594046-x200.jpg)
 
 ### Step 4
 
 Wash then remove 1 leaf per person from your lettuce and set aside, shred the inner core
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1723818601982-x200.jpg)
 
 ### Step 5
 
 Slice your tomato[es] into rounds
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723818610141-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Return the pot to a low heat with a small knob of butter, the chopped garlic and
 
 Season with a generous pinch of salt and pepper and cook for 1-2 min, or until fragrant and well coated, stirring constantly – this is your tomatoey bulgur
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1723818619811-x200.jpg)
 
 ### Step 7
 

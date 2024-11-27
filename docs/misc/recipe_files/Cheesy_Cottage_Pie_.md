@@ -25,6 +25,7 @@ Deliciously comforting and satisfying, this firm family favourite also contains 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/432_step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add them to a pot of water with a pinch of salt and bring to the boil over a hig
 
 Once boiling, cook for 15 min or until fork-tender&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/432_step-2-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Tip: this is best done by quartering the carrots lengthways and then cutting acr
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/432_step-3-x200.jpg)
 
 ### Step 3
 
@@ -64,6 +67,7 @@ Once hot, add the diced&nbsp;carrot, diced&nbsp;onion and dried&nbsp;bay leaf<sp
 
 Cook for 5 min, or until softened and starting to colour &ndash; this is your carrot mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/432_step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Grate the cheddar
 
 Trim and chop the spring onion<span style="color: #e86754;">[s]</span>&nbsp;finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/432_step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Add the beef mince and chopped&nbsp;garlic to the carrot mixture and increase th
 
 Cook for 5 min further, or until the mince has browned, breaking it up as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/432_step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Taste for seasoning, adding more salt and pepper if needed
 
 Remove the bay leaf<span class="text-danger">[ves]</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/432_step-7-x200.jpg)
 
 ### Step 7
 

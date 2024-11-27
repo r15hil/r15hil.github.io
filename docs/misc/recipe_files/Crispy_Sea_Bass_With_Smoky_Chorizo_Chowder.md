@@ -25,6 +25,7 @@ Land meets sea in this hearty bowlful. You’ll whip up a smoky chorizo chowder 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1721992884385-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel and chop your potato[es] into small bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1721992891210-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a k
 
 Once melted, add your diced chorizo and cook for 4-5 min or until crispy
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1721992895055-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Once crispy, add the chopped onion, chopped garlic and ground smoked paprika and
 
 Once fragrant, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>flour and cook for 1 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1721992899026-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Once boiling, reduce the heat to medium and cook for an initial 15 min or until 
 
 Tip: Stir occasionally to stop it sticking!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1721992907613-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once the potatoes are tender, add your soft cheese, kale and drained butter bean
 
 Cook for a further 5 min or until the kale is wilted and the butter beans are warmed through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1721992920425-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once hot, add the sea bass to the pan, skin side down, and cook for 5 min
 
 Tip: Try not to move the sea bass around the pan, as this will prevent it from crisping up!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1721992926671-x200.jpg)
 
 ### Step 7
 

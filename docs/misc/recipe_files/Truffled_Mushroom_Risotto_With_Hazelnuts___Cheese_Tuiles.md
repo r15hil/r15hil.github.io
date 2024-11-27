@@ -27,6 +27,7 @@ Thyme-roasted flat white mushrooms top a bed of caramelised leek and chestnut mu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1897.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Chop your leek[s] in half lengthways, wash thoroughly to remove any grit then to
 
 Crush your hazelnuts roughly in the bag with a rolling pin
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1897.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Dissolve your vegetable stock mix in 750ml <span class="text-purple">[975ml]</sp
 
 Grate your Italian hard cheese
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1897.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Meanwhile, strip your thyme leaves from their stems, discard the stems
 
 Add your Chinese rice wine with half the thyme leaves (save the rest for later!) and the chopped mushrooms and cook for 3-4 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1897.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once the mushrooms have started to soften, add your arborio rice and cook for 1
 
 Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1897.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Sprinkle over the remaining thyme leaves, drizzle with olive oil and season gen
 
 Put the tray in the oven and cook for 5-6 min or until the flat white mushroom wedges are cooked through – these are your thyme-roasted flat white mushrooms
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1897.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Once melted, remove the tray from the oven and set aside to cool
 
 Once cooled, snap into 1 equal sized piece per person – these are your cheese tuiles
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1897.-step-7-x200.jpg)
 
 ### Step 7
 

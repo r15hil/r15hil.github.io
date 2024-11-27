@@ -24,6 +24,7 @@ NOTICE: All of these recipes have been retrieved from the Gousto API. I do not c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2344Step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
 Slice the apple<span class="text-danger">[s]</span> (skin on) finely into matchsticks
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2344Step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Add the juice of the lime<span class="text-danger">[s]</span> and a pinch of sal
 
 <span class="text-highlight">Tip: Make sure all your apple matchsticks are coated in the lime juice to stop them from browning!</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2344Step-3-x200.jpg)
 
 ### Step 3
 
 Dice the pork loin steaks into bite-sized pieces, trimming off any large pieces of excess fat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2344Step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once hot, add the diced pork with the chopped garlic, smoked paprika, dried chi
 
 <span class="text-highlight">Cook for 4-5 min or until the pork is cooked through</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2344Step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Remove most of the leaves from the baby gem lettuce<span class="text-danger">[s]
 
 Shred the inner core
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2344Step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Shred the inner core
 
 <span class="text-highlight">Tip: Add a splash of water if your pan is looking a little dry</span>
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2344Step-7-x200.jpg)
 
 ### Step 7
 

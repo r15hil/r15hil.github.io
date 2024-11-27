@@ -25,6 +25,7 @@ This classic korma has a smoky fish twist. You'll cook smoked basa in a simply s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1578.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil a kettle
 
 Peel and finely slice the brown onion<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1578.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add the sliced onion with a pinch of salt and cook for 8-10 min or unt
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1578.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 &nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1578.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Once the onions have softened, add the garam masala, korma curry powder, chopped ginger and garlic&nbsp;and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1578.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,11 +88,13 @@ Once slightly reduced, add the ground almonds and chopped smoked basa to the pan
 
 Cook, covered, for 4-5 min or until the basa is fully cooked&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1578.-step-6-x200.jpg)
 
 ### Step 6
 
 Meanwhile, chop the coriander&nbsp;roughly (including the stalks)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1578.-step-7-x200.jpg)
 
 ### Step 7
 

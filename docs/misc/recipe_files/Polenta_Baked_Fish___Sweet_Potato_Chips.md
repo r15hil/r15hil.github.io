@@ -20,6 +20,7 @@ Fish and chips – but with a lighter, brighter, healthier makeover! Swap greasy
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1677.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Cut the sweet<span class="text-highlight"> potato<span class="text-danger">[es]<
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1677.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -39,6 +41,7 @@ Add the&nbsp;chips to a large&nbsp;mixing bowl with 1 tbsp <span class="text-dan
 
 Add the oiled chips to a baking tray and put the tray in the oven for 20 min or until the&nbsp;chips are tender and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1677.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Zest the lemon<span class="text-danger">[s]</span> and cut in half&nbsp;
 
 Combine the polenta with the lemon zest on a plate with a generous pinch of salt and pepper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1677.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Coat&nbsp;the basa in the zesty polenta until fully covered
 
 <span class="text-highlight">Tip: don't worry if&nbsp;all the polenta doesn't stick!</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1677.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Coat&nbsp;the basa in the zesty polenta until fully covered
 
 <span class="text-highlight">Tip: your fish is cooked when it turns opaque and flakes easily</span>
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1677.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Meanwhile, add the garden peas to a pot, cover them with boiling water (just eno
 
 After 3 min add the spinach and cook for a further 2 min or until&nbsp;the spinach is wilted and the peas are tender, then drain and return to the pot
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1677.-step-7-x200.jpg)
 
 ### Step 7
 

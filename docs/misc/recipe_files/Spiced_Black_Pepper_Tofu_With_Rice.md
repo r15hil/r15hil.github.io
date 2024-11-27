@@ -26,6 +26,7 @@ We've got you covered with our tofu in black pepper sauce! Fry chopped onion, gr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2433Step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2433Step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the chopped onion to the pan with a pinch of salt and cook for 3-5
 
 Once softened, add the chopped ginger and garlic and cook for 2 min further
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2433Step-3-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2433Step-4-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Trim, then chop the spring onions into quarters 
 
 Slice the red chilli<span class="text-danger">[es]</span> finely (can't handle the heat? Remove the seeds)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2433Step-5-x200.jpg)
 
 ### Step 5
 
@@ -81,6 +86,7 @@ Once cooked, add the cracked black pepper, agave, Henderson's relish, soy sau
 
 Once cooked, remove the pan from the heat and set aside for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2433Step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Place your hand <span class="text-highlight">flat on the </span><span class="te
 
 Add the tofu to a plate with the cornflour and coat both sides evenly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2433Step-7-x200.jpg)
 
 ### Step 7
 

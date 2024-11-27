@@ -23,6 +23,7 @@ For this quick, zingy salad, you'll pan-fry creamy butter beans and rich, smoky 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-Admin-1623407438473-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601298135837-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Drain and rinse your butter beans
 
 Once hot, add the drained butter beans to the pan with a generous grind of pepper and cook for 1-2 min or until starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601298147253-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Tear the mackerel into small, bite-sized pieces directly into the pan with the b
 
 Once done, remove from the heat and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vinaigrette-1614339305590-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ While the mackerel is cooking, cut your lemon[s] into quarters
 
 Add the juice of 1/4 of the<span class="text-danger"> </span>lemon quarter[s]<span class="text-danger"> </span>to a bowl along with your tamari soy sauce and 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp]</span> olive oil – this is your tamari dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601298169843-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Chop your parsley roughly, including the stalks
 
 Slice your apple[s] (no need to peel!) finely, discard the core[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1601298201287-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the sliced apple to a bowl with the quick-pickled red cabbage and salad
 
 Pour in the tamari dressing and give everything a good mix up – this is your quick-pickled red cabbage & apple salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601298212214-x200.jpg)
 
 ### Step 7
 

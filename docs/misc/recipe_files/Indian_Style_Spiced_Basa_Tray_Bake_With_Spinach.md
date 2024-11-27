@@ -30,6 +30,7 @@ For this easy, one-pan traybake, you'll marinate basa fillets in ginger, yoghurt
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1633965234331-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginge
 
 Add your basa fillet[s] and give everything a good mix up until the basa is fully coated in the marinade
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1633965238675-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and chop your red onion[s] into wedges
 
 Crush your garlic with the side of a knife, keeping the skins on
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1633965242493-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Sprinkle over your ground turmeric and yellow mustard seeds
 
 Season with a generous pinch of salt and pepper and stir it all together
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1633965247039-x200.jpg)
 
 ### Step 4
 
@@ -68,11 +72,13 @@ Put the tray in the oven for an initial 20 min
 
 Wash your spinach, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1633965249924-x200.jpg)
 
 ### Step 5
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1633965253781-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Return the tray to the oven for 12-15 min or until the spinach has wilted and th
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1633965257082-x200.jpg)
 
 ### Step 7
 

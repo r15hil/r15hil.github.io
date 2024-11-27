@@ -27,6 +27,7 @@ For a juicy burger that's full of flavour, you'll amp up the umami with oregano,
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1625659490106-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Chop your potatoes into chips and add them to a baking tray (or two!) with a dri
 
 Put the tray[s] in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1625659493630-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Dice the remaining red onion as finely as you can
 
 Tip: Alternatively, pop the remaining red onion into a mini food processor and blitz until finely chopped
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1625659520802-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the red onion rounds to a separate tin foil-lined baking tray (or pop them o
 
 Put the tray in the oven for 20-25 min or until softened and lightly golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1625659525602-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Mix together for 1-2 min or until really well combined (clean hands is the best 
 
 Divide your lean beef mince mixture into shape them into 1 patty per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1625659530098-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Tear the remaining lettuce into rough, bite-sized pieces
 
 Slice your cheddar cheese into 3 slices per person
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1625659534673-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once hot, add the lean beef patty[ies] and press them down firmly with a spatula
 
 Mix the torn lettuce and roughly chopped tomato together – this is your salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1625659538560-x200.jpg)
 
 ### Step 7
 

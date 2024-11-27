@@ -25,6 +25,7 @@ These wraps are crispy, cheesy and so easy. You'll bake spiced basa goujons with
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1629983490021-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Add a handful of flour to a plate along with your ground paprika and a generous pinch of salt and pepper and mix it all together – this is your spice mix
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629983492728-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Grate your cheddar cheese
 
 Add your panko breadcrumbs to another plate with the grated cheese, lots of pepper and a generous drizzle of olive oil and mix it all together – these are your cheesy breadcrumbs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1629983495367-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Coat the basa strips in the spice mix (make sure to tap off any excess!)
 
 Add the coated basa strips to the milk and finally press them into the cheesy breadcrumbs firmly to coat evenly – these are your breaded basa strips
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629983498001-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Put the tray in the oven for 10-12 min or until cooked through and golden – th
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1633102618800-x200.jpg)
 
 ### Step 5
 
@@ -68,11 +73,13 @@ While the basa strips are cooking, wash your lettuce, then pat it dry with kitch
 
 Slice your tomatoes finely into rounds
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629983503660-x200.jpg)
 
 ### Step 6
 
 Add your chilli relish to a bowl with your mayo and a drizzle of olive oil and give it a good mix up – this is your chilli mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1629983506206-x200.jpg)
 
 ### Step 7
 

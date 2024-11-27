@@ -27,6 +27,7 @@ For a lighter twist on a tandoori takeaway, you'll coat fish in a spiced yoghurt
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1626173487791-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, rinse the rice under cold running water until cool and leave to drain
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1626173497520-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Combine your curry powder, half of your natural yoghurt (save the rest for lat
 
 Add the basa pieces and give everything a good mix up until the fish is evenly coated – this is your coated basa
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1626173514941-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the coated basa to the tray and put it under grill for 6-7 min or until the
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1626173559483-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Peel and finely grate (or chop) the garlic
 
 Add the chopped garlic (don't like raw garlic? Go easy!), lime zest and a generous pinch of salt and pepper to the yoghurt – this is your lime & garlic yoghurt
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1626173595076-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Slice your cucumber in half lengthways then scrape out the inner seeds using a t
 
 Slice the cucumber halves finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1626173590507-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Pick your coriander and mint leaves from their stems, discard the stems
 
 Chop your mint and coriander leaves roughly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1626173604576-x200.jpg)
 
 ### Step 7
 

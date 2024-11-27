@@ -24,6 +24,7 @@ This stew combines black beans, smoky chorizo and chipotle paste with coconut, c
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/646.-step1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to low and cook, covered, for 10-15 min or until a
 
 Once cooked, remove from the heat and keep covered until serving&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/646.-step2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Heat a large, wide-based pan with a matching lid (preferably non-stick) with 1&n
 
 Once hot, add the onions and carrots, cover and cook for 3-4 min until beginning to brown
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/646.-step3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Chop the tomato<span class="text-danger">[es]</span> roughly
 
 Separate the&nbsp;coriander leaves from the stalks, then chop both roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/646.-step4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add&nbsp;the chorizo, garlic, cumin and coriander stalks to the pan
 
 Cook for 2-3 min or until the chorizo begins to brown and release it's golden oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/646.-step5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Dissolve the chopped coconut in 250ml <span class="text-danger">[500ml]</span> b
 
 Add the chipotle paste and stir to combine - this is your stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/646.-step6-x200.jpg)
 
 ### Step 6
 
@@ -90,6 +96,7 @@ Add the tomatoes and black beans to the pan (no need to drain)
 
 Cook&nbsp;for 1-2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/646.-step7-x200.jpg)
 
 ### Step 7
 

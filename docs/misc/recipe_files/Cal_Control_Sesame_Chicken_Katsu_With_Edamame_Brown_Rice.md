@@ -28,6 +28,7 @@ This katsu-inspired dish is a lower-fat twist on the classic, made with lean chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1619774998006-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot, then rinse your blanched edamame beans under cold running water, add to the pot with the rice and keep covered until serving – this is your edamame brown rice
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1619775056138-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add your chicken breast portion[s] to a tin foil-lined baking tray
 
 Sprinkle over your black sesame seeds and season with a generous pinch of salt, then put the tray in the oven for 18-20 min or until cooked through (no pink meat!) – this is your sesame chicken
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1619775136569-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Grate the remaining carrot[s]
 
 Peel and finely chop your shallot[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1619775202803-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once slightly softened, add your curry powder and umami seasoning and cook for 2
 
 Once fragrant, add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span><span class="text-danger"> [2 tbsp]</span> flour, stir it all together and cook for 1 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1619775363042-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Add your soy sauce and tomato ketchup and stir it all together
 
 Cook for 5-7 min or until the sauce has thickened to a curry-like consistency, then blitz until smooth with a (stick) blender – this is your katsu sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1619776258101-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Combine your rice vinegar with a drizzle of olive oil and a pinch of salt – th
 
 Add the carrot ribbons to the bowl and give everything a good mix up – this is your dressed carrot ribbons
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1619776266811-x200.jpg)
 
 ### Step 7
 

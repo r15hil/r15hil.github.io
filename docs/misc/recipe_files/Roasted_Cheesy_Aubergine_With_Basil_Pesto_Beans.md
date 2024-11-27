@@ -28,6 +28,7 @@ Mamma mia, this roasted aubergine is locked and loaded. You’ll top your veg wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1660661411722-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Tip: Watch them like a hawk to make sure they don't burn!
 
 Once toasted, set them aside and reserve the tray
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1660661421820-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Rub the flesh with a drizzle of<span class="text-danger"> </span>vegetable oil a
 
 Add the scored aubergine halves to the reserved baking tray (use tin foil to avoid mess!) and put the tray in the oven for an initial 15 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1660661438325-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Grate your lighter cheese
 
 Peel and finely slice your brown onion[s]
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1660661460666-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Blitz until smooth – this is your basil pesto
 
 Tip: If you don't have a food processor, chop the almonds with a knife, then add to a pestle & mortar!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1660661468114-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Combine your tomato paste with a generous pinch of salt and pepper in a bowl wit
 
 Drain and pat your mozzarella dry with kitchen paper (squeeze as much liquid out as you can!) and tear into rough, bite-sized pieces
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1660661480194-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once the aubergine has slightly softened, remove the tray from the oven and top 
 
 Return the tray to the oven for 10-15 min or until the mozzarella is melted and golden – this is your roasted cheesy aubergine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1660661486205-x200.jpg)
 
 ### Step 7
 

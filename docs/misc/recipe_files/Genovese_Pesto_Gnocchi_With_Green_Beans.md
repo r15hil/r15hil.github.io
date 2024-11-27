@@ -21,6 +21,7 @@ Liguria is the original home of pesto, or pesto alla Genovese, a vibrant green d
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2111.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Once hot, add the pine nuts and cook for 2-3 min or until lightly toasted
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2111.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,11 +43,13 @@ Chop the basil roughly, including the stalks
 
 Peel and roughly chop the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2111.-step-3-x200.jpg)
 
 ### Step 3
 
 Add the chopped basil, garlic, 3/4 of the toasted pine nuts and 3/4 of the grated Italian hard cheese (save the rest for later!) to a food processor and blitz until the ingredients resemble a fine crumb
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2111.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Season generously with salt – this is your pesto alla Genovese
 
 Tip: Taste the pesto and add a pinch more salt if needed!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2111.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Add the gnocchi and cook for 3 min further or until it begins to rise to the top
 
 Once done, drain, reserving a cup of the starchy cooking water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2111.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Wash and pat the rocket dry
 
 Add the washed rocket and toss with the dressing – this is your rocket salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2111.-step-7-x200.jpg)
 
 ### Step 7
 

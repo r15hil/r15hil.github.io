@@ -28,6 +28,7 @@ Pack in serious flavour with this fiery chilli baked salmon and aromatic South A
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1624890218781-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Cut your cauliflower into small florets (save the stem and leaves for later!), t
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 12-15 min or until the cauliflower has softened and begun to char
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1624890221764-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the sliced shallot to a bowl with your rice vinegar and a pinch of sugar
 
 Mix everything together and set aside – this is your quick-pickled shallot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1624890225922-x200.jpg)
 
 ### Step 3
 
@@ -55,11 +58,13 @@ Peel and finely chop (or grate) your garlic
 
 Boil half a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1624890231307-x200.jpg)
 
 ### Step 4
 
 Drain and rinse your green lentils
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1624890234773-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once hot, add the onion wedges and cook for 2-3 min or until slightly softened
 
 Once softened, add the chopped garlic and cook for a further 1-2 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1624890239252-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add a drizzle of olive oil to the salmon and season with a pinch of salt and pep
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1624890242507-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Try something new this St. Patrick's Day. You'll top golden, crispy Irish pancak
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614006528601-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel strips of zest from the lemon<span class="text-danger">[s] </span>with a pe
 
 Cut the lemon<span class="text-danger">[s]</span> into quarters
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614006566946-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once done, drain and return to the pot and mash until smooth
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1614006757779-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ While the potatoes are boiling, add the grated potato to the middle of a tea tow
 
 Add the grated potato to a bowl with the juice of 1 <span class="text-danger">[2]</span> lemon wedge<span class="text-danger">[s] </span>and 40g<span class="text-danger"> [80g]</span> flour<span class="text-danger"> </span>and season with a generous pinch of salt and pepper – this is your potato mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614006624087-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop the chives finely
 
 Combine the juice of 1 <span class="text-danger">[2]</span> lemon wedge<span class="text-danger">[s] </span>with 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a pinch of salt and pepper – this is your lemony dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1614006639222-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the cherry tomatoes and lemon zest to the other side with a drizzle of olive
 
 Cover with the other piece of foil and scrunch the edges to form a sealed parcel
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1614006662248-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Put the tray in the oven for 10 min or until the tomatoes have softened
 
 Meanwhile, add the potato mixture, egg<span class="text-danger">[s]</span> and 1.5 tbsp <span class="text-danger">[3 tbsp] </span>milk to the mashed potatoes and mix until well combined – this is your batter
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1614006683593-x200.jpg)
 
 ### Step 7
 

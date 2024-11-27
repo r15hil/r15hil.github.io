@@ -27,6 +27,7 @@ Biryani is the paella of Indian food. To make this one pot wonder, you'll cook r
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-4-1699362442068-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Chop your free range chicken breast portion[s]<span class="text-danger"> </span>
 
 Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-4-1699362451324-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Once the pan is hot, add the diced onion, your curry powder and a pinch of salt
 
 Cook for 2 min or until the onion is starting to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-4-1699362455525-x200.jpg)
 
 ### Step 3
 
 Meanwhile, trim, then cut your green beans in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-4-1699362459016-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Stir in your chicken stock mix and add your tomato paste
 
 Tip: Add a drizzle of oil if the pan looks a little dry
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-4-1699362462979-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Cook for 2 min further or until the chicken is starting to brown
 
 Once brown, add your basmati rice to the pan and stir to coat the grains in the spice and oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-4-1699362467144-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Add 300ml <span class="text-purple">[390ml] </span><span class="text-danger">[60
 
 Once boiling, add the halved green beans and your sultanas
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-4-1699362473247-x200.jpg)
 
 ### Step 7
 

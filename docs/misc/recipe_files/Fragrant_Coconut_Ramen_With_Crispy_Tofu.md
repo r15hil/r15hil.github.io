@@ -31,6 +31,7 @@ It doesn’t get much better than this coconutty twist on ramen. You’ll flavou
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1669136794022-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Add the sliced tofu to a bowl with half your soy sauce (save the rest for late
 
 Add your panko breadcrumbs and a pinch of salt to a plate, pressing the marinated tofu into the panko breadcrumbs firmly, until evenly coated all over – this is your coated tofu
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1669136798020-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the coated tofu and cook for 5-6 min on each side or until golden and crispy all over, then transfer to a plate lined with kitchen paper and reserve the pan – this is your crispy tofu
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1669136801987-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Peel and roughly chop your shallot[s]
 
 Slice your red chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1669136806304-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Return the reserved pan to a medium heat
 
 Once hot, add the fiery curry paste and cook for 2-3 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1669136810348-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once fragrant, add your tomato paste to the pan and cook for 1 min
 
 Add the coconut stock with the remaining soy sauce and toasted sesame oil and bring to the boil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1669136815039-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ While the noodles are cooking, wash, then, slice your pak choi in quarters lengt
 
 Wash your spinach, then pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1669136819526-x200.jpg)
 
 ### Step 7
 

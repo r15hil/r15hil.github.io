@@ -26,6 +26,7 @@ Set the table for this signature Thai-style curry. You’ll flavour creamy cocon
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1722941889125-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1722941894312-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Peel and finely chop (or grate) your garlic
 
 Trim, then chop your green beans in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1722941898377-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion and a pinch of salt and cook for 2-3 min or until the onion is starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1722941902073-x200.jpg)
 
 ### Step 4
 
@@ -62,11 +66,13 @@ Dissolve the chopped creamed coconut in 200ml <span class="text-purple">[260ml]<
 
 Add your fish sauce and a pinch of sugar – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1722941905455-x200.jpg)
 
 ### Step 5
 
 Once the onion has softened, add the chopped garlic and ground paprika to the pan and cook for 1-2 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1722941908635-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Once fragrant, add your red Thai curry paste and halved green beans to the pan a
 
 Chop your cod fillet[s] into bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1722941912236-x200.jpg)
 
 ### Step 7
 

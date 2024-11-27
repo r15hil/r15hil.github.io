@@ -24,6 +24,7 @@ Tonight is all about crispy-thin layers of potato and courgette, baked with tang
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1631551756535-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Top, tail and slice the courgette<span class="text-danger">[s]</span> into round
 
 Slice the potatoes (skins on) into discs
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1631551774607-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 15-20 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1631551787188-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1 tbsp<span class="text
 
 Once hot, add the sliced leek and cook for 6-8 min or until softened
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1631551798831-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once the leek has softened, add the chopped garlic and 1 tbsp <span class="text-
 
 Add the vegetable stock and cook for 2-3 min or until thickened – this is your leek sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1631551848669-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Add the leek sauce, crumble in most of the Greek cheese (save some to go on top!
 
 Crumble the remaining Greek cheese over the top, then put the dish in the oven for 15-20 min or until everything is golden – this is your courgette & Greek cheese gratin
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1631551841602-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Zest 1/2 <span class="text-danger">[1] </span>lemon (try to grate lightly with a
 
 Chop the parsley finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1631551928314-x200.jpg)
 
 ### Step 7
 

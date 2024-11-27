@@ -25,6 +25,7 @@ Our simple chicken curry can be on your table in the blink of an eye with the he
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/273.step1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the&nbsp;rice, 350ml<span class="text-danger">&nbsp;[700ml]</span>&nbsp;wate
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/273.step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once&nbsp;hot, add the chicken and cook for 2 min on each side, or until browned
 
 Once browned, transfer the chicken&nbsp;to a plate and keep the pan for the next step
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/273.step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Return&nbsp;the pan to a medium heat
 
 Once&nbsp;hot, add the turmeric, chilli flakes (can't handle the heat? Go easy!), curry powder and garlic and cook&nbsp;for 30 sec
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/273.step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Return the chicken to the pan, crumble in the stock cube<span class="text-danger
 
 Reduce the heat to medium-low, and cook, covered,&nbsp;for 5 min, or until the chicken is cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/273.step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Trim and slice the spring onion<span class="text-danger">[s]</span> finely
 
 Dice the tomatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/273.step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Fluff the rice and add the coriander, spring onion and tomato
 
 Season with pepper and mix gently
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/273.step-7-x200.jpg)
 
 ### Step 7
 

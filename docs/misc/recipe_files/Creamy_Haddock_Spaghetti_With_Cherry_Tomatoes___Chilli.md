@@ -24,6 +24,7 @@ Quick-cook pasta is the key to this speedy spaghetti. While that simmers, you'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1612375389079-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2045.-step-2new--x200.jpg)
 
 ### Step 2
 
@@ -46,11 +48,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a g
 
 Chop your cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2045.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the halved cherry tomatoes to the pan with a pinch of salt and cook for 2 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2045.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Cook the spaghetti for just 2-3 min or until cooked with a slight bite (it
 
 Once done, drain the cooked spaghetti, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2045.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once the tomatoes have started to soften, add your roasted garlic paste, chilli
 
 Cook for 30 secs or until starting to thicken slightly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2045.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add your haddock bites (unevenly sized haddock bites? Chop any larger ones into 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2045.-step-7-x200.jpg)
 
 ### Step 7
 

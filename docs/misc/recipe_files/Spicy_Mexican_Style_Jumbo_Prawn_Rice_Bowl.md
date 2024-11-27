@@ -29,6 +29,7 @@ Serve up a bowlful of fresh, Mexican inspired flavour. You'll cook up juicy jumb
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1582891773891-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582891830499-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Chop your cherry tomatoes into quarters
 
 Peel, finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-04-22_11h19m42s-APIC-1653322987460-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, drain your jumbo king prawns, then add them to the pan and cook for 6-7 min or until the prawns are cooked through
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1582891793971-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Combine the juice of half the lime[s] with your chipotle paste (can't handle the
 
 Cut the remaining lime into 1 wedge per person
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1582891797764-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Wash your lettuce, then pat dry with kitchen paper
 
 Remove the outer lettuce leaves and set aside, then shred the inner core[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/28-04-22_11h31m55s-APIC-1653322996606-x200.jpg)
 
 ### Step 6
 
 Once the prawns are almost cooked, add the chopped garlic, chilli flakes (not a fan of spice? Just add a little!) and dried oregano and cook for 1 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1582891804788-x200.jpg)
 
 ### Step 7
 

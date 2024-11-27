@@ -26,6 +26,7 @@ Caponata is a sweet n' sour aubergine stew originating from Sicily. It’s a bit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/382.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Boil a full kettle (used in step 4)
 
 Grate the cheese
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/382.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Cut the yellow pepper<span class="text-danger">(s)</span> into 3cm strips, disca
 
 Chop the tomato<span class="text-danger">(es)</span> into small pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/382.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Drizzle with olive oil and season with salt and pepper
 
 Put the tray in the oven for 15-20 min, or until the veg is starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/382.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -76,6 +80,7 @@ Add the millet and stock to a pot and bring to a boil on a high heat&nbsp;
 
 Cover&nbsp;with a lid, reduce the heat to low and cook for 20 min or until the water is absorbed (holes may appear on the surface)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/new-382.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -87,6 +92,7 @@ Heat a wide-based pan with 1 tbsp <span class="text-danger">(2 tbsp)</span>&nbsp
 
 Add the tomato paste &amp; stir vigorously for 30 sec, then add the remaining stock cube, 300ml <span class="text-danger">(600ml)</span>&nbsp;boiled water, the red wine vinegar, capers, sultanas and 1 tsp <span class="text-danger">(2 tsp)</span>&nbsp;sugar
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/382.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -101,6 +107,7 @@ Cook for 5-10 min until the vegetables are tender
 
 Season&nbsp;generously with salt and pepper&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/382.-step-7-x200.jpg)
 
 ### Step 7
 

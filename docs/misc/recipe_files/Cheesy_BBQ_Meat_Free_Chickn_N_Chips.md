@@ -22,6 +22,7 @@ This cheesy BBQ meat-free chicken is sure to please everyone! Coat meat-free chi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1630682326456-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Cut your potatoes (skins on) into chips, then add them to a baking tray (or two!
 
 Give everything a good mix up and put the tray in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1630682330403-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Meanwhile, add your ground smoked paprika to a plate with a grind of black peppe
 
 Add your meat-free chick'n to the plate and turn them several times in the spices until they’re nicely coated
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1630682335406-x200.jpg)
 
 ### Step 3
 
@@ -45,11 +48,13 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the coated meat-free chick'n and cook for 3 min or until starting to brown
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1630682339589-x200.jpg)
 
 ### Step 4
 
 While the meat-free chick'n is cooking, grate your lighter cheese
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1630682344059-x200.jpg)
 
 ### Step 5
 
@@ -59,6 +64,7 @@ Tip: This will help to keep the sauce around your meat-free chick'n!
 
 Drizzle your smoky BBQ sauce all over and put the tray in the oven for an initial 5 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1630682355275-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ After 5 min, remove the meat-free chick'n tray from the oven and sprinkle over t
 
 Return the tray to the oven for 5 min further or until the cheese has melted – this is your cheesy BBQ meat-free chick'n
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1630682359706-x200.jpg)
 
 ### Step 7
 

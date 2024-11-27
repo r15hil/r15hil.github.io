@@ -26,6 +26,7 @@ Taste the best of both worlds with this sweet-savoury stir-fry. You’ll sizzle 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1671546977845-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain, return it to the pot and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1671547049250-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Top, tail, peel and slice your carrot[s] into discs on the diagonal
 
 Trim, then chop your spring onion[s] into large chunks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1671547054471-x200.jpg)
 
 ### Step 3
 
@@ -53,16 +56,19 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) over a h
 
 Once hot, add your beef mince and onion wedges with a pinch of salt and cook for 3-4 min or until beginning to brown, breaking the mince up with a wooden spoon as you go
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1671547061868-x200.jpg)
 
 ### Step 4
 
 Once starting to brown, add the sliced carrot, ginger & garlic paste and 1 tbsp<span class="text-danger"> <span class="text-purple">[1 1/2 tbsp] </span>[2 tbsp]</span> flour and cook for a further 2-3 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1671547068126-x200.jpg)
 
 ### Step 5
 
 While the beef and veg are cooking, dissolve your beef stock mix in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml] </span>boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1671547073773-x200.jpg)
 
 ### Step 6
 
@@ -70,6 +76,7 @@ Once fragrant, add your toasted sesame oil, soy sauce and honey to the pan with 
 
 Once boiling, reduce the heat to medium-high and cook, covered, for a further 8-9 min or until the sauce has thickened and the beef is cooked through (no pink meat!)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1671547078876-x200.jpg)
 
 ### Step 7
 

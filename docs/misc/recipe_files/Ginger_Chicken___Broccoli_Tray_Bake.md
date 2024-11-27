@@ -24,6 +24,7 @@ For this tempting tray bake you'll marinate chicken thighs in a teriyaki-inspire
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1827.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and finely chop (or grate) the garlic
 
 <span class="text-highlight">Cut</span> the lime<span class="text-danger">[s]</span> in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1827.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the chicken thighs to the marinade and give it a good mix up
 
 Set aside until step 5
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1827.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Meanwhile, chop the broccoli into 6 <span class="text-danger">[12]</span> wedges
 
 Peel and chop the red onion<span class="text-danger text-highlight">[s]</span> into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1827.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Add the marinated chicken thighs to the tray (save the remaining marinade for la
 
 Put the tray in the oven and cook for 15-20 min or until everything is starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1827.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1827.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -93,6 +99,7 @@ Once the chicken <span class="text-highlight">and</span> vegetables are starting
 
 Add the remaining marinade to the tray and cook for a further 10 min or until everything is cooked through (no pink meat!) and the marinade has reduced slightly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1827.-step-7-x200.jpg)
 
 ### Step 7
 

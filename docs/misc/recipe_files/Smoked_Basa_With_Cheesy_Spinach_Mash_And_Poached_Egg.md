@@ -22,6 +22,7 @@ Pay homage to simple pleasures with this splendid combination of smoked fish, a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/368.Step-1-2-x200.jpg)
 
 ### Step 1
 
@@ -29,6 +30,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Boil a full kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-5-1731399264218-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the chopped potatoes and garlic to a pot with plenty of boiled water and bri
 
 Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender, once done, drain and return to the pot to steam dry
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spinach-wilting-in-colander-1646667549172-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Rinse the wilted spinach under cold running water until it's cool
 
 Once cool, squeeze as much water out of the spinach as you can,
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Grate your cheddar cheese
 
 Trim, then slice your spring onions finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/368.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Put the tray[s] in the oven for 12-15 min or until the basa is cooked through
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/368.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Crack your egg[s] gently into the water and leave them for 3 min
 
 Once done, gently transfer the eggs[s] with a slotted spoon to kitchen paper and season them with salt and pepper – these are your poached egg[s]
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/368.-step-7-x200.jpg)
 
 ### Step 7
 

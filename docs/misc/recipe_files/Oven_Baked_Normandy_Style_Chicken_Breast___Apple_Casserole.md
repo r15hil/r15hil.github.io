@@ -26,6 +26,7 @@ This warming casserole from Normandy combines chicken, apples and wholegrain mus
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-9-1725456164816-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-10-1725456168838-x200.jpg)
 
 ### Step 2
 
@@ -50,11 +52,13 @@ Heat a large, wide-based, hob-safe oven-proof casserole dish with a drizzle of o
 
 Chop your apple[s] into wedges and discard the core[s]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-11-1725456173336-x200.jpg)
 
 ### Step 3
 
 Peel and chop your brown onion[s] into wedges
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-11-1725456186711-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add your diced chicken breast to the dish with 1 tsp <span class="text-purple">[
 
 Crush your garlic open by squashing with the side of a knife and remove the skin
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-11-1725456190412-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the chopped apple and onion wedges with the crushed garlic and give everythi
 
 Add your chicken stock mix and 200ml <span class="text-purple">[260ml]<span class="text-danger"> </span>[350ml] </span>boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-11-1725456194919-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Bring to the boil over a high heat, then put the dish in the oven, uncovered, fo
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-9-1725456199908-x200.jpg)
 
 ### Step 7
 

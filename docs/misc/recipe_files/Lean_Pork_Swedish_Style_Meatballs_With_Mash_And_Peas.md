@@ -25,6 +25,7 @@ These Swedish lean meatballs are pure comfort food: juicy pork, creamy mash, hom
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1660038124125-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Once cooked, drain and return to the pot to steam-dry
 
 Reboil half a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1660038129079-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a l
 
 Once hot, add the meatballs to the pan and cook for 2 min on each side or until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1660038134636-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Add the dried cranberries to a bowl and cover with boiled water
 
 Once the meatballs have browned, transfer them to a plate (reserving the pan) and set aside, these will finish cooking in the sauce later
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1660038142798-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Whisk the stock into the flour
 
 Cook for 2-3 min until the stock has thickened slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1660038147622-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Add most of the chopped dill (save the rest for garnish!) to the thickened sau
 
 Return the meatballs to the pan and cook, covered, for 12-15 min further until the meatballs are cooked through (no pink meat!) and the sauce has thickened to a gravy-like consistency – these are your lean pork Swedish-style meatballs & gravy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1660038154060-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Return the pot of drained potatoes to a low heat and add a knob of butter and a 
 
 Mash until smooth, then season with a pinch of salt and pepper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1660038159611-x200.jpg)
 
 ### Step 7
 

@@ -29,11 +29,13 @@ Our grain bowl is rich in umami and filled with slow-release energy. You'll toss
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Boil-a-Kettle-1684144879716-x200.jpg)
 
 ### Step 1
 
 Preheat the oven to 220°C/ 200°C (fan)/ gas 7 and boil a kettle
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/butternut-squash-cubes-on-tray-1717062197462-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add your butternut squash cubes to a baking tray (or two!) with your dried orega
 
 Add a drizzle of olive oil and a pinch of salt, then give everything a good mix up and put the tray[s] in the oven for an initial 10-12 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2228Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once cooked, drain and return to the pot
 
 Wash your shredded kale, then pat it dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2228Step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp<span class="te
 
 Add the sliced onion, shredded kale and drained lentils to the pan with a pinch of salt and cook for 8-10 min or until everything has softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1717062123914-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Once the butternut squash has had 10-12 min in the oven, add your Tenderstem bro
 
 Return the tray[s] to the oven for a further 10-15 min or until the butternut squash is tender and the broccoli is crispy
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2228Step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Meanwhile, combine your tahini, miso paste, toasted sesame oil, agave and rice v
 
 Add 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> of water and a pinch of pepper – this is your miso dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/RC2228Step-7-x200.jpg)
 
 ### Step 7
 

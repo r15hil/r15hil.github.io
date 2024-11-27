@@ -30,6 +30,7 @@ Keep the spice alive with this plant-based winner. You’ll pair tamarind-glazed
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1676982506493-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Trim the green stalk[s] off your aubergine[s], then cut into quarters lengthways
 
 Score the aubergine on the diagonal (about 1cm apart), making sure not to cut all the way down to the base
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1676385888285-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ While the aubergine is cooking, combine your agave, tamarind paste and a pinch o
 
 Give everything a good mix up then set aside – this is your tamarind glaze
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1676385893546-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Add the drained rice with 200ml <span class="text-purple">[300ml]</span> <span c
 
 Once boiling, reduce the heat to low until very gently bubbling and cook, covered, for 15 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1676385899221-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
 While the rice is cooking, trim your green beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1676385905807-x200.jpg)
 
 ### Step 5
 
@@ -79,6 +84,7 @@ Add the chopped shallot and garlic to a food processor with the chopped chilli (
 
 Blitz until smooth – this is your tomato sambal
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1676385915815-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once hot, add the trimmed green beans and tomato sambal to the pan and cook, cov
 
 After an initial 25-30 min, remove the tray from the oven and brush the aubergine with the tamarind glaze, then return the tray to the oven for a further 5 min or until caramelised
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1676385926378-x200.jpg)
 
 ### Step 7
 

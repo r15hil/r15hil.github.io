@@ -22,6 +22,7 @@ Here's how to take a classic to the next level. You'll drizzle wholegrain mustar
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1316.-step-1.new-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chopped potatoes and peeled garlic to a pot of boiled water with a lar
 
 Once cooked, drain and return them to the pot to steam dry
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1316.-step-2.new-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once hot, add the seasoned pork loin steak[s] and cook for 5-6 min on each side 
 
 Reboil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614613163678-x200.jpg)
 
 ### Step 3
 
@@ -57,11 +60,13 @@ Add the sliced sugar snaps and carrot batons to a pot, cover them with boiled w
 
 Bring to the boil over a high heat and cook for 5-6 min or until tender, then drain and return to the pot until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1316.-step-4.new-x200.jpg)
 
 ### Step 4
 
 Dissolve your chicken stock mix, red wine vinegar, wholegrain mustard and 1 tsp <span class="text-purple">[1 1/2 tsp]<span class="text-danger"> </span>[2 tsp]</span> sugar in 150ml <span class="text-purple">[200ml] </span><span class="text-danger">[250ml]</span> boiled water – this is your mustard stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1316.-step-5.new-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once the pork steak is cooked through (no pink meat!), transfer them to a choppi
 
 Reserve the pan and any pork juices for the next step
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1316.-step-6.new-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Increase the heat to medium-high, add a knob of butter and cook for 1-2 min or 
 
 Once thickened, remove from the heat and stir in the reserved pork juices – this is your mustard sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1316.-step-7.new-x200.jpg)
 
 ### Step 7
 

@@ -24,11 +24,13 @@ For a light, satisfying dinner, you'll sizzle succulent salmon and crisp green v
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1610977666844-x200.jpg)
 
 ### Step 1
 
 Chop the creamed coconut roughly (if required!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1610977662229-x200.jpg)
 
 ### Step 2
 
@@ -38,6 +40,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving – this is your coconut rice
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1610977687787-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate) the ginger
 
 Slice 1/2 <span class="text-danger">[1]</span> red chilli into rounds (reserve for garnish!) and finely chop the rest
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1610977695592-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Once hot, add the salmon fillets, skin-side down, and cook for 2-3 min until the
 
 Tip:<span class="text-danger"> </span>Cooking for 4? You may need 2 pans!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1610977726110-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Once the skin has browned, turn the salmon over and add the pak choi halves cut-
 
 Add the sugar snap peas, chopped ginger, chopped garlic and chopped chilli (can’t handle the heat? Go easy!) to the pan and cook for 1 min further until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1610977734868-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Once fragrant, add the tamari soy sauce and juice of 1/2 <span class="text-dange
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1610977745468-x200.jpg)
 
 ### Step 7
 

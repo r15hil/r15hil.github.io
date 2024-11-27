@@ -26,6 +26,7 @@ Inspired by Argentinian cooking, chimichurri mayo is the perfect herby, tangy an
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1630493616225-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Peel and slice half your red onion[s] thin rings (you'll use the rest later!)
 
 Add the onion rings to a shallow bowl with your red wine vinegar and set aside to pickle – this is your quick-pickled red onion
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1630493620584-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Put the tray[s] in the oven for 30 min or until crispy and golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1630493624387-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your red chilli[es] finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1630493628008-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Mix thoroughly until fully combined (clean hands in the best way!), then shape i
 
 Add the meat-free burger patty[ies] to a separate baking tray and put the tray in the oven for 10-12 min or until cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1630493631480-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ While the meat-free patty[ies] is cooking, add the chopped parsley and mint, a p
 
 Add your mayo, chopped garlic, chopped chilli (can't handle the heat? Go easy!) and half the pickling liquid from the quick-pickled red onion – this is your chimichurri mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1630493635440-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Tip: Cooking for 3 or more? You may need to do this in 2 batches!
 
 Grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1630493639595-x200.jpg)
 
 ### Step 7
 

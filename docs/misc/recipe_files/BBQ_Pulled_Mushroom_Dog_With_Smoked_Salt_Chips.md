@@ -27,6 +27,7 @@ This plant-based BBQ dog is a real crowd-pleaser. Get the whole gang together fo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684236505356-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chips to a baking tray with a drizzle of vegetable oil and a small pinch
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684236508674-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Cut the lettuce into quarters lengthways – these are your lettuce wedges
 
 Dissolve your tomato ketchup and soy sauce in 100ml <span class="text-purple">[150ml]</span><span class="text-danger"> [200ml]</span> boiled water with most of your cider vinegar (save the rest for later!) – this is your BBQ sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684236512088-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add your Fable pulled mushrooms to the pan and cook for 5-6 min or until browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684236519603-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Once browned, transfer the Fable pulled mushrooms to a clean chopping board and 
 
 Shred them apart, using two forks – these are your pulled mushrooms
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684236523066-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once hot, add the chopped garlic and ground smoked paprika and cook for 1-2 min 
 
 Once fragrant, add the BBQ sauce and half your smoked sea salt (save the rest for garnish!) and cook for 3-4 min or until the sauce is slightly reduced
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684236527493-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Once slightly reduced, add the pulled mushrooms to the sauce and mix it all toge
 
 Cook for 1-2 min further or until the mushrooms are warmed through and well coated in the sauce – these are your BBQ pulled mushrooms
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684236530443-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ This deliciously satisfying bowl bridges the gap between wholesome and comfortin
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/801.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 200°C/ 180°C (fan)/ 425°F/ Gas 7
 
 Cut the sweet potatoes (skins on) into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/801.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the wedges to a large baking tray with a drizzle of vegetable oil and a g
 
 Put the tray in the oven for 20 min or until the wedges are tender and starting to crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/801.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the garlic, tahini, 50ml <span class="text-danger">[100ml]</span> olive oil,
 
 Blitz until smooth and creamy then set aside – this is your hummus
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/801.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Season with a generous pinch of salt and mix to combine the chicken in the spice
 
 Peel and finely slice the red onion<span class="text-danger">[s]</span>
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/801.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once hot, add the sliced onion and cook for 3-4 min 
 
 Add the spiced chicken and cook for 2-4 min further until the chicken is browned
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/801.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Cook for 2-4 min further or until the chicken is cooked through (no pink meat!)
 
 This is your spicy chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/801.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -26,6 +26,7 @@ Butter chicken or 'murgh makhani' is a mildly spiced curry house favourite. To m
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1598386194138-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1598386198631-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Cut the chicken breasts into large, bite-sized pieces
 
 Combine the chopped chicken with the ground coriander, 1 tsp <span class="text-danger">[2 tsp]</span> of the garam masala (save the rest for later!) and a generous pinch of salt
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1598386208967-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the chopped chicken and cook for 4 min, turning occasionally until
 
 Once browned, transfer the chicken to a plate and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1598386215587-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Return the reserved pan to a medium heat with 1 tbsp<span class="text-danger"> [
 
 Once melted, add the diced onion with a pinch of salt and cook for 5 min or until softened and starting to caramelise
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1598386223869-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Once softened, add the chopped ginger, chopped garlic, ground turmeric, tomato 
 
 Crumble in 1/2 <span class="text-danger">[1]</span> Knorr chicken stock cube, then add 250ml<span class="text-danger"> [450ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1598386242537-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Meanwhile, chop the coriander finely, including the stalks (save some leaves for
 
 Fluff the cooked rice with a fork, stir through the chopped coriander and season with salt – this is your coriander rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1598386251854-x200.jpg)
 
 ### Step 7
 

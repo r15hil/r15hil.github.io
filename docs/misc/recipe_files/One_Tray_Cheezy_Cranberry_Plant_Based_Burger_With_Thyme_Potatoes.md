@@ -23,6 +23,7 @@ Give burger night a Christmas twist. You’ll load your plant-based burger with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1728635036165-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chopped potatoes to a heatproof bowl, then cover the bowl with cling fil
 
 Put the bowl in the microwave for 6-8 min or until the potatoes are fork-tender
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1728635039036-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Sprinkle half your dried thyme (you'll use the rest later!) and a pinch of peppe
 
 Tip: Cooking for 3 or more? Use 2 trays!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1728635043287-x200.jpg)
 
 ### Step 3
 
 Once your potatoes are fork-tender, add a knob of butter, the remaining dried thyme, and a pinch of salt and give everything a good mix up – these are your thyme potatoes
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1728635047218-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Add the thyme potatoes to the baking tray[s] with the burger[s] and reserve the 
 
 Put the tray[s] in the oven for 10-12 min or until the burger[s] are cooked through and the potatoes are golden and crispy
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1728635051166-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Whilst everything is cooking, chop your dried cranberries roughly
 
 Add the chopped dried cranberries to the reserved bowl, cover with boiled water and set aside to soften
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Rocket-kitchen-paper-1730978692281-x200.jpg)
 
 ### Step 6
 
 Wash your salad, then pat dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1728635059124-x200.jpg)
 
 ### Step 7
 

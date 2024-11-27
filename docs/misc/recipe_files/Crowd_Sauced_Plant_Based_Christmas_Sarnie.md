@@ -27,6 +27,7 @@ The Gang have spoken and their most wasted ingredient is… the humble sprout. T
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1637930305264-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the chips to a baking paper-lined baking tray with a drizzle of vegetable oi
 
 Give everything a good mix up and put the tray in the oven for 30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1637930309078-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Add the chopped sprouts to the cheat's buttermilk, give everything a good mix up
 
 Tip: Don't worry if the mixture is a little lumpy, it's meant to be!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1637930313848-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Remove 4 <span class="text-danger">[8] </span>leaves from the gem lettuce, give 
 
 Cut the brioche buns in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1637930316762-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Dissolve the vegetable stock mix in 180ml <span class="text-danger">[340ml]</spa
 
 Add the gravy stock to a large, wide-based pot over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1637930320887-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Add the meat-free chicken and cook for 1-2 min or until the stock has thickened
 
 Remove from the heat and cover to keep warm until serving – this is your gravy-soaked meat-free chicken
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1637930325329-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Drain the marinated sprouts from the cheat's buttermilk in a colander over the s
 
 Return the marinated sprouts to the bowl with the remaining soy sauce, dried sage and remaining cornflour and give it a good mix up to coat the sprouts thoroughly – these are your coated sprouts
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1637930329817-x200.jpg)
 
 ### Step 7
 

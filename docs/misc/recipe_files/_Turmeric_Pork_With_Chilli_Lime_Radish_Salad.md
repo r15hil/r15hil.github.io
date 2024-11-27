@@ -25,6 +25,7 @@ This flavoursome dish is inspired by a popular Vietnamese salad called 'bun thit
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1324.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Set them aside to soak
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1324.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Slice the radishes as finely as you can into thin rounds&nbsp;
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1324.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Once dissolved, add the rice vinegar&nbsp;and a pinch of salt&nbsp;
 
 Add the carrot ribbons and chopped radishes and set aside until serving &ndash; this is your pickled carrot &amp; radish
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1324.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Drain the noodles&nbsp;and run under cold water until cooled
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1324.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Meanwhile, cut the lime<span class="text-danger">[s]</span>&nbsp;in half
 
 Combine the chipotle paste (Can't handle the heat? Go easy!), soy sauce&nbsp;and juice of the lime<span class="text-danger">[s]</span> in a small bowl &ndash; this is your chilli &amp; lime dressing&nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1324.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the turmeric pork and cook for 2-3 min on each side or until browned and cooked through&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1324.-step-7-x200.jpg)
 
 ### Step 7
 

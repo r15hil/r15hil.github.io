@@ -28,6 +28,7 @@ Get behind gli Azzurri and join the lineout for this Italian-style burger. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1675769522598-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the chips to a baking tray with your dried oregano, a drizzle of vegetable o
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp – these are your oregano chips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1675769526087-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ While the chips are cooking, cut 1 slice per person from your tomato[es] and set
 
 Chop the remaining tomato finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1675769531122-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Peel your Italian hard cheese until you end up with a pile of cheese shavings
 
 Combine your pesto and mayo in a small bowl – this is your pesto mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1675769551302-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add a handful of flour to a plate, a splash of milk to a shallow bowl and your p
 
 Season the flattened chicken with a pinch of salt, coat in flour, tap off any excess, then add to the milk and firmly press into the breadcrumbs to evenly coat all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1675769556735-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once hot, add the breaded chicken and cook for 5-6 min on each side, pressing d
 
 Tip: Cooking for 4 or more? You may need to do this in 2 batches!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1675769560476-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add your sliced prosciutto to the other side of the tray and put in the oven for
 
 Tip: Cooking for 4 or more? Use 2 trays!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1675769572079-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Inspired by the northwestern Mexican classic, aguachile is a zesty, summer dish 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1684911197609-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel and chop 3/4 of the red onion<span class="text-danger">[s]</span> into wedg
 
 Slice the remaining onion finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1684911200178-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Add the diced potatoes and onion wedges to a baking tray with a drizzle of veget
 
 Give everything a good mix up and put the tray in the oven for 15-20 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1684911204612-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Roll the lime<span class="text-danger">[s] </span>with your hand on a hard surfa
 
 Cut the cucumber in half lengthways, then slice finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1684911206796-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add the chopped chilli (can't handle the heat? Go easy!), crushed garlic and cor
 
 Blitz until well combined – this is your aguachile-style dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1684911210214-x200.jpg)
 
 ### Step 5
 
@@ -68,6 +73,7 @@ Put the tray<span class="text-danger">[s]</span> in the oven for 6-8 min or unti
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1684911214070-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, drain then add the king prawns and cook for 4-5 min or until cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1684911217472-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ Inspired by no-fuss Scandinavian cooking, this smoky basa salad showcases simple
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1598.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a kettle
 
 Chop your waxy potatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1598.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Add the halved potatoes to a pot of boiling water with a pinch of salt
 
 Bring to the boil over a high heat and cook for an initial 12-15 min or until fork-tender
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1598.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Trim, then slice your spring onion[s] finely
 
 Chop your parsley finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1598.-step-4-x200.jpg)
 
 ### Step 4
 
 Combine the juice of half the lemon with your mayo and a generous pinch of salt and pepper in a bowl – this is your lemon dressing
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1598.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -62,6 +67,7 @@ Once the potatoes have had an initial 10-15 min, add the halved green beans and 
 
 Once tender, drain and leave in the colander to steam dry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1598.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Once hot, add your smoked basa fillet[s] and cook for 3-4 min on each side or un
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1598.-step-7-x200.jpg)
 
 ### Step 7
 

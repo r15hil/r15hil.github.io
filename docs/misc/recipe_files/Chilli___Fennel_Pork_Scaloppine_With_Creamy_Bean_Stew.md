@@ -25,6 +25,7 @@ This comforting stew is the crème de la crème. You’ll simmer leek and cannel
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1698222448148-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Before you start, take your steak out of the fridge, open the packet and let it 
 
 Mix 2 tbsp<span class="text-purple"> [3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>flour on a plate, with half your fennel seeds, half your chilli flakes (can’t handle the heat? Go easy!) and a pinch of salt and pepper, then drizzle your steak[s] with vegetable oil and press into the seasoned flour until well coated
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1698222507351-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Peel and finely slice your shallot[s] and peel and finely chop (or grate) your g
 
 Wash your salad then pat dry with kitchen paper, then boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1698222511075-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once the butter has melted, add the leek rounds and cook for 3-4 min or until softened and lightly golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1698222515189-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Once hot, add the coated pork and cook for 5-6 min on each side or until golden 
 
 Once cooked through, transfer the chilli & fennel pork scaloppine[s] to a clean plate to rest
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1698222519566-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ While the pork is cooking, dissolve your chicken stock mix and a generous pinch 
 
 Drain and rinse your cannellini beans
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1698222525098-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Cook for 1 min or until fragrant, then add the drained beans and chicken stock a
 
 Bring to the boil over a high heat, then reduce the heat to medium and cook for 5-6 min or until the sauce has reduced by half – this is your bean stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1698222528693-x200.jpg)
 
 ### Step 7
 

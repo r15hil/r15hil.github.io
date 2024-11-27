@@ -25,6 +25,7 @@ Thai flavours should be fresh, aromatic and lively. Our pork skewers are even ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/391.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Once boiling, reduce the heat to low and cook for 15-20 min or until tender with
 
 Once cooked, drain and return to the pot and cover until serving&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/391.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and cut the onion<span class="text-danger">(s)</span> into&nbsp;chunky piec
 
 Trim the fat off the pork steaks and cut each steak into 4 pieces, lengthways
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/391.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Add the pork strips to the Thai paste mixture and mix thoroughly
 
 Thread two pieces of pork per skewer with a piece of onion on either side (see picture)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/391.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Chop the coriander finely, including the stalks
 
 Chop the spring onion<span class="text-danger">(s)</span> finely, discarding the root ends
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/391.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Crush the garlic, ginger, coriander, remaining lime juice, half the spring onion
 
 Tip: Alternatively, use a food processor
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/391.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -94,6 +100,7 @@ Heat a wide-based pan (with a matching lid) over a medium high heat
 
 Once hot, add the pork skewers and cook for 2 min on either side, then add a lid and cook for a further 2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/391.-step-7-x200.jpg)
 
 ### Step 7
 

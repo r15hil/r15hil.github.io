@@ -23,6 +23,7 @@ This vibrant dinner is inspired by the Mediterranean sun. While the squash and p
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1634039907051-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Tip: Drizzle the knife with a little vegetable oil for easier chopping
 
 Scoop out the seeds with a spoon and discard
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1634039918982-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Transfer the hasselback butternut squash to a baking tray, cut side up and drizz
 
 Put the tray in the oven for an initial 30 min or until the squash is beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1634039925428-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the panko breadcrumbs and season with salt and pepper
 
 Add a drizzle of vegetable oil and give everything a good mix up – this is your cheesy breadcrumb mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1634039929348-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add to a tray with a drizzle of olive oil and season with salt and pepper and g
 
 Put the tray in the oven for 20-25 min or until the potatoes are crisp – these are your roast potatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1634039937478-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Chop the cherry tomatoes in half
 
 Dissolve the vegetable stock mix in 50ml <span class="text-danger">[100ml]</span> boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1634039949706-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Return the tray to the oven for 10-15 min further, or until the breadcrumb mixt
 
 While the squash is in the oven, heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil over a medium heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1634039954963-x200.jpg)
 
 ### Step 7
 

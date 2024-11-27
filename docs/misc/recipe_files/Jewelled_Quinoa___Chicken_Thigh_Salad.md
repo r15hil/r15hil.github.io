@@ -24,6 +24,7 @@ This Middle Eastern-inspired chicken salad is made with the super grain quinoa, 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1599558728964-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Rinse the quinoa in a sieve under cold running water, then add it to a pot with 
 
 Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until all the water has absorbed and the quinoa is tender, then remove from the heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1599558733295-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add the coated chicken thighs and cook on each side for 3 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599558744914-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Put the tray in the oven for 10-15 min or until cooked through (no pink meat!)
 
 Once cooked, transfer the chicken to a clean board and leave to cool slightly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599558758427-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Chop the dried cranberries coarsely
 
 Add them to a bowl and cover with enough boiled water to cover completely (this helps them become juicy and plump)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1599558769929-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Once done, remove from the oven and sprinkle with salt
 
 Leave them to cool on the tray
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599558775238-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Cook for 2-3 min, then add the cooked quinoa, coating all the grains in the oil
 
 Remove from the heat and set aside until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1599558793514-x200.jpg)
 
 ### Step 7
 

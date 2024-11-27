@@ -24,6 +24,7 @@ Flex your chef skills with this gourmet take on a steak classic. You'll learn ho
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1621.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Before you start cooking, take your steak out of the fridge, open the packet and
 
 Peel and chop your sweet potato[es] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1621.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Give everything a good mix up and put the tray[s] in the oven for 25-30 min or u
 
 Tip: Turn the wedges halfway through cooking to make sure they are browned all over!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1621.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ While the sweet potato wedges are cooking, peel and roughly chop your garlic
 
 Chop your parsley roughly (including the stalks!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1621.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -60,11 +64,13 @@ Blitz until smooth – this is your chimichurri
 
 Tip: Add a splash more olive oil if it looks a little dry!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1621.-step-5-x200.jpg)
 
 ### Step 5
 
 Pat your sirloin steak[s] dry with kitchen paper, then drizzle with vegetable oil and season with a pinch of salt on both sides
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1621.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ For rare, cook for 2-3 min max on each side; for medium-rare, cook for 3-4 min o
 
 Once the steak[s] is cooked, transfer to a plate to rest
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1621.-step-7-x200.jpg)
 
 ### Step 7
 

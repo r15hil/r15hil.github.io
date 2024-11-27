@@ -25,6 +25,7 @@ You'll spice up pork mince with warming cumin seeds and smoked paprika and serve
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/347.step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Peel the  courgette<span class="text-danger">[s]</span>, then continue to peel l
 
 Dice the inner stem<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/347.step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Cover and set aside
 
 Add the courgette ribbons to a pot or separate heat-proof bowl and cover with hot water for 4 min, then drain and squeeze out any excess water with your hands
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/347.step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Peel and finely chop (or grate) the garlic
 
 Peel and finely dice the red onion<span class="text-danger">[s]</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/347.step-4-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Add a drizzle of olive oil and the diced red onion with a pinch of salt
 
 Cook for 3 min over a medium heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/347.step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the chopped garlic and diced courgette, cook for a further 2 min, then add t
 
 Cook the pork mixture for 5 min further or until the stock has absorbed and the pork mixture is glazed and cooked through (no pink meat!) – this is your smoky pork
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/347.step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Strip the mint leaves from the stems and chop them finely, discard the stems
 
 Wash the lamb's lettuce, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/347.step-7-x200.jpg)
 
 ### Step 7
 

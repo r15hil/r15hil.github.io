@@ -31,6 +31,7 @@ You won't believe you made this at home. First, you'll pan-fry beef patties, bef
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1647248604963-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add the chips to a baking tray (or two!) with a drizzle of vegetable oil and a p
 
 Give everything a good mix up and put the tray[s] in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1647248608133-x200.jpg)
 
 ### Step 2
 
@@ -53,6 +55,7 @@ Add the tomato round[s] and chopped tomato to a bowl with your rice vinegar and 
 
 Give everything a good mix up and set aside – this is your quick-pickled tomato
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1647248611711-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Add your beef mince to a bowl with the grated garlic and ginger and season with 
 
 Using clean hands, give everything a good mix up until fully combined, then roll the mince into 1 meatball per person and press down with your hands to form a patty – this is your beef patty
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1647248615917-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Drain your mozzarella, then pat and squeeze as much liquid out as you can with k
 
 Wash, then remove 1 leaf from the lettuce per person, pat dry with kitchen paper and set aside, shred the remaining lettuce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1647248619161-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Reduce the heat to medium-high, then flip and top the patty[ies] with most of your gochujang paste (can’t handle the heat? Go easy!) and the torn mozzarella then cook, covered, for 5 min further or until the patty is cooked through (no pink meat!) and the cheese has melted
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1647248623857-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Return the tray[s] to the oven for 2-3 min or until the brioche is toasted and t
 
 Tip: Cooking for 3 or more? Use a separate tray!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1647248626881-x200.jpg)
 
 ### Step 7
 

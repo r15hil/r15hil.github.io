@@ -27,6 +27,7 @@ Here’s a crispy basa burger with a lot of bite. You’ll layer charred brioche
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1732182763703-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add the wedges to a baking tray (or two!) with a drizzle of vegetable oil and 
 
 Put the tray[s] in the oven for 25-30 min or until the wedges are golden and crispy
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1732182766929-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, cut your basa fillet[s] in half, widthways
 
 Add the basa pieces to a large bowl with your soy sauce and set aside to marinate
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1732182771573-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the brioche halves, cut-side down, and cook for 3 min or until c
 
 Once charred, remove and set aside until serving and reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1732182775635-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Cut your cucumber in half lengthways, scoop out the core using a teaspoon, then 
 
 Wash and shred your lettuce, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1732182784574-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Add the diced shallot, diced cucumber and shredded lettuce to a bowl
 
 Add your mayo with the juice of half your lemon[s], 1 tbsp <span class="text-purple">[1 1/2 tbsp</span>] <span class="text-danger">[2 tbsp]</span> olive oil and a pinch of salt and give everything a good mix up – this is your homemade zingy slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1732182790135-x200.jpg)
 
 ### Step 6
 
 Add your cornflour to the bowl with the marinated basa and mix everything together until the fish is evenly coated
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1732182794055-x200.jpg)
 
 ### Step 7
 

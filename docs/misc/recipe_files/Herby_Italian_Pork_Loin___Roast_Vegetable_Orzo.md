@@ -22,6 +22,7 @@ This veg-packed dish is the perfect autumnal treat, and a delicious way to get t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1257.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and chop the red onion<span class="text-danger">[s]</span> into eighths
 
 &nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1257.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Add a&nbsp;generous drizzle of&nbsp;olive oil and season with a pinch of salt an
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until all of the vegetables are cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1257.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Meanwhile, strip the rosemary and thyme leaves and chop them finely, discarding 
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1257.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Combine the chopped rosemary and thyme with a drizzle of olive oil and a pinch o
 
 Add the pork loin steaks to the marinade and set aside
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1257.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Cook the orzo for 6-8 min or until cooked with a slight bite
 
 Once done, drain the&nbsp;orzo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1257.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -88,6 +94,7 @@ Once hot, add the marinated pork loin&nbsp;steaks and cook for 2 min on each sid
 
 Transfer the cooked steaks to a clean chopping board, cover with a clean tea towel and leave them to rest for 2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1257.-step-7-x200.jpg)
 
 ### Step 7
 

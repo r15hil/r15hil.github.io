@@ -30,6 +30,7 @@ Pair peanuts with chicken for a flavour boost Mozambican-style. You’ll simmer 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1713264991241-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Before you start cooking, take your chicken out of the fridge, open the packet a
 
 Add your chicken thighs to a bowl with 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp] </span>flour and a pinch of salt and pepper and toss them to coat them evenly
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1713264994888-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add your coated chicken to the pan and cook for 5-6 min on each side o
 
 Once browned, transfer to a plate and reserve the pan with any remaining oil
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713264998573-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1713265004114-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Chop your coriander finely, including the stalks
 
 Roughly chop your roasted peanuts
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713265007679-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Chop your creamed coconut roughly (if required!)
 
 Dissolve your chopped creamed coconut, chicken stock mix, tomato paste and peanut butter in 300ml <span class="text-purple">[390ml] </span><span class="text-danger">[510ml]</span> boiled water – this is your peanut stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713265011028-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the sliced onion, chopped garlic and tomato wedges with your chill
 
 Cook for, 2-3 min or until starting to soften
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713265014114-x200.jpg)
 
 ### Step 7
 

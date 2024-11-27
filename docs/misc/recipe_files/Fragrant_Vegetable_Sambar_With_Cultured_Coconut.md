@@ -31,6 +31,7 @@ A sambar is an Indian lentil and vegetable stew. For this plant-based twist, you
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2159.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced onion with a pinch of salt and cook for 4-5 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2159.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Chop your tomato[es] roughly
 
 Trim, then chop your green beans roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2159.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add your ginger & garlic paste and cook for 1-2 min further or until fragrant
 
 Tip: Add a splash more oil if your pan is looking a little dry!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2159.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Once fragrant, add the red lentils, vegetable stock and tamarind paste to the pa
 
 Give everything a good mix up and bring to the boil over a high heat
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2159.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Add the chopped green beans and tomato to the pan and cook for 15-20 min, stirri
 
 Tip: You may need to add a splash of water if the sambar is looking too thick!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2159.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2159.-step-7-x200.jpg)
 
 ### Step 7
 

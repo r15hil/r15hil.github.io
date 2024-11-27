@@ -21,6 +21,7 @@ This quick and easy tray bake is the perfect midweek meal. You’ll bake zesty l
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1664189104877-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Add the chopped potatoes and chopped carrot[s] to a baking tray (or two!) with a
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 15 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1664189119403-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ While the potatoes and carrot[s] are cooking, zest half your lemon[s] (try to gr
 
 Combine the lemon zest, panko breadcrumbs and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp] </span>olive oil in a bowl with a generous pinch of salt and pepper – these are your lemon breadcrumbs
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1664189127285-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
 Cut the remaining lemon into 1 wedge per person
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1664189134841-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Chop your Tenderstem broccoli in half
 
 Once the potatoes and carrot have had an initial 15 min, remove the tray[s] from the oven and add the halved Tenderstem
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1664189141402-x200.jpg)
 
 ### Step 5
 
@@ -64,11 +69,13 @@ Return the tray[s] to the oven for a further 12-15 min or until the hake is cook
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1664189150407-x200.jpg)
 
 ### Step 6
 
 Meanwhile, add your crème fraîche, chive oil and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water to a small pot and cook over a low heat for 2-3 min or until warmed through – this is your chive & crème fraîche sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1664189159229-x200.jpg)
 
 ### Step 7
 

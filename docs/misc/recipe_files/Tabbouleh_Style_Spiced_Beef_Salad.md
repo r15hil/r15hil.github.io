@@ -26,6 +26,7 @@ Tabbouleh, pronounced 'tab-boo-lay', is a bulgur wheat salad, traditionally serv
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/676.-step--3-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/676.-step--1-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <sp
 
 Once hot, add your beef mince and cook for 3 min or until starting to brown, breaking it up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/676.-step--2-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Sprinkle in your beef stock mix and add a splash of cold water, then give everyt
 
 Reduce the heat to medium-low and cook for a further 4-6 min or until the beef mince is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/676__step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Cut your lemon[s] in half
 
 Chop your parsley finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/676.-step--5-x200.jpg)
 
 ### Step 5
 
 Add your honey to the cooked beef and continue to cook for 1 min further before removing the pan from the heat to cool slightly – this is your spiced beef mince
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/676__step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Add the cooled bulgur to a mixing bowl with the diced cucumber and halved cherry
 
 Add a drizzle of olive oil and squeeze in the juice of half the lemon[s], then gently mix it all together
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/676__step-7-x200.jpg)
 
 ### Step 7
 

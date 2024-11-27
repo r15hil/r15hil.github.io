@@ -26,6 +26,7 @@ Burger or taco? Try…both. You’ll build your brioche burger with paprika-spic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1682084162528-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your potatoes (skins on) into fries
 
 Peel and grate your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1682084166944-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add a generous pinch of salt and pepper and give everything a good mix up until 
 
 Put the tray[s] in the oven for an initial 20-25 min or until lightly golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1682084171364-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Meanwhile, zest half your lime[s] (try to grate lightly with a micro-plane or sh
 
 Combine your mayo with the lime zest, a small squeeze of lime juice (not sure about citrus? Try using less!) and a pinch of pepper in a bowl – this is your lime mayo
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1682084174596-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Add your carrot & cabbage slaw mix to a bowl with the remaining lime juice, chil
 
 Give everything a good mix up – this is your chilli-lime slaw
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1682084178076-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Pat your basa fillet[s] dry with kitchen paper
 
 Place the basa fillet[s] onto the floured plate, pressing firmly to coat evenly on both sides – this is your coated basa
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1682084182118-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Once hot, add the coated basa and cook for 4-5 min on each side or until cooked 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1682084185622-x200.jpg)
 
 ### Step 7
 

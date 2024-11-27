@@ -23,6 +23,7 @@ Packed with kale, courgette and cannellini beans and topped with crispy bacon pi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1607.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Once hot, add the bacon and cook for 2 min on each side or until crispy
 
 Remove the bacon from the pan, roughly chop into small pieces and set aside &ndash; this is your bacon topping
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1607.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Trim, then dice the courgette<span class="text-danger">[s]</span>
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1607.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Once hot, add the chopped onion with a pinch of salt and cook for 5 min or until
 
 Add the chopped courgette&nbsp;with half the&nbsp;chopped garlic (save the rest for later!) and cook for 2 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1607.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Add the chicken&nbsp;stock, cannellini beans and kale to the pan and bring to th
 
 Once boiling, reduce the heat to medium-low and cook for 10 min &ndash; this is your vegetable &amp; bean soup
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1607.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -84,6 +89,7 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span>&nbsp;olive oil and give it 
 
 Tip: if you don't have a pestle &amp; mortar, chop the basil leaves very finely and mix with olive oil
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1607.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -92,6 +98,7 @@ Grate the cheddar cheese
 
 Add the grated cheese to the&nbsp;basil paste and give everything a good mix up&nbsp;&ndash;&nbsp;this is your pistou
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1607.-step-7-x200.jpg)
 
 ### Step 7
 

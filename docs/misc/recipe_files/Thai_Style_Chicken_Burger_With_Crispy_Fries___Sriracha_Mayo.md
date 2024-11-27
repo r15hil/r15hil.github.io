@@ -26,6 +26,7 @@ Feel the heat of Southeast Asia with this Thai-style burger. You’ll sandwich s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1715617573279-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your potatoes (skins on) into fries, then add the fries to a baking tray wit
 
 Put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1715617577098-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Slice the remaining shallot finely
 
 Add the diced shallot to a large bowl with your rice vinegar and a pinch of salt and sugar and set aside – this is your quick-pickled shallot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1715617582120-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add the sliced shallot and cook for 2-3 min or until crispy – this i
 
 Once crispy, transfer to a small bowl or plate and set aside (reserve the pan!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1715617586218-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once hot, add your chicken thighs with a pinch of salt and cook for 3 min on eac
 
 Once browned, add your red Thai curry paste with a couple of splashes of cold water and cook, covered, for a further 10 min or until the chicken is cooked through (no pink meat!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1715617590650-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Add the grated carrots, chopped coriander and chopped peanuts to the quick-pickl
 
 Combine your mayo and sriracha (can't handle the heat? Go easy!) in a bowl – this is your sriracha mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1715617594970-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Remove the tray with the fries from the oven and add the brioche halves
 
 Return the tray to the oven for a final 4-5 min or until the brioche is warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1715617599770-x200.jpg)
 
 ### Step 7
 

@@ -21,6 +21,7 @@ In just 10 minutes, you'll tuck into a creamy, coconutty korma with tender haddo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623399436040-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1987.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Chop the green beans in half
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1987.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Add the halved green beans to a pot of boiled water with a pinch of salt, bring 
 
 Drain and return the cooked green beans to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1987.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ While the green beans are cooking, remove the coconut cream from the sachet<span
 
 Dissolve the vegetable stock mix and the chopped coconut cream in 250ml <span class="text-danger">[450ml]</span> boiled water and stir through the mild curry paste and 1 tsp <span class="text-danger">[2 tsp]</span> of sugar – this is your korma sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1987.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Tip: If you're cooking two packets, pop them in together but increase the microw
 
 Once done, add the heated brown basmati rice to the cooked beans with a pinch of salt and give them a good mix up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1987.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add the korma sauce and cook for 2 min
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1987.-step-7-x200.jpg)
 
 ### Step 7
 

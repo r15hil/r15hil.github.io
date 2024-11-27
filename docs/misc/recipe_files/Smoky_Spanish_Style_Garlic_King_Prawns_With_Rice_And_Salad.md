@@ -25,6 +25,7 @@ Inspired by gambas pil pil, these Spanish-style prawns are sizzlingly quick. You
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1617704263142-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1737.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Heat a large, wide-based pan (preferably non-stick) with 2 tbsp <span class="tex
 
 Chop your tomatoes into wedges
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1737.-step-3-x200.jpg)
 
 ### Step 3
 
 Once hot, add the tomato wedges and roasted garlic paste and cook for 1 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1737.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Combine your red wine vinegar with 2 tbsp <span class="text-purple">[3 tbsp]</sp
 
 Wash your salad, then pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/300g-basmati-rice-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Tear the top corner of the pouch[es]<span class="text-danger"> </span>(just a li
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1737.-step-6new-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Increase the heat to medium-high, drain then add your king prawns and cook for
 
 Note: Please make sure you cook your prawns thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1737.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ For this plant-based supper, you’ll glaze roasted aubergines in teriyaki sauce
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1514.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Score the aubergine flesh with a sharp knife in a criss-cross pattern, then rub
 
 Add the aubergine wedges to a baking tray (or two!) and put in the oven for an initial 20 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1514.-step-2--x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut the cucumber in half, scrape out the inner seeds with a teaspoon and discard
 
 Combine the rice vinegar, chopped chilli (can't handle the heat? Go easy!), diced cucumber and a pinch of salt in a bowl – this is your quick-pickled cucumber
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1514.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Garlic--Ginger-1638545538487-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Meanwhile, peel (scrape the skin off with a teaspoon) and finely chop (or grate)
 
 Peel and finely chop (or grate) the garlic
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1514.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Return the aubergine wedges to the oven for a further 10 min or until very soft
 
 Meanwhile, drain the pickled cucumber, reserve the pickling liquid
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1514.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Once fragrant, add the soy sauce, agave, cornflour, reserved pickling liquid
 
 Cook for 2 min or until thickened, whisking continuously until smooth
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1514.-step-7-x200.jpg)
 
 ### Step 7
 

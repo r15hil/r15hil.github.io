@@ -22,6 +22,7 @@ To whip up quick Caribbean-style chicken, you'll marinate it in soy, chilli and 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1589294319357-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1589294323782-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, add the chicken breast strips, a pinch of salt and pepper and cook for
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1589294327832-x200.jpg)
 
 ### Step 3
 
@@ -51,11 +54,13 @@ Meanwhile, drain the pineapple, reserving some of the juice for later
 
 Chop the pineapple roughly
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1589294331614-x200.jpg)
 
 ### Step 4
 
 Drain and rinse the kidney beans
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1589294335597-x200.jpg)
 
 ### Step 5
 
@@ -69,11 +74,13 @@ Add the rice, drained beans and a splash of water and cook for 4 min, stirring
 
 Once hot, add pineapple chunks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1589294340877-x200.jpg)
 
 ### Step 6
 
 Once the chicken is almost cooked, add the chilli flakes (can't handle the heat? Go easy!), ground allspice, soy sauce and a splash of pineapple juice to the pan and cook for 1 min further or until the sauce starts to thicken slightly – this is your Caribbean-style chicken
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1589294345441-x200.jpg)
 
 ### Step 7
 

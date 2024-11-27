@@ -30,6 +30,7 @@ This Vietnamese-inspired bowl comes fully loaded with aromatic pork, fresh courg
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-48-1724338539642-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Boil half a kettle, then peel lengths off your courgette[s] until you end up wit
 
 Zest your lime[s] (try to grate lightly with a micro-plane or sharp box grater and avoid grating the white pith, as this is very bitter), then combine the juice of half your lime with 1 tsp <span class="text-purple">[1 1/2 tsp] </span><span class="text-danger">[2 tsp] </span>sugar and a small splash of<span class="text-danger"> </span>boiled water in a heatproof bowl and stir until the sugar has dissolved, add your courgette ribbons and set aside until serving – this is your quick-pickled courgette
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-47-1724338543744-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Chop your coriander roughly, including the stalks
 
 Chop your peanuts roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-53-1724338554296-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 12-15 min or un
 
 Once done, remove from the heat and set aside (lid on) to steam until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-47-1724338560699-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once crisp, add 3/4 your sliced onion (you'll use the rest later!) with your chopped ginger and chopped lemongrass and cook for 1 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-48-1724338566907-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the pork is fragrant, add the zesty soy sauce and the chopped mint and cori
 
 Tip: Watch it like a hawk to prevent the sauce from burning!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-48-1724338574554-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Meanwhile, top, tail, peel and grate your carrot[s]
 
 Add the grated carrot and the remaining sliced onion to a bowl with a drizzle of olive oil and a pinch of salt – this is your carrot salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-47-1724338582006-x200.jpg)
 
 ### Step 7
 

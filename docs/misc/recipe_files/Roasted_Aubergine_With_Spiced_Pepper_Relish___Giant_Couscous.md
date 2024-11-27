@@ -27,6 +27,7 @@ Bring on the veg. You’ll pair charred ras el hanout-spiced aubergine with colo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692973050610-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Score the aubergine flesh with a knife in a criss-cross pattern, then rub the fl
 
 Add the aubergine halves to a tin foil-lined baking tray (or two!), cut-side up and put in the oven for 20-25 min or until slightly charred
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692973054052-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and finely
 
 Top, tail and chop your courgette[s] into quarters lengthways, then chop into small bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692973058207-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once hot, add the diced onion, diced pepper, chopped courgette and chopped garli
 
 Once softened, remove the pan from the heat and set aside – these are your softened vegetables
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692973061535-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Once fragrant, transfer the toasted cumin seeds to a small heat proof bowl (rese
 
 Add your sweet pepper relish and harissa paste (can’t handle the heat? Go easy!) to the bowl with 4 tbsp <span class="text-purple">[6 tbsp]</span><span class="text-danger"> [8 tbsp]</span> cold water and 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp] </span>olive oil and mix it all together – this is your spiced pepper relish
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692973065360-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add your giant couscous to the reserved pot with plenty of boiled water and brin
 
 Cook for 8 min or until tender with a slight bite, then drain
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692973068559-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Strip your mint leaves from their stems and chop them roughly, discard the stems
 
 Crumble your feta into rough bite-sized pieces
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692973072319-x200.jpg)
 
 ### Step 7
 

@@ -25,6 +25,7 @@ This is one of our favourite speedy dishes, which is typical to the Middle East.
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/964.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Add the bulgur wheat to a pot with plenty of boiled water&nbsp;and a pinch of sa
 
 Once tender, drain and set aside in a sieve to cool
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/964.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Peel and chop the garlic roughly
 
 Meanwhile, drain and rinse the chickpeas and add them to a food processor
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/964.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Juice half of the lemon<span class="text-danger">[s]</span> into the food proces
 
 Blitz until smooth and creamy then set aside - this is your homemade&nbsp;hummus&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/964.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Once browned, add the sultanas and cook for a further 2 min&nbsp;
 
 Season generously with salt and pepper and set aside - this is your spiced beef&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/964.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Chop the parsley finely, including the stalks
 
 &nbsp;
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/964.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Juice the remaining&nbsp;lemon into a large bowl&nbsp;
 
 Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil and a generous pinch of salt and pepper - this is your lemon&nbsp;dressing&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/964.-step-7-x200.jpg)
 
 ### Step 7
 

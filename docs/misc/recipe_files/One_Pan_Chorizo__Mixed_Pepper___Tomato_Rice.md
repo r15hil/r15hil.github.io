@@ -30,6 +30,7 @@ For this speedy option, you'll sizzle smoky chorizo and tomatoes with a rainbow 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1726224438433-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1700035987751-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Chop your cherry tomatoes in half
 
 Deseed your peppers (scrape the seeds and pith out with a teaspoon) and slice into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1700035992011-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once the pan is hot, add the halved cherry tomatoes, sliced peppers, diced chorizo and a pinch of pepper and cook for 2-3 min or until the peppers are starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1700035997371-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Peel and chop (or grate!) your garlic
 
 Once the peppers have softened, add your ground smoked paprika and chopped garlic and cook for 1-2 min or until fragrant
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1700036001694-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Tear the top corner of the pouch[es]<span class="text-danger"> </span>(just a li
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1700036006245-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Once fragrant, add the cooked rice with your black olives, the juice of half you
 
 Cook for 2-3 min further or until everything is warmed through – this is your one pot chorizo, mixed pepper & tomato rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1700036019916-x200.jpg)
 
 ### Step 7
 

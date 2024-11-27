@@ -26,6 +26,7 @@ If you're on a health kick, this veg-packed basa broth will be your heaven. Our 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1632302307064-x200.jpg)
 
 ### Step 1
 
@@ -37,11 +38,13 @@ Peel and finely slice (don't chop!) the garlic
 
 Peel and finely slice the<span class="text-danger"> </span>shallot<span class="text-danger">[s]</span>
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1632302310465-x200.jpg)
 
 ### Step 2
 
 Rinse the brown rice, then add to a cold, dry pan (preferably non-stick with a matching lid) with the sliced shallot, garlic and ginger
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1632302313905-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add 500ml<span class="text-danger"> [1L]</span> cold water to the pan and bring 
 
 Once boiling, reduce the heat to low and cook, covered, for 15-20 min or until the rice is almost cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1632302317787-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Add the sliced mushrooms to a tray with a drizzle of vegetable oil and a generou
 
 Put the tray in the oven for 12-15 min or until the mushrooms are cooked and starting to crisp – these are your roasted mushrooms
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1632302321092-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Dissolve the chopped creamed coconut in 150ml<span class="text-danger"> [275ml]<
 
 Add the ground turmeric, cracked black pepper, soy sauce, rice vinegar and a very generous pinch of salt – this is your turmeric stock
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1632302324698-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the turmeric stock to the pan, bring to the boil over a high heat and cook, 
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Spinach-wilting-in-colander-1646135057507-x200.jpg)
 
 ### Step 7
 

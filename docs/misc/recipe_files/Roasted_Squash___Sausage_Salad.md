@@ -24,6 +24,7 @@ For this nutty, herby sausage salad, you'll roast squash, red onions and British
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1586950060193-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Scoop out the seeds with a spoon and discard
 
 Slice finely into half-moons
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1586950064939-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the sliced butternut squash to a baking tray with a drizzle of olive oil
 
 Add the ground coriander to the squash with a generous pinch of salt and give everything a good mix up
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1586950071001-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Put the tray in the oven for 25-30 min or until everything's cooked through and 
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1586950075873-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Once boiling, reduce the heat to low and cook, covered, for 18-20 min or until a
 
 Once cooked, remove from the heat and leave to steam-dry, uncovered, until serving
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1586950080680-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Chop the coriander roughly, including the stalks (reserve some leaves for garnis
 
 Combine the onion marmalade, cider vinegar and 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil and season with a pinch of salt and pepper – this is your onion marmalade dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1586950084911-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the hazelnuts to the pan and cook for 2-3 min or until toasted and
 
 Tip: Watch them like a hawk so you don't burn them!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1586950089270-x200.jpg)
 
 ### Step 7
 

@@ -23,6 +23,7 @@ This dish is inspired by the classic Coq au Vin, combining chicken and smoked ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/960.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add the potatoes to a pot of boiled water with a pinch of salt, bring to the boi
 
 Once done, drain and return the cooked&nbsp;potatoes to the pot to steam dry&nbsp;
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/960.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Once hot, add the chicken&nbsp;with a generous pinch of both salt and pepper and
 
 Once done, transfer the&nbsp;golden chicken to a plate and set aside, keeping the pan
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/960.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -65,6 +68,7 @@ Peel the shallots and cut them into quarters
 
 Wash the leek<span class="text-danger">[s]</span> carefully to remove any grit from between the leaves, then top, tail and slice finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/960.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -82,6 +86,7 @@ Once done, transfer the bacon, shallot and mushroom to a plate, keeping the pan
 
 &nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/960.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -96,6 +101,7 @@ Meanwhile, boil a kettle
 
 Stir 1 tbsp <span class="text-danger">[2 tbsp]</span> flour&nbsp;into the softened&nbsp;leek and cook for 1 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/960.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -110,6 +116,7 @@ Increase the heat to medium-high and cook for 2 min
 
 Return the browned&nbsp;chicken to the pan and cook for a further&nbsp;8-10 min or until the sauce has thickened to a gravy-like consistency and the chicken is cooked - this is your&nbsp;stew&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/960.-step-7-x200.jpg)
 
 ### Step 7
 

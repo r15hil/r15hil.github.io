@@ -27,6 +27,7 @@ This Vietnamese treat brings together the best of its French and Vietnamese root
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1722590666095-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop your shallot[s]
 
 Strip your coriander leaves from their stalks and finely chop (save the leaves for later!)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1722590682321-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add your chicken stock mix, cornflour and a pinch of salt
 
 Give everything a good mix up (clean hands is the best way!) and set aside – this is your pie filling
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1722590704055-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Cut the pastry rectangle across the middle into long rectangles (1 per person!),
 
 Brush a little cold water around the edges of the pastry (this helps to seal the pastry!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1722590744087-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Fold the pastry over the filling, leaving a small gap between the filling and th
 
 Cut small air slits into the centre of the pies with a sharp knife and crimp the borders with a fork, then put the tray[s] in the oven for 25-30 min or until the pastry is until golden and cooked through – this is your Vietnamese bánh patê sô pork pie[s]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1722590771649-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-ten
 
 Once cooked, drain and leave to steam dry in a colander and reserve the pot
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-1722590781672-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Combine your red chilli relish with the remaining soy sauce and a little of the 
 
 Add 1 tsp<span class="text-purple"> [1 1/2 tsp]</span> <span class="text-danger">[2 tsp] </span>sugar and 1 tbsp <span class="text-purple">[1 1/2 tbsp]</span> <span class="text-danger">[2 tbsp]</span> cold water – this is your nuac cham dipping sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-1722590797026-x200.jpg)
 
 ### Step 7
 

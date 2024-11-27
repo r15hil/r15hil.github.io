@@ -22,6 +22,7 @@ This is lovely for a midweek supper and ideal for preparing ahead. Served with h
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/537.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Heat a large, wide-based pan (preferably non-stick) with a matching lid with 1/2
 
 Pat the pork dry and season with salt and pepper
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/537.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Meanwhile, line a baking tray with foil
 
 Transfer the pork to the tray and set aside to cool down completely, reserving the pan for later
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/537.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Once hot, add the onions and cook for 3 min until starting to turn glossy, stirr
 
 Cover the pan with a lid, reduce the heat to low and cook for 10-15 min or until softened and golden
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/537.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -75,6 +79,7 @@ Trim the green beans and cut in half
 
 Boil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/537.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -83,6 +88,7 @@ Once the onions are soft and brown, remove the lid and increase the heat to high
 
 Add the mushrooms to the onions and cook for 5 min or until browned and all the liquid has evaporated, then remove the pan from the heat and season lightly with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/537.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Sprinkle with the panko breadcrumbs, grated cheese and paprika
 
 Bake in the oven for 10-15 min or until a golden crust has formed and the pork is cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/537.-step-7-x200.jpg)
 
 ### Step 7
 

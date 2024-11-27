@@ -31,6 +31,7 @@ To create a luxurious chicken curry, you'll infuse rich coconut stock with sweet
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1599839851092-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Boil a kettle
 
 Peel and slice your red onion[s] finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1599839855062-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a k
 
 Once melted, add most of the sliced onion (you'll use the rest later!) with a pinch of salt and cook for 8-10 min or until softened and caramelised
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599839868208-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Once boiling, reduce the heat to medium and cook for 20-25 min or until it's ten
 
 Once cooked, drain and return it to the pot with a knob of butter and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1599839877932-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Whilst the rice is cooking, peel (scrape the skin off with a teaspoon) and finel
 
 Chop your creamed coconut roughly (if required!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1599839887365-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Combine your chopped dates, tamarind paste, chicken stock mix and chopped cr
 
 Chop your coriander finely (including the stalks), then dice your tomato[es] and cucumber and set everything aside for later
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1599839895371-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add your chicken breast strips and increase the heat to high
 
 Cook, covered, for 13-15 min or until the chicken is cooked through (no pink meat!) and the sauce has reduced to a curry-like consistency
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1599839905627-x200.jpg)
 
 ### Step 7
 

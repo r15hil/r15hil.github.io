@@ -29,6 +29,7 @@ Succulent rump steak is the star in this sweet and tangy red curry. You'll sear 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1582200649954-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add your basmati rice, lemongrass stalk[s] and 300ml <span class="text-purple">[
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1582200655100-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) over a high heat
 
 Pat your rump steak[s] dry with kitchen paper, drizzle them with vegetable oil and season with a pinch of salt on both sides
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1582200659408-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ For rare, cook for 2 min max on each side; for medium-rare, cook for 2-3 min on 
 
 Once the steak[s] is cooked, transfer them to a plate to rest (reserve the pan!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1582200663763-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut in
 
 Slice your red chilli[es] into rounds
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1582200668122-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once the steak[s] is resting, return the pan to a medium heat with a drizzle of 
 
 Once hot, add the chopped ginger, chopped pepper and red Thai curry paste and cook for 2-3 or min until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1582200673840-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Dissolve the chopped creamed coconut and fish sauce in 200ml <span class="text-p
 
 Add the coconut stock and lime leaf[ves] to the pan and cook for 2-3 min or until the pepper has started to soften
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1582200677325-x200.jpg)
 
 ### Step 7
 

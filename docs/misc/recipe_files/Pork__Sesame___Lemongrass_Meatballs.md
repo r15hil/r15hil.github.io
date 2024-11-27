@@ -24,6 +24,7 @@ This Thai-style flavour bonanza infuses pork mince with some powerful flavours; 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/246.-step1.-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut the broccoli florets and the stem<span class="text-danger">[s]</span>&nbsp;i
 
 Add them to&nbsp;a baking tray, drizzle with 1-2 tbsp vegetable oil and season with salt and pepper, then put them in the oven&nbsp;for 10 min or until starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/246.-step2.-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Bash the lemongrass&nbsp;with a rolling pin, cut it <span class="text-danger">[t
 
 Peel and chop the garlic and the ginger coarsely
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/246.-step3.-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Add&nbsp;the rice, 350ml <span class="text-danger">[700ml]</span>&nbsp;water and
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or until all the water has absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/246.-step4.-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Combine the paste, pork mince, breadcrumbs, 1 <span class="text-danger">[2]</spa
 
 Shape 6 <span class="text-danger">[12]</span>&nbsp;meatballs from the mixture
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/246.-step5.-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Heat 1-2 tbsp vegetable oil in a large pan (preferably non-stick)&nbsp;over a hi
 
 Once&nbsp;hot, add the meatballs and cook for 3-4 min or until the meatballs have browned on all sides
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/246.-step6.-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Return the tray to the oven for a further 8-10 min or until the meatballs have c
 
 Check the rice is cooked, and once done, remove from the heat and keep covered until serving&nbsp;
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/246.-step7.-x200.jpg)
 
 ### Step 7
 

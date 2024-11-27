@@ -25,6 +25,7 @@ All you need for this fiery 10-min recipe is to make a quick stir-fry sauce, add
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623407153420-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1627380491824-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Trim, then chop your spring onion[s] roughly
 
 Trim, then chop your green beans in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1627380500480-x200.jpg)
 
 ### Step 3
 
@@ -54,16 +57,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the sliced pepper, chopped spring onion and halved green beans to the pan and cook for 2-3 min or until starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1627380512004-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add your soy sauce, sriracha (can't handle the heat? Go easy!) and ginger & garlic paste to a bowl with 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[200ml]</span> water and your cornflour and mix until smooth – this is your spicy stir-fry sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1627380523446-x200.jpg)
 
 ### Step 5
 
 Once the vegetables have softened, drain your jumbo prawns, then add them to the pan and cook for an initial 5-6 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1581614165693-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Tear the top corner of the pouch[es] (just a little!) and microwave for 2 min or
 
 Tip: If you're cooking two or more pouches, pop them in together but increase the microwave cook time accordingly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1627981656985-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ For a creamy risotto packed with aromatic baharat and tangy harissa, look no fur
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-8-1688141420716-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-8-1688141425469-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Peel and chop (or grate) your garlic
 
 Dissolve your vegetable stock mix in 750ml<span class="text-purple"> [975ml]</span> <span class="text-danger">[1.4L]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-8-1688141429120-x200.jpg)
 
 ### Step 3
 
 Once the onion is beginning to soften, add the chopped garlic, tomato paste and your baharat to the pan and cook for 1-2 min or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-9-1688141433519-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Once fragrant, add your arborio rice and cook for 1 min, stirring to coat the gr
 
 Add most of the vegetable stock (you'll use the rest later!) a ladle at a time, stirring continuously for an initial 25 min or until the rice is almost cooked
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-9-1688141437469-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ While the risotto is cooking, wash your spinach, then pat it dry with kitchen pa
 
 Crumble your feta
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-9-1688141440767-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Pour in the remaining vegetable stock and cook for a final 4-5 min or until the 
 
 Tip: Your fish is cooked once it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-9-1688141444599-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Hailing from Tamil Nadu, this spicy paneer curry packs in plenty of flavour! Ser
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1629109734947-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely chop (or grate) your garlic
 
 Peel (scrape the skin off with a teaspoon) and finely chop (or grate) your ginger
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1629109738612-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Roughly chop your coriander, including the stalks
 
 Cut your paneer into bite-sized cubes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Rice-in-pot-with-water-1692018854752-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1629109747341-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Once golden, transfer everything to a plate and set aside
 
 Return the pan to a medium-high heat, add the sliced onion with a pinch of salt and cook for 3-4 min or until starting to soften
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1629109752240-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once the onion has softened, add your ground turmeric and tomato paste and cook
 
 Meanwhile, dissolve your vegetable stock mix in 200ml <span class="text-purple">[300ml] </span><span class="text-danger">[400ml] </span>boiled water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1629109755946-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Add the vegetable stock and cook for 5-6 min or until the sauce is beginning to 
 
 Once beginning to thicken, return the cooked paneer to the pan and cook for 2 min further or until warmed through – this is your Chettinad-style paneer curry
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1697123305312-x200.jpg)
 
 ### Step 7
 

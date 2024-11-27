@@ -21,6 +21,7 @@ For this quick korma, you'll pan-fry diced chicken in mild curry paste, before a
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1614009940493-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1932.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Add the mini garlic & coriander naans and flaked almonds to a baking tray and pu
 
 Tip: Watch these like a hawk to make sure they don't burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1614010134992-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Put the bowl in the microwave and cook for 5-6 min or until the squash cubes a
 
 Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a medium-high heat
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1932.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Meanwhile, chop the creamed coconut roughly (if required!)
 
 Dissolve the chopped creamed coconut in 150ml <span class="text-danger">[250ml]</span> boiled water – this is your coconut stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1614010183513-x200.jpg)
 
 ### Step 5
 
@@ -76,11 +81,13 @@ Once boiling, reduce the heat to medium and cook for 6-7 min further or until th
 
 Note: Please make sure you cook your chicken thoroughly (until there’s no pink meat and it’s piping hot!) as cooking equipment varies
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1614010210241-x200.jpg)
 
 ### Step 6
 
 Once the chicken is cooked through, stir the cooked butternut squash cubes through the sauce – this is your chicken & butternut squash korma
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1932.-step-7-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Fresh, bold and and satisfying, this lighter, low-carb version of the classic Ca
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-22-1707824171390-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7, then take your chicken out of t
 
 Peel and chop your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-22-1707824176536-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Sprinkle your dried oregano over the chicken
 
 Put the tray[s] in the oven for 18-20 min or until the onion wedges are tender and the chicken is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-26-1707824181282-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add the torn ciabatta to a separate baking tray with a drizzle of olive oil and 
 
 Give everything a good mix up and put the tray in the oven for 8-10 min or until golden and crispy – these are your croutons
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-21-1707824184841-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Shave half of your Italian hard cheese with a peeler until you end up with a pil
 
 Grate the remaining Italian hard cheese finely
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-22-1707824188469-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Combine the chopped shallot, chopped garlic (don’t like raw garlic? Use half!)
 
 Season with a pinch of salt and pepper – this is your yoghurt Caesar dressing
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-22-1707824193143-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Add the torn lettuce, remaining grated Italian hard cheese, croutons and red oni
 
 Add the yoghurt Caesar dressing and give everything a good mix until evenly coated in the dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-21-1707824196529-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Nothing says comfort like a bountiful bowl of rich, fragrant pasta. You'll sizzl
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1657545520813-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Peel and finely dice your red onion[s]
 
 Chop your cherry tomatoes in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1657545527395-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once hot, add the diced onion, then squeeze your sausage meat from the skins int
 
 Break the sausage meat up into bite-sized pieces with a wooden spoon and cook for 5-7 min or until the onion has softened and the sausage meat is cooked through (no pink meat!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1657545536532-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Add your tortiglioni to a pot of boiled water with a generous pinch of salt and 
 
 Once done, drain the tortiglioni, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1657545550028-x200.jpg)
 
 ### Step 4
 
@@ -64,11 +68,13 @@ Season with a pinch of salt and sugar and cook for 3-4 min or until the tomatoes
 
 Meanwhile, dissolve your chicken stock mix and tomato paste in 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml] </span>boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1657545554335-x200.jpg)
 
 ### Step 5
 
 Add the chopped garlic, tomato stock and chilli flakes (can't handle the heat? Go easy!) to the pan and cook for a further 4-5 min or until the sauce has slightly thickened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1657545558535-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ While the sauce is thickening, grate your cheddar cheese
 
 Chop your basil finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1657545564506-x200.jpg)
 
 ### Step 7
 

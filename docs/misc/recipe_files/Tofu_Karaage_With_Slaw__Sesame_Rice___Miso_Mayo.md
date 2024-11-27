@@ -27,6 +27,7 @@ Take 10 minutes to rustle up this feast from the east. You’ll coat tofu bites 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-10-min-meals-1729502934697-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1679406737201-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Drain your tofu and pat it dry with kitchen paper
 
 Tear the tofu into large chunks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1679406743359-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine the tofu chunks and your ground smoked paprika in a bowl with your groun
 
 Add a generous pinch of salt and pepper and mix until fully combined – this is your coated tofu
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1679407006543-x200.jpg)
 
 ### Step 4
 
@@ -61,16 +65,19 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated tofu to the pan and cook for 6-7 min or until golden and crispy – this is your tofu karaage
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1679407167743-x200.jpg)
 
 ### Step 5
 
 While the tofu is cooking, combine your carrot & cabbage slaw mix with half your mayo and half your white wine vinegar (you'll use the rest later!) – this is your slaw
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1679407068199-x200.jpg)
 
 ### Step 6
 
 Combine your white miso paste and the remaining mayo in a bowl with the remaining white wine vinegar– this is your miso mayo dip
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1679407175284-x200.jpg)
 
 ### Step 7
 

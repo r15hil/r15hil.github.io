@@ -24,6 +24,7 @@ Jump aboard the gravy train for this twist on the classic Christmas trimming. Yo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1666966360418-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut the potatoes (skins on) into chips, then add the chips to a baking tray with
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1666966371694-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Crush the crispy onions with a rolling pin in their bag<span class="text-danger"
 
 Boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1666966383662-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Add the mustard & onion chicken to one side of a baking paper-lined baking tray 
 
 Peel and slice the shallot<span class="text-danger">[s]</span>
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1666966388534-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Meanwhile, slice the ciabattas in half
 
 Once softened, add 2 tbsp <span class="text-danger">[4 tbsp] </span>flour to the pan and stir with a wooden spoon for 1 min or until a sandy paste forms – this is your roux
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1666966394794-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Once slightly thickened, remove the pan from the heat and dip the ciabatta halve
 
 Tip: You should have roughly half of the gravy left over in the pan, which will be used later!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1666966406654-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Tip: Cooking for 4? Use 2 trays!
 
 Put the tray<span class="text-danger">[s]</span> in the oven for 16-17 min or until the chicken is cooked through (no pink meat!) and the bread is crispy on the outside
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1666966418303-x200.jpg)
 
 ### Step 7
 

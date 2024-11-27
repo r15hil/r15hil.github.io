@@ -25,6 +25,7 @@ You won’t want to miss this meat-free twist on a South American classic. You�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1691577097401-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and chop (or grate) your garlic
 
 Deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon), then slice into rounds
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1691577102077-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with a drizzle of
 
 Once hot, add your meat-free patty[ies] and cook for 3-4 min or until browned, breaking up them up with a wooden spoon as you go
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1691577108480-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Once browned, add half the chopped garlic (you'll use the rest laster!) and drie
 
 Once fragrant, remove the pan from the heat and add your chipotle paste (can't handle the heat? Go easy!) and a pinch of salt and give everything a good mix up, then set aside – this is your empanada filling
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1691577113879-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Cut into 2 rectangles per person and add them to a baking tray lined with non-stick baking paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1691577119217-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Brush a little cold water around the edges of the pastry, then fold the pastry o
 
 Trim the edges of the pastry into a semi-circle shape – these are your meat-free empanadas
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1691577123925-x200.jpg)
 
 ### Step 6
 
@@ -79,6 +85,7 @@ Add the sliced pepper to the tray with a pinch of salt – these are your smashe
 
 Return the tray[s] to the oven along with the meat-free empanadas for 18-20 min or until the potatoes are crisp and golden and the pastry is golden and cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1691577129807-x200.jpg)
 
 ### Step 7
 

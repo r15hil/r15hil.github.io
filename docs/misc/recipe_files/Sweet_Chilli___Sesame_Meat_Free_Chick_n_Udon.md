@@ -23,6 +23,7 @@ This quick, umami-rich udon is completely plant-based, and tossed together with 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1611577560276-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1703063474834-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Now, let's get started!
 
 Chop any larger pieces of your meat-free chick’n into bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1703063479169-x200.jpg)
 
 ### Step 3
 
@@ -48,11 +51,13 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add your ginger & garlic paste with the meat-free chick’n pieces and cook for 4-5 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1703063483458-x200.jpg)
 
 ### Step 4
 
 Meanwhile, combine your soy sauce, red chilli relish and toasted sesame oil in a bowl – this is your sweet chilli & sesame sauce
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1703063488368-x200.jpg)
 
 ### Step 5
 
@@ -64,11 +69,13 @@ Return the pan to the heat and cook, covered for 2 min until the spinach has sta
 
 Tip: Gently separate the noodles with a fork!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1703063493037-x200.jpg)
 
 ### Step 6
 
 Meanwhile, slice your spring onion[s] finely
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1611577662351-x200.jpg)
 
 ### Step 7
 

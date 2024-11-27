@@ -23,6 +23,7 @@ Glamorgan ‘sausages’ are little Welsh vegetarian sausages that hark back to 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/378.step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Put the tray<span class="text-danger">[s]</span> in the oven for an initial 15 m
 
 Tip: Cooking for 4? Use 2 trays!
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1663253204994-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Once melted, add the chopped leek and 30ml <span class="text-danger">[60ml] </sp
 
 Once evaporated, transfer the cooked leek onto a plate and leave to cool completely (reserve the pan for later!)
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1663253212357-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Transfer the yolk from one shell half to the other several times, until all the 
 
 Grate the cheddar cheese
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/378.step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ After the potatoes have had their initial 15 min, remove the tray<span class="te
 
 Add the tomato wedges and onion wedges and return the tray<span class="text-danger">[s]</span> to the oven for a further 15-20 min or until the potatoes have browned and crisped
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/378.step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Season with salt and pepper, then divide the mixture in 2 <span class="text-dang
 
 Gently coat the patties in the egg white and press them into the remaining panko breadcrumbs – these are your Glamorgan-style patties
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/378.step-6-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once hot, add the Glamorgan-style patties and cook for 4-5 min on each side unti
 
 Tip: Resist fiddling with the patties so they hold their shape!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/378.step-7-x200.jpg)
 
 ### Step 7
 

@@ -19,6 +19,7 @@ Zesty lemon-buttered basa is served over warm smashed beans and dill flecked pot
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/547.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Cut&nbsp;2 <span class="text-danger">[4]</span>&nbsp;thin slices from the centre
 
 Reserve&nbsp;the lemon halves for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/547.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Spread&nbsp;the lemon zest evenly over the fish fillets
 
 Put them in the oven for 10 min or until your fish is cooked through
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/547.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -61,6 +64,7 @@ Cut the potato<span class="text-danger">[es]</span>&nbsp;(skins on) into bite-si
 
 Cook for 5 min until almost fork-tender
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/547.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Cut the runner beans into bite-size pieces
 
 Add the runner beans&nbsp;to the potato pot and boil a further 5 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/547.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -86,6 +91,7 @@ Add a knob of butter to the warm baking tray
 
 Squeeze the remaining lemon halves over the fish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/547.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -97,6 +103,7 @@ Add the dill, a large knob of butter and season generously with salt and pepper
 
 Smash the beans and potatoes briefly with a potato masher (smashing is a lighter version of mashing and ensures that a course texture is maintained)
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/547.-step-7-x200.jpg)
 
 ### Step 7
 

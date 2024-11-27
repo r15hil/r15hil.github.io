@@ -25,6 +25,7 @@ This comforting, plant-based pie is a perfect match for cooler evenings. You'll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1634032664521-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Peel and finely chop your brown onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1634032671933-x200.jpg)
 
 ### Step 2
 
@@ -43,6 +45,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the chopped onion and garlic with a generous pinch of salt and cook for 3-4 min or until slightly softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1634032679163-x200.jpg)
 
 ### Step 3
 
@@ -50,6 +53,7 @@ Meanwhile, peel and chop your potatoes into small bite-sized cubes
 
 Top, tail, peel and chop your carrot[s] into quarters lengthways, then into batons
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1634032691968-x200.jpg)
 
 ### Step 4
 
@@ -57,6 +61,7 @@ Add the chopped potatoes, carrot batons and butternut squash cubes to the pan wi
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1634032703714-x200.jpg)
 
 ### Step 5
 
@@ -66,6 +71,7 @@ Add the spinach to the pan and season with a generous grind of black pepper
 
 Give everything a good mix up and cook, covered, for 20-25 min or until the potatoes and squash have softened and the sauce has reduced – this is your winter squash & sage pie filling
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1634032764685-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rollin
 
 Add the pastry to the tray[s] and score a 1cm border around the edge of the pastry with a knife, then crimp the borders with a fork and put the tray[s] in the oven for 15 min or until puffed up and golden – these are your pie lids
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1634034052216-x200.jpg)
 
 ### Step 7
 

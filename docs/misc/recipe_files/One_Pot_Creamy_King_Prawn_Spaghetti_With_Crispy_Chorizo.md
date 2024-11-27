@@ -29,6 +29,7 @@ Who knew you could prep a creamy tomato and prawn spaghetti, topped with roasted
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1654600022676-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1654600018855-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid 
 
 Peel and grate your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1654600034558-x200.jpg)
 
 ### Step 3
 
@@ -60,11 +63,13 @@ Break your spaghetti in half and add it to the dish, giving everything a good mi
 
 Bring to the boil over a high heat, season with salt and pepper, then cover with a lid and put the dish in the oven for an initial 25 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1654600038744-x200.jpg)
 
 ### Step 4
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1654600045048-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Once the pasta has had an initial 25 min, add your diced chorizo and remaining c
 
 Put the tray[s] in the oven for 5-6 min or until the chorizo is crispy and the tomatoes are roasted – this is your crispy chorizo & roasted tomatoes
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1654600047758-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Add the drained king prawns and soft cheese then give everything a good mix up
 
 Return the dish to the oven and cook, covered, for a final 5 min or until the spaghetti is tender and the prawns are cooked through – this is your one-pot creamy king prawn spaghetti
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1654600054082-x200.jpg)
 
 ### Step 7
 

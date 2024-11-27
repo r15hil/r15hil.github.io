@@ -29,6 +29,7 @@ These plant-based burgers are an Indian-inspired sensation. You'll stuff crispy 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-1607346781796-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Cut your potatoes (skins on) into thin chips, then add them to a baking tray (o
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-1607346788321-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Peel and finely chop (or grate) your garlic
 
 Chop your coriander roughly, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-1607346799685-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add 100ml <span class="text-purple">[150ml]</span> <span class="text-danger">[20
 
 Add the sliced onion, chopped coriander, chopped ginger and garlic to the bowl with the batter and gently mix until all of the onion is coated – this is your onion bhaji mixture
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-1607346822969-x200.jpg)
 
 ### Step 4
 
@@ -67,6 +71,7 @@ Once very hot, add 2 large spoonfuls of the onion bhaji mixture per person to se
 
 Tip: Cooking for 4? You may need to do this in 2 batches!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-1607346838194-x200.jpg)
 
 ### Step 5
 
@@ -78,6 +83,7 @@ Once golden and cooked through, add the patties to a plate and set aside – the
 
 Wash your seasonal salad, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1607346849428-x200.jpg)
 
 ### Step 6
 
@@ -87,6 +93,7 @@ Add the grated cucumber to a bowl with your cultured coconut, mint sauce and a p
 
 Add the seasonal salad to a bowl with the diced cucumber and a small drizzle of olive oil – this is your cucumber salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1607346895578-x200.jpg)
 
 ### Step 7
 

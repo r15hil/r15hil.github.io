@@ -22,6 +22,7 @@ We've given Italy's Easter pie, the torta pasquale, an easy Gousto twist. You'll
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1615909381624-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Add the chopped potatoes to a tin foil-lined baking tray with a drizzle of veget
 
 Give everything a good mix up and put the tray in the oven for 25 min or until the potatoes are starting to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1615909429917-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once cool, squeeze as much water out of the spinach as you can, then chop roughl
 
 Peel and finely chop (or grate) the garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1615909445638-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot add the chopped wilted spinach and chopped garlic with a generous pinch
 
 Stir through half the goats' cheese (you'll use the rest later!) with a splash of water and cook for 1 min further – this is your creamy spinach
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1615909477231-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Unwrap the puff pastry and roll it out to approx. 0.5cm thickness with a rolling
 
 Add the pastry to the tray<span class="text-danger">[s] </span>and score a 1cm border around the edge of the pastry with a knife
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1615909485817-x200.jpg)
 
 ### Step 5
 
@@ -73,11 +78,13 @@ Break up the remaining goats’ cheese and sprinkle it over the top equally (lea
 
 Put the tray<span class="text-danger">[s]</span> in the oven for an initial 9 min or until the pastry edges have begun to puff up
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1615909501839-x200.jpg)
 
 ### Step 6
 
 Meanwhile, combine the green tomato chutney, white wine vinegar and 2 tbsp <span class="text-danger">[4 tbsp] </span>olive oil in a small bowl – this is your chutney dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1615909519520-x200.jpg)
 
 ### Step 7
 

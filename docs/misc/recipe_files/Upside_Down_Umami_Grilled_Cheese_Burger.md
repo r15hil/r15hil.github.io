@@ -24,6 +24,7 @@ Dive into the Upside Down for an 11/10 grilled cheese burger. You’ll pack your
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-copy-11-1691497639004-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Heat a large, wide-based pan (preferably non-stick) with a little drizzle of veg
 
 Once hot, add the sliced onion with 1 tsp <span class="text-danger">[2 tsp]</span> sugar and a splash of cold water, then cook for 8-10 min or until the onion has caramelised
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-copy-12-1691497642884-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Add the fries to a baking paper-lined baking tray with a drizzle of vegetable oi
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until golden and crisp
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-12-1691497646541-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Give everything a good mix up until thoroughly combined (clean hands is the best
 
 Divide the mince into 2 <span class="text-danger">[4] </span>and shape them into thin patties (approx 1cm thick)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-11-1691497649315-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Wipe the reserved pan clean and return it to a medium-high heat with a little dr
 
 Once hot, add the patties and cook for 6-7 min on each side or until cooked through (no pink meat!) – these are your umami patties
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-10-1691497653662-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ Combine the mayo and the remaining miso paste in a small bowl with half the whit
 
 Wash the baby leaf salad, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-10-1691497659043-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Add half the sliced cheese onto each brioche base then top with the miso onion a
 
 Flip the brioche lid upside down and add it onto the patty – this is your upside down umami cheeseburger
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-14-1691497661914-x200.jpg)
 
 ### Step 7
 

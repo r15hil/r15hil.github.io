@@ -30,6 +30,7 @@ Send your senses to the hillsides of Etna with roasted aubergine in a sweet toma
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2077.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Trim the green stalk[s] off your aubergine[s] and discard, then chop into bite-s
 
 Give everything a good mix up and put the tray in the oven for 20-25 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Chopped-onion-and-sliced-garlic-1670855675248-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel and finely chop (or grate) your garlic
 
 Boil half a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2077.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once hot, add the diced onion with a pinch of salt and cook for 4-5 min or until
 
 Once softened, add the chopped garlic and cook for 1 min further or until fragrant
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2077.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Dissolve your tomato paste and vegetable stock mix in 200ml <span class="text-pu
 
 Reboil a kettle
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2077.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Tip: Crush the tomatoes gently with a wooden spoon as they're cooking!
 
 Add the tomato stock, balsamic vinegar, dried oregano, chilli flakes (can't handle the heat? Go easy!) and a pinch of sugar and cook for 7-8 min further or until thickened to a rich pasta sauce
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2077.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Cook the tortiglioni for 8-10 min or until cooked with a slight bite and once 
 
 Chop your basil finely, including the stalks
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2077.-step-7-x200.jpg)
 
 ### Step 7
 

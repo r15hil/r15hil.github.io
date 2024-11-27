@@ -24,6 +24,7 @@ This fiery plant-based toastie will be a household favourite in no time. You'll 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-43-1717592542945-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Cut your potatoes (skins on) into wedges
 
 Peel and chop your red onion[s] into wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-42-1717592546878-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Put the tray[s] in the oven for an initial 15 min or until the onion is tender, 
 
 Transfer the roasted onion to a clean plate and return the tray[s] to the oven for a further 5-10 min or until the potato wedges are golden
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-48-1717592549778-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Tear your cheese flavour slices and combine with your umami seasoning – this 
 
 Slice your ciabatta[s] in half
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-43-1717592552840-x200.jpg)
 
 ### Step 4
 
@@ -58,6 +62,7 @@ Top the ciabatta base[s] with your plant based 'Nduja (can't handle the heat? Go
 
 Place a ciabatta lid on top – this is your plant-based 'Nduja ciabatta
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-44-1717592689393-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Once hot, add the plant-based 'Nduja ciabatta and cover with a smaller pan
 
 Add a heavy weight (eg. several tins) to the top pan and cook for 4-5 min per side, checking occasionally or until the ciabatta is golden and the cheeze has melted – this is your plant-based 'Nduja toastie
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-43-1717592693036-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Remove the base of your lettuce, wash under cold running water and cut away the 
 
 Tear the lettuce leaves from the stem until you are left with a pile of leaves
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-43-1717592696672-x200.jpg)
 
 ### Step 7
 

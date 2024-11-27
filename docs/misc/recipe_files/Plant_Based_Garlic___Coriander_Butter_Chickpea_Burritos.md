@@ -33,6 +33,7 @@ These buttery burritos are banging. You’ll whip up a creamy butter chickpea cu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680278463222-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Add your basmati rice, cardamom pod[s] and 250ml <span class="text-purple">[320m
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680278468002-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Season with a generous pinch of salt and pepper and mix it all together
 
 Add the spiced chickpeas to a baking paper-lined baking tray and place in the oven for 12-15 min or until the chickpeas are starting to char – these are your tandoori chickpeas
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680278473942-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Chop your coriander finely, including the stalks
 
 Add the chopped garlic and half the chopped coriander (you'll use the rest later!) to a small bowl with a large knob of butter and stir it all together – this is your plant-based garlic & coriander butter
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680278479421-x200.jpg)
 
 ### Step 4
 
@@ -73,6 +77,7 @@ Dissolve your vegetable stock mix and tomato paste in 200ml<span class="text-pur
 
 Wash your spinach and pat it dry with kitchen paper
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680278482958-x200.jpg)
 
 ### Step 5
 
@@ -82,6 +87,7 @@ Once fragrant, add the tomato stock and cook for 4-5 min or until the sauce has 
 
 Once thickened, remove the pan from the heat and stir through the remaining cultured coconut, tandoori chickpeas (reserve the tray) and remaining chopped coriander – this is your chickpea curry
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680278486540-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Roll your tortilla until you’re left with a burrito – these are your chickpe
 
 Tip: Go light on the filling on your first one so that you don't overfill the burritos!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680278490586-x200.jpg)
 
 ### Step 7
 

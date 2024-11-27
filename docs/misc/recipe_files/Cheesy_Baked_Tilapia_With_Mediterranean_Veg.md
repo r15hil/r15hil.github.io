@@ -23,6 +23,7 @@ This dishy dinner is inspired by the Mediterranean sun. While the fish and potat
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1650987957480-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add to a tray with a drizzle of olive oil and season with salt and pepper and g
 
 Put the tray in the oven for 20-25 min or until the potatoes are crisp – these are your roast potatoes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1650987962135-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Chop the cherry tomatoes in half
 
 Dissolve the vegetable stock mix in 50ml <span class="text-danger">[100ml]</span> boiled water
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1650987965486-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Grate the cheddar cheese into a bowl, add the panko breadcrumbs and season wit
 
 Add a drizzle of vegetable oil and give everything a good mix up – this is your cheesy breadcrumb mix
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1650987969770-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Put the tray in the oven for 12-15 min, or until the breadcrumb mixture is star
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1650987973585-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Once hot, add the chopped red onion, chopped courgette and tomato paste to the 
 
 Add the halved cherry tomatoes and cook for 4-5 min further or until all the veg has fully softened
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1650987977430-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Add the vegetable stock and cook for 1-2 min further
 
 Season generously with salt and pepper – this is your Mediterranean veg
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1650987981070-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Indulge in the art of making handmade pici from scratch. You'll make dough using
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1611673797108-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Tip the dough onto a clean, dry work surface and knead for 8-10 min, or until it
 
 Once done, wrap your dough in cling film and set aside to rest for 30 min
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1611673876823-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Roll the dough into a rough rectangle, approx. 2 cm thick using a rolling pin
 
 Lightly dust a chopping board with plain flour (but not your work surface!) and set it next to your clean work surface
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1611673895339-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once rolled, add it to the floured chopping board, then continue to cut and roll
 
 Tip: Try to aim for a consistent shape so that they cook evenly!
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1611673910886-x200.jpg)
 
 ### Step 4
 
@@ -70,6 +74,7 @@ Tip: Cooking this for someone special? Get them involved in the fun too!
 
 Once done, set the pici nests aside to dry out slightly
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1611673933574-x200.jpg)
 
 ### Step 5
 
@@ -89,6 +94,7 @@ Add 2 tbsp <span class="text-danger">[4 tbsp]</span> olive oil, 2 tbsp <span cla
 
 Blitz until smooth – this is your homemade pesto
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1611673977095-x200.jpg)
 
 ### Step 6
 
@@ -104,6 +110,7 @@ Peel and finely slice the shallot<span class="text-danger">[s]</span>
 
 Combine the chopped shallot with the juice of 2 <span class="text-danger">[4]</span> lemon quarters, a drizzle of<span class="text-danger"> </span>olive oil and a pinch of salt and pepper – this is your lemon dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1611673996324-x200.jpg)
 
 ### Step 7
 

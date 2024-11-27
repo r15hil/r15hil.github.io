@@ -29,6 +29,7 @@ These skewers are super easy and full of zing. You’ll roast honey and lime-mar
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1644935052090-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or un
 
 Once cooked, remove from the heat and keep covered until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1644935055374-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Deseed the green pepper<span class="text-danger">[s]</span> (scrape the seeds an
 
 Roll the lime<span class="text-danger">[s]</span> with your hand on a hard surface (to release more juice) and cut in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1644935058124-x200.jpg)
 
 ### Step 3
 
@@ -62,6 +65,7 @@ Chop the chicken thighs into small bite-sized pieces
 
 Add the chopped chicken thighs, chopped green pepper and onion wedges to the zesty marinade and give everything a good mix up
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1644935061105-x200.jpg)
 
 ### Step 4
 
@@ -69,6 +73,7 @@ Thread the marinated chicken onto the soaked skewers
 
 Add the marinated pepper and onion wedges to tin foil-lined tray and place in the oven for 12-14 min or until slightly charred – this is your charred veg
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1644935063951-x200.jpg)
 
 ### Step 5
 
@@ -76,6 +81,7 @@ Meanwhile, add the mayo to a small bowl with the remaining lime juice and the re
 
 Season with a pinch of salt and pepper and give everything a good mix up – this is your smoky mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1644935066852-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the marinated chicken skewers and cook for 4-5 min on each side or until slightly charred and cooked though (no pink meat!) – these are your honey-lime chicken skewers
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1644935069277-x200.jpg)
 
 ### Step 7
 

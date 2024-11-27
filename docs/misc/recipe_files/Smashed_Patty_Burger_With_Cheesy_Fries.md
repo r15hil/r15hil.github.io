@@ -28,6 +28,7 @@ This smoky take on burger night is a smash hit. You’ll char extra thin patties
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1677852976434-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Add the fries to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1677852987474-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Once hot, add the sliced onion with a pinch of salt and 1 tsp <span class="text-
 
 Cook for 8-10 min or until the onion has softened and caramelised – this is your caramelised onion
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1677853012598-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Grate your cheddar cheese and combine with your cornflour and a pinch of salt in
 
 Add your mustard ketchup and 100ml <span class="text-purple">[150ml] </span><span class="text-danger">[200ml]</span> milk to the pot and set aside for later – this is your cheese sauce base
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1677853021814-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Mix until combined, then equally divide and shape into 2 meatballs per person
 
 Cover the meatballs with a sheet of baking paper and roll them out to approx. 0.5cm thickness with a rolling pin until evenly flattened – these are your patties
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1677853040754-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Return the reserved pan to a high heat with a drizzle of vegetable oil
 
 Once hot, add the patties, press them down very firmly with a spatula and cook for 2-3 min on each side, pressing down continuously, or until slightly charred and cooked through (no pink meat!) – these are your smashed patties
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1677853058896-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Remove the tray[s] with the fries from the oven and add the brioche halves (cut 
 
 Return the tray[s] to the oven for 4-5 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1677853074029-x200.jpg)
 
 ### Step 7
 

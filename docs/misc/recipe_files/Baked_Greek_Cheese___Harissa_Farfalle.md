@@ -28,6 +28,7 @@ How farfalle would you go for this cheesy pasta dinner? You’ll bake cherry tom
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1699031040277-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Peel and cut your red onion[s] into quarters, then separate the wedges so you en
 
 Peel and finely chop (or grate) your garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1699031044319-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Add the chopped pepper and halved tomatoes
 
 Add your dried thyme with a drizzle of olive oil and a pinch of pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1699031048009-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Put the dish in the oven and cook for 18-20 min or until the veg are tender and 
 
 Boil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1699031051876-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Combine your white wine vinegar with a drizzle of olive oil in a large bowl and 
 
 Add the sliced cucumber and baby leaf salad to the bowl with the dressing and toss – this is your dressed salad
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1699031056044-x200.jpg)
 
 ### Step 5
 
@@ -77,6 +82,7 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain the farfalle, reserving 150ml <span class="text-purple">[225ml]</span> <span class="text-danger">[300ml]</span> starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1699031059642-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Wash your spinach and pat dry with kitchen paper
 
 Combine your harissa paste (can't handle the heat? Go easy!) and vegetable stock mix with the reserved starchy pasta water – this is your harissa stock
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1699031062699-x200.jpg)
 
 ### Step 7
 

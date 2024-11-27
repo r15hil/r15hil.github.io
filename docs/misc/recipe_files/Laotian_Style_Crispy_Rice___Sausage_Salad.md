@@ -26,6 +26,7 @@ Dig into this meaty Southeast Asian salad. You’ll fry sticky red curry rice ba
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1680047543937-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Rinse the sushi rice in a sieve under cold running water for 30 secs (use your h
 
 Add the drained rice with 200ml<span class="text-danger"> [400ml]</span> cold water and a generous pinch of salt to a pot with a lid and bring to the boil over a high heat
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1680047548310-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Tip: Don't peek! Keep the lid on the whole time to get fluffy and sticky rice!
 
 Once done, transfer the sticky rice to a plate and spread it out flat to help it cool down
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1680047552208-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Chop the coriander roughly, including the stalks
 
 Strip the mint leaves from their stems and chop them roughly, discard the stems
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1680047555785-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Combine half the soy sauce and half the grated garlic (save the rest for later!)
 
 Cut the remaining lime into wedges
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1680047560350-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Combine the sticky rice and red Thai curry paste in a bowl with the chopped shal
 
 Give everything a good mix up – this is your sticky rice mixture
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1680047564025-x200.jpg)
 
 ### Step 6
 
@@ -86,6 +92,7 @@ Once hot, add the rice balls and cook for 3-4 min on each side or until golden a
 
 Once done, transfer to a plate and set aside, reserve the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1680047568106-x200.jpg)
 
 ### Step 7
 

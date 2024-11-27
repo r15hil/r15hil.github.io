@@ -22,6 +22,7 @@ The combination of aromatic tarragon with soft cheese and chicken makes for a de
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1600693202017-x200.jpg)
 
 ### Step 1
 
@@ -31,6 +32,7 @@ Boil a full kettle
 
 Pull the chicken skin off the chicken thighs and season the chicken skin generously with salt
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1600693208887-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Once hot, add the chicken skin and fry for 4-5 min or until golden and beginning
 
 Tip: Weigh the chicken skin down with a second, smaller pan to make it even crispier
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1600693219299-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Once the chicken skin is slightly crispy, add it to the tray with the chicken th
 
 Reserve the pan
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1600693230734-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Strip the tarragon leaves from their stems and chop them roughly, discard the st
 
 Return the pan to a medium-high heat with a drizzle of olive oil
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1600693244252-x200.jpg)
 
 ### Step 5
 
@@ -71,6 +76,7 @@ Cook the farfalle for 8-10 min or until cooked with a slight bite
 
 Once done, drain the pasta, reserving a cup of the starchy pasta water
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1600693266643-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Crumble in 1/2 <span class="text-danger">[1]</span> Knorr chicken stock cube wit
 
 Add half the grated Italian hard cheese and cook for 5-6 min or until the sauce has thickened slightly
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1600693274100-x200.jpg)
 
 ### Step 7
 

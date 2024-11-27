@@ -24,6 +24,7 @@ Shake up patatas bravas with our Japanese twist. First you'll season potatoes wi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1659891224721-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Boil half a kettle
 
 Cut the potatoes (skins on) into bite-sized cubes
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1659891228283-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil, the s
 
 Put the tray in the oven for 25-30 min or until the potatoes are golden and crispy – these are your crispy togarashi potatoes
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1659891230700-x200.jpg)
 
 ### Step 3
 
@@ -49,11 +52,13 @@ Peel (scrape the skin off with a teaspoon) and grate the ginger
 
 Trim, then slice the spring onion<span class="text-danger">[s]</span> finely
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1659891233758-x200.jpg)
 
 ### Step 4
 
 Dissolve the miso paste in 50ml <span class="text-danger">[100ml] </span>boiled water with 1 tsp <span class="text-danger">[2 tsp] </span>sugar and the rice vinegar – this is your miso stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1659891237426-x200.jpg)
 
 ### Step 5
 
@@ -61,6 +66,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, drain, then add the king prawns, chopped garlic and grated ginger and cook for 1 min or until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1659891241465-x200.jpg)
 
 ### Step 6
 
@@ -68,6 +74,7 @@ Once fragrant, add the miso stock
 
 Give everything a good mix up and bring to the boil over a high heat
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1659891246205-x200.jpg)
 
 ### Step 7
 

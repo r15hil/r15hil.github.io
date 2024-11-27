@@ -26,6 +26,7 @@ It's all about low carb, high flavour in this vibrant dish. Hit the spot with a 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1727955872135-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Add your ground smoked paprika, dried oregano and cayenne pepper (can't handle t
 
 Give it a good mix up – this is your Cajun-style spice mix
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1-1727955881073-x200.jpg)
 
 ### Step 2
 
 Add your free range chicken breast portion[s] to the Cajun-style spice mix and turn until fully coated in all the spices
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1-1727955891671-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Add a couple of splashes of water to the pan and cover with a lid
 
 Cook for a further 10-12 min or until the chicken is cooked through (no pink meat!)
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1727955934537-x200.jpg)
 
 ### Step 4
 
@@ -58,11 +62,13 @@ Meanwhile, wash your lettuce, then pat it dry with kitchen paper and roughly shr
 
 Drain your sweetcorn
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1727955946715-x200.jpg)
 
 ### Step 5
 
 Add your shredded red cabbage, shredded lettuce and drained sweetcorn to a bowl and set aside
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1727955955885-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Add the juice of the lime to a small bowl with your natural yoghurt and most of
 
 Add a generous pinch of salt and give everything a good mix up – this is your limey dressing
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1727955974110-x200.jpg)
 
 ### Step 7
 

@@ -28,6 +28,7 @@ Originally from Hong Kong, these noodles are colourful, light and packed with nu
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1724337399159-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1724337304005-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Trim, then chop your spring onion whites into batons and set the spring onion gr
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into thin strips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1724337307850-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once the pan is hot, add your ginger & garlic paste, spring onion batons, halv
 
 Add your soy sauce and curry powder and cook, covered, for 2 min or until the vegetables are starting to soften
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1724337310535-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Meanwhile, add your fine egg noodles to a large bowl, cover with boiled wate
 
 Set aside to soak for 4 min, or until softened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1724337313890-x200.jpg)
 
 ### Step 5
 
@@ -73,6 +78,7 @@ While the noodles are soaking, finely slice your red chilli[es]
 
 Slice the reserved spring onion greens finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1724337316792-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Once the vegetables have started to soften, drain your jumbo prawns, then add th
 
 Cook, covered, for 6-7 min further or until the vegetables are tender with a bite and the jumbo prawns are cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1724337320019-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ It's a return of the mac, but this time with Marmite! You’ll make a creamy be�
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2266.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Melt 15g <span class="text-danger">[30g]</span> butter in a pan over a medium he
 
 Once melted, add 15g <span class="text-danger">[30g]</span> flour and stir with a wooden spoon for 1-2 min or until a sandy paste forms – this is your roux
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2266.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Add the double cream, Dijon mustard and half the Marmite (save the rest for lat
 
 Season with a pinch of salt and pepper, stir it all together and remove the pan from the heat – this is your Marmite béchamel sauce
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2266.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Meanwhile, add the macaroni to a pot of boiled water with a large pinch of salt 
 
 Cook the macaroni for 7-8 min or until cooked with a slight bite
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2266.-step-4.1-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ In a separate bowl combine the remaining Marmite with 1 tbsp<span class="text-
 
 Tip: Whisk it together until fully combined!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2266.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the drained macaroni with the grated cheddar and give everything a good mi
 
 Transfer the mixture to an oven-proof dish
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2266.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Top with the cheesy breadcrumbs and Marmite drizzle
 
 Drizzle generously with olive oil and put the dish in the oven for 15-20 min or until golden and bubbling – this is your Marmite mac 'n' cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2266.-step-7-x200.jpg)
 
 ### Step 7
 

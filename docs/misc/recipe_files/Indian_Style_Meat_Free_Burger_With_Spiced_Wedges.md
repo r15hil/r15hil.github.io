@@ -24,6 +24,7 @@ Take plant-based burgers up a notch with this Indian-style twist. You'll infuse 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1598438000257-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the potato wedges to a baking tray (or two!) with a drizzle of vegetable oil
 
 Put the tray[s] in the oven for 25-30 min or until golden and crisp – these are your spiced wedges
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1598438009383-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Dice the cucumber
 
 Chop your coriander roughly, including the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1598438018836-x200.jpg)
 
 ### Step 3
 
@@ -53,11 +56,13 @@ Combine the chopped tomato, cucumber and coriander in a bowl with a pinch of sal
 
 Strip your mint leaves from their stems, discard the stems then chop the leaves roughly and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1598438024975-x200.jpg)
 
 ### Step 4
 
 Sprinkle your curry powder over your meat-free patty[ies] and pat it into both sides until evenly coated – this is your curried meat-free patty[ies]
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1598438055832-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Line a baking tray with baking paper
 
 Add the curried meat-free patty[ies] to one side of the tray and put in the oven for 10-12 min or until cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1598438068612-x200.jpg)
 
 ### Step 6
 
@@ -72,6 +78,7 @@ Add the chopped mint to a pestle & mortar with a pinch of salt
 
 Grind to a fine paste, then add your cultured coconut and your mango chutney – this is your mango raita
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1598438078887-x200.jpg)
 
 ### Step 7
 

@@ -24,6 +24,7 @@ Classic prawn cocktail just got Scandi chic. You’ll toss sizzling pan-fried pr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-2-1685028577084-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chopped potatoes to a baking tray with a drizzle of vegetable oil and a 
 
 Give everything a good mix up and put the tray in the oven for an initial 15-20 min or until beginning to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-2-1685028584302-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Once hot, drain your king prawns then add them to the pan and cook for 4-5 min o
 
 Once done, remove the pan from the heat and set aside to cool
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-2-1685028596431-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ While the prawns are cooking, peel and finely chop your shallot[s]
 
 Chop your dill finely, including the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-2-1685028605780-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Add a pinch of salt and pepper and stir it all together – this is your dill 
 
 Once the prawns have cooled, stir the cooked prawns through the dill sauce – this is your Scandinavian-style king prawn skagen
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-2-1685028612226-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Once the potatoes are beginning to crisp, remove the tray from the oven and add 
 
 Put the tray back in the oven for a final 5-7 min or until golden and crisp
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-2-1685028623278-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Meanwhile, wash your lettuce, then pat it dry with kitchen paper and roughly shr
 
 Slice your apple[s] finely, discard the core
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-2-1685028628688-x200.jpg)
 
 ### Step 7
 

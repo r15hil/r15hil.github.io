@@ -26,6 +26,7 @@ This chicken and lentil dish is full of the good stuff. You'll whip up a delicio
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1638978593273-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Preheat the oven to 220°C/ 200°C (fan)/ gas 7
 
 Drain and rinse your green lentils
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1638978602006-x200.jpg)
 
 ### Step 2
 
@@ -42,6 +44,7 @@ Blitz until smooth – this is your walnut pesto dressing
 
 Tip: If you don't have a food processor, chop everything very finely and mix!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1638978609446-x200.jpg)
 
 ### Step 3
 
@@ -49,6 +52,7 @@ Add your chicken breast portion[s] to a tin foil-lined baking tray with a drizzl
 
 Put the tray in the oven for an initial 8 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1638978614616-x200.jpg)
 
 ### Step 4
 
@@ -56,6 +60,7 @@ Trim, then chop your green beans in half
 
 Cut your cherry tomatoes in half
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1638978618316-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Return the tray to the oven for 7 min further
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1638978658915-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Return the tray to the oven for a final 3 min or until the walnuts are toasted a
 
 Tip: Watch them like a hawk so they don't burn!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1638978662528-x200.jpg)
 
 ### Step 7
 

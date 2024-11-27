@@ -19,6 +19,7 @@ Steak and sautéed potatoes... in 10 minutes?! Yes, you read that right. The tri
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2105.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary, and if you like your steak well-done, it may take you a little longer than 10 mins
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2105.-step-2.2-x200.jpg)
 
 ### Step 2
 
@@ -50,6 +52,7 @@ Heat a separate large, wide-based pan (preferably non-stick) with a drizzle of v
 
 Meanwhile, pat the rump steaks dry with kitchen paper, drizzle with vegetable oil and season all over with salt and pepper
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2105.-step-3.2-x200.jpg)
 
 ### Step 3
 
@@ -67,21 +70,25 @@ For rare, cook for 2 min max on each side
 
 Once the steaks are cooked, transfer them to a plate to rest
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2105.-step-4.2-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add the diced potatoes to the remaining pan (with the oil) with a generous pinch of salt and pepper and cook for 6-8 min or until golden all over – these are your sautéed potatoes
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2105.-step-5-x200.jpg)
 
 ### Step 5
 
 Meanwhile, strip the tarragon leaves from the stalks and chop finely
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2105.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the chopped tarragon to a bowl with the mayonnaise, a drizzle of olive oil, 1 tsp <span class="text-danger">[2 tsp]</span> water and a pinch of salt and give everything a good mix up – this is your tarragon mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2105.-step-7-x200.jpg)
 
 ### Step 7
 

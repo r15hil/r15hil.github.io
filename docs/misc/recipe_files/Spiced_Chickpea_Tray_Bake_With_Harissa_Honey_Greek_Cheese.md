@@ -29,6 +29,7 @@ Loaded with rich, warming spices and hearty vegetables, this easy tray bake is t
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1648546612291-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Peel and chop your red onion[s] into wedges
 
 Deseed your pepper[s] (scrape the seeds and pith out with a teaspoon) and cut into strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1648546616470-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Add the onion wedges and pepper strips to a large, deep baking tray (or two!) al
 
 Give everything a good mix up and put the tray[s] in the oven for an initial 10 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1648546617445-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Combine your honey with half of your harissa paste (can't handle the heat? Go ea
 
 Add your Greek cheese (keep it whole!) to the bowl and carefully coat in the harissa-honey marinade
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1648546619832-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Drain and rinse your chickpeas
 
 Dissolve your tomato paste, vegetable stock mix and remaining harissa paste (not a fan of spice? Just add a little!) in 175ml <span class="text-purple">[230ml]</span> <span class="text-danger">[300ml] </span>boiled water – this is your tomato stock
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1648546624743-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Add the drained chickpeas
 
 Give everything a good mix up and make a space in the middle of the tray[s]
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1648546626298-x200.jpg)
 
 ### Step 6
 
@@ -77,6 +83,7 @@ Add the harissa-honey Greek cheese to the space in the tray[s], along with any r
 
 Return the tray[s] to the oven for a further 20-25 min, or until the vegetables are cooked through and the Greek cheese is soft – this is your spiced chickpea tray bake with harissa-honey Greek cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1648546628532-x200.jpg)
 
 ### Step 7
 

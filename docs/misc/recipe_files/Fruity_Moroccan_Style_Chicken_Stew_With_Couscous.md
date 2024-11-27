@@ -28,6 +28,7 @@ This hearty Moroccan-style stew is a firm favourite of ours. Enjoy the rich flav
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1622807465522-x200.jpg)
 
 ### Step 1
 
@@ -41,6 +42,7 @@ Take your chicken out of the fridge, open the packet and let it air
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1699.-step-2.n-x200.jpg)
 
 ### Step 2
 
@@ -52,16 +54,19 @@ Roughly chop your tomato[es]
 
 Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1699.-step-3.n-x200.jpg)
 
 ### Step 3
 
 Once hot, add your diced chicken breast to the pan with your ras el hanout and cook for 4 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Vegetable-stock-1643708180178-x200.jpg)
 
 ### Step 4
 
 While the chicken is cooking, dissolve your vegetable stock mix in 200ml<span class="text-danger"> <span class="text-purple">[300ml] </span>[400ml]</span> boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1643708264120-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add your couscous to a heatproof bowl and pour over the vegetable stock
 
 Cover with a tea towel and set aside to soften until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1643708270360-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Meanwhile, add your roasted garlic paste to the pan with your finely chopped tom
 
 Bring to the boil and cook for a further 6-8 min or until the chicken is cooked through (no pink meat!) – this is your fruity Moroccan-style chicken stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1699.-step-7.n-x200.jpg)
 
 ### Step 7
 

@@ -22,6 +22,7 @@ Throw this creamy goats’ cheese, mushroom and spinach pasta together in a flas
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1658828397571-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1841.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Add the pumpkin seeds to a baking tray and put the tray in the oven for 4-5 min 
 
 Tip: Watch them like a hawk to make sure they don't burn!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1841.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Heat a large, wide-based pan (preferably non-stick) with a knob of butter ove
 
 Once hot, roughly crumble the chestnut mushrooms into the pan, add the roasted garlic paste and cook for 2 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1841.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Cook the spaghetti for 3-4 min or until cooked with a slight bite
 
 Once done, drain the cooked spaghetti, reserving a cup of the starchy pasta water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1841.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Add the vegetable stock to the pan and bring to the boil over a high heat
 
 Reduce the heat to medium, then add the Chinese rice wine, crème fraîche and half of the goats' cheese (you will use the rest for garnish!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1841.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the spinach and cook for 1 min, or until wilted
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1841.-step-7-x200.jpg)
 
 ### Step 7
 

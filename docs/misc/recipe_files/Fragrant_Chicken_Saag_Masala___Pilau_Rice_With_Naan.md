@@ -27,6 +27,7 @@ Saag masala is a spinach-based curry, flavoured with garam masala, ground fenugr
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1598385566294-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid) with a d
 
 Once hot, add the sliced onion and cook for 5 min or until softened
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1598385575655-x200.jpg)
 
 ### Step 2
 
@@ -51,6 +53,7 @@ Squeeze the water out of the cooled spinach (use clean hands for ease) then chop
 
 Re-boil the kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1599121348017-x200.jpg)
 
 ### Step 3
 
@@ -58,6 +61,7 @@ Add the sliced garlic, ground fenugreek, garam masala and chilli flakes (can't 
 
 Add the chicken breast fillets to the pan and cook for 4-5 min, turning once until they're evenly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1599121356484-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ While the chicken is browning, dissolve the  Knorr chicken stock cube<span clas
 
 Add the chicken & tomato stock and chopped spinach to the pan, reduce the heat to medium-low & cook, covered, for 15-20 min or until the chicken is cooked through (no pink meat!) and the sauce has thickened
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1598385627913-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Melt a knob of butter in a pot with a matching lid over a medium heat
 
 Once melted, add the split cardamom pods and star anise to the pot and cook for 1 min until fragrant
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1598385637778-x200.jpg)
 
 ### Step 6
 
@@ -83,6 +89,7 @@ Once boiling, reduce the heat to very low and cook, covered, for 10-15 min or un
 
 Once cooked, remove from the heat and keep covered until serving – this is your pilau rice
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1598385645745-x200.jpg)
 
 ### Step 7
 

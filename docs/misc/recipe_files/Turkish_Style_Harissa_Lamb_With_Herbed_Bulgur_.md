@@ -25,6 +25,7 @@ Combining lamb with fiery harissa, tangy sumac and sweet cherry tomatoes, this s
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/471_step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Heat a large, dry, wide-based pan (preferably non-stick) over a high heat
 
 Once hot, add your lamb mince and a generous pinch of salt and cook for 5 min or until beginning to brown, breaking it up with a wooden spoon as you go
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/471_step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Peel and finely chop (or grate) your garlic
 
 Slice your cherry tomatoes in half
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/471_step-3-x200.jpg)
 
 ### Step 3
 
@@ -50,11 +53,13 @@ Bring to the boil over a high heat and cook for 7-9 min or until tender with a s
 
 Once cooked, drain and return to the pot
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/471_step-4-x200.jpg)
 
 ### Step 4
 
 Meanwhile, add the halved cherry tomatoes to the browned mince, reduce the heat to medium and cook for 3 min or until they're starting to soften and break down
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/471_step-5-x200.jpg)
 
 ### Step 5
 
@@ -64,6 +69,7 @@ Tip: Use less garlic if you're not a fan of raw garlic
 
 Mix well and set aside until serving – this is your garlic yoghurt
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/471_step-6-x200.jpg)
 
 ### Step 6
 
@@ -71,6 +77,7 @@ Combine your harissa paste (can't handle the heat? Go easy!) with 2 tbsp <span c
 
 Add the harissa mixture to the pan and cook for a further 3 min or until most of the liquid has evaporated and the lamb is cooked through (no pink meat!) – this is your Turkish-style harissa lamb & tomatoes
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/471_step-7-x200.jpg)
 
 ### Step 7
 

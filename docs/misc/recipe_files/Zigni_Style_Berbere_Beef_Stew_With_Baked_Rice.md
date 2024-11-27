@@ -26,6 +26,7 @@ Prep this beefy berbere stew in 5. You’ll simmer succulent beef chuck with sha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1694443457981-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1694443461028-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Boil half a kettle
 
 Heat a large, wide-based, hob-safe oven-proof casserole dish with a matching lid with a drizzle of vegetable oil over a high heat
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1694443465739-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Once hot, add your diced beef to the dish with a generous pinch of salt
 
 Cook for 2 min or until lightly browned
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1694443469752-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Crush your garlic open by squashing them with the side of a knife and discard th
 
 Cut your ginger in half (no need to peel!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1694443474471-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Add the halved shallot, pepper strips, halved ginger and crushed garlic to the d
 
 Add 450ml <span class="text-purple">[600ml]</span> <span class="text-danger">[750ml] </span>boiled water with the beef stock mix and 1/2 tsp <span class="text-purple">[3/4 tsp]</span> <span class="text-danger">[1 tsp]</span> sugar and bring to the boil over a high heat
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1694443478252-x200.jpg)
 
 ### Step 6
 
 Once boiling, cover with the lid and put the dish in the oven for 1 hour or until the sauce is rich and the beef is tender – this is your zigni-style berbere beef stew
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1694443482101-x200.jpg)
 
 ### Step 7
 

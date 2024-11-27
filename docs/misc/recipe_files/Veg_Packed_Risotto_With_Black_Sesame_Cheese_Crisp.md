@@ -29,6 +29,7 @@ Put the green juice down, there’s a new veg-packed delight in town. You'll tos
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1692284378467-x200.jpg)
 
 ### Step 1
 
@@ -42,6 +43,7 @@ Peel and finely chop (or grate) your garlic
 
 Cut your lemon[s] in half
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1692284380566-x200.jpg)
 
 ### Step 2
 
@@ -49,6 +51,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped onion and half the chopped garlic (you'll use the rest later!) with a pinch of salt and cook for 3-4 min or until beginning to soften
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1692284383223-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Add the vegetable stock a ladle at a time, stirring continuously for 25-30 min o
 
 Reboil a kettle
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1692284387227-x200.jpg)
 
 ### Step 4
 
@@ -71,6 +75,7 @@ Wash your spinach then add to a colander
 
 Once tender, drain the broccoli over the spinach so that it starts to wilt – this is your cooked spinach & broccoli
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1692284390646-x200.jpg)
 
 ### Step 5
 
@@ -80,6 +85,7 @@ Add 2 tbsp <span class="text-purple">[3 tbsp]</span><span class="text-danger"> [
 
 Tip: Add a splash of water if it's looking a little dry!
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1692284393905-x200.jpg)
 
 ### Step 6
 
@@ -91,6 +97,7 @@ Put the tray in the oven for 4-5 min or until golden
 
 Once golden, set aside to cool – this is your black sesame cheese crisp
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1692284397963-x200.jpg)
 
 ### Step 7
 

@@ -30,6 +30,7 @@ Let the oven do the hard work with this creamy, fragrant dal. You'll simmer lent
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin10mm-Step-1-1729085139298-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ This recipe takes around 5-10 min to prep, so get your casserole dish and all yo
 
 Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1713263547652-x200.jpg)
 
 ### Step 2
 
@@ -52,6 +54,7 @@ Peel and chop your brown onion[s] into thin wedges
 
 Once hot, add the onion wedges to the dish and cook for 2-3 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1713263551063-x200.jpg)
 
 ### Step 3
 
@@ -63,6 +66,7 @@ Cut your lime[s] into 2 wedges per person
 
 Drain and rinse your green lentils and red lentils together under cold running water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1713263553772-x200.jpg)
 
 ### Step 4
 
@@ -72,6 +76,7 @@ Add the coconut stock and and give everything a good mix up
 
 Bring to the boil over a high heat, cover with a lid, then put the dish in the oven for 30-35 min or until the squash and lentils are tender
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1713263557685-x200.jpg)
 
 ### Step 5
 
@@ -81,11 +86,13 @@ Add your white long grain rice to an oven-proof dish with the crushed cardamom p
 
 Cover tightly with tin foil and put the dish in the oven for 30 min or until all the water is absorbed and the rice is cooked – this is your cardamom rice
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1713263561715-x200.jpg)
 
 ### Step 6
 
 Use this time to clear up, set the table, have a cup of tea or simply chill!
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1713263565629-x200.jpg)
 
 ### Step 7
 

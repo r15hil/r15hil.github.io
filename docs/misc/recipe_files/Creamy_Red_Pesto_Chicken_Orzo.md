@@ -25,6 +25,7 @@ Swap your go-to pasta for orzo with this speedy dinner. You’ll pan-fry sweet R
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1-1623402220628-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 mins)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1584987711690-x200.jpg)
 
 ### Step 2
 
@@ -47,6 +49,7 @@ Heat a large, wide-based pan (preferably non-stick with a matching lid), with a 
 
 Meanwhile, deseed your sweet pointed pepper[s] (scrape the seeds and pith out with a teaspoon) and slice into rings, discarding the stalks
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1584987715529-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add your diced chicken breast and sliced pepper to the pan with a pinc
 
 Dissolve your chicken stock mix in 150ml <span class="text-purple">[200ml]</span> <span class="text-danger">[250ml]</span> boiled water and set aside
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1728053512703-x200.jpg)
 
 ### Step 4
 
@@ -63,6 +67,7 @@ Cook the orzo for 6-8 min or until cooked with a slight bite
 
 Once done, drain the orzo
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1728053516062-x200.jpg)
 
 ### Step 5
 
@@ -72,11 +77,13 @@ Season with a generous grind of pepper and cook for 6-8 min further or until t
 
 Note: Please make sure you cook your chicken thoroughly (until piping hot!) as cooking equipment varies
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1728053332522-x200.jpg)
 
 ### Step 6
 
 Meanwhile, grate your cheddar cheese
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1728053520838-x200.jpg)
 
 ### Step 7
 

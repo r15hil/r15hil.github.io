@@ -24,6 +24,7 @@ This saucy, cheesy sandwich is the ultimate chicken delight. You'll smother chic
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1596537977649-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Peel and finely chop (or grate) the garlic
 
 Combine the tomato paste, chopped garlic and dried oregano with 2 tbsp <span class="text-danger">[4 tbsp]</span> water and a pinch of salt and pepper – this is your tomato sauce
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1596537997081-x200.jpg)
 
 ### Step 2
 
@@ -40,6 +42,7 @@ Grate the cheddar cheese
 
 Drain and pat the mozzarella dry with kitchen paper and tear into rough, bite-sized pieces
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1596538008546-x200.jpg)
 
 ### Step 3
 
@@ -49,11 +52,13 @@ Add the fries to a baking tray with a drizzle of vegetable oil, a pinch of salt 
 
 Give everything a good mix up and put the tray in the oven for 30-35 min or until golden and crisp
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1596538021366-x200.jpg)
 
 ### Step 4
 
 Whilst the fries are cooking, place the chicken breasts onto a separate baking tray (use tin foil to avoid mess!)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1596538057320-x200.jpg)
 
 ### Step 5
 
@@ -65,6 +70,7 @@ Dollop the remaining tomato sauce over the top
 
 Put the tray in the oven for 20-25 min or until the chicken is cooked through (no pink meat!) and all of the cheese has melted – this is your chicken parmigiana
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1596538065915-x200.jpg)
 
 ### Step 6
 
@@ -74,6 +80,7 @@ Tip: Don't have a pestle & mortar? Pulse in a food processor instead!
 
 Stir the mayo through the basil paste – this is your basil mayo
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1596538096676-x200.jpg)
 
 ### Step 7
 

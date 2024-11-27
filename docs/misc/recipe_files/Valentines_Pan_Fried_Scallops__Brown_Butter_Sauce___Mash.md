@@ -21,6 +21,7 @@ Sizzle your king scallops until golden before making a rich brown butter sauce w
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1991.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a kettle
 
 Peel and chop the potatoes into bite-sized pieces
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1991.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once done, drain and return to the pot to steam dry
 
 Re-boil a kettle
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1991.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Chop the cooled hazelnuts roughly
 
 Pat the king scallops dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1991.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -65,6 +69,7 @@ Flip the scallops and cook for 1 min further or until cooked through
 
 Tip: Your scallops are cooked when they turn opaque
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1991.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -74,6 +79,7 @@ Stir through the clotted cream and season generously with salt
 
 Keep covered until serving
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1991.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -85,6 +91,7 @@ Add the trimmed asparagus spears to a separate pot of boiled water (just enough 
 
 Once done, drain and return to the pan
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1991.-step-7-x200.jpg)
 
 ### Step 7
 

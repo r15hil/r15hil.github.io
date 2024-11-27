@@ -24,6 +24,7 @@ For this speedy twist on the tasty taverna classic, you’ll toss chunky Greek v
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1623680316237-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1623680330206-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Dissolve the vegetable stock mix in 130ml <span class="text-danger">[260ml]</sp
 
 Add the couscous to a heatproof bowl with the vegetable stock, cover and set aside
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1623680491138-x200.jpg)
 
 ### Step 3
 
@@ -55,6 +58,7 @@ Cut the lemon<span class="text-danger">[s]</span> in half
 
 Trim the green stalks off the aubergine<span class="text-danger">[s]</span> and cut lengthways then dice into bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1623680498573-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Meanwhile, heat a large, wide-based pan (preferably non-stick) with 1/2 tbsp <s
 
 Once hot, add the diced aubergine to the pan and cook for 4-5 min until starting to brown
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1623680355735-x200.jpg)
 
 ### Step 5
 
@@ -71,11 +76,13 @@ Chop the baby plum tomatoes in half
 
 Roughly chop the black olives
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1623680511010-x200.jpg)
 
 ### Step 6
 
 Once the aubergine is browned, reduce the heat to medium and add the dried oregano, garlic paste and juice of 1/2 <span class="text-danger">[1]</span> lemon and cook for 2-3 min or until the aubergine is cooked through and softened – this is your Greek-style aubergine
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1623680548922-x200.jpg)
 
 ### Step 7
 

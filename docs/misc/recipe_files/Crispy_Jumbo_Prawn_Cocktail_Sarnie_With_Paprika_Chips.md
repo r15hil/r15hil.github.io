@@ -27,6 +27,7 @@ Take your taste buds to flavours of Christmas past with this juicy prawn cocktai
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-1725272537908-x200.jpg)
 
 ### Step 1
 
@@ -36,6 +37,7 @@ Drain your jumbo prawns, then add them to a bowl with half of your Henderson's R
 
 Set aside for later
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-1725272560762-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Add the chips to a baking paper-lined baking tray (or two!) with a drizzle of ve
 
 Give everything a good mix up and put the tray[s] in the oven for 20-25 min or until golden and crisp – these are your smoky paprika chips
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-copy-1725272575695-x200.jpg)
 
 ### Step 3
 
 Combine the remaining Henderson's Relish, ketchup and half of your mayo (save the rest for later!) in a bowl – this is your Marie Rose sauce
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-copy-1725272602088-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Cut your avocado[s] in half lengthways, around the stone[s] and remove the stone
 
 Scoop the avocado flesh and mash with a fork
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-copy-1725272718420-x200.jpg)
 
 ### Step 5
 
 Add the remaining mayo, roasted garlic paste and chopped chives to a separate bowl with 1 tbsp <span class="text-purple">[1 1/2 tbsp] </span><span class="text-danger">[2 tbsp]</span> olive oil – this is your roasted garlic & chive mayo
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-copy-1725272728506-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add your cornflour to the drained prawns with a generous grind of pepper
 
 Give it a good mix up until the prawns are fully coated – these are your floured prawns
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-copy-1725272735944-x200.jpg)
 
 ### Step 7
 

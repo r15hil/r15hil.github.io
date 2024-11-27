@@ -22,6 +22,7 @@ Fiery, fragrant and ready in a flash. The Calabrian sausage 'Nduja is the star o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Admin-10mm-Step-1-1732013641243-x200.jpg)
 
 ### Step 1
 
@@ -33,6 +34,7 @@ Skim through these steps, then wash your fruit and veg
 
 Note: Equipment and pan sizes vary. Make sure you cook food thoroughly (even if it takes you a little longer than 10 min)
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1694182478254-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Chop your cherry tomatoes in half
 
 Once hot, add the halved cherry tomatoes to the pan with a pinch of salt and cook for 2 min
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1694182484163-x200.jpg)
 
 ### Step 3
 
@@ -53,6 +56,7 @@ Cook the orecchiette for 4-6 min or until cooked with a slight bite
 
 Once done, drain the orecchiette, reserving a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1694182490044-x200.jpg)
 
 ### Step 4
 
@@ -60,16 +64,19 @@ Meanwhile, peel and slice (don't chop!) your garlic
 
 Dissolve your chicken stock mix in 75ml <span class="text-purple">[100ml]</span> <span class="text-danger">[130ml</span>] boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1694182498470-x200.jpg)
 
 ### Step 5
 
 Add the sliced garlic and your 'Nduja (can't handle the heat? Go easy!) to the pan with the tomatoes and cook for 3-4 min, breaking up the 'Nduja with a wooden spoon as you go
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1694182512961-x200.jpg)
 
 ### Step 6
 
 Tear half of your basil leaves (save the rest for garnish!) into the pan along with the chicken stock and give everything a good mix up – this is your 'Nduja & cherry tomato sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1694182527296-x200.jpg)
 
 ### Step 7
 

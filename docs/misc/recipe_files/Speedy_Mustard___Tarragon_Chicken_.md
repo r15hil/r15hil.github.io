@@ -21,6 +21,7 @@ This super quick French-inspired dish combines diced chicken and caramelised sha
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/516-1-x200.jpg)
 
 ### Step 1
 
@@ -35,11 +36,13 @@ Add them to a pot (with a matching lid) of boiled water with a pinch of salt ove
 
 Cook uncovered for 7-9 min or until fork-tender, then drain, return them to the pot and cover to keep warm until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/516-2-x200.jpg)
 
 ### Step 2
 
 Meanwhile, peel and quarter the shallots
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/516-3-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ Once hot, add the shallots with a pinch of salt and cook for 3 min or until star
 
 Meanwhile, peel and finely chop (or grate) the garlic
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/516-4-x200.jpg)
 
 ### Step 4
 
@@ -59,6 +63,7 @@ Add the diced chicken to a bowl with 1 tbsp <span class="text-danger">[2 tbsp]</
 
 Dissolve the stock cube<span class="text-danger">[s]</span>&nbsp;in 200ml <span class="text-danger">[350ml]</span>&nbsp;boiled water
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/516-5-x200.jpg)
 
 ### Step 5
 
@@ -67,6 +72,7 @@ Add the floured&nbsp;chicken and garlic to the shallots and cook for 3 min or un
 
 Meanwhile, chop the tarragon finely, including the stalks
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/516-6-x200.jpg)
 
 ### Step 6
 
@@ -75,6 +81,7 @@ Add the stock and half the tarragon to the pan
 
 Reduce the heat to medium-low, cover with a lid and cook for a further 5 min or until the chicken is cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/516-7-x200.jpg)
 
 ### Step 7
 

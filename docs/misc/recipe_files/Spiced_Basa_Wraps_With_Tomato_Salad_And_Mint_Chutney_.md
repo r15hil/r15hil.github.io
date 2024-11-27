@@ -28,6 +28,7 @@ For an Indian-inspired twist on your favourite wrap, try these soft tortillas st
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1601313066464-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Cut your basa fillet[s] into bite-sized pieces and add to a bowl with your curry
 
 Give everything a good mix up so that the fish is fully coated in the spices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1601313081610-x200.jpg)
 
 ### Step 2
 
@@ -44,6 +46,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add 3/4 of the sliced onion (save the rest for later!) with a pinch of salt and cook for 10-12 min or until softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1601313090991-x200.jpg)
 
 ### Step 3
 
@@ -51,6 +54,7 @@ While the onion is cooking, chop your coriander finely, including the stalks
 
 Strip your mint leaves from their stalks and chop them finely, discard the stalks
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1601313096546-x200.jpg)
 
 ### Step 4
 
@@ -60,6 +64,7 @@ Then add your mayo and a drizzle of olive oil – this is your mint chutney
 
 Tip: If you don't have a pestle & mortar, chop everything very finely!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1601313106622-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add the diced tomato to a bowl with your nigella seeds, remaining sliced onion a
 
 Season with a pinch of salt and give everything a good mix up – this is your tomato salad
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1601313116602-x200.jpg)
 
 ### Step 6
 
@@ -82,6 +88,7 @@ Squeeze in the juice of the remaining lemon[s] and mix to combine – this is yo
 
 Wash the spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1601313125215-x200.jpg)
 
 ### Step 7
 

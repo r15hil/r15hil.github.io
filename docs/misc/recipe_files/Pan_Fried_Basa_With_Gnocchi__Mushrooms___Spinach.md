@@ -23,6 +23,7 @@ For a comforting dinner, you'll first cook soft, pillowy gnocchi in a creamy spi
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1856.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Peel and finely chop (or grate) your garlic
 
 Slice your chestnut mushrooms finely
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1856.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -41,6 +43,7 @@ Once hot, add the sliced mushrooms and chopped garlic and reduce the heat to me
 
 Cook for 3 min or until the mushrooms have softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1856.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -48,6 +51,7 @@ Meanwhile, dissolve your vegetable stock mix in 200ml<span class="text-purple"> 
 
 Add your soft cheese and give everything a good mix up – this is your creamy vegetable stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1856.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -55,11 +59,13 @@ Add the creamy vegetable stock and gnocchi to the pot with the softened mushroo
 
 Once boiling, reduce the heat to medium and cook for 7-8 min, or until the liquid has started to thicken and the gnocchi is cooked through
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1856.-step-5-x200.jpg)
 
 ### Step 5
 
 While the gnocchi is cooking, pat your basa fillet[s] dry with kitchen paper and season with salt and pepper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1856.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Once melted, add the basa and cook for 3-4 min on each side, or until browned a
 
 Tip: Your fish is cooked when it turns opaque and flakes easily
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1856.-step-7-x200.jpg)
 
 ### Step 7
 

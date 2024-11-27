@@ -29,6 +29,7 @@ This chilli needs only basic prep before going into the oven! You'll bake chicke
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-copy-4-1690284035696-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Add your ground cumin, ground smoked paprika and chilli flakes (can't handle the
 
 Add your chicken breast portion[s] to the plate and turn them several times until evenly coated in all the spices
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-copy-3-1690284039595-x200.jpg)
 
 ### Step 2
 
@@ -45,11 +47,13 @@ Heat a large, wide-based pan (preferably non-stick) with a generous drizzle of v
 
 Once hot, add the coated chicken and any remaining spices and cook for 3 min on each side until browned
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-copy-3-1690284102337-x200.jpg)
 
 ### Step 3
 
 Meanwhile, dissolve your<span class="text-danger"> </span>chicken stock mix and tomato paste in 200ml<span class="text-danger"> <span class="text-purple">[280ml] </span>[375ml]</span> boiled water – this is your tomato stock
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-copy-3-1690284110817-x200.jpg)
 
 ### Step 4
 
@@ -57,11 +61,13 @@ Drain and rinse your red kidney beans
 
 Strip your coriander leaves from their stalks and set aside for garnish (discard the stalks)
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-copy-3-1690284116413-x200.jpg)
 
 ### Step 5
 
 Add the drained kidney beans, tomato stock and browned chicken to an oven-proof dish and put the dish in the oven for 25-35 min or until the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-copy-3-1690284077576-x200.jpg)
 
 ### Step 6
 
@@ -69,6 +75,7 @@ Once the chicken is cooked, fold your tortillas in half and add them to a baki
 
 Put the tray[s] in the oven for 3-4 min or until warmed through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-copy-2-1690284129478-x200.jpg)
 
 ### Step 7
 

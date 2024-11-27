@@ -27,6 +27,7 @@ Moussaka is creamy, luxurious and a true Mediterranean classic. You'll layer roa
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2391-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -38,6 +39,7 @@ Slice your potatoes (skins on) into discs and trim the green stalk[s] off your a
 
 Add the sliced potato and aubergine rounds to a baking tray (or two!) with a drizzle of olive oil and a pinch of salt and put the tray[s] in the oven for 10-15 min or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2391-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Peel and finely dice your red onion[s]
 
 Peel and finely chop (or grate) your garlic
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2391-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -54,6 +57,7 @@ Once hot, add the diced red onion and cook for 3 min or until softened
 
 Meanwhile, dissolve your vegetable stock mix in 150ml <span class="text-purple">[175ml]</span><span class="text-danger"> [200ml]</span> boiled water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2391-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,6 +65,7 @@ Add the chopped garlic, beluga lentils and your ground cinnamon and cook for 1 
 
 Add your chopped tomatoes, vegetable stock, bay leaf[ves], dried oregano and a pinch of salt and pepper and cook over a high heat for 3 min or until reduced – this is your lentil ragù
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2391-Step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Chop your parsley finely, including the stalks
 
 Wash your baby leaf salad, then pat it dry with kitchen paper
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2391-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -81,6 +87,7 @@ Gradually whisk 250ml <span class="text-purple">[375ml]</span> <span class="text
 
 Add the grated cheese and a pinch of salt – this is your cheese sauce
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2391-Step-7-x200.jpg)
 
 ### Step 7
 

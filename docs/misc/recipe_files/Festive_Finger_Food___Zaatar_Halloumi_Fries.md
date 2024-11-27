@@ -26,6 +26,7 @@ Our finger food is perfect for adding the wow-factor to your festive celebration
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1861.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -40,6 +41,7 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, des
 
 Peel and finely chop (or grate) the garlic
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1861.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Chop the coriander roughly, including stalks
 
 Strip the mint leaves from their stems and chop them roughly
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1861.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -56,6 +59,7 @@ Chop all the vegetables and herbs together (Don't use all the chilli if you can'
 
 Transfer the mixture to a bowl, add 1 tbsp <span class="text-danger">[2 tbsp]</span> olive oil with the chilli jam and season generously with salt and pepper and give everything a good mix up – this is your tomato-chilli salsa
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1861.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -64,6 +68,7 @@ Transfer the mixture to a bowl, add 1 tbsp <span class="text-danger">[2 tbsp]
 
 Then slice each strip i<span class="text-highlight">n half</span> so you are left with 12 <span class="text-danger">[24]</span> equally shaped halloumi strips
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1861.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -72,6 +77,7 @@ Add the sesame seeds, ground cumin, dried thyme, sumac and <span class="text-h
 
 Grind into a coarse powder – this is your za'atar
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1861.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -80,6 +86,7 @@ Combine the cornflour and za'atar on a plate
 
 Add the halloumi strips and roll until fully coated in the flour
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1861.-step-7-x200.jpg)
 
 ### Step 7
 

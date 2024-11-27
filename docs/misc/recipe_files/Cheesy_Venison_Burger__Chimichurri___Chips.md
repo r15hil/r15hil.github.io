@@ -23,6 +23,7 @@ These rich and juicy venison and pork burgers are slightly sweet, pairing perfec
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2205-Step-1-x200.jpg)
 
 ### Step 1
 
@@ -34,6 +35,7 @@ Add the chips to a baking tray with a generous drizzle of vegetable oil, a pinc
 
 Give everything a good mix up and put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2205-Step-2-x200.jpg)
 
 ### Step 2
 
@@ -45,6 +47,7 @@ Cut the red chilli<span class="text-danger">[es]</span> in half lengthways, dese
 
 Peel and finely chop the shallot<span class="text-danger">[s]</span>
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2205-Step-3-x200.jpg)
 
 ### Step 3
 
@@ -52,6 +55,7 @@ Line a baking tray with non-stick baking paper and add the venison & pork burger
 
 Put the tray in the oven for an initial 15 min
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2205-Step-4-x200.jpg)
 
 ### Step 4
 
@@ -61,11 +65,13 @@ Grind to a paste, then stir through the chopped shallot, chopped chilli (can't h
 
 Tip: Alternatively blitz it all together in a food processor!
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2205-Step-5-x200.jpg)
 
 ### Step 5
 
 Grate the cheddar cheese
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2205-Step-6-x200.jpg)
 
 ### Step 6
 
@@ -73,6 +79,7 @@ Remove 2 <span class="text-danger">[4]</span> outer leaves from the little gem l
 
 Chop the remaining little gem lettuce<span class="text-danger">[s]</span> into quarters, lengthways
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/2205-Step-7-x200.jpg)
 
 ### Step 7
 

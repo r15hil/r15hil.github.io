@@ -23,6 +23,7 @@ Everything's ready to go, so start by sizzling chicken and sun-dried tomatoes, b
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1614341107721-x200.jpg)
 
 ### Step 1
 
@@ -32,16 +33,19 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the diced chicken breast, cherry tomatoes and sun-dried tomatoes with a pinch of salt and cook for 4 min until the chicken has started to brown
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1-1614341136480-x200.jpg)
 
 ### Step 2
 
 Meanwhile, add the broccoli brown rice to a large, heatproof bowl and put the bowl in the microwave for 2-3 min or until piping hot
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1614341173147-x200.jpg)
 
 ### Step 3
 
 Once the chicken has started to brown, add the pesto, soft cheese and 60ml <span class="text-danger">[120ml] </span>boiled water and cook for 3 min further
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1614341225043-x200.jpg)
 
 ### Step 4
 

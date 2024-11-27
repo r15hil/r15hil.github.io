@@ -26,6 +26,7 @@ Sweet-savoury glazed bacon is the perfect partner for roasted asparagus in this 
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1657004730504-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the chopped bacon and cook for 4-5 min or until starting to crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1657004733832-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Once the bacon is starting to crisp, reduce the heat to medium and add the chopp
 
 Cook for 4 min or until the onion has softened
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1657004737221-x200.jpg)
 
 ### Step 3
 
@@ -57,6 +60,7 @@ Once the onion has softened, add your arborio rice and chopped garlic and cook f
 
 Add the stock a ladle at a time, stirring continuously for 25-30 min or until all of the stock is absorbed and the rice is cooked
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1657004740575-x200.jpg)
 
 ### Step 4
 
@@ -66,6 +70,7 @@ Add the remaining bacon to the tray and drizzle over half your balsamic vinegar 
 
 Give everything a good mix up until the bacon is well coated
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1657004744461-x200.jpg)
 
 ### Step 5
 
@@ -75,6 +80,7 @@ Chop the asparagus into bite-sized pieces and add it to the tray with the bacon 
 
 When the risotto has 10 min remaining, put the tray in the oven and cook for 8-10 min or until the bacon is crispy and the asparagus is tender – this is your balsamic glazed bacon & roasted asparagus
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1657004747207-x200.jpg)
 
 ### Step 6
 
@@ -84,6 +90,7 @@ Wash your salad and pat dry with kitchen paper
 
 Combine the salad and chopped tomato in a bowl with the remaining balsamic vinegar and a drizzle of olive oil – this is your salad
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1657004751016-x200.jpg)
 
 ### Step 7
 

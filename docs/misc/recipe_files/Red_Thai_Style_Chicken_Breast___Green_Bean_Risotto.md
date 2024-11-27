@@ -28,6 +28,7 @@ We've taken risotto, and combined it with a creamy Thai-style curry. Inspired, o
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1681834802908-x200.jpg)
 
 ### Step 1
 
@@ -39,6 +40,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of vegetable 
 
 Once hot, add the seasoned diced chicken breast and cook for 2-3 min on each side or until golden
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1681834807588-x200.jpg)
 
 ### Step 2
 
@@ -48,6 +50,7 @@ Peel (scrape the skin off with a teaspoon) and finely chop (or grate)your ginger
 
 Roughly chop your tomato[es]
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1681834852964-x200.jpg)
 
 ### Step 3
 
@@ -59,6 +62,7 @@ Once hot, add the sliced shallot and chopped ginger to the pan with a pinch of s
 
 Once softened, add the chopped tomato and cook for a further 2-3 min or until the tomato has broken down
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1681834863437-x200.jpg)
 
 ### Step 4
 
@@ -68,6 +72,7 @@ Dissolve your chicken stock mix and chopped creamed coconut in 700ml <span class
 
 Trim, then chop your green beans into bite-sized pieces
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1681834866359-x200.jpg)
 
 ### Step 5
 
@@ -75,11 +80,13 @@ Once the tomato has broken down, add your arborio rice with half your chilli fla
 
 Add 2/3 of the red Thai stock a ladle at a time, stirring continuously for an initial 20 min or until the rice is almost cooked
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1681834871440-x200.jpg)
 
 ### Step 6
 
 While the risotto is cooking, wash your spinach, then pat it dry with kitchen paper
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1681834875732-x200.jpg)
 
 ### Step 7
 

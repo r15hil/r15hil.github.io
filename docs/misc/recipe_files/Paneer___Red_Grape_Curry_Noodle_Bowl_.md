@@ -21,6 +21,7 @@ As part of our Savour the Summer campaign, we present this Thai-inspired red noo
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/594.-step-2-x200.jpg)
 
 ### Step 1
 
@@ -32,6 +33,7 @@ Heat a large, wide-based pan (preferably non-stick) over a medium-high heat with
 
 Once hot, add the paneer and cook for 3-5 min or until golden on all sides, then transfer it to a plate and set aside
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/594.-step-1-x200.jpg)
 
 ### Step 2
 
@@ -46,6 +48,7 @@ Once&nbsp;cooked, drain, rinse with cold water and return them to the pot
 
 &nbsp;
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/594.-step-3-x200.jpg)
 
 ### Step 3
 
@@ -60,6 +63,7 @@ Stir to dissolve the curry paste&nbsp;
 
 Reduce the heat to low&nbsp;
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/594.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -68,16 +72,19 @@ Meanwhile, cut the grapes in half
 
 Slice the spring onions finely, discarding the root ends&nbsp;
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/594.-step-5-x200.jpg)
 
 ### Step 5
 
 Squeeze the softened coconut cream into the pan and mix well
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/594.-step-6-x200.jpg)
 
 ### Step 6
 
 Add the cooked, drained noodles, paneer and grapes to the pan and cook for 1-2 min to warm through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/594.-step-7-x200.jpg)
 
 ### Step 7
 

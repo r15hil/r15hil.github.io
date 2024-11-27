@@ -23,6 +23,7 @@ Love Middle Eastern spice? This fusion prawn pasta is a game changer. You'll fol
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-1-1644331714850-x200.jpg)
 
 ### Step 1
 
@@ -30,6 +31,7 @@ Boil a kettle
 
 Deseed your pepper[s]<span class="text-danger"> </span>(scrape the seeds and pith out with a teaspoon) and cut into strips
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1644331725421-x200.jpg)
 
 ### Step 2
 
@@ -37,6 +39,7 @@ Heat a large, wide-based pan (preferably non-stick) with a drizzle of olive oil 
 
 Once hot, add the pepper strips to the pan along with a pinch of salt and cook for 7-8 min or until lightly charred
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-3-1644331732458-x200.jpg)
 
 ### Step 3
 
@@ -46,6 +49,7 @@ Cook the spaghetti for 8-10 min or until cooked with a slight bite
 
 Once cooked, drain the spaghetti and reserve a cup of the starchy pasta water
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-4-1644331741850-x200.jpg)
 
 ### Step 4
 
@@ -55,6 +59,7 @@ Peel and slice (don't chop!) your garlic
 
 Chop your coriander finely, including the stalks
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1644331749369-x200.jpg)
 
 ### Step 5
 
@@ -62,11 +67,13 @@ Drain your king prawns
 
 Once the peppers are charred, add the drained king prawns along with a generous pinch of salt and cook for 2 min
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1644331760464-x200.jpg)
 
 ### Step 6
 
 Add the sliced garlic, chopped tomato and a small splash of water and cook for 3-4 min or until the tomato is starting to soften and the prawns are cooked through
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1644331771771-x200.jpg)
 
 ### Step 7
 

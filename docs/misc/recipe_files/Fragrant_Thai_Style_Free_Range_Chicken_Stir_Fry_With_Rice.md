@@ -28,6 +28,7 @@ This quick and flavoursome meal is inspired by a famous Thai street food dish ca
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1699363297470-x200.jpg)
 
 ### Step 1
 
@@ -37,6 +38,7 @@ Add your basmati rice, bashed lemongrass and 300ml <span class="text-purple">[39
 
 Once boiling, reduce the heat to very low and cook, covered, for 10-12 min or until all the water has absorbed and the rice is cooked, then remove from the heat and cover until serving
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-2-1699363300883-x200.jpg)
 
 ### Step 2
 
@@ -48,11 +50,13 @@ Add the garlic and chopped chilli (can't handle the heat? Go easy!) to a pestle
 
 Tip: Don't have a pestle & mortar? Pulse in a food processor!
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1700821722645-x200.jpg)
 
 ### Step 3
 
 Chop your free range chicken breast portion[s] into very small bite-sized pieces
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-1700821792021-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Once hot, add the sliced shallot and diced pepper with the bashed garlic & chill
 
 Once fragrant, add the chopped free range chicken and cook for a further 4 min
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-6-1700821829895-x200.jpg)
 
 ### Step 5
 
@@ -69,6 +74,7 @@ Add your hoisin sauce, fish sauce, 1/2 tbsp <span class="text-purple">[3/4 tbsp]
 
 Cook for 2-3 min or until the sauce begins to reduce and the chicken is cooked through (no pink meat!)
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1700821873957-x200.jpg)
 
 ### Step 6
 
@@ -76,6 +82,7 @@ Meanwhile, heat a separate large, wide-based pan (preferably non-stick with a ma
 
 Once hot, add your black and white sesame seeds, crack your egg[s] into the pan and cook, covered, for 2 min or until done to your liking – this is your sesame fried egg
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-7-1699363354045-x200.jpg)
 
 ### Step 7
 

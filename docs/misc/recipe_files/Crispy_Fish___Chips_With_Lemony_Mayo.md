@@ -21,6 +21,7 @@ Forget soggy fish & chips from your local chippy! With our brilliant take on the
 
 ## Instructions
 
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1793.-step-1-x200.jpg)
 
 ### Step 1
 
@@ -35,6 +36,7 @@ Add the chips to a baking tray with a very generous drizzle of vegetable oil�
 
 Put the tray in the oven for 25-30 min or until golden and crisp
 
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1793.-step-2-x200.jpg)
 
 ### Step 2
 
@@ -43,11 +45,13 @@ Boil a kettle
 
 Combine the mayonnaise with the dried dill, the <span class="text-highlight">juice</span> of 1/2 <span class="text-danger">[1]</span> lemon and a pinch of salt – this is your dill mayonnaise
 
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1793.-step-3-x200.jpg)
 
 ### Step 3
 
 Once the chips are almost cooked, pat the basa fillets dry with kitchen paper
 
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1793.-step-4-x200.jpg)
 
 ### Step 4
 
@@ -62,6 +66,7 @@ Add the panko breadcrumbs to another plate
 
 Coat the fish fillets in the flour, tap off the excess, then add them into the beaten egg and finally press them into the breadcrumbs firmly to evenly coat all over
 
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1793.-step-5-x200.jpg)
 
 ### Step 5
 
@@ -70,6 +75,7 @@ Heat a large, wide-based pan (preferably non-stick) with a very generous drizzle
 
 Once hot, add the breaded fish and cook for 4-5 min on each side or until golden and cooked through
 
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1793.-step-6-x200.jpg)
 
 ### Step 6
 
@@ -78,6 +84,7 @@ Meanwhile, slice the sugar snap peas into halves diagonally
 
 Cut the remaining 1/2<span class="text-danger"> [1]</span> lemon into wedges
 
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/1793.-step-7-x200.jpg)
 
 ### Step 7
 
