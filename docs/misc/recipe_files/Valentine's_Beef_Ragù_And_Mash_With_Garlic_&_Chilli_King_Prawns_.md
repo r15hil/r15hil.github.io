@@ -1,0 +1,132 @@
+# Valentine's Beef Ragù And Mash With Garlic & Chilli King Prawns 
+
+NOTICE: All of these recipes have been retrieved from the Gousto API. I do not claim ownership of any recipes in these files. These recipes are provided for informational purposes only, based on publicly available data from Gousto.
+
+## Description
+
+Show off your cooking chops this Valentine's. While your rich beef ragù slow-cooks in the oven, you'll enjoy a flavour-packed starter of spicy garlic prawns. Once that's done, serve the ragù on cheesy mash with roasted Tenderstem broccoli to the side. 
+
+[View on Gousto](https://www.gousto.co.uk/recipes/cookbook/valentines-beef-chuck-ragu-and-mash-with-garlic-chilli-king-prawns)
+
+## Ingredients
+
+- Raw peeled king prawns (85g) x0
+- Raw peeled king prawns (171g)
+- British diced beef (100g) x0
+- Henderson's Relish (15ml)
+- Beef stock mix (11g)
+- Beef stock mix (5.5g) x0
+- Tenderstem broccoli (80g)
+- British diced beef (200g)
+- Italian hard cheese (20g)
+- Tomato paste (16g) x0
+- Ciabatta
+- Garlic clove x2
+- Tomato paste (32g)
+- Chestnut mushrooms (80g)
+- Parsley (10g)
+- Parsley (5g) x0
+- Red chilli
+- Brown onion
+- White potato x4
+
+## Instructions
+
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1642174141416-x200.jpg)
+
+### Step 1
+
+Preheat the oven to 200°C/ 180°C (fan)/ gas 6 and boil a kettle
+
+Peel and slice your brown onion[s]
+
+Heat a large, wide-based hob-safe oven-proof casserole dish with a matching lid with a drizzle of olive oil over a high heat
+
+Note: Make sure your dish is oven-proof and safe to use on the hob. Don't have one? Start cooking in a large, wide-based pan then transfer to an oven-proof dish and cover tightly with foil
+
+Once hot, add your diced beef and cook for 2-3 min or until lightly browned
+
+Peel and finely chop (or grate) half your garlic and grate your chestnut mushrooms
+
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1642174150413-x200.jpg)
+
+### Step 2
+
+Once the beef is lightly browned, add the sliced onion to dish with the chopped garlic, grated mushroom and a knob of butter and cook for 3 min further or until everything has slightly softened
+
+Add your beef stock mix with 450ml<span class="text-purple"> [675ml]</span> <span class="text-danger">[900ml]</span> boiled water, your tomato paste and Henderson's Relish
+
+Bring to the boil over a high heat and season with a pinch of salt and pepper
+
+Cover with the lid and put the dish in the oven for 55 min – this is your beef & mushroom ragù
+
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1642174160666-x200.jpg)
+
+### Step 3
+
+While the ragù is in the oven, reboil a full kettle
+
+Peel your potatoes and chop them into large, bite-sized pieces
+
+Add the chopped potatoes to a pot with plenty of boiled water and a generous pinch of salt and bring to the boil over a high heat
+
+Once boiling, reduce the heat to medium and cook for 12-15 min or until fork-tender
+
+Once done, drain and return to the pot with a knob of butter, a splash of milk and season with a pinch of salt
+
+Mash until smooth and set aside to reheat later
+
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1642174177134-x200.jpg)
+
+### Step 4
+
+Cut your red chilli[es] in half lengthways, deseed (scrape the seeds out with a teaspoon) and chop finely
+
+Peel and finely slice (don't chop!) the remaining garlic
+
+Chop your parsley finely, including the stalks
+
+Add your ciabatta[s] to a baking tray and put the tray in the oven for 5-6 min or until hot and crusty
+
+Carefully slice the ciabatta before serving
+
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/Step-5-admin-1643193344429-x200.jpg)
+
+### Step 5
+
+Meanwhile, heat a large, wide-based pan (preferably non-stick) with 2 tbsp <span class="text-purple">[3 tbsp] </span><span class="text-danger">[4 tbsp]</span> of olive oil and a knob of butter over a medium heat
+
+Once hot, add the chopped chilli (can't handle the heat? Go easy!), sliced garlic and half the chopped parsley and cook for 1 min or until fragrant
+
+Once fragrant, drain then add your king prawns and cook for 4-5 min or until cooked through – these are your garlic & chilli prawns
+
+Serve the garlic & chilli prawns (and any of the tasty oil!) in a sharing dish with the sliced ciabatta to the side for dipping
+
+Dig in and enjoy your starter of garlic & chilli prawns with ciabatta while the ragù is in the oven
+
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1642174219674-x200.jpg)
+
+### Step 6
+
+Once the beef & mushroom ragù has been in the oven for 55 min, add your Tenderstem broccoli to a tin foil-lined baking tray with a drizzle of olive oil, a pinch of salt and a splash of cold water
+
+Put the tray in the oven for 8-10 min or until tender, golden and crisp
+
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1642174229178-x200.jpg)
+
+### Step 7
+
+Once ready, remove the beef & mushroom ragù from the oven and leave to stand for a couple of min before serving (this helps the flavours to develop)
+
+Meanwhile, return the mash to a low heat with a splash of milk and half your grated Italian hard cheese
+
+Gently reheat for 2 min or until the cheese has melted and the mash is warmed through – this is your cheesy mash
+
+### Step 8
+
+Serve the cheesy mash with the roasted Tenderstem broccoli to the side and spoon over the beef & mushroom ragù
+
+Sprinkle over the remaining parsley and grated Italian hard cheese
+
+Enjoy!
+

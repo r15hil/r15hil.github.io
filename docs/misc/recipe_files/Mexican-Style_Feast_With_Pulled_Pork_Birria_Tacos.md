@@ -1,0 +1,122 @@
+# Mexican-Style Feast With Pulled Pork Birria Tacos
+
+NOTICE: All of these recipes have been retrieved from the Gousto API. I do not claim ownership of any recipes in these files. These recipes are provided for informational purposes only, based on publicly available data from Gousto.
+
+## Description
+
+Bring the fiesta home this Cinco de Mayo with Mexican-inspired pulled pork birria tacos. You’ll make a saucy pulled pork stew, load it into tacos with cheddar and red onion before dipping the lot back into the delicious stew. You’ll serve up with garlicky mojo de ajo potatoes and smoky corn cobettes. ¡Que rico!
+
+[View on Gousto](https://www.gousto.co.uk/recipes/cookbook/mexican-feast-with-pulled-pork-birria-tacos)
+
+## Ingredients
+
+- Red onion
+- Beef stock mix (11g)
+- Beef stock mix (5.5g) x0
+- Ground smoked paprika (2tsp)
+- Cheddar cheese (40g)
+- Dried ancho chilli
+- Ground smoked paprika (1tsp) x0
+- Spring onion
+- Sweetcorn cobettes (2pcs)
+- BBQ pulled pork (154g) x0
+- Chipotle paste (20g)
+- BBQ pulled pork (308g)
+- Tomato paste (16g)
+- Plain tortillas (6pcs)
+- Coriander (10g)
+- Coriander (5g) x0
+- Garlic clove x4
+- Tomato paste (32g) x0
+- White potato x3
+
+## Instructions
+
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-1-1649168696447-x200.jpg)
+
+### Step 1
+
+Preheat the oven to 220°C/ 200°C (fan)/ gas 7
+
+Boil a kettle
+
+Peel and grate your garlic
+
+Chop your potatoes (skin on) into bite-sized pieces
+
+Add your dried ancho chilli[es] to a bowl, cover with boiled water and set aside to soak
+
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-2-1649168705431-x200.jpg)
+
+### Step 2
+
+Combine half the grated garlic (you'll use the rest later!) in a bowl with 2 tbsp <span class="text-purple">[3 tbsp]</span> <span class="text-danger">[4 tbsp] </span>olive oil and a pinch of salt and pepper
+
+Add the chopped potatoes to the bowl with the garlic and give them a good mix up
+
+Transfer the garlic coated potatoes to one side of a baking paper-lined baking tray (or two!)
+
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-3-1649168714035-x200.jpg)
+
+### Step 3
+
+Add your sweetcorn cobettes to a large piece of tin foil (or two!) with a knob of butter, half your ground smoked paprika (save the rest for later!) and a pinch of salt and pepper
+
+Scrunch the foil around the corn until tightly sealed and add to the baking tray[s]
+
+Put the tray[s] in the oven for 30-35 min or until the corn is tender and the potatoes are crispy – these are your smoky corn cobettes and mojo de ajo potatoes
+
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-4-1649168724499-x200.jpg)
+
+### Step 4
+
+Meanwhile, peel and finely slice your red onion[s]
+
+Drain the ancho chilli[es], then roll up and slice into thin strips (as finely as you can!), discard the seeds and stalk
+
+Dissolve your tomato paste, chipotle paste (can't handle the heat? Go easy!) and beef stock mix in 350ml<span class="text-purple"> [455ml]</span> <span class="text-danger">[600ml]</span> boiled water and add a pinch of salt and pepper – this is your birria-style stock
+
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-5-1649168733599-x200.jpg)
+
+### Step 5
+
+Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of olive oil over a medium heat
+
+Once hot, add half the sliced onion (save the rest for later!) and cook for 4 min or until softened
+
+Once softened, add the remaining grated garlic, remaining ground smoked paprika, the sliced ancho chilli and your BBQ pulled pork
+
+Cook for 30 secs or until fragrant
+
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-6-1649168742967-x200.jpg)
+
+### Step 6
+
+Once fragrant, add the birria-style stock and bring to the boil over a high heat
+
+Once boiling, reduce the heat to medium and cook, covered, for 15 min or until the pork is warmed through and the sauce has thickened
+
+Tip: The sauce should be slightly loose so you can dip in your finished tacos!
+
+Once the pork is warmed through, pull it apart using two forks and mix into the sauce – this is your birria-style pork
+
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/step-7-1649168752857-x200.jpg)
+
+### Step 7
+
+Meanwhile, grate your cheddar cheese
+
+Trim, then slice your spring onion[s]
+
+Chop your coriander finely, including the stalks
+
+Once everything is nearly ready, add your tortillas to a baking tray and put them in the oven for 2-3 min or until they're warmed through (alternatively, add them to a plate and microwave!)
+
+### Step 8
+
+To serve, set the birria-style pork, warmed tortillas, grated cheese, remaining sliced onion and half the chopped coriander in the centre of the table (build into tacos then dip them back in the birria sauce for an authentic Mexican experience!)
+
+Serve the smoky corn cobette[s] and mojo de ajo potatoes to the side
+
+Top the corn with the sliced spring onion and the potatoes with the remaining coriander and enjoy!
+

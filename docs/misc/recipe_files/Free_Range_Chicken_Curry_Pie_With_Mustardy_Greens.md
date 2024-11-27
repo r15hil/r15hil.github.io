@@ -1,0 +1,103 @@
+# Free Range Chicken Curry Pie With Mustardy Greens
+
+NOTICE: All of these recipes have been retrieved from the Gousto API. I do not claim ownership of any recipes in these files. These recipes are provided for informational purposes only, based on publicly available data from Gousto.
+
+## Description
+
+This curry pie's a million times tastier than one you'll find at a football ground. Serve your richly spiced chicken filling with a flaky puff pastry lid and mustardy greens. 
+
+[View on Gousto](https://www.gousto.co.uk/recipes/cookbook/free-range-chicken-curry-pie-with-mustardy-greens)
+
+## Ingredients
+
+- Spring greens (150g)
+- Curry powder (0.5tbsp) x0
+- British free range chicken breast portions (2pcs)
+- Nigella seeds (1tsp)
+- Puff pastry (160g)
+- Curry powder (1tbsp)
+- Yellow mustard seeds (1tsp)
+- Chicken stock mix (5.5g)
+- Tomato paste (16g)
+- Tomato paste (32g) x0
+- Brown onion
+- White potato
+
+## Instructions
+
+![Step 1 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-1-x200.jpg)
+
+### Step 1
+
+Preheat the oven to 200°C/ 180°C (fan)/ gas 6
+
+Before you start cooking, take your chicken out of the fridge, open the packet and let it air
+
+Boil half a kettle
+
+Peel and finely slice your brown onion[s]
+
+Peel and roughly chop your potato[es]
+
+![Step 2 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-2-x200.jpg)
+
+### Step 2
+
+Heat a large, wide-based pan (preferably non-stick with a matching lid) with a drizzle of vegetable oil over a medium heat
+
+Once hot, add the sliced onion with a pinch of salt and cook for 3-4 min or until starting to caramelise
+
+![Step 3 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-3-x200.jpg)
+
+### Step 3
+
+Dust your work surface with a sprinkling of flour, then unwrap your puff pastry and roll it out to approx. 0.5cm thickness with a rolling pin and cut into 1 rectangle per person
+
+Transfer the pastry to a non-stick baking paper-lined tray (or two!) and score a 1cm border around the edge of the pastry with a knife, then crimp the borders with a fork
+
+Sprinkle your nigella seeds over the pastry and put the tray[s] in the oven for 15-20 min or until puffed up, golden and cooked through – this is your pie lid[s]
+
+![Step 4 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-4-x200.jpg)
+
+### Step 4
+
+Once the onion has caramelised, add your free range chicken breast portion[s], chopped potato and curry powder and cook for 3-4 min or until fragrant
+
+Meanwhile, dissolve your tomato paste and chicken stock mix in 200ml <span class="text-purple">[300ml]<span class="text-danger"> </span>[400ml]</span> boiled water – this is your tomato stock
+
+![Step 5 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-5-x200.jpg)
+
+### Step 5
+
+Once fragrant, add the tomato stock to the pan and cook, covered, for 15 min or until the potato is fork-tender and the chicken is cooked through (no pink meat!)
+
+Whilst the chicken is cooking, wash your spring greens then pat it dry with kitchen paper
+
+Rip the leaves off your spring greens, discard the tough stalks, then layer the leaves over each other, roll them up and slice into thin strips
+
+![Step 6 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-6-x200.jpg)
+
+### Step 6
+
+Heat a separate, large, wide-based pan (preferably non-stick) with a knob of butter over a medium heat
+
+Once hot, add your yellow mustard seeds and cook for 1-2 min or until fragrant and starting to pop
+
+Add the sliced spring greens with a pinch of salt and cook for 3-4 min or until tender with a slight bite – these are your mustardy greens
+
+![Step 7 Image](https://production-media.gousto.co.uk/cms/recipe-step-image/R2478Step-7-x200.jpg)
+
+### Step 7
+
+Once the chicken is cooked through, transfer the cooked chicken to a clean board and shred it apart, using two forks – this technique is known as ‘pulling’
+
+Return the pulled chicken to the pan and give everything a good mix up – this is your chicken curry pie filling
+
+### Step 8
+
+To serve, lay the pie lid over the chicken curry pie filling – this is your free range chicken curry pie
+
+Serve the free range chicken curry pie with the mustardy greens to the side
+
+Enjoy!
+
