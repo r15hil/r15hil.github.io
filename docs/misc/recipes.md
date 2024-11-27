@@ -1,6 +1,6 @@
 # 🍴 Recipe URL Fetcher 🍴
 
-Click the button below to fetch random recipes from the Gousto API!
+Click the button below to fetch random recipe URLs from the Gousto API via a public proxy!
 
 <div style="margin-top: 20px;">
   <button onclick="fetchRecipeUrls()">Fetch Recipes</button>
@@ -18,10 +18,10 @@ Click the button below to fetch random recipes from the Gousto API!
       // Generate a random offset for the API call
       const randomOffset = 16 * Math.floor(Math.random() * 330);
 
-      // API endpoint with query parameters
-      const apiUrl = `https://production-api.gousto.co.uk/cmsreadbroker/v1/recipes?limit=16&offset=${randomOffset}`;
+      // API endpoint with proxy
+      const apiUrl = `https://cors-anywhere.herokuapp.com/https://production-api.gousto.co.uk/cmsreadbroker/v1/recipes?limit=16&offset=${randomOffset}`;
 
-      // Fetch data from the API
+      // Fetch data from the API via the proxy
       const response = await fetch(apiUrl);
 
       // Check if the response is OK
