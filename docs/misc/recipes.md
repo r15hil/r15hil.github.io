@@ -22,6 +22,3 @@ Click the button below to discover a random recipe from your collection!
     window.location.href = selectedRecipe;
   }
 </script>
-
-
-[All Recipes](all_recipes.md)
