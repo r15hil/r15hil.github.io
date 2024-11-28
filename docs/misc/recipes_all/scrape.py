@@ -102,6 +102,8 @@ def print_recipe_list(all_recipes):
 
 
 def generate_html_files(selected_recipes):
+    all_categories = set()
+
     for recipe in selected_recipes:
         recipe_title = recipe.get("url", "recipe").split("/")[-1]
         file_name = f"{recipe_title}.html"
@@ -144,6 +146,11 @@ def generate_html_files(selected_recipes):
                     )
                 )
 
+                # Display Categories
+                categories = recipe.get("categories", [])
+                for category in categories:
+                    all_categories.add(category["title"])
+
                 file.write("<h3>Ingredients</h3>\n<ul>\n")
                 for ingredient in recipe.get("ingredients", []):
                     file.write("<li>{}</li>\n".format(ingredient.get("label")))
@@ -185,6 +192,11 @@ def generate_html_files(selected_recipes):
             print(f"HTML file '{file_name}' has been generated.")
         except Exception:
             print(f"Failed to generate HTML file for recipe: {recipe.get('title')}")
+
+    # Print all categories at the end
+    print("\nAll Categories Encountered:")
+    for category in sorted(all_categories):
+        print(f"- {category}")
 
 
 @click.command()
