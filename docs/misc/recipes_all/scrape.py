@@ -108,23 +108,48 @@ def generate_html_files(selected_recipes):
         try:
             with open(file_name, "w", encoding="utf-8") as file:
                 file.write(
-                    f"<html><head><title>{recipe.get('title')}</title></head><body>\n"
+                    "<html><head><title>{}</title></head><body>\n".format(
+                        recipe.get("title")
+                    )
                 )
-                file.write(f"<h1>{recipe.get('title')}</h1>\n")
+
+                # Add the main meal image at the top
+                main_image = next(
+                    (
+                        img["image"]
+                        for img in recipe.get("media", {}).get("images", [])
+                        if img["width"] == 400
+                    ),
+                    None,
+                )
+                if main_image:
+                    file.write(
+                        "<img src='{}' alt='{} Image'><br><br>\n".format(
+                            main_image, recipe.get("title")
+                        )
+                    )
+
+                file.write("<h1>{}</h1>\n".format(recipe.get("title")))
                 file.write(
                     "<p>NOTICE: All of these recipes have been retrieved from the Gousto API. I do not claim ownership of any recipes in these files. These recipes are provided for informational purposes only, based on publicly available data from Gousto.</p>\n"
                 )
                 file.write(
-                    f"<p><strong>Description:</strong> {recipe.get('description', 'No description available')}</p>\n"
+                    "<p><strong>Description:</strong> {}</p>\n".format(
+                        recipe.get("description", "No description available")
+                    )
                 )
                 file.write(
-                    f"<a href='https://www.gousto.co.uk/cookbook/recipes{recipe.get('url')}'>View on Gousto</a><br><br>\n"
+                    "<a href='https://www.gousto.co.uk/cookbook/recipes{}'>View on Gousto</a><br><br>\n".format(
+                        recipe.get("url")
+                    )
                 )
-                file.write(f"<h3>Ingredients</h3>\n<ul>\n")
+
+                file.write("<h3>Ingredients</h3>\n<ul>\n")
                 for ingredient in recipe.get("ingredients", []):
-                    file.write(f"<li>{ingredient.get('label')}</li>\n")
+                    file.write("<li>{}</li>\n".format(ingredient.get("label")))
                 file.write("</ul><br><br>\n")
-                file.write(f"<h3>Instructions</h3>\n")
+
+                file.write("<h3>Instructions</h3>\n")
                 for instruction in recipe.get("cooking_instructions", []):
                     step_number = instruction.get("order")
                     clean_instruction = (
@@ -145,12 +170,18 @@ def generate_html_files(selected_recipes):
                     )
                     if image:
                         file.write(
-                            f"<img src='{image}' alt='Step {step_number} Image'><br><br>\n"
+                            "<img src='{}' alt='Step {} Image'><br><br>\n".format(
+                                image, step_number
+                            )
                         )
                     file.write(
-                        f"<h4>Step {step_number}</h4>\n<p>{clean_instruction}</p><br><br>\n"
+                        "<h4>Step {}</h4>\n<p>{}</p><br><br>\n".format(
+                            step_number, clean_instruction
+                        )
                     )
+
                 file.write("</body></html>")
+
             print(f"HTML file '{file_name}' has been generated.")
         except Exception:
             print(f"Failed to generate HTML file for recipe: {recipe.get('title')}")
