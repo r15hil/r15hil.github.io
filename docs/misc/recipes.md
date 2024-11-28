@@ -1,3 +1,5 @@
+[__Back to home__](../index.md)
+
 # 🍽️ Meal Ideas
 
 Click the button below to discover a random recipe from your collection!
@@ -21,3 +23,6 @@ Click the button below to discover a random recipe from your collection!
     window.location.href = selectedRecipe;
   }
 </script>
+
+
+[All Recipes](all_recipes.md)
