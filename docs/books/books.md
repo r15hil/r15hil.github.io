@@ -65,9 +65,9 @@
 
 ## Books
 
-📚 Men Are from Mars, Women Are from Venus: John Gray
-
 📚 Men Without Women: Haruki Murakami
+
+✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌   
 
 ✅ Ultra-Processed People: Chris van Tulleken - October 2024 👍
 
