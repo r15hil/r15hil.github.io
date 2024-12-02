@@ -65,7 +65,7 @@
 
 ## Books
 
-📚 On the Geneology of Morals: Friedrich Nietzsche
+📚 On the Genealogy of Morals: Friedrich Nietzsche
 
 📚 Men Without Women: Haruki Murakami
 
