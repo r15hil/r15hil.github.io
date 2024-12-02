@@ -65,6 +65,8 @@
 
 ## Books
 
+📚 On the Geneology of Morals: Friedrich Nietzsche
+
 📚 Men Without Women: Haruki Murakami
 
 ✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌   
