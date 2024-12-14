@@ -65,6 +65,8 @@
 
 ## Books
 
+📚 Shantaram: Gregory David Roberts
+
 📚 On the Genealogy of Morals: Friedrich Nietzsche
 
 📚 Men Without Women: Haruki Murakami
