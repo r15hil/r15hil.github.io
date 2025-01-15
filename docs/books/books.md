@@ -67,8 +67,6 @@
 
 📚 Shantaram: Gregory David Roberts
 
-📚 On the Genealogy of Morals: Friedrich Nietzsche
-
 📚 Men Without Women: Haruki Murakami
 
 ✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌   
@@ -155,6 +153,8 @@
 
 ✅ When Breath Becomes Air: Paul Kalanithi - January 2018 👍
 
+✅ Colorless Tsukuru Tazaki and His Years of Pilgrimage: Haruki Murakami - October 2017
+
 ✅ The Humans: Matt Haig - August 2017 👌
 
 ✅ Lord of the Flies: William Golding - November 2016 👌
@@ -164,8 +164,6 @@
 🔜 The Golden Road - William Dalrymple
 
 🔜 I, Superorganism - Jon Turney
-
-🔜 Colorless Tsukuru Tazaki and His Years of Pilgrimage - Haruki Murakami
 
 🔜 Guns, Germs, and Steel - Jared Diamond
 
@@ -181,4 +179,4 @@
 
 🔜 Deep Work - Cal Newport
 
-🔜 Goodnight Punpun - Inio Asano
+🔜 Heaven - Mieko Kawakami
