@@ -65,9 +65,9 @@
 
 ## Books
 
-📚 Shantaram: Gregory David Roberts
-
 📚 Men Without Women: Haruki Murakami
+
+✅ Shantaram: Gregory David Roberts - February 2024 👍❤️
 
 ✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌   
 
