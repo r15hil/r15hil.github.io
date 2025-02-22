@@ -63,9 +63,10 @@
 😕 Meh |
 ❤️ Recommend |
 
+
 ## Books
 
-📚 Men Without Women: Haruki Murakami
+📚 A History of Burning: Janika Oza
 
 ✅ Shantaram: Gregory David Roberts - February 2024 👍❤️
 
