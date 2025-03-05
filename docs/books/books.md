@@ -68,6 +68,8 @@
 
 📚 A History of Burning: Janika Oza
 
+📚 Heaven: Mieko Kawakami
+
 ✅ Who Moved My Cheese?: Dr Spencer Johnson - March 2024 👌
 
 ✅ Shantaram: Gregory David Roberts - February 2024 👍❤️
