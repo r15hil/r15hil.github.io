@@ -66,13 +66,13 @@
 
 ## Books
 
-📚 A History of Burning: Janika Oza
-
 📚 Heaven: Mieko Kawakami
 
-✅ Who Moved My Cheese?: Dr Spencer Johnson - March 2024 👌
+✅ A History of Burning: Janika Oza - March 2025 👍
 
-✅ Shantaram: Gregory David Roberts - February 2024 👍❤️
+✅ Who Moved My Cheese?: Dr Spencer Johnson - March 2025 👌
+
+✅ Shantaram: Gregory David Roberts - February 2025 👍❤️
 
 ✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌   
 
