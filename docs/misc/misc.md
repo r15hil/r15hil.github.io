@@ -8,3 +8,5 @@
 - [Padel Player Selector](padel_player_selector.md)
 - [Sorter](sort.md)
 - [Meal Ideas](recipes.md)
+- [Coffee](coffee/coffee.md)
+

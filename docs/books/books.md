@@ -68,6 +68,8 @@
 
 📚 Heaven: Mieko Kawakami
 
+📚 Mahabharata: Interpreted and Retold by Krishna Dharma
+
 ✅ A History of Burning: Janika Oza - March 2025 👍
 
 ✅ Who Moved My Cheese?: Dr Spencer Johnson - March 2025 👌
