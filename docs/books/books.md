@@ -1,44 +1,69 @@
 [__Back to home__](../index.md)
 
+<script src="https://cdn.jsdelivr.net/npm/chart.js"></script>
+
 <script>
   function countYearOccurrences() {
     const currentYear = new Date().getFullYear();
 
     const bodyClone = document.body.cloneNode(true);
-    
     const countListInClone = bodyClone.querySelector("#yearList");
     if (countListInClone) {
       countListInClone.remove();
     }
-    
     const pageText = bodyClone.innerText;
-    
+
     const yearRegex = /\b(20[1-9]\d|21\d{2})\b/g;
     const matches = pageText.match(yearRegex) || [];
-    
+
     const yearOccurrences = matches.reduce((acc, year) => {
       acc[year] = (acc[year] || 0) + 1;
       return acc;
     }, {});
-    
-    let outputHTML = "";
-    for (let year = 2016; year <= currentYear; year++) {
-      const count = yearOccurrences[year.toString()] || 0;
-      if (count > 0) {
-        outputHTML += `<li>${year}: ${count}</li>`;
-      }
-    }
-    
-    const yearListElement = document.getElementById("yearList");
-    yearListElement.innerHTML = outputHTML;
-  }
 
+    const labels = [];
+    const data = [];
+    for (let year = 2016; year <= currentYear; year++) {
+      labels.push(year.toString());
+      data.push(yearOccurrences[year.toString()] || 0);
+    }
+
+    if (window.yearChart) {
+      window.yearChart.destroy();
+    }
+
+    const ctx = document.getElementById("yearChart").getContext("2d");
+    window.yearChart = new Chart(ctx, {
+      type: "bar",
+      data: {
+        labels: labels,
+        datasets: [{
+          label: "Books Read per Year",
+          data: data,
+          backgroundColor: 'rgba(75, 192, 192, 0.2)',
+          borderColor: 'rgba(75, 192, 192, 1)',
+          borderWidth: 1
+        }]
+      },
+      options: {
+        scales: {
+          y: {
+            beginAtZero: true,
+            ticks: { stepSize: 1 }
+          }
+        }
+      }
+    });
+  }
 </script>
 
-# Books I've read
+<button onclick="countYearOccurrences()">Display Graph</button>
 
-<button onclick="countYearOccurrences()">Count books</button>
+<canvas id="yearChart" width="600" height="400"></canvas>
+
 <ul id="yearList"></ul>
+
+# Books I've read
 
 ## Key
 📚 Reading | ✅ Read | 👍 Enjoyed | 👌 Ok | 😕 Meh | ❤️ Recommend |
