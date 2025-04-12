@@ -1,68 +1,37 @@
 [__Back to home__](../index.md)
 
 <script>
-    function checkWord() {
-        var inputWord = document.getElementById("searchWord").value;
-        var pageText = document.body.innerText;
-        var wordRegex = new RegExp("\\b" + inputWord + "\\b", "gi");
-        var found = pageText.match(wordRegex) !== null;
-        var resultElement = document.getElementById("foundBook");
-        resultElement.textContent = found ? "Yes" : "No";
+  function countYearOccurrences() {
+    const currentYear = new Date().getFullYear();
+    const pageText = document.body.innerText;
+    const yearRegex = /\b(20[1-9]\d|21\d{2})\b/g;
+    const matches = pageText.match(yearRegex) || [];
+    
+    const yearOccurrences = matches.reduce((acc, year) => {
+      acc[year] = (acc[year] || 0) + 1;
+      return acc;
+    }, {});
+
+    const yearListElement = document.getElementById("yearList");
+    let outputHTML = "";
+    for (let year = 2016; year <= currentYear; year++) {
+      const count = yearOccurrences[year.toString()] || 0;
+      if (count > 0) {
+        outputHTML += `<li>${year}: ${count}</li>`;
+      }
     }
-
-    function countYearOccurrences() {
-        var currentYear = new Date().getFullYear();
-        var pageText = document.body.innerText;
-        var yearRegex = /\b(20[1-9][0-9]|21[0-9][0-9])\b/g;
-        var yearOccurrences = {};
-
-        var matches = pageText.match(yearRegex);
-
-        if (matches) {
-            matches.forEach(function(match) {
-                if (yearOccurrences[match]) {
-                    yearOccurrences[match]++;
-                } else {
-                    yearOccurrences[match] = 1;
-                }
-            });
-        }
-
-        var yearList = document.getElementById("yearList");
-        var resultHTML = "";
-
-        for (var year = 2016; year <= currentYear; year++) {
-            var count = yearOccurrences[year.toString()] || 0;
-            if (count > 0) {
-                resultHTML += "<li>" + year + ": " + count + "</li>";
-            }
-        }
-
-        yearList.innerHTML = resultHTML;
-    }
-
+    yearListElement.innerHTML = outputHTML;
+  }
 </script>
 
 # Books I've read
 
-<label for="searchWord">Check if I have read:</label>
-<input type="text" id="searchWord">
-<button onclick="checkWord()">Check</button>
 <button onclick="countYearOccurrences()">Count books</button>
-
-<p id="foundBook"></p>
 
 <ul id="yearList"></ul>
 
-
 ## Key
-📚 Reading |
-✅ Read |
-👍 Enjoyed |
-👌 Ok |
-😕 Meh |
-❤️ Recommend |
-
+📚 Reading | ✅ Read | 👍 Enjoyed | 👌 Ok | 😕 Meh | ❤️ Recommend |
 
 ## Books
 
@@ -78,7 +47,7 @@
 
 ✅ Shantaram: Gregory David Roberts - February 2025 👍❤️
 
-✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌   
+✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌
 
 ✅ Ultra-Processed People: Chris van Tulleken - October 2024 👍
 
