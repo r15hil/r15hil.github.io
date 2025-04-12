@@ -3,8 +3,16 @@
 <script>
   function countYearOccurrences() {
     const currentYear = new Date().getFullYear();
-    const contentElement = document.getElementById("booksContent");
-    const pageText = contentElement ? contentElement.innerText : "";
+
+    const bodyClone = document.body.cloneNode(true);
+    
+    const countListInClone = bodyClone.querySelector("#yearList");
+    if (countListInClone) {
+      countListInClone.remove();
+    }
+    
+    const pageText = bodyClone.innerText;
+    
     const yearRegex = /\b(20[1-9]\d|21\d{2})\b/g;
     const matches = pageText.match(yearRegex) || [];
     
@@ -12,8 +20,7 @@
       acc[year] = (acc[year] || 0) + 1;
       return acc;
     }, {});
-
-    const yearListElement = document.getElementById("yearList");
+    
     let outputHTML = "";
     for (let year = 2016; year <= currentYear; year++) {
       const count = yearOccurrences[year.toString()] || 0;
@@ -21,17 +28,17 @@
         outputHTML += `<li>${year}: ${count}</li>`;
       }
     }
+    
+    const yearListElement = document.getElementById("yearList");
     yearListElement.innerHTML = outputHTML;
   }
+
 </script>
 
-<button onclick="countYearOccurrences()">Count books</button>
-
-<ul id="yearList"></ul>
-
-<div id="booksContent">
-
 # Books I've read
+
+<button onclick="countYearOccurrences()">Count books</button>
+<ul id="yearList"></ul>
 
 ## Key
 📚 Reading | ✅ Read | 👍 Enjoyed | 👌 Ok | 😕 Meh | ❤️ Recommend |
@@ -157,4 +164,3 @@
 🔜 The 4-Hour Work Week - Tim Ferriss
 
 🔜 Deep Work - Cal Newport
-</div>
