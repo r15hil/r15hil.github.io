@@ -3,7 +3,8 @@
 <script>
   function countYearOccurrences() {
     const currentYear = new Date().getFullYear();
-    const pageText = document.body.innerText;
+    const contentElement = document.getElementById("booksContent");
+    const pageText = contentElement ? contentElement.innerText : "";
     const yearRegex = /\b(20[1-9]\d|21\d{2})\b/g;
     const matches = pageText.match(yearRegex) || [];
     
@@ -24,11 +25,13 @@
   }
 </script>
 
-# Books I've read
-
 <button onclick="countYearOccurrences()">Count books</button>
 
 <ul id="yearList"></ul>
+
+<div id="booksContent">
+
+# Books I've read
 
 ## Key
 📚 Reading | ✅ Read | 👍 Enjoyed | 👌 Ok | 😕 Meh | ❤️ Recommend |
@@ -154,3 +157,4 @@
 🔜 The 4-Hour Work Week - Tim Ferriss
 
 🔜 Deep Work - Cal Newport
+</div>
