@@ -170,8 +170,6 @@
 
 ## Reading List
 
-🔜 The Golden Road - William Dalrymple
-
 🔜 I, Superorganism - Jon Turney
 
 🔜 Guns, Germs, and Steel - Jared Diamond
@@ -187,5 +185,3 @@
 🔜 The 4-Hour Work Week - Tim Ferriss
 
 🔜 Deep Work - Cal Newport
-
-🔜 Heaven - Mieko Kawakami
