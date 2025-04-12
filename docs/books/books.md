@@ -28,7 +28,7 @@
       data.push(yearOccurrences[year.toString()] || 0);
     }
 
-    if (window.yearChart) {
+    if (window.yearChart && typeof window.yearChart.destroy === "function") {
       window.yearChart.destroy();
     }
 
@@ -55,7 +55,13 @@
       }
     });
   }
+
+  document.addEventListener("DOMContentLoaded", countYearOccurrences);
 </script>
+
+<canvas id="yearChart" width="600" height="400"></canvas>
+
+<ul id="yearList"></ul>
 
 <button onclick="countYearOccurrences()">Display Graph</button>
 
