@@ -1,7 +1,28 @@
 [__Back to home__](../../index.md)
 
+I drink coffee black unless it's an iced coffee but I won't rate those on here.
+
+## Pact Coffee - House Blend
+I'm currently drinking this
+
 ## M&S - Peruvian Coffee Beans
-Currently drinking this
+
+**Roaster/Brand:** Marks & Spencer  
+**Origin:** Peru  
+**Brew Method:** AeroPress  
+**Price:** £9.91 / 500g  
+
+| Aspect      | Rating | Comments                                                                         |
+|-------------|--------|----------------------------------------------------------------------------------|
+| Flavor      | 4/5    | Deep, earthy notes. A bold 5/5 roast but not overwhelming in bitterness          |
+| Aroma       | 5/5    | Fills the kitchen with pleasant nutty scents                                     |
+| Mouthfeel   | 4/5    | Slightly heavier body but not unpleasant                                         |
+| **Overall** | **4/5**| Enjoyable strong roast.                                                          |
+
+**Notes:**  
+Reliable choice for a stronger roast but still like the flavors.
+
+
 
 ## M&S - Roast & Ritual
 
