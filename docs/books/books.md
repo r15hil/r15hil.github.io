@@ -64,23 +64,25 @@
 # Books I've read
 
 ## Key
-📚 Reading | ✅ Read | 👍 Enjoyed | 👌 Ok | 😕 Meh | ❤️ Recommend |
+📚 Reading | ✅ Read | 👍 Enjoyed | 🆗 Ok | 😕 Meh | ❤️ Recommend |
 
 ## Books
 
-📚 Heaven: Mieko Kawakami
+📚 Rashad: Exploration: Nicholas Knight (Unreleased)
 
 📚 The Golden Road: William Dalrymple
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
 
+✅ Heaven: Mieko Kawakami - April 2025 👍
+
 ✅ A History of Burning: Janika Oza - March 2025 👍
 
-✅ Who Moved My Cheese?: Dr Spencer Johnson - March 2025 👌
+✅ Who Moved My Cheese?: Dr Spencer Johnson - March 2025 🆗
 
 ✅ Shantaram: Gregory David Roberts - February 2025 👍❤️
 
-✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 👌
+✅ Men Are from Mars, Women Are from Venus: John Gray - November 2024 🆗
 
 ✅ Ultra-Processed People: Chris van Tulleken - October 2024 👍
 
@@ -104,7 +106,7 @@
 
 ✅ Dune: Frank Herbert - May 2024 ❤️
 
-✅ The Psychology of Money: Morgan Housel - April 2024 👌
+✅ The Psychology of Money: Morgan Housel - April 2024 🆗
 
 ✅ A Wizard of Earthsea: Ursula K. Le Guin - March 2024 👍
 
@@ -120,15 +122,15 @@
 
 ✅ Surviving to Drive: Guenther Steiner - August 2023 👍
 
-✅ The Art of War: Sun Tzu - August 2023 👌
+✅ The Art of War: Sun Tzu - August 2023 🆗
 
-✅ Essentialism: Greg McKeown - August 2023 👌
+✅ Essentialism: Greg McKeown - August 2023 🆗
 
 ✅ Kafka on the Shore: Haruki Murakami - August 2023 👍
 
 ✅ The Kite Runner: Khaled Hosseini - July 2023 👍
 
-✅ Uncommon Wealth: Kojo Koram - June 2023 👌
+✅ Uncommon Wealth: Kojo Koram - June 2023 🆗
 
 ✅ Flowers for Algernon: Daniel Keyes - May 2023 👍❤️
 
@@ -136,11 +138,11 @@
 
 ✅ This is Going to Hurt: Adam Kay - April 2023 👍
 
-✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - March 2023 👌
+✅ The Defining Decade: Why Your Twenties Matter: Meg Jay - March 2023 🆗
 
 ✅ How to Win Friends and Influence People: Dale Carnegie - March 2023 👍
 
-✅ Rebel Ideas: Matthew Syed - February 2023 👌
+✅ Rebel Ideas: Matthew Syed - February 2023 🆗
 
 ✅ Mythos: Stephen Fry - January 2023 👍❤️
 
@@ -156,19 +158,19 @@
 
 ✅ Brave New World: Aldous Huxley - October 2022 👍
 
-✅ Tools of Titans: Tim Ferriss - March 2021 👌
+✅ Tools of Titans: Tim Ferriss - March 2021 🆗
 
 ✅ The Chimp Paradox: Steve Peters - February 2021 👍❤️
 
-✅ Atomic habits: James Clear - January 2021 👌
+✅ Atomic habits: James Clear - January 2021 🆗
 
 ✅ When Breath Becomes Air: Paul Kalanithi - January 2018 👍
 
-✅ Colorless Tsukuru Tazaki and His Years of Pilgrimage: Haruki Murakami - October 2017
+✅ Colorless: Haruki Murakami - October 2017 👍
 
-✅ The Humans: Matt Haig - August 2017 👌
+✅ The Humans: Matt Haig - August 2017 🆗
 
-✅ Lord of the Flies: William Golding - November 2016 👌
+✅ Lord of the Flies: William Golding - November 2016 👍 
 
 ## Reading List
 
