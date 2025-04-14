@@ -7,6 +7,8 @@ I don't really read it unless someone recommends one to me
 ## Key
 📚 Reading | ✅ Read | 👍 Enjoyed | 🆗 Ok | 😕 Meh | ❤️ Recommend |
 
-## Books
+## Manga
 
 📚 Goodnight Punpun
+
+## Reading List
