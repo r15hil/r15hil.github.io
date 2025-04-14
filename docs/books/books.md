@@ -172,6 +172,8 @@
 
 ✅ Lord of the Flies: William Golding - November 2016 👍 
 
+
+
 ## Reading List
 
 🔜 I, Superorganism - Jon Turney
@@ -189,3 +191,5 @@
 🔜 The 4-Hour Work Week - Tim Ferriss
 
 🔜 Deep Work - Cal Newport
+
+[Go to Manga](manga.md)
