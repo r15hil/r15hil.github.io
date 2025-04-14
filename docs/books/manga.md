@@ -9,6 +9,4 @@ I don't really read it unless someone recommends one to me
 
 ## Manga
 
-📚 Goodnight Punpun
-
 ## Reading List
