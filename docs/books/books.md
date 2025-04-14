@@ -192,4 +192,3 @@
 
 🔜 Deep Work - Cal Newport
 
-[Go to Manga](manga.md)
