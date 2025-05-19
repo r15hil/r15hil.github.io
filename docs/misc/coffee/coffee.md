@@ -2,8 +2,30 @@
 
 ☕ I drink coffee black unless it's an iced coffee but I won't rate those on here.
 
-## ☕ Pact Coffee - House Blend
-I'm currently drinking this 😋
+## M&S - Organic Nicaraguan Ground Coffee
+Currently drinking this! I accidentally bought ground coffee, didn't check if they were beans but we move...
+
+**Roaster/Brand:** Marks & Spencer  
+**Origin:** Nicaragua  
+**Brew Method:** AeroPress  
+**Price:** £10.46 / 500g  
+
+## Pact Coffee - House Blend ☕
+
+**Roaster/Brand:** Pact Coffee  
+**Origin:** "Blend"  
+**Brew Method:** AeroPress  
+**Price:** £19.90 / 500g  
+
+| Aspect        | Rating  | Comments                                                                                           |
+| ------------- | ------- | -------------------------------------------------------------------------------------------------- |
+| Flavor 🍫     | 4/5     | Milk‑chocolatey with a light caramel sweetness; dark roast (4/5) depth but not too harsh |
+| Aroma 🌸      | 3/5     | Decent, subtle chocolate aroma that fills the room lightly                                         |
+| Mouthfeel 🥛  | 4/5     | Pleasant medium‑full body, not thin                                                                |
+| **Overall** ⭐ | **4/5** | Solid coffee, but a bit pricey can get better value options                               |
+
+**Notes:**
+It is a really nice coffee, it's reliable but the price would stop me from getting it again, unless I don't find another chocolatey one.
 
 ## M&S - Peruvian Coffee Beans ☕
 **Roaster/Brand:** Marks & Spencer  
@@ -16,7 +38,7 @@ I'm currently drinking this 😋
 | Flavor 🍫     | 4/5    | Deep, earthy notes. A bold 5/5 roast but not overwhelming in bitterness          |
 | Aroma 🌸      | 5/5    | Fills the kitchen with pleasant nutty scents                                     |
 | Mouthfeel 🥛 | 4/5    | Slightly heavier body but not unpleasant                                         |
-| **Overall** ⭐| **4/5**| Enjoyable strong roast.                                                          |
+| **Overall** ⭐| **3/5**| Enjoyable strong roast.                                                          |
 
 **Notes:**  
 Reliable choice for a stronger roast but still like the flavors.
