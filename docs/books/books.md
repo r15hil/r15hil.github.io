@@ -68,11 +68,11 @@
 
 ## Books
 
-📚 Rashad: Exploration: Nicholas Knight (Unreleased)
-
-📚 The Golden Road: William Dalrymple
+📚 Butter: Asako Yuzuki
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
+
+📚 Rashad: Exploration: Nicholas Knight (Unreleased)
 
 ✅ Heaven: Mieko Kawakami - April 2025 👍
 
