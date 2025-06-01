@@ -72,8 +72,6 @@
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
 
-📚 Rashad: Exploration: Nicholas Knight (Unreleased)
-
 ✅ Heaven: Mieko Kawakami - April 2025 👍
 
 ✅ A History of Burning: Janika Oza - March 2025 👍
