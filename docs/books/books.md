@@ -68,9 +68,9 @@
 
 ## Books
 
-📚 Butter: Asako Yuzuki
-
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
+
+✅ Butter: Asako Yuzuki - June 2025 👍❤️
 
 ✅ Heaven: Mieko Kawakami - April 2025 👍
 
