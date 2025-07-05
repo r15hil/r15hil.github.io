@@ -68,9 +68,11 @@
 
 ## Books
 
-📚 When: Daniel H. Pink
+📚 Killers of the Flower Moon: David Grann
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
+
+✅ When: Daniel H. Pink - July 2025 🆗
 
 ✅ Butter: Asako Yuzuki - June 2025 👍❤️
 
