@@ -68,9 +68,11 @@
 
 ## Books
 
-📚 Killers of the Flower Moon: David Grann
+📚 Nexus: Yuval Noah Harari
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
+
+✅ Killers of the Flower Moon: David Grann - July 2025 🆗
 
 ✅ When: Daniel H. Pink - July 2025 🆗
 
