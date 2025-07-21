@@ -68,6 +68,8 @@
 
 ## Books
 
+📚 The Man in the High Castle: Philip K. Dick
+
 📚 Nexus: Yuval Noah Harari
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
