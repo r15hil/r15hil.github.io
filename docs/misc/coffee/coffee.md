@@ -4,18 +4,18 @@
 
 ## Union - Revelation Blend
 
-**Roaster/Brand:** Union
-**Origin:** Guatemala, El Salvador, Rwanda, Burundi and Costa Rica.
+**Roaster/Brand:** Union 
+**Origin:** Guatemala, El Salvador, Rwanda, Burundi and Costa Rica. 
 **Brew Method:** AeroPress  
 **Price:** £18.75 / 500g 
 
 ## Coffee World - Greek Coffee Special
 Got this as a gift from a local roaster in Greece.
 
-**Roaster/Brand:** Coffee Island
-**Origin:** Brazil, Ethiopia, India 
+**Roaster/Brand:** Coffee Island 
+**Origin:** Brazil, Ethiopia, India  
 **Brew Method:** AeroPress  
-**Price:** £26.00 / 500g  (I think)
+**Price:** £26.00 / 500g  (I think) 
 
 ## M&S - Organic Nicaraguan Ground Coffee
 I accidentally bought ground coffee, didn't check if they were beans but we move...
