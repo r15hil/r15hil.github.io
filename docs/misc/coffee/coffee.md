@@ -2,8 +2,23 @@
 
 ☕ I drink coffee black unless it's an iced coffee but I won't rate those on here.
 
+## Union - Revelation Blend
+
+**Roaster/Brand:** Union
+**Origin:** Guatemala, El Salvador, Rwanda, Burundi and Costa Rica.
+**Brew Method:** AeroPress  
+**Price:** £18.75 / 500g 
+
+## Coffee World - Greek Coffee Special
+Got this as a gift from a local roaster in Greece.
+
+**Roaster/Brand:** Coffee Island
+**Origin:** Brazil, Ethiopia, India 
+**Brew Method:** AeroPress  
+**Price:** £26.00 / 500g  (I think)
+
 ## M&S - Organic Nicaraguan Ground Coffee
-Currently drinking this! I accidentally bought ground coffee, didn't check if they were beans but we move...
+I accidentally bought ground coffee, didn't check if they were beans but we move...
 
 **Roaster/Brand:** Marks & Spencer  
 **Origin:** Nicaragua  
