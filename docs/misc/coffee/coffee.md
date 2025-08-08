@@ -10,6 +10,16 @@ Currently drinking this! I accidentally bought ground coffee, didn't check if th
 **Brew Method:** AeroPress  
 **Price:** £10.46 / 500g  
 
+| Aspect        | Rating  | Comments                                                                                           |
+| ------------- | ------- | -------------------------------------------------------------------------------------------------- |
+| Flavor 🍫     | 3/5     | Smooth, slightly chocolatey with a hint of nuttiness, gentle depth |
+| Aroma 🌸      | 3/5     | Decent, subtle chocolate aroma that fills the room lightly                                         |
+| Mouthfeel 🥛  | 4/5     | Pleasant medium‑full body, not thin                                                                |
+| **Overall** ⭐ | **4/5** | Solid coffee, medium roast.                       |
+
+**Notes:**
+Another reliable M&S coffee, pretty solid medium roast option.
+
 ## Pact Coffee - House Blend ☕
 
 **Roaster/Brand:** Pact Coffee  
