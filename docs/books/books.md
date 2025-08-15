@@ -2,32 +2,70 @@
 
 <script src="https://cdn.jsdelivr.net/npm/chart.js"></script>
 
+<!-- BAR GRAPH START -->
 <script>
-  function countYearOccurrences() {
+  // Build a stacked bar chart of reads per year, split by Enjoyed/Ok/Meh
+  function buildStackedReadsChart() {
     const currentYear = new Date().getFullYear();
 
-    const bodyClone = document.body.cloneNode(true);
-    const countListInClone = bodyClone.querySelector("#yearList");
-    if (countListInClone) {
-      countListInClone.remove();
-    }
-    const pageText = bodyClone.innerText;
+    // Find the "Books" section
+    const booksHeader =
+      document.getElementById("books") ||
+      Array.from(document.querySelectorAll("h2"))
+        .find(h => h.textContent.trim().toLowerCase() === "books");
+    if (!booksHeader) return;
 
-    const yearRegex = /\b(20[1-9]\d|21\d{2})\b/g;
-    const matches = pageText.match(yearRegex) || [];
-
-    const yearOccurrences = matches.reduce((acc, year) => {
-      acc[year] = (acc[year] || 0) + 1;
-      return acc;
-    }, {});
-
-    const labels = [];
-    const data = [];
-    for (let year = 2016; year <= currentYear; year++) {
-      labels.push(year.toString());
-      data.push(yearOccurrences[year.toString()] || 0);
+    // Gather only the <p> lines inside Books (until next H2)
+    const bookLines = [];
+    let el = booksHeader.nextElementSibling;
+    while (el && el.tagName !== "H2") {
+      if (el.tagName === "P") bookLines.push(el);
+      el = el.nextElementSibling;
     }
 
+    // Counters per year
+    const years = [];
+    const byYear = {};
+    for (let y = 2016; y <= currentYear; y++) {
+      years.push(String(y));
+      byYear[y] = { enjoyed: 0, ok: 0, meh: 0 };
+    }
+
+    const yearRegex = /\b(20\d{2}|21\d{2})\b/g;
+
+    // Classify each read line
+    bookLines.forEach(p => {
+      const t = p.textContent || "";
+
+      // Only count lines that are marked as Read
+      if (!t.trim().startsWith("✅")) return;
+
+      // Extract the last year mentioned on the line
+      const matches = t.match(yearRegex);
+      if (!matches || matches.length === 0) return;
+      const year = Number(matches[matches.length - 1]);
+      if (!byYear[year]) return; // out of range
+
+      // Map to one (and only one) bucket; ❤️ is ignored
+      const enjoyed = t.includes("👍");
+      const ok = t.includes("🆗");
+      const meh = t.includes("😕");
+
+      if (enjoyed) byYear[year].enjoyed += 1;
+      else if (ok) byYear[year].ok += 1;
+      else if (meh) byYear[year].meh += 1;
+      else {
+        // Fallback: if a ✅ line has none of 👍🆗😕, count it as Ok
+        byYear[year].ok += 1;
+      }
+    });
+
+    // Prepare dataset arrays aligned to labels
+    const enjoyedData = years.map(y => byYear[Number(y)].enjoyed);
+    const okData = years.map(y => byYear[Number(y)].ok);
+    const mehData = years.map(y => byYear[Number(y)].meh);
+
+    // Destroy any existing chart to avoid duplicates
     if (window.yearChart && typeof window.yearChart.destroy === "function") {
       window.yearChart.destroy();
     }
@@ -36,29 +74,66 @@
     window.yearChart = new Chart(ctx, {
       type: "bar",
       data: {
-        labels: labels,
-        datasets: [{
-          label: "Books Read per Year",
-          data: data,
-          backgroundColor: 'rgba(75, 192, 192, 0.2)',
-          borderColor: 'rgba(75, 192, 192, 1)',
-          borderWidth: 1
-        }]
+        labels: years,
+        datasets: [
+          {
+            label: "Enjoyed (👍)",
+            data: enjoyedData,
+            // colors left to Chart.js defaults; feel free to set if you want
+            stack: "reads"
+          },
+          {
+            label: "Ok (🆗)",
+            data: okData,
+            stack: "reads"
+          },
+          {
+            label: "Meh (😕)",
+            data: mehData,
+            stack: "reads"
+          }
+        ]
       },
       options: {
+        responsive: true,
         scales: {
+          x: { stacked: true },
           y: {
+            stacked: true,
             beginAtZero: true,
             ticks: { stepSize: 1 }
+          }
+        },
+        plugins: {
+          tooltip: {
+            callbacks: {
+              footer: (items) => {
+                // Show "Total: N" in tooltip footer
+                const total = items.reduce((sum, it) => sum + it.parsed.y, 0);
+                return `Total: ${total}`;
+              }
+            }
+          },
+          legend: { position: "top" },
+          title: {
+            display: true,
+            text: "Books Read per Year (stacked by rating)"
           }
         }
       }
     });
   }
 
-  document.addEventListener("DOMContentLoaded", countYearOccurrences);
+  // Build the chart after the DOM is ready
+  if (document.readyState === "loading") {
+    document.addEventListener("DOMContentLoaded", buildStackedReadsChart);
+  } else {
+    buildStackedReadsChart();
+  }
 </script>
+<!-- BAR GRAPH END -->
 
+<!-- SEARCH FEATURE START -->
 <style>
   .book-line { position: relative; }
   .book-search {
@@ -131,6 +206,7 @@
     }
   })();
 </script>
+<!-- SEARCH FEATURE SCRIPT END -->
 
 <canvas id="yearChart" width="600" height="400"></canvas>
 
