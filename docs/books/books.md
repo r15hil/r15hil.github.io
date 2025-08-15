@@ -58,70 +58,76 @@
 
   document.addEventListener("DOMContentLoaded", countYearOccurrences);
 </script>
-
 <style>
-  .book-item { cursor: default; }
-  .book-title { cursor: pointer; text-decoration: underline; text-underline-offset: 2px; }
-  .book-title:focus { outline: 2px dashed #888; outline-offset: 2px; }
-  .book-emojis { margin-left: 0.5rem; font-size: 1.05em; display: none; }
-  .book-emojis.show { display: inline; }
+  .book-line { position: relative; }
+  .book-search {
+    margin-left: 0.5rem;
+    font-size: 0.95em;
+    display: none;
+    text-decoration: underline;
+    text-underline-offset: 2px;
+  }
+  .book-line:hover .book-search,
+  .book-line:focus-within .book-search {
+    display: inline;
+  }
 </style>
 
 <script>
-  function enhanceBooksEmojiToggle() {
+  // Add a "Search on Google" action to each paragraph in the "Books" section
+  (function attachGoogleSearchLinks() {
     const booksHeader = Array.from(document.querySelectorAll("h2"))
       .find(h => h.textContent.trim().toLowerCase() === "books");
-
     if (!booksHeader) return;
 
-    const blocks = [];
+    // Collect only the paragraphs that belong to the Books section
+    const lines = [];
     let el = booksHeader.nextElementSibling;
-    while (el && !(el.tagName === "H2")) {
-      if (el.tagName === "P") blocks.push(el);
+    while (el && el.tagName !== "H2") {
+      if (el.tagName === "P") lines.push(el);
       el = el.nextElementSibling;
     }
 
-    const emojiSet = /[📚✅👍🆗😕❤️]/g;
+    // Emoji chars you currently use — extend if you add more later
+    const emojiRegex = /[📚✅👍🆗😕❤️]/g;
 
-    blocks.forEach(p => {
-      const originalText = p.textContent.trim();
-      if (!originalText) return;
+    function makeQueryFrom(text) {
+      const noEmojis = text.replace(emojiRegex, "").trim();
+      // Often lines look like: "Dune: Frank Herbert - May 2024 ❤️"
+      // Prefer the part before the date separator if present
+      const beforeDash = noEmojis.split(" - ")[0].trim();
+      return encodeURIComponent(beforeDash || noEmojis);
+    }
 
+    lines.forEach(p => {
+      p.classList.add("book-line");
 
-      const emojis = (originalText.match(emojiSet) || []).join("");
+      // Build/search link
+      const raw = p.textContent || "";
+      const q = makeQueryFrom(raw);
+      const link = document.createElement("a");
+      link.className = "book-search";
+      link.href = `https://www.google.com/search?q=${q}`;
+      link.target = "_blank";
+      link.rel = "noopener";
+      link.textContent = "🔎 Search on Google";
 
-      const titleText = originalText.replace(emojiSet, "").trim();
-
-      const titleSpan = document.createElement("span");
-      titleSpan.className = "book-title";
-      titleSpan.textContent = titleText;
-      titleSpan.tabIndex = 0;
-
-      const emojiSpan = document.createElement("span");
-      emojiSpan.className = "book-emojis";
-      emojiSpan.setAttribute("aria-hidden", "true");
-      emojiSpan.textContent = emojis || "";
-      p.classList.add("book-item");
-      p.textContent = "";
-      p.appendChild(titleSpan);
-      if (emojis) p.appendChild(emojiSpan);
-
-      function toggle() {
-        if (!emojis) return;
-        emojiSpan.classList.toggle("show");
-      }
-
-      titleSpan.addEventListener("click", toggle);
-      titleSpan.addEventListener("keydown", (e) => {
+      // Add a keyboard-accessible toggle: Enter/Space on the paragraph opens Google
+      p.tabIndex = 0;
+      p.addEventListener("keydown", (e) => {
         if (e.key === "Enter" || e.key === " ") {
+          // open the link target in a new tab
+          window.open(link.href, "_blank", "noopener");
           e.preventDefault();
-          toggle();
         }
       });
-    });
-  }
 
-  document.addEventListener("DOMContentLoaded", enhanceBooksEmojiToggle);
+      // Append link once (avoid duplicates on re-run)
+      if (!p.querySelector(".book-search")) {
+        p.appendChild(link);
+      }
+    });
+  })();
 </script>
 
 <canvas id="yearChart" width="600" height="400"></canvas>
