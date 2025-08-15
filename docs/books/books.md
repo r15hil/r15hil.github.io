@@ -59,6 +59,71 @@
   document.addEventListener("DOMContentLoaded", countYearOccurrences);
 </script>
 
+<style>
+  .book-item { cursor: default; }
+  .book-title { cursor: pointer; text-decoration: underline; text-underline-offset: 2px; }
+  .book-title:focus { outline: 2px dashed #888; outline-offset: 2px; }
+  .book-emojis { margin-left: 0.5rem; font-size: 1.05em; display: none; }
+  .book-emojis.show { display: inline; }
+</style>
+
+<script>
+  function enhanceBooksEmojiToggle() {
+    const booksHeader = Array.from(document.querySelectorAll("h2"))
+      .find(h => h.textContent.trim().toLowerCase() === "books");
+
+    if (!booksHeader) return;
+
+    const blocks = [];
+    let el = booksHeader.nextElementSibling;
+    while (el && !(el.tagName === "H2")) {
+      if (el.tagName === "P") blocks.push(el);
+      el = el.nextElementSibling;
+    }
+
+    const emojiSet = /[📚✅👍🆗😕❤️]/g;
+
+    blocks.forEach(p => {
+      const originalText = p.textContent.trim();
+      if (!originalText) return;
+
+
+      const emojis = (originalText.match(emojiSet) || []).join("");
+
+      const titleText = originalText.replace(emojiSet, "").trim();
+
+      const titleSpan = document.createElement("span");
+      titleSpan.className = "book-title";
+      titleSpan.textContent = titleText;
+      titleSpan.tabIndex = 0;
+
+      const emojiSpan = document.createElement("span");
+      emojiSpan.className = "book-emojis";
+      emojiSpan.setAttribute("aria-hidden", "true");
+      emojiSpan.textContent = emojis || "";
+      p.classList.add("book-item");
+      p.textContent = "";
+      p.appendChild(titleSpan);
+      if (emojis) p.appendChild(emojiSpan);
+
+      function toggle() {
+        if (!emojis) return;
+        emojiSpan.classList.toggle("show");
+      }
+
+      titleSpan.addEventListener("click", toggle);
+      titleSpan.addEventListener("keydown", (e) => {
+        if (e.key === "Enter" || e.key === " ") {
+          e.preventDefault();
+          toggle();
+        }
+      });
+    });
+  }
+
+  document.addEventListener("DOMContentLoaded", enhanceBooksEmojiToggle);
+</script>
+
 <canvas id="yearChart" width="600" height="400"></canvas>
 
 # Books I've read
