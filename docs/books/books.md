@@ -58,75 +58,83 @@
 
   document.addEventListener("DOMContentLoaded", countYearOccurrences);
 </script>
+
 <style>
   .book-line { position: relative; }
   .book-search {
     margin-left: 0.5rem;
     font-size: 0.95em;
-    display: none;
     text-decoration: underline;
     text-underline-offset: 2px;
-  }
-  .book-line:hover .book-search,
-  .book-line:focus-within .book-search {
-    display: inline;
   }
 </style>
 
 <script>
-  // Add a "Search on Google" action to each paragraph in the "Books" section
-  (function attachGoogleSearchLinks() {
-    const booksHeader = Array.from(document.querySelectorAll("h2"))
-      .find(h => h.textContent.trim().toLowerCase() === "books");
-    if (!booksHeader) return;
+  (function () {
+    function attachGoogleSearchLinks() {
+      // Find the "Books" section by id or text (covers your built HTML)
+      const booksHeader =
+        document.getElementById("books") ||
+        Array.from(document.querySelectorAll("h2"))
+          .find(h => h.textContent.trim().toLowerCase() === "books");
+      if (!booksHeader) return;
 
-    // Collect only the paragraphs that belong to the Books section
-    const lines = [];
-    let el = booksHeader.nextElementSibling;
-    while (el && el.tagName !== "H2") {
-      if (el.tagName === "P") lines.push(el);
-      el = el.nextElementSibling;
-    }
-
-    // Emoji chars you currently use — extend if you add more later
-    const emojiRegex = /[📚✅👍🆗😕❤️]/g;
-
-    function makeQueryFrom(text) {
-      const noEmojis = text.replace(emojiRegex, "").trim();
-      // Often lines look like: "Dune: Frank Herbert - May 2024 ❤️"
-      // Prefer the part before the date separator if present
-      const beforeDash = noEmojis.split(" - ")[0].trim();
-      return encodeURIComponent(beforeDash || noEmojis);
-    }
-
-    lines.forEach(p => {
-      p.classList.add("book-line");
-
-      // Build/search link
-      const raw = p.textContent || "";
-      const q = makeQueryFrom(raw);
-      const link = document.createElement("a");
-      link.className = "book-search";
-      link.href = `https://www.google.com/search?q=${q}`;
-      link.target = "_blank";
-      link.rel = "noopener";
-      link.textContent = "🔎 Search on Google";
-
-      // Add a keyboard-accessible toggle: Enter/Space on the paragraph opens Google
-      p.tabIndex = 0;
-      p.addEventListener("keydown", (e) => {
-        if (e.key === "Enter" || e.key === " ") {
-          // open the link target in a new tab
-          window.open(link.href, "_blank", "noopener");
-          e.preventDefault();
-        }
-      });
-
-      // Append link once (avoid duplicates on re-run)
-      if (!p.querySelector(".book-search")) {
-        p.appendChild(link);
+      // Collect only the paragraphs that belong to the Books section
+      const lines = [];
+      let el = booksHeader.nextElementSibling;
+      while (el && el.tagName !== "H2") {
+        if (el.tagName === "P") lines.push(el);
+        el = el.nextElementSibling;
       }
-    });
+
+      const emojiRegex = /[📚✅👍🆗😕❤️]/g;
+
+      function makeQueryFrom(text) {
+        const noEmojis = text.replace(emojiRegex, "").trim();
+        const beforeDash = noEmojis.split(" - ")[0].trim(); // prefer title/author part
+        return encodeURIComponent(beforeDash || noEmojis);
+      }
+
+      lines.forEach(p => {
+        if (p.dataset.gsearchApplied) return; // prevent duplicates
+        p.dataset.gsearchApplied = "1";
+        p.classList.add("book-line");
+        p.tabIndex = 0;
+
+        const raw = p.textContent || "";
+        const q = makeQueryFrom(raw);
+        const href = `https://www.google.com/search?q=${q}`;
+
+        // Visible link
+        const link = document.createElement("a");
+        link.className = "book-search";
+        link.href = href;
+        link.target = "_blank";
+        link.rel = "noopener";
+        link.textContent = "🔎 Search on Google";
+        p.appendChild(link);
+
+        // Click anywhere on the line to open search (except when clicking the link itself)
+        p.addEventListener("click", (e) => {
+          if (e.target.closest("a.book-search")) return; // let the link behave normally
+          window.open(href, "_blank", "noopener");
+        });
+
+        // Keyboard accessible
+        p.addEventListener("keydown", (e) => {
+          if (e.key === "Enter" || e.key === " ") {
+            e.preventDefault();
+            window.open(href, "_blank", "noopener");
+          }
+        });
+      });
+    }
+
+    if (document.readyState === "loading") {
+      document.addEventListener("DOMContentLoaded", attachGoogleSearchLinks);
+    } else {
+      attachGoogleSearchLinks();
+    }
   })();
 </script>
 
