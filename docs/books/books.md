@@ -123,19 +123,42 @@
 
 <!-- SEARCH FEATURE START -->
 <style>
+  /* Toggle styles */
+  #search-toggle-wrap { margin: 0.5rem 0 1rem; }
+  .search-toggle {
+    display: inline-flex; align-items: center; gap: 0.5rem; cursor: pointer; user-select: none;
+  }
+  .search-toggle input { display: none; }
+  .search-toggle .slider {
+    position: relative; width: 44px; height: 24px; border-radius: 999px;
+    background: #bbb; transition: background 0.2s ease;
+  }
+  .search-toggle .slider::after {
+    content: ""; position: absolute; top: 2px; left: 2px; width: 20px; height: 20px;
+    border-radius: 50%; background: #fff; box-shadow: 0 1px 2px rgba(0,0,0,.2);
+    transition: transform 0.2s ease;
+  }
+  .search-toggle input:checked + .slider { background: #4caf50; }
+  .search-toggle input:checked + .slider::after { transform: translateX(20px); }
+  .search-toggle .label-text { font-weight: 600; }
+
+  /* Book search link; hidden unless Search mode is ON */
   .book-line { position: relative; }
   .book-search {
     margin-left: 0.5rem;
     font-size: 0.95em;
     text-decoration: underline;
     text-underline-offset: 2px;
+    display: none; /* default hidden */
   }
+  body.search-mode-on .book-search { display: inline; }
+  /* Optional: show pointer when search mode is on to hint clickability */
+  body.search-mode-on .book-line { cursor: pointer; }
 </style>
 
 <script>
   (function () {
     function attachGoogleSearchLinks() {
-      // Find the "Books" section by id or text (covers your built HTML)
       const booksHeader =
         document.getElementById("books") ||
         Array.from(document.querySelectorAll("h2"))
@@ -168,37 +191,80 @@
         const q = makeQueryFrom(raw);
         const href = `https://www.google.com/search?q=${q}`;
 
-        // Visible link
+        // Small visible link (only shown when search mode is ON via CSS)
         const link = document.createElement("a");
         link.className = "book-search";
         link.href = href;
         link.target = "_blank";
         link.rel = "noopener";
         link.textContent = "🔎";
+        link.setAttribute("aria-label", "Search this book on Google");
         p.appendChild(link);
 
-        // Keyboard accessible
+        // Click/keyboard: only active when Search mode is ON
+        const openIfSearchMode = (e, viaKeyboard = false) => {
+          const on = document.body.classList.contains("search-mode-on");
+          if (!on) return;
+          if (viaKeyboard) e.preventDefault();
+          window.open(href, "_blank", "noopener");
+        };
+
+        p.addEventListener("click", (e) => {
+          // Let the link behave normally
+          if (e.target.closest("a.book-search")) return;
+          openIfSearchMode(e, false);
+        });
+
         p.addEventListener("keydown", (e) => {
-          if (e.key === "Enter" || e.key === " ") {
-            e.preventDefault();
-            window.open(href, "_blank", "noopener");
-          }
+          if (e.key === "Enter" || e.key === " ") openIfSearchMode(e, true);
         });
       });
     }
 
-    if (document.readyState === "loading") {
-      document.addEventListener("DOMContentLoaded", attachGoogleSearchLinks);
-    } else {
+    function setupSearchModeToggle() {
+      const toggle = document.getElementById("searchModeToggle");
+      if (!toggle) return;
+
+      // Initial state: OFF (no class)
+      const apply = () => {
+        if (toggle.checked) {
+          document.body.classList.add("search-mode-on");
+        } else {
+          document.body.classList.remove("search-mode-on");
+        }
+      };
+
+      toggle.addEventListener("change", apply);
+      apply(); // set initial
+    }
+
+    function init() {
       attachGoogleSearchLinks();
+      setupSearchModeToggle();
+    }
+
+    if (document.readyState === "loading") {
+      document.addEventListener("DOMContentLoaded", init);
+    } else {
+      init();
     }
   })();
 </script>
-<!-- SEARCH FEATURE SCRIPT END -->
+<!-- SEARCH FEATURE END -->
 
 <canvas id="yearChart" width="600" height="400"></canvas>
 
 # Books I've read
+
+<!-- SEARCH MODE TOGGLE START -->
+<div id="search-toggle-wrap">
+  <label class="search-toggle">
+    <input type="checkbox" id="searchModeToggle" />
+    <span class="slider"></span>
+    <span class="label-text">Search mode</span>
+  </label>
+</div>
+<!-- SEARCH MODE TOGGLE END-->
 
 ## Key
 📚 Reading | ✅ Read | 👍 Enjoyed | 🆗 Ok | 😕 Meh | ❤️ Recommend |
