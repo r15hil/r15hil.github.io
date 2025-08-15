@@ -111,14 +111,8 @@
         link.href = href;
         link.target = "_blank";
         link.rel = "noopener";
-        link.textContent = "🔎 Search on Google";
+        link.textContent = "🔎";
         p.appendChild(link);
-
-        // Click anywhere on the line to open search (except when clicking the link itself)
-        p.addEventListener("click", (e) => {
-          if (e.target.closest("a.book-search")) return; // let the link behave normally
-          window.open(href, "_blank", "noopener");
-        });
 
         // Keyboard accessible
         p.addEventListener("keydown", (e) => {
