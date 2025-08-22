@@ -41,3 +41,55 @@ Learn more about me.
 A list of books I've read, or currently reading, or plan to read.
 
 ## [Other](misc/misc.md)
+
+<!-- BOUNCING OBJECT START -->
+<style>
+  #bouncer {
+    position: fixed;
+    top: 50px;
+    left: 50px;
+    width: 60px;
+    height: 60px;
+    border-radius: 50%;
+    background: linear-gradient(135deg, #4caf50, #2196f3);
+    box-shadow: 0 4px 8px rgba(0,0,0,0.3);
+    pointer-events: none; /* so it doesn't block clicks */
+    z-index: 9999;        /* always on top */
+  }
+</style>
+
+<div id="bouncer"></div>
+
+<script>
+  (function() {
+    const el = document.getElementById("bouncer");
+    let x = 100, y = 100;
+    let vx = 3, vy = 2; // velocity in px/frame
+
+    function animate() {
+      const w = window.innerWidth;
+      const h = window.innerHeight;
+      const rect = el.getBoundingClientRect();
+
+      x += vx;
+      y += vy;
+
+      // Bounce on edges
+      if (x <= 0 || x + rect.width >= w) {
+        vx *= -1;
+        x = Math.max(0, Math.min(x, w - rect.width));
+      }
+      if (y <= 0 || y + rect.height >= h) {
+        vy *= -1;
+        y = Math.max(0, Math.min(y, h - rect.height));
+      }
+
+      el.style.transform = `translate(${x}px, ${y}px)`;
+
+      requestAnimationFrame(animate);
+    }
+
+    animate();
+  })();
+</script>
+<!-- BOUNCING OBJECT END -->
