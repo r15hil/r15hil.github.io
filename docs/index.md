@@ -46,50 +46,54 @@ A list of books I've read, or currently reading, or plan to read.
 <style>
   #bouncer {
     position: fixed;
-    top: 50px;
-    left: 50px;
+    top: 0;
+    left: 0;
     width: 60px;
     height: 60px;
     border-radius: 50%;
     background: linear-gradient(135deg, #4caf50, #2196f3);
     box-shadow: 0 4px 8px rgba(0,0,0,0.3);
-    pointer-events: none; /* so it doesn't block clicks */
-    z-index: 9999;        /* always on top */
+    pointer-events: none;
+    z-index: 9999;
+    will-change: transform;
   }
 </style>
 
 <div id="bouncer"></div>
 
 <script>
-  (function() {
+  (function () {
     const el = document.getElementById("bouncer");
     let x = 100, y = 100;
-    let vx = 3, vy = 2; // velocity in px/frame
+    let vx = 3, vy = 2;
 
-    function animate() {
-      const w = window.innerWidth;
-      const h = window.innerHeight;
-      const rect = el.getBoundingClientRect();
+    function step() {
+      const maxX = window.innerWidth - el.offsetWidth;
+      const maxY = window.innerHeight - el.offsetHeight;
 
       x += vx;
       y += vy;
 
-      // Bounce on edges
-      if (x <= 0 || x + rect.width >= w) {
+      if (x <= 0 || x >= maxX) {
         vx *= -1;
-        x = Math.max(0, Math.min(x, w - rect.width));
+        x = Math.max(0, Math.min(x, maxX));
       }
-      if (y <= 0 || y + rect.height >= h) {
+      if (y <= 0 || y >= maxY) {
         vy *= -1;
-        y = Math.max(0, Math.min(y, h - rect.height));
+        y = Math.max(0, Math.min(y, maxY));
       }
 
       el.style.transform = `translate(${x}px, ${y}px)`;
-
-      requestAnimationFrame(animate);
+      requestAnimationFrame(step);
     }
 
-    animate();
+    // keep it in bounds on resize
+    window.addEventListener("resize", () => {
+      x = Math.min(x, window.innerWidth - el.offsetWidth);
+      y = Math.min(y, window.innerHeight - el.offsetHeight);
+    });
+
+    step();
   })();
 </script>
 <!-- BOUNCING OBJECT END -->
