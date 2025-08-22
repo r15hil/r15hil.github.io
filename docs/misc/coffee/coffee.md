@@ -21,8 +21,8 @@ Got this as a gift, it is roasted by a local shop in Greece.
 | ------------- | ------- | -------------------------------------------------------------------------------------------------- |
 | Flavor 🍫     | 3/5     | Good bitterness and acidic but not too acidic  |
 | Aroma 🌸      | 3/5     | Deep aroma earthy aroma                                         |
-| Mouthfeel 🥛  | 4/5     | Heavy mouthfeel, not bad but nothing special                                              |
-| **Overall** ⭐ | **3/5** | Solid coffee, medium roast.                       |
+| Mouthfeel 🥛  | 3/5     | Heavy mouthfeel in a good way                                      |
+| **Overall** ⭐ | **3/5** | Solid coffee                       |
 
 **Notes:**
 Nice medium roast.
