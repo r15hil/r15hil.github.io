@@ -10,12 +10,22 @@
 **Price:** £18.75 / 500g 
 
 ## Coffee World - Greek Coffee Special
-Got this as a gift from a local roaster in Greece.
+Got this as a gift, it is roasted by a local shop in Greece.
 
 **Roaster/Brand:** Coffee Island  
 **Origin:** Brazil, Ethiopia, India   
 **Brew Method:** AeroPress  
 **Price:** £26.00 / 500g  (I think) 
+
+| Aspect        | Rating  | Comments                                                                                           |
+| ------------- | ------- | -------------------------------------------------------------------------------------------------- |
+| Flavor 🍫     | 3/5     | Good bitterness and acidic but not too acidic  |
+| Aroma 🌸      | 3/5     | Deep aroma earthy aroma                                         |
+| Mouthfeel 🥛  | 4/5     | Heavy mouthfeel, not bad but nothing special                                              |
+| **Overall** ⭐ | **3/5** | Solid coffee, medium roast.                       |
+
+**Notes:**
+Nice medium roast.
 
 ## M&S - Organic Nicaraguan Ground Coffee
 I accidentally bought ground coffee, didn't check if they were beans but we move...
