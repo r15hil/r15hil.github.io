@@ -299,7 +299,7 @@
   }
   /* default palette */
   .spine-enjoyed { background: #2e7d32; }  /* green */
-  .spine-ok      { background: #f1c232; }  /* yellow */
+  .spine-ok      { background: #f89203ff; }  /* yellow */
   .spine-meh     { background: #e53935; }  /* red */
   .spine-reading { background: #607d8b; }  /* slate */
   .spine-neutral { background: #1976d2; }  /* blue */
