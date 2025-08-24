@@ -254,6 +254,179 @@
 
 <canvas id="yearChart" width="600" height="400"></canvas>
 
+<!-- BOOKSHELF (GROUPED BY YEAR) -->
+<style>
+  /* Hide original paragraphs so your chart still finds them but users don't */
+  .book-raw { display: none; }
+
+  .year-shelf {
+    margin: 1.25rem 0 1.75rem;
+  }
+  .year-shelf h3 {
+    margin: 0 0 0.5rem;
+    font-size: 1.1rem;
+    letter-spacing: 0.3px;
+  }
+
+  .bookshelf {
+    display: flex;
+    flex-wrap: wrap;
+    gap: 8px;
+    padding: 12px;
+    background: #8b5a2b;                 /* wood */
+    border: 8px solid #5c3a1e;
+    border-radius: 8px;
+    box-shadow: inset 0 2px 6px rgba(0,0,0,0.45);
+    position: relative;
+  }
+  /* a subtle top lip like a shelf edge */
+  .bookshelf::before {
+    content: "";
+    position: absolute;
+    inset: -10px -8px auto -8px;
+    height: 10px;
+    background: linear-gradient(#6d4423, #5c3a1e);
+    border-top-left-radius: 8px;
+    border-top-right-radius: 8px;
+  }
+
+  .book-spine {
+    writing-mode: vertical-rl;
+    transform: rotate(180deg);
+    font-size: 0.86rem;
+    line-height: 1.1;
+    font-weight: 700;
+    color: #fff;
+    text-align: center;
+    padding: 6px 2px;
+    border-radius: 4px;
+    flex: 0 0 30px;      /* spine width */
+    height: 200px;       /* spine height */
+    overflow: hidden;
+    box-shadow: 0 2px 4px rgba(0,0,0,.25);
+    user-select: none;
+  }
+
+  /* Color coding by reaction */
+  .spine-enjoyed { background: #2e7d32; }     /* green */
+  .spine-ok      { background: #f1c232; }     /* yellow */
+  .spine-meh     { background: #e53935; }     /* red */
+  .spine-reading { background: #607d8b; }     /* slate */
+  .spine-neutral { background: #1976d2; }     /* blue default */
+
+  /* tiny end-cap to look like a hardcover top */
+  .book-spine::after {
+    content: "";
+    position: absolute;
+    top: 3px; left: 50%;
+    transform: translateX(-50%);
+    width: 60%;
+    height: 3px;
+    border-radius: 2px;
+    background: rgba(255,255,255,0.35);
+  }
+</style>
+
+<script>
+(function () {
+  function buildBookshelvesByYear() {
+    const booksHeader =
+      document.getElementById("books") ||
+      Array.from(document.querySelectorAll("h2"))
+        .find(h => h.textContent.trim().toLowerCase() === "books");
+    if (!booksHeader) return;
+
+    // Collect original book <p> lines (until next H2)
+    const lines = [];
+    let el = booksHeader.nextElementSibling;
+    while (el && el.tagName !== "H2") {
+      if (el.tagName === "P") lines.push(el);
+      el = el.nextElementSibling;
+    }
+    if (!lines.length) return;
+
+    // Bucket by year
+    const buckets = new Map(); // year -> [{raw, title, cls}]
+    const yearRe = /\b(20\d{2}|21\d{2})\b/g;
+    const emojiRe = /[📚✅👍🆗😕❤️]/g;
+
+    function pickClass(t) {
+      if (t.trim().startsWith("📚")) return "spine-reading";
+      if (t.includes("👍")) return "spine-enjoyed";
+      if (t.includes("🆗")) return "spine-ok";
+      if (t.includes("😕")) return "spine-meh";
+      return "spine-neutral";
+    }
+
+    function spineTitle(text) {
+      const withoutEmojis = text.replace(emojiRe, "").trim();
+      // Prefer the part before the date " - "
+      const main = withoutEmojis.split(" - ")[0].trim();
+      return main || withoutEmojis;
+    }
+
+    lines.forEach(p => {
+      const t = p.textContent || "";
+      const matches = t.match(yearRe);
+      const year = matches ? Number(matches[matches.length - 1]) : "Unknown";
+      const cls = pickClass(t);
+      const title = spineTitle(t);
+
+      if (!buckets.has(year)) buckets.set(year, []);
+      buckets.get(year).push({ raw: t, title, cls, p });
+    });
+
+    // Sort years (desc, "Unknown" last)
+    const years = Array.from(buckets.keys()).sort((a, b) => {
+      if (a === "Unknown") return 1;
+      if (b === "Unknown") return -1;
+      return b - a;
+    });
+
+    // Insert a container after the Books header
+    const container = document.createElement("div");
+    booksHeader.insertAdjacentElement("afterend", container);
+
+    years.forEach(year => {
+      const group = buckets.get(year);
+
+      // Shelf wrapper
+      const wrap = document.createElement("section");
+      wrap.className = "year-shelf";
+
+      const h3 = document.createElement("h3");
+      h3.textContent = String(year);
+      wrap.appendChild(h3);
+
+      const shelf = document.createElement("div");
+      shelf.className = "bookshelf";
+
+      group.forEach(item => {
+        // Create a spine
+        const spine = document.createElement("div");
+        spine.className = `book-spine ${item.cls}`;
+        spine.title = item.raw;               // hover shows full entry
+        spine.textContent = item.title;
+        shelf.appendChild(spine);
+
+        // Keep original paragraph for your chart; just hide it
+        item.p.classList.add("book-raw");
+      });
+
+      wrap.appendChild(shelf);
+      container.appendChild(wrap);
+    });
+  }
+
+  if (document.readyState === "loading") {
+    document.addEventListener("DOMContentLoaded", buildBookshelvesByYear);
+  } else {
+    buildBookshelvesByYear();
+  }
+})();
+</script>
+
+
 # Books I've read
 
 <!-- SEARCH MODE TOGGLE START -->
