@@ -124,7 +124,7 @@
 
 <canvas id="yearChart" width="600" height="400"></canvas>
 
-<!-- BOOKSHELF (BY YEAR) + CLICK-TO-DETAILS MODAL -->
+<!-- BOOKSHELF (GROUPED BY YEAR, READING NOW, RECOMMENDED HIGHLIGHT) + MODAL WITH GOOGLE SEARCH -->
 <style>
   /* Keep original paragraphs for charting but hide them from users */
   .book-raw { display: none; }
@@ -138,7 +138,7 @@
     background: #8b5a2b;                 /* wood */
     border: 8px solid #5c3a1e;
     border-radius: 8px;
-    box-shadow: inset 0 2px 6px rgba(0,0,0,.45);
+    box-shadow: inset 0 2px 6px rgba(0,0,0,0.45);
     position: relative;
   }
   .bookshelf::before {
@@ -216,12 +216,26 @@
   @keyframes pop { from { transform: translateY(6px) scale(.98); opacity: .8; } }
   .book-modal .title { font-size: 1.1rem; font-weight: 700; margin: 0 0 8px; }
   .book-modal .meta  { font-size: .95rem; margin: 0 0 10px; color: #333; }
-  .book-modal .reactions { font-size: 1.2rem; }
-  .book-modal .raw { margin-top: 10px; font-family: ui-monospace, SFMono-Regular, Menlo, Consolas, monospace; font-size: .88rem; color: #444; background: #f7f7f7; padding: 8px; border-radius: 8px; }
+  .book-modal .reactions { font-size: 1.1rem; margin-bottom: 6px; }
+  .book-modal .raw { margin-top: 8px; font-family: ui-monospace, SFMono-Regular, Menlo, Consolas, monospace; font-size: .88rem; color: #444; background: #f7f7f7; padding: 8px; border-radius: 8px; }
   .book-modal .close {
     position: absolute; top: 8px; right: 10px; border: 0; background: none;
     font-size: 22px; cursor: pointer; line-height: 1;
   }
+  .book-modal .search-btn {
+    display: inline-block;
+    margin-top: 8px;
+    padding: 6px 12px;
+    font-size: .9rem;
+    font-weight: 600;
+    color: #fff;
+    background: #1976d2;
+    border: none;
+    border-radius: 6px;
+    cursor: pointer;
+    text-decoration: none;
+  }
+  .book-modal .search-btn:hover { background: #0d47a1; }
 </style>
 
 <!-- Modal root -->
@@ -233,9 +247,9 @@
     <div class="meta"></div>
     <div class="reactions"></div>
     <div class="raw"></div>
+    <a id="bookSearchLink" class="search-btn" target="_blank" rel="noopener">🔎 Search on Google</a>
   </div>
 </div>
-<!-- BOOKSHELF (BY YEAR) + CLICK-TO-DETAILS MODAL END -->
 
 <script>
 (function () {
@@ -259,14 +273,16 @@
     const yearRe  = /\b(20\d{2}|21\d{2})\b/g;
     const emojiRe = /[📚✅👍🆗😕❤️]/g;
 
+    const buckets = new Map(); // key -> items
+
     function classifySpine(text) {
       const hasEnjoyed = text.includes("👍");
       const hasOk      = text.includes("🆗");
       const hasMeh     = text.includes("😕");
       const hasReco    = text.includes("❤️");
-      const isReading  = !text.match(yearRe); // no year = currently reading
+      const noYear     = !text.match(yearRe); // no year = currently reading
       if (hasEnjoyed && hasReco) return "spine-reco";
-      if (isReading) return "spine-reading";
+      if (noYear)     return "spine-reading";
       if (hasEnjoyed) return "spine-enjoyed";
       if (hasOk)      return "spine-ok";
       if (hasMeh)     return "spine-meh";
@@ -281,18 +297,20 @@
       const m = text.match(yearRe);
       return m ? m[m.length - 1] : null;
     }
-    function reactions(text) {
+    function reactionsText(text) {
       const r = [];
       if (text.includes("👍")) r.push("👍 Enjoyed");
       if (text.includes("🆗")) r.push("🆗 Ok");
       if (text.includes("😕")) r.push("😕 Meh");
       if (text.includes("❤️")) r.push("❤️ Recommend");
       if (text.trim().startsWith("📚") || !lastYear(text)) r.push("📚 Reading");
-      return r.join("  ·  ");
+      return r.join(" · ");
+    }
+    function stripEmojis(text) {
+      return text.replace(emojiRe, "").trim();
     }
 
-    // Bucket by year; use "Reading Now" if no year present
-    const buckets = new Map();
+    // Build buckets
     lines.forEach(p => {
       const raw = p.textContent || "";
       const y = lastYear(raw) || READING_KEY;
@@ -303,7 +321,7 @@
       buckets.get(y).push({ raw, title, cls, year: y, p });
     });
 
-    // Sort keys: "Reading Now" first, then years desc
+    // Sort shelves: "Reading Now" first, then years desc
     const keys = Array.from(buckets.keys()).sort((a, b) => {
       if (a === READING_KEY && b !== READING_KEY) return -1;
       if (b === READING_KEY && a !== READING_KEY) return 1;
@@ -315,7 +333,41 @@
     const container = document.createElement("div");
     booksHeader.insertAdjacentElement("afterend", container);
 
-    // Build shelves
+    // Modal refs
+    const modal   = document.getElementById("bookModal");
+    const titleEl = modal.querySelector(".title");
+    const metaEl  = modal.querySelector(".meta");
+    const reactEl = modal.querySelector(".reactions");
+    const rawEl   = modal.querySelector(".raw");
+    const searchEl= document.getElementById("bookSearchLink");
+    let lastFocus = null;
+
+    function openBookModal(item) {
+      lastFocus = document.activeElement;
+      titleEl.textContent = item.title;
+      metaEl.textContent  = item.year === READING_KEY ? "Reading Now" : `Year: ${item.year}`;
+      reactEl.textContent = reactionsText(item.raw);
+      rawEl.textContent   = item.raw;
+
+      // Update Google link
+      const q = encodeURIComponent(stripEmojis(item.title));
+      searchEl.href = `https://www.google.com/search?q=${q}`;
+
+      modal.classList.add("show");
+      modal.setAttribute("aria-hidden","false");
+      modal.querySelector(".close").focus();
+      document.body.style.overflow="hidden";
+    }
+    function closeBookModal() {
+      modal.classList.remove("show");
+      modal.setAttribute("aria-hidden","true");
+      document.body.style.overflow="";
+      if(lastFocus && lastFocus.focus) lastFocus.focus();
+    }
+    modal.addEventListener("click",(e)=>{ if (e.target.dataset.close) closeBookModal(); });
+    window.addEventListener("keydown",(e)=>{ if (e.key==="Escape" && modal.classList.contains("show")) closeBookModal(); });
+
+    // Build shelves + spines
     keys.forEach(key => {
       const group = buckets.get(key);
       const wrap = document.createElement("section");
@@ -331,7 +383,7 @@
       group.forEach(item => {
         const spine = document.createElement("div");
         spine.className = `book-spine ${item.cls}`;
-        spine.title = item.raw; // native tooltip
+        spine.title = item.raw; // native tooltip with full entry
         spine.textContent = item.title;
         spine.tabIndex = 0;
 
@@ -342,52 +394,20 @@
           spine.appendChild(rib);
         }
 
-        // Click/keyboard → open modal
-        const open = () => openBookModal(item);
-        spine.addEventListener("click", open);
+        spine.addEventListener("click", () => openBookModal(item));
         spine.addEventListener("keydown", (e) => {
-          if (e.key === "Enter" || e.key === " ") { e.preventDefault(); open(); }
+          if (e.key === "Enter" || e.key === " ") { e.preventDefault(); openBookModal(item); }
         });
 
         shelf.appendChild(spine);
 
-        // keep original paragraph for chart; just hide it
+        // Keep original paragraph for chart; just hide it
         item.p.classList.add("book-raw");
       });
 
       wrap.appendChild(shelf);
       container.appendChild(wrap);
     });
-
-    // Modal controls
-    const modal = document.getElementById("bookModal");
-    const titleEl = modal.querySelector(".title");
-    const metaEl  = modal.querySelector(".meta");
-    const reactEl = modal.querySelector(".reactions");
-    const rawEl   = modal.querySelector(".raw");
-    let lastFocus = null;
-
-    function openBookModal(item) {
-      lastFocus = document.activeElement;
-      titleEl.textContent = item.title;
-      metaEl.textContent  = item.year === READING_KEY ? "Reading Now" : `Year: ${item.year}`;
-      reactEl.textContent = reactions(item.raw);
-      rawEl.textContent   = item.raw;
-
-      modal.classList.add("show");
-      modal.setAttribute("aria-hidden", "false");
-      modal.querySelector(".close").focus();
-      document.body.style.overflow = "hidden";
-    }
-    function closeBookModal() {
-      modal.classList.remove("show");
-      modal.setAttribute("aria-hidden", "true");
-      document.body.style.overflow = "";
-      if (lastFocus && lastFocus.focus) lastFocus.focus();
-    }
-
-    modal.addEventListener("click", (e) => { if (e.target.dataset.close) closeBookModal(); });
-    window.addEventListener("keydown", (e) => { if (e.key === "Escape" && modal.classList.contains("show")) closeBookModal(); });
   }
 
   if (document.readyState === "loading") {
@@ -397,6 +417,7 @@
   }
 })();
 </script>
+<!-- END OF BOOKSHELF -->
 
 
 # Books I've read
