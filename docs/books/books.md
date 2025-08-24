@@ -254,14 +254,12 @@
 
 <canvas id="yearChart" width="600" height="400"></canvas>
 
-<!-- BOOKSHELF (GROUPED BY YEAR) -->
+<!-- BOOKSHELF (GROUPED BY YEAR, READING NOW, RECOMMENDED HIGHLIGHT) -->
 <style>
-  /* Hide original paragraphs so your chart still finds them but users don't */
+  /* Keep original paragraphs for charting but hide them from users */
   .book-raw { display: none; }
 
-  .year-shelf {
-    margin: 1.25rem 0 1.75rem;
-  }
+  .year-shelf { margin: 1.25rem 0 1.75rem; }
   .year-shelf h3 {
     margin: 0 0 0.5rem;
     font-size: 1.1rem;
@@ -269,9 +267,7 @@
   }
 
   .bookshelf {
-    display: flex;
-    flex-wrap: wrap;
-    gap: 8px;
+    display: flex; flex-wrap: wrap; gap: 8px;
     padding: 12px;
     background: #8b5a2b;                 /* wood */
     border: 8px solid #5c3a1e;
@@ -279,51 +275,57 @@
     box-shadow: inset 0 2px 6px rgba(0,0,0,0.45);
     position: relative;
   }
-  /* a subtle top lip like a shelf edge */
   .bookshelf::before {
     content: "";
-    position: absolute;
-    inset: -10px -8px auto -8px;
+    position: absolute; inset: -10px -8px auto -8px;
     height: 10px;
     background: linear-gradient(#6d4423, #5c3a1e);
-    border-top-left-radius: 8px;
-    border-top-right-radius: 8px;
+    border-top-left-radius: 8px; border-top-right-radius: 8px;
   }
 
   .book-spine {
+    position: relative;
     writing-mode: vertical-rl;
     transform: rotate(180deg);
-    font-size: 0.86rem;
-    line-height: 1.1;
-    font-weight: 700;
-    color: #fff;
-    text-align: center;
+    font-size: 0.86rem; line-height: 1.1;
+    font-weight: 700; color: #fff; text-align: center;
     padding: 6px 2px;
     border-radius: 4px;
-    flex: 0 0 30px;      /* spine width */
-    height: 200px;       /* spine height */
+    flex: 0 0 30px;              /* spine width */
+    height: 200px;               /* spine height */
     overflow: hidden;
     box-shadow: 0 2px 4px rgba(0,0,0,.25);
     user-select: none;
   }
+  /* default palette */
+  .spine-enjoyed { background: #2e7d32; }  /* green */
+  .spine-ok      { background: #f1c232; }  /* yellow */
+  .spine-meh     { background: #e53935; }  /* red */
+  .spine-reading { background: #607d8b; }  /* slate */
+  .spine-neutral { background: #1976d2; }  /* blue */
 
-  /* Color coding by reaction */
-  .spine-enjoyed { background: #2e7d32; }     /* green */
-  .spine-ok      { background: #f1c232; }     /* yellow */
-  .spine-meh     { background: #e53935; }     /* red */
-  .spine-reading { background: #607d8b; }     /* slate */
-  .spine-neutral { background: #1976d2; }     /* blue default */
-
-  /* tiny end-cap to look like a hardcover top */
+  /* tiny top end-cap */
   .book-spine::after {
     content: "";
-    position: absolute;
-    top: 3px; left: 50%;
-    transform: translateX(-50%);
-    width: 60%;
-    height: 3px;
-    border-radius: 2px;
+    position: absolute; top: 3px; left: 50%; transform: translateX(-50%);
+    width: 60%; height: 3px; border-radius: 2px;
     background: rgba(255,255,255,0.35);
+  }
+
+  /* ⭐ SPECIAL: Recommended (👍 + ❤️) */
+  .spine-reco {
+    background: linear-gradient(180deg, #f7d774, #e0a300);
+    color: #2a2000;
+    box-shadow: 0 0 0 2px #9a6b00 inset, 0 4px 8px rgba(0,0,0,.35);
+  }
+  /* ribbon corner */
+  .spine-reco .ribbon {
+    position: absolute;
+    top: 4px; right: 4px;
+    transform: rotate(90deg);     /* stays horizontal after 180° rotate of parent text */
+    font-size: 12px;
+    filter: drop-shadow(0 1px 1px rgba(0,0,0,.3));
+    pointer-events: none;
   }
 </style>
 
@@ -345,71 +347,84 @@
     }
     if (!lines.length) return;
 
-    // Bucket by year
-    const buckets = new Map(); // year -> [{raw, title, cls}]
+    // Bucket by year; "Reading Now" if no year present
+    const buckets = new Map(); // key -> items
+    const READING_KEY = "Reading Now";
     const yearRe = /\b(20\d{2}|21\d{2})\b/g;
     const emojiRe = /[📚✅👍🆗😕❤️]/g;
 
-    function pickClass(t) {
-      if (t.trim().startsWith("📚")) return "spine-reading";
-      if (t.includes("👍")) return "spine-enjoyed";
-      if (t.includes("🆗")) return "spine-ok";
-      if (t.includes("😕")) return "spine-meh";
+    function classifySpine(text) {
+      const hasEnjoyed = text.includes("👍");
+      const hasOk      = text.includes("🆗");
+      const hasMeh     = text.includes("😕");
+      const hasReco    = text.includes("❤️");
+      const isReading  = text.trim().startsWith("📚");
+      if (hasEnjoyed && hasReco) return "spine-reco";
+      if (isReading) return "spine-reading";
+      if (hasEnjoyed) return "spine-enjoyed";
+      if (hasOk)      return "spine-ok";
+      if (hasMeh)     return "spine-meh";
       return "spine-neutral";
     }
 
     function spineTitle(text) {
       const withoutEmojis = text.replace(emojiRe, "").trim();
-      // Prefer the part before the date " - "
+      // Prefer the part before " - " (date separator)
       const main = withoutEmojis.split(" - ")[0].trim();
       return main || withoutEmojis;
     }
 
     lines.forEach(p => {
-      const t = p.textContent || "";
-      const matches = t.match(yearRe);
-      const year = matches ? Number(matches[matches.length - 1]) : "Unknown";
-      const cls = pickClass(t);
-      const title = spineTitle(t);
+      const raw = p.textContent || "";
+      const matches = raw.match(yearRe);
+      const year = matches ? Number(matches[matches.length - 1]) : READING_KEY;
+      const cls = classifySpine(raw);
+      const title = spineTitle(raw);
 
       if (!buckets.has(year)) buckets.set(year, []);
-      buckets.get(year).push({ raw: t, title, cls, p });
+      buckets.get(year).push({ raw, title, cls, p });
     });
 
-    // Sort years (desc, "Unknown" last)
-    const years = Array.from(buckets.keys()).sort((a, b) => {
-      if (a === "Unknown") return 1;
-      if (b === "Unknown") return -1;
+    // Sort: newest year first; "Reading Now" on top
+    const keys = Array.from(buckets.keys()).sort((a, b) => {
+      if (a === READING_KEY && b !== READING_KEY) return -1;
+      if (b === READING_KEY && a !== READING_KEY) return 1;
+      if (a === READING_KEY && b === READING_KEY) return 0;
       return b - a;
     });
 
-    // Insert a container after the Books header
+    // Insert container after the Books header
     const container = document.createElement("div");
     booksHeader.insertAdjacentElement("afterend", container);
 
-    years.forEach(year => {
-      const group = buckets.get(year);
-
-      // Shelf wrapper
+    keys.forEach(key => {
+      const group = buckets.get(key);
       const wrap = document.createElement("section");
       wrap.className = "year-shelf";
 
       const h3 = document.createElement("h3");
-      h3.textContent = String(year);
+      h3.textContent = String(key);
       wrap.appendChild(h3);
 
       const shelf = document.createElement("div");
       shelf.className = "bookshelf";
 
       group.forEach(item => {
-        // Create a spine
         const spine = document.createElement("div");
         spine.className = `book-spine ${item.cls}`;
-        spine.title = item.raw;               // hover shows full entry
+        spine.title = item.raw;
         spine.textContent = item.title;
+
+        // ⭐ add a little ribbon for recommended
+        if (item.cls === "spine-reco") {
+          const rib = document.createElement("div");
+          rib.className = "ribbon";
+          rib.textContent = "⭐";
+          spine.appendChild(rib);
+        }
+
         shelf.appendChild(spine);
 
-        // Keep original paragraph for your chart; just hide it
         item.p.classList.add("book-raw");
       });
 
@@ -482,11 +497,11 @@
 
 ✅ Dune Messiah: Frank Herbert - June 2024 👍
 
-✅ The Alchemist: Paulo Coelho - June 2024 ❤️
+✅ The Alchemist: Paulo Coelho - June 2024 👍❤️
 
-✅ Born to Run: Christopher McDougall - May 2024 ❤️
+✅ Born to Run: Christopher McDougall - May 2024 👍❤️
 
-✅ Dune: Frank Herbert - May 2024 ❤️
+✅ Dune: Frank Herbert - May 2024 👍❤️
 
 ✅ The Psychology of Money: Morgan Housel - April 2024 🆗
 
