@@ -124,17 +124,13 @@
 
 <canvas id="yearChart" width="600" height="400"></canvas>
 
-<!-- BOOKSHELF (GROUPED BY YEAR, READING NOW, RECOMMENDED HIGHLIGHT) -->
+<!-- BOOKSHELF (BY YEAR) + CLICK-TO-DETAILS MODAL -->
 <style>
   /* Keep original paragraphs for charting but hide them from users */
   .book-raw { display: none; }
 
   .year-shelf { margin: 1.25rem 0 1.75rem; }
-  .year-shelf h3 {
-    margin: 0 0 0.5rem;
-    font-size: 1.1rem;
-    letter-spacing: 0.3px;
-  }
+  .year-shelf h3 { margin: 0 0 0.5rem; font-size: 1.1rem; letter-spacing: .3px; }
 
   .bookshelf {
     display: flex; flex-wrap: wrap; gap: 8px;
@@ -142,13 +138,11 @@
     background: #8b5a2b;                 /* wood */
     border: 8px solid #5c3a1e;
     border-radius: 8px;
-    box-shadow: inset 0 2px 6px rgba(0,0,0,0.45);
+    box-shadow: inset 0 2px 6px rgba(0,0,0,.45);
     position: relative;
   }
   .bookshelf::before {
-    content: "";
-    position: absolute; inset: -10px -8px auto -8px;
-    height: 10px;
+    content: ""; position: absolute; inset: -10px -8px auto -8px; height: 10px;
     background: linear-gradient(#6d4423, #5c3a1e);
     border-top-left-radius: 8px; border-top-right-radius: 8px;
   }
@@ -166,10 +160,15 @@
     overflow: hidden;
     box-shadow: 0 2px 4px rgba(0,0,0,.25);
     user-select: none;
+    cursor: pointer;
+    transition: transform .12s ease;
   }
-  /* default palette */
+  .book-spine:focus { outline: 2px dashed rgba(255,255,255,.7); outline-offset: 2px; }
+  .book-spine:hover { transform: rotate(180deg) scale(1.03); }
+
+  /* color coding */
   .spine-enjoyed { background: #2e7d32; }  /* green */
-  .spine-ok      { background: #f89203ff; }  /* yellow */
+  .spine-ok      { background: #f1c232; }  /* yellow */
   .spine-meh     { background: #e53935; }  /* red */
   .spine-reading { background: #607d8b; }  /* slate */
   .spine-neutral { background: #1976d2; }  /* blue */
@@ -182,22 +181,61 @@
     background: rgba(255,255,255,0.35);
   }
 
-  /* ⭐ SPECIAL: Recommended (👍 + ❤️) */
+  /* ⭐ Recommended (👍 + ❤️) */
   .spine-reco {
     background: linear-gradient(180deg, #f7d774, #e0a300);
     color: #2a2000;
     box-shadow: 0 0 0 2px #9a6b00 inset, 0 4px 8px rgba(0,0,0,.35);
   }
-  /* ribbon corner */
   .spine-reco .ribbon {
-    position: absolute;
-    top: 4px; right: 4px;
-    transform: rotate(90deg);     /* stays horizontal after 180° rotate of parent text */
-    font-size: 12px;
+    position: absolute; top: 4px; right: 4px;
+    transform: rotate(90deg); font-size: 12px;
     filter: drop-shadow(0 1px 1px rgba(0,0,0,.3));
     pointer-events: none;
   }
+
+  /* Modal */
+  .book-modal {
+    position: fixed; inset: 0;
+    display: none;
+    align-items: center; justify-content: center;
+    z-index: 10000;
+  }
+  .book-modal.show { display: flex; }
+  .book-modal .backdrop {
+    position: absolute; inset: 0; background: rgba(0,0,0,.5);
+  }
+  .book-modal .card {
+    position: relative; z-index: 1;
+    width: min(560px, 92vw);
+    background: #fff; color: #111; border-radius: 12px;
+    box-shadow: 0 10px 30px rgba(0,0,0,.4);
+    padding: 16px 18px 12px;
+    animation: pop .12s ease-out;
+  }
+  @keyframes pop { from { transform: translateY(6px) scale(.98); opacity: .8; } }
+  .book-modal .title { font-size: 1.1rem; font-weight: 700; margin: 0 0 8px; }
+  .book-modal .meta  { font-size: .95rem; margin: 0 0 10px; color: #333; }
+  .book-modal .reactions { font-size: 1.2rem; }
+  .book-modal .raw { margin-top: 10px; font-family: ui-monospace, SFMono-Regular, Menlo, Consolas, monospace; font-size: .88rem; color: #444; background: #f7f7f7; padding: 8px; border-radius: 8px; }
+  .book-modal .close {
+    position: absolute; top: 8px; right: 10px; border: 0; background: none;
+    font-size: 22px; cursor: pointer; line-height: 1;
+  }
 </style>
+
+<!-- Modal root -->
+<div id="bookModal" class="book-modal" aria-hidden="true">
+  <div class="backdrop" data-close="1"></div>
+  <div class="card" role="dialog" aria-modal="true" aria-labelledby="bookModalTitle">
+    <button class="close" title="Close" aria-label="Close" data-close="1">×</button>
+    <div id="bookModalTitle" class="title"></div>
+    <div class="meta"></div>
+    <div class="reactions"></div>
+    <div class="raw"></div>
+  </div>
+</div>
+<!-- BOOKSHELF (BY YEAR) + CLICK-TO-DETAILS MODAL END -->
 
 <script>
 (function () {
@@ -217,10 +255,8 @@
     }
     if (!lines.length) return;
 
-    // Bucket by year; "Reading Now" if no year present
-    const buckets = new Map(); // key -> items
     const READING_KEY = "Reading Now";
-    const yearRe = /\b(20\d{2}|21\d{2})\b/g;
+    const yearRe  = /\b(20\d{2}|21\d{2})\b/g;
     const emojiRe = /[📚✅👍🆗😕❤️]/g;
 
     function classifySpine(text) {
@@ -228,7 +264,7 @@
       const hasOk      = text.includes("🆗");
       const hasMeh     = text.includes("😕");
       const hasReco    = text.includes("❤️");
-      const isReading  = text.trim().startsWith("📚");
+      const isReading  = !text.match(yearRe); // no year = currently reading
       if (hasEnjoyed && hasReco) return "spine-reco";
       if (isReading) return "spine-reading";
       if (hasEnjoyed) return "spine-enjoyed";
@@ -236,37 +272,50 @@
       if (hasMeh)     return "spine-meh";
       return "spine-neutral";
     }
-
-    function spineTitle(text) {
+    function mainTitle(text) {
       const withoutEmojis = text.replace(emojiRe, "").trim();
-      // Prefer the part before " - " (date separator)
-      const main = withoutEmojis.split(" - ")[0].trim();
+      const main = withoutEmojis.split(" - ")[0].trim(); // strip trailing " - Month Year"
       return main || withoutEmojis;
     }
+    function lastYear(text) {
+      const m = text.match(yearRe);
+      return m ? m[m.length - 1] : null;
+    }
+    function reactions(text) {
+      const r = [];
+      if (text.includes("👍")) r.push("👍 Enjoyed");
+      if (text.includes("🆗")) r.push("🆗 Ok");
+      if (text.includes("😕")) r.push("😕 Meh");
+      if (text.includes("❤️")) r.push("❤️ Recommend");
+      if (text.trim().startsWith("📚") || !lastYear(text)) r.push("📚 Reading");
+      return r.join("  ·  ");
+    }
 
+    // Bucket by year; use "Reading Now" if no year present
+    const buckets = new Map();
     lines.forEach(p => {
       const raw = p.textContent || "";
-      const matches = raw.match(yearRe);
-      const year = matches ? Number(matches[matches.length - 1]) : READING_KEY;
+      const y = lastYear(raw) || READING_KEY;
       const cls = classifySpine(raw);
-      const title = spineTitle(raw);
+      const title = mainTitle(raw);
 
-      if (!buckets.has(year)) buckets.set(year, []);
-      buckets.get(year).push({ raw, title, cls, p });
+      if (!buckets.has(y)) buckets.set(y, []);
+      buckets.get(y).push({ raw, title, cls, year: y, p });
     });
 
-    // Sort: newest year first; "Reading Now" on top
+    // Sort keys: "Reading Now" first, then years desc
     const keys = Array.from(buckets.keys()).sort((a, b) => {
       if (a === READING_KEY && b !== READING_KEY) return -1;
       if (b === READING_KEY && a !== READING_KEY) return 1;
       if (a === READING_KEY && b === READING_KEY) return 0;
-      return b - a;
+      return Number(b) - Number(a);
     });
 
     // Insert container after the Books header
     const container = document.createElement("div");
     booksHeader.insertAdjacentElement("afterend", container);
 
+    // Build shelves
     keys.forEach(key => {
       const group = buckets.get(key);
       const wrap = document.createElement("section");
@@ -282,10 +331,10 @@
       group.forEach(item => {
         const spine = document.createElement("div");
         spine.className = `book-spine ${item.cls}`;
-        spine.title = item.raw;
+        spine.title = item.raw; // native tooltip
         spine.textContent = item.title;
+        spine.tabIndex = 0;
 
-        // ⭐ add a little ribbon for recommended
         if (item.cls === "spine-reco") {
           const rib = document.createElement("div");
           rib.className = "ribbon";
@@ -293,14 +342,52 @@
           spine.appendChild(rib);
         }
 
+        // Click/keyboard → open modal
+        const open = () => openBookModal(item);
+        spine.addEventListener("click", open);
+        spine.addEventListener("keydown", (e) => {
+          if (e.key === "Enter" || e.key === " ") { e.preventDefault(); open(); }
+        });
+
         shelf.appendChild(spine);
 
+        // keep original paragraph for chart; just hide it
         item.p.classList.add("book-raw");
       });
 
       wrap.appendChild(shelf);
       container.appendChild(wrap);
     });
+
+    // Modal controls
+    const modal = document.getElementById("bookModal");
+    const titleEl = modal.querySelector(".title");
+    const metaEl  = modal.querySelector(".meta");
+    const reactEl = modal.querySelector(".reactions");
+    const rawEl   = modal.querySelector(".raw");
+    let lastFocus = null;
+
+    function openBookModal(item) {
+      lastFocus = document.activeElement;
+      titleEl.textContent = item.title;
+      metaEl.textContent  = item.year === READING_KEY ? "Reading Now" : `Year: ${item.year}`;
+      reactEl.textContent = reactions(item.raw);
+      rawEl.textContent   = item.raw;
+
+      modal.classList.add("show");
+      modal.setAttribute("aria-hidden", "false");
+      modal.querySelector(".close").focus();
+      document.body.style.overflow = "hidden";
+    }
+    function closeBookModal() {
+      modal.classList.remove("show");
+      modal.setAttribute("aria-hidden", "true");
+      document.body.style.overflow = "";
+      if (lastFocus && lastFocus.focus) lastFocus.focus();
+    }
+
+    modal.addEventListener("click", (e) => { if (e.target.dataset.close) closeBookModal(); });
+    window.addEventListener("keydown", (e) => { if (e.key === "Escape" && modal.classList.contains("show")) closeBookModal(); });
   }
 
   if (document.readyState === "loading") {
