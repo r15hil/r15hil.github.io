@@ -429,9 +429,9 @@
 
 📚 The Man in the High Castle: Philip K. Dick
 
-📚 Nexus: Yuval Noah Harari
-
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
+
+✅ Nexus: Yuval Noah Harari - September 2025 👍❤️
 
 ✅ Killers of the Flower Moon: David Grann - July 2025 🆗
 
