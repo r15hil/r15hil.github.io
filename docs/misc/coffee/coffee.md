@@ -1,6 +1,6 @@
 [__Back to home__](../../index.md)
 
-☕ I drink coffee black unless it's an iced coffee but I won't rate those on here.
+☕ I drink coffee black.
 
 
 
