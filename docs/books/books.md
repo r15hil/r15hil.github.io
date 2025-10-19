@@ -467,9 +467,10 @@
 
 ## Books
 
-📚 White Nights: Fyodor Dostoyevsky
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
+
+✅ White Nights: Fyodor Dostoyevsky - October 2025 👍
 
 ✅ Nexus: Yuval Noah Harari - September 2025 👍❤️
 
