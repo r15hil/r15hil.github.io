@@ -124,14 +124,33 @@
 
 <canvas id="yearChart" width="600" height="400"></canvas>
 
-<!-- BOOKSHELF (GROUPED BY YEAR, READING NOW, RECOMMENDED HIGHLIGHT) + MODAL WITH GOOGLE SEARCH -->
+<!-- VIEW TOGGLE + BOOKSHELF (GROUPED BY YEAR, READING NOW, RECOMMENDED) + MODAL -->
 <style>
-  /* Keep original paragraphs for charting but hide them from users */
-  .book-raw { display: none; }
+  /* Toggle UI */
+  #view-toggle { margin: .75rem 0 1rem; }
+  .vtoggle { display: inline-flex; align-items: center; gap: .5rem; cursor: pointer; user-select: none; }
+  .vtoggle input { display: none; }
+  .vtoggle .slider {
+    position: relative; width: 44px; height: 24px; border-radius: 999px;
+    background: #bbb; transition: background .2s ease;
+  }
+  .vtoggle .slider::after {
+    content: ""; position: absolute; top: 2px; left: 2px; width: 20px; height: 20px;
+    border-radius: 50%; background: #fff; box-shadow: 0 1px 2px rgba(0,0,0,.2);
+    transition: transform .2s ease;
+  }
+  .vtoggle input:checked + .slider { background: #4caf50; }
+  .vtoggle input:checked + .slider::after { transform: translateX(20px); }
+  .vtoggle .label-text { font-weight: 600; }
 
+  /* Show/Hide logic */
+  /* Add .book-raw to your original <p> lines via JS and toggle with body class */
+  body.bookshelf-mode .book-raw { display: none; }
+  body:not(.bookshelf-mode) .bookshelf-wrap { display: none; }
+
+  /* Shelf visuals */
   .year-shelf { margin: 1.25rem 0 1.75rem; }
-  .year-shelf h3 { margin: 0 0 0.5rem; font-size: 1.1rem; letter-spacing: .3px; }
-
+  .year-shelf h3 { margin: 0 0 .5rem; font-size: 1.1rem; letter-spacing: .3px; }
   .bookshelf {
     display: flex; flex-wrap: wrap; gap: 8px;
     padding: 12px;
@@ -166,7 +185,7 @@
   .book-spine:focus { outline: 2px dashed rgba(255,255,255,.7); outline-offset: 2px; }
   .book-spine:hover { transform: rotate(180deg) scale(1.03); }
 
-  /* color coding */
+  /* Color coding */
   .spine-enjoyed { background: #2e7d32; }  /* green */
   .spine-ok      { background: #f1c232; }  /* yellow */
   .spine-meh     { background: #e53935; }  /* red */
@@ -238,6 +257,15 @@
   .book-modal .search-btn:hover { background: #0d47a1; }
 </style>
 
+<!-- View toggle control -->
+<div id="view-toggle">
+  <label class="vtoggle">
+    <input type="checkbox" id="bookshelfToggle" checked>
+    <span class="slider"></span>
+    <span class="label-text">Bookshelf mode</span>
+  </label>
+</div>
+
 <!-- Modal root -->
 <div id="bookModal" class="book-modal" aria-hidden="true">
   <div class="backdrop" data-close="1"></div>
@@ -253,44 +281,60 @@
 
 <script>
 (function () {
-  function buildBookshelvesByYear() {
+  function initBookshelf() {
+    // Default to bookshelf mode (toggle is checked in markup)
+    const toggle = document.getElementById('bookshelfToggle');
+    const applyMode = () => {
+      if (toggle.checked) document.body.classList.add('bookshelf-mode');
+      else document.body.classList.remove('bookshelf-mode');
+      // Close modal if switching off
+      if (!toggle.checked) {
+        const modal = document.getElementById('bookModal');
+        if (modal.classList.contains('show')) {
+          modal.classList.remove('show'); modal.setAttribute('aria-hidden','true');
+          document.body.style.overflow="";
+        }
+      }
+    };
+    toggle.addEventListener('change', applyMode);
+    applyMode();
+
     const booksHeader =
-      document.getElementById("books") ||
-      Array.from(document.querySelectorAll("h2"))
-        .find(h => h.textContent.trim().toLowerCase() === "books");
+      document.getElementById('books') ||
+      Array.from(document.querySelectorAll('h2')).find(h => h.textContent.trim().toLowerCase() === 'books');
     if (!booksHeader) return;
 
     // Collect original book <p> lines (until next H2)
     const lines = [];
     let el = booksHeader.nextElementSibling;
-    while (el && el.tagName !== "H2") {
-      if (el.tagName === "P") lines.push(el);
+    while (el && el.tagName !== 'H2') {
+      if (el.tagName === 'P') { lines.push(el); el.classList.add('book-raw'); }
       el = el.nextElementSibling;
     }
     if (!lines.length) return;
 
-    const READING_KEY = "Reading Now";
+    const READING_KEY = 'Reading Now';
     const yearRe  = /\b(20\d{2}|21\d{2})\b/g;
     const emojiRe = /[📚✅👍🆗😕❤️]/g;
 
     const buckets = new Map(); // key -> items
 
     function classifySpine(text) {
-      const hasEnjoyed = text.includes("👍");
-      const hasOk      = text.includes("🆗");
-      const hasMeh     = text.includes("😕");
-      const hasReco    = text.includes("❤️");
+      const hasEnjoyed = text.includes('👍');
+      const hasOk      = text.includes('🆗');
+      const hasMeh     = text.includes('😕');
+      const hasReco    = text.includes('❤️');
       const noYear     = !text.match(yearRe); // no year = currently reading
-      if (hasEnjoyed && hasReco) return "spine-reco";
-      if (noYear)     return "spine-reading";
-      if (hasEnjoyed) return "spine-enjoyed";
-      if (hasOk)      return "spine-ok";
-      if (hasMeh)     return "spine-meh";
-      return "spine-neutral";
+      if (hasEnjoyed && hasReco) return 'spine-reco';
+      if (noYear)     return 'spine-reading';
+      if (hasEnjoyed) return 'spine-enjoyed';
+      if (hasOk)      return 'spine-ok';
+      if (hasMeh)     return 'spine-meh';
+      return 'spine-neutral';
     }
     function mainTitle(text) {
-      const withoutEmojis = text.replace(emojiRe, "").trim();
-      const main = withoutEmojis.split(" - ")[0].trim(); // strip trailing " - Month Year"
+      const withoutEmojis = text.replace(emojiRe, '').trim();
+      const main = withoutEmojis.split(' - ')[0].trim(); // strip trailing " - Month Year"
       return main || withoutEmojis;
     }
     function lastYear(text) {
@@ -299,24 +343,23 @@
     }
     function reactionsText(text) {
       const r = [];
-      if (text.includes("👍")) r.push("👍 Enjoyed");
-      if (text.includes("🆗")) r.push("🆗 Ok");
-      if (text.includes("😕")) r.push("😕 Meh");
-      if (text.includes("❤️")) r.push("❤️ Recommend");
-      if (text.trim().startsWith("📚") || !lastYear(text)) r.push("📚 Reading");
-      return r.join(" · ");
+      if (text.includes('👍')) r.push('👍 Enjoyed');
+      if (text.includes('🆗')) r.push('🆗 Ok');
+      if (text.includes('😕')) r.push('😕 Meh');
+      if (text.includes('❤️')) r.push('❤️ Recommend');
+      if (text.trim().startsWith('📚') || !lastYear(text)) r.push('📚 Reading');
+      return r.join(' · ');
     }
     function stripEmojis(text) {
-      return text.replace(emojiRe, "").trim();
+      return text.replace(emojiRe, '').trim();
     }
 
     // Build buckets
     lines.forEach(p => {
-      const raw = p.textContent || "";
+      const raw = p.textContent || '';
       const y = lastYear(raw) || READING_KEY;
       const cls = classifySpine(raw);
       const title = mainTitle(raw);
-
       if (!buckets.has(y)) buckets.set(y, []);
       buckets.get(y).push({ raw, title, cls, year: y, p });
     });
@@ -329,95 +372,92 @@
       return Number(b) - Number(a);
     });
 
-    // Insert container after the Books header
-    const container = document.createElement("div");
-    booksHeader.insertAdjacentElement("afterend", container);
+    // Build bookshelf container once
+    const wrapAll = document.createElement('div');
+    wrapAll.className = 'bookshelf-wrap';
+    booksHeader.insertAdjacentElement('afterend', wrapAll);
 
     // Modal refs
-    const modal   = document.getElementById("bookModal");
-    const titleEl = modal.querySelector(".title");
-    const metaEl  = modal.querySelector(".meta");
-    const reactEl = modal.querySelector(".reactions");
-    const rawEl   = modal.querySelector(".raw");
-    const searchEl= document.getElementById("bookSearchLink");
+    const modal   = document.getElementById('bookModal');
+    const titleEl = modal.querySelector('.title');
+    const metaEl  = modal.querySelector('.meta');
+    const reactEl = modal.querySelector('.reactions');
+    const rawEl   = modal.querySelector('.raw');
+    const searchEl= document.getElementById('bookSearchLink');
     let lastFocus = null;
 
     function openBookModal(item) {
       lastFocus = document.activeElement;
       titleEl.textContent = item.title;
-      metaEl.textContent  = item.year === READING_KEY ? "Reading Now" : `Year: ${item.year}`;
+      metaEl.textContent  = item.year === READING_KEY ? 'Reading Now' : `Year: ${item.year}`;
       reactEl.textContent = reactionsText(item.raw);
       rawEl.textContent   = item.raw;
-
-      // Update Google link
       const q = encodeURIComponent(stripEmojis(item.title));
       searchEl.href = `https://www.google.com/search?q=${q}`;
 
-      modal.classList.add("show");
-      modal.setAttribute("aria-hidden","false");
-      modal.querySelector(".close").focus();
-      document.body.style.overflow="hidden";
+      modal.classList.add('show');
+      modal.setAttribute('aria-hidden','false');
+      modal.querySelector('.close').focus();
+      document.body.style.overflow='hidden';
     }
     function closeBookModal() {
-      modal.classList.remove("show");
-      modal.setAttribute("aria-hidden","true");
-      document.body.style.overflow="";
-      if(lastFocus && lastFocus.focus) lastFocus.focus();
+      modal.classList.remove('show');
+      modal.setAttribute('aria-hidden','true');
+      document.body.style.overflow='';
+      if (lastFocus && lastFocus.focus) lastFocus.focus();
     }
-    modal.addEventListener("click",(e)=>{ if (e.target.dataset.close) closeBookModal(); });
-    window.addEventListener("keydown",(e)=>{ if (e.key==="Escape" && modal.classList.contains("show")) closeBookModal(); });
+    modal.addEventListener('click',(e)=>{ if (e.target.dataset.close) closeBookModal(); });
+    window.addEventListener('keydown',(e)=>{ if (e.key==='Escape' && modal.classList.contains('show')) closeBookModal(); });
 
     // Build shelves + spines
     keys.forEach(key => {
       const group = buckets.get(key);
-      const wrap = document.createElement("section");
-      wrap.className = "year-shelf";
+      const sec = document.createElement('section');
+      sec.className = 'year-shelf';
 
-      const h3 = document.createElement("h3");
+      const h3 = document.createElement('h3');
       h3.textContent = String(key);
-      wrap.appendChild(h3);
+      sec.appendChild(h3);
 
-      const shelf = document.createElement("div");
-      shelf.className = "bookshelf";
+      const shelf = document.createElement('div');
+      shelf.className = 'bookshelf';
 
       group.forEach(item => {
-        const spine = document.createElement("div");
+        const spine = document.createElement('div');
         spine.className = `book-spine ${item.cls}`;
-        spine.title = item.raw; // native tooltip with full entry
+        spine.title = item.raw; // native tooltip
         spine.textContent = item.title;
         spine.tabIndex = 0;
 
-        if (item.cls === "spine-reco") {
-          const rib = document.createElement("div");
-          rib.className = "ribbon";
-          rib.textContent = "⭐";
+        if (item.cls === 'spine-reco') {
+          const rib = document.createElement('div');
+          rib.className = 'ribbon';
+          rib.textContent = '⭐';
           spine.appendChild(rib);
         }
 
-        spine.addEventListener("click", () => openBookModal(item));
-        spine.addEventListener("keydown", (e) => {
-          if (e.key === "Enter" || e.key === " ") { e.preventDefault(); openBookModal(item); }
+        spine.addEventListener('click', () => openBookModal(item));
+        spine.addEventListener('keydown', (e) => {
+          if (e.key === 'Enter' || e.key === ' ') { e.preventDefault(); openBookModal(item); }
         });
 
         shelf.appendChild(spine);
-
-        // Keep original paragraph for chart; just hide it
-        item.p.classList.add("book-raw");
       });
 
-      wrap.appendChild(shelf);
-      container.appendChild(wrap);
+      sec.appendChild(shelf);
+      wrapAll.appendChild(sec);
     });
   }
 
-  if (document.readyState === "loading") {
-    document.addEventListener("DOMContentLoaded", buildBookshelvesByYear);
+  if (document.readyState === 'loading') {
+    document.addEventListener('DOMContentLoaded', initBookshelf);
   } else {
-    buildBookshelvesByYear();
+    initBookshelf();
   }
 })();
 </script>
-<!-- END OF BOOKSHELF -->
+<!-- END VIEW TOGGLE + BOOKSHELF -->
+
 
 
 # Books I've read
