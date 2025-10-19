@@ -427,7 +427,7 @@
 
 ## Books
 
-📚 The Man in the High Castle: Philip K. Dick
+📚 White Nights: Fyodor Dostoyevsky
 
 📚 Mahabharata: Interpreted and Retold by Krishna Dharma
 
