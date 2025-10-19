@@ -260,7 +260,7 @@
 <!-- View toggle control -->
 <div id="view-toggle">
   <label class="vtoggle">
-    <input type="checkbox" id="bookshelfToggle" checked>
+    <input type="checkbox" id="bookshelfToggle">
     <span class="slider"></span>
     <span class="label-text">Bookshelf mode</span>
   </label>
