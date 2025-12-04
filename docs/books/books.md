@@ -578,24 +578,3 @@
 ✅ The Humans: Matt Haig - August 2017 🆗
 
 ✅ Lord of the Flies: William Golding - November 2016 👍 
-
-
-
-## Reading List
-
-🔜 I, Superorganism - Jon Turney
-
-🔜 Guns, Germs, and Steel - Jared Diamond
-
-🔜 Thinking, Fast and Slow - Daniel Kahneman
-
-🔜 Why We Sleep - Matthew Walker
-
-🔜 The ONE Thing - Gary Keller and Jay Papasan
-
-🔜 The Beekeeper of Aleppo - Christy Lefteri
-
-🔜 The 4-Hour Work Week - Tim Ferriss
-
-🔜 Deep Work - Cal Newport
-
