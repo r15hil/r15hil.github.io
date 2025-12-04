@@ -469,7 +469,7 @@
 
 📚 Pride and Prejudice: Jane Austen
 
-✅ Mahabharata: Interpreted and Retold by Krishna Dharma - December 2025 ❤️
+✅ Mahabharata: Interpreted and Retold by Krishna Dharma - December 2025 👍
 
 ✅ White Nights: Fyodor Dostoyevsky - October 2025 👍
 
