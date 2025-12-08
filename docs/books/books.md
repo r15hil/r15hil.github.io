@@ -467,6 +467,8 @@
 
 ## Books
 
+📚 Hitchhiker's Guide to the Galaxy: Douglas Adams
+
 ✅ Pride and Prejudice: Jane Austen - December 2025 👍
 
 ✅ Mahabharata: Interpreted and Retold by Krishna Dharma - December 2025 👍
