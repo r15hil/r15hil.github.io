@@ -467,7 +467,7 @@
 
 ## Books
 
-📚 Pride and Prejudice: Jane Austen
+✅ Pride and Prejudice: Jane Austen - December 2025 👍
 
 ✅ Mahabharata: Interpreted and Retold by Krishna Dharma - December 2025 👍
 
