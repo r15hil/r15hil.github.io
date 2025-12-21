@@ -467,7 +467,9 @@
 
 ## Books
 
-📚 Hitchhiker's Guide to the Galaxy: Douglas Adams
+📚 The Hotel Avocado: Bob Mortimer
+
+✅ Hitchhiker's Guide to the Galaxy: Douglas Adams - December 2025 👍
 
 ✅ Pride and Prejudice: Jane Austen - December 2025 👍
 
