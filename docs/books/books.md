@@ -467,7 +467,7 @@
 
 ## Books
 
-📚 The Hotel Avocado: Bob Mortimer
+✅ The Hotel Avocado: Bob Mortimer - December 2025 👍
 
 ✅ Hitchhiker's Guide to the Galaxy: Douglas Adams - December 2025 👍
 
