@@ -469,6 +469,8 @@
 
 📚 Ramayana: Interpreted and Retold by Krishna Dharma
 
+📚 I, Superorganism: Jon Turney
+
 ✅ The Hotel Avocado: Bob Mortimer - December 2025 👍
 
 ✅ Hitchhiker's Guide to the Galaxy: Douglas Adams - December 2025 👍
