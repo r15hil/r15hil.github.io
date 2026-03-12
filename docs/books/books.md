@@ -467,9 +467,9 @@
 
 ## Books
 
-📚 Ramayana: Interpreted and Retold by Krishna Dharma
-
 📚 I, Superorganism: Jon Turney
+
+✅ Ramayana: Interpreted and Retold by Krishna Dharma - March 2026
 
 ✅ The Hotel Avocado: Bob Mortimer - December 2025 👍
 
