@@ -467,6 +467,8 @@
 
 ## Books
 
+📚 Klara and the Sun: Kazuo Ishiguro
+
 📚 I, Superorganism: Jon Turney
 
 ✅ Ramayana: Interpreted and Retold by Krishna Dharma - March 2026
