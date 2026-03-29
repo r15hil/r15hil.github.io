@@ -469,6 +469,8 @@
 
 📚 I, Superorganism: Jon Turney
 
+📚 Project Hail Mary: Andy Weir
+
 ✅ Klara and the Sun: Kazuo Ishiguro - March 2026 👍
 
 ✅ Ramayana: Interpreted and Retold by Krishna Dharma - March 2026 👍
