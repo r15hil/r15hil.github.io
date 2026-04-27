@@ -469,7 +469,9 @@
 
 📚 I, Superorganism: Jon Turney
 
-📚 Project Hail Mary: Andy Weir
+✅ Project Hail Mary: Andy Weir - April 2026 👍❤️
+
+✅ The Prophet: Kahlil Gibran - April 2026 👍❤️
 
 ✅ Klara and the Sun: Kazuo Ishiguro - March 2026 👍
 
