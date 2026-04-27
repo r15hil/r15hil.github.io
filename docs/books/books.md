@@ -469,6 +469,8 @@
 
 📚 I, Superorganism: Jon Turney
 
+📚 The Lonelisness of Sonia and Sunny: Kiran Desai
+
 ✅ Project Hail Mary: Andy Weir - April 2026 👍❤️
 
 ✅ The Prophet: Kahlil Gibran - April 2026 👍❤️
