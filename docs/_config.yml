@@ -1,5 +1,5 @@
 title: Rishil
-description: Notes, projects, books, and small tools.
+description: Notes, books, and small tools.
 
 defaults:
   - scope:
@@ -14,7 +14,5 @@ nav:
     url: /introduction/introduction.html
   - title: Books
     url: /books/books.html
-  - title: Projects
-    url: /projects/projects.html
   - title: Misc
     url: /misc/misc.html
