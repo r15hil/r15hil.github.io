@@ -1,12 +1,15 @@
-[__Back to home__](../index.md)
+---
+title: Misc
+---
 
 # misc
 
-- [Jam](jam.md)
-- [Gym](gym/gym.md)
-- [Secret Santa](secret_santa.md)
-- [Padel Player Selector](padel_player_selector.md)
-- [Sorter](sort.md)
-- [Meal Ideas](recipes.md)
-- [Coffee](coffee/coffee.md)
-
+<div class="link-grid">
+  <a href="jam.html">Jam</a>
+  <a href="gym/gym.html">Gym</a>
+  <a href="secret_santa.html">Secret Santa</a>
+  <a href="padel_player_selector.html">Padel Player Selector</a>
+  <a href="sort.html">Sorter</a>
+  <a href="recipes.html">Meal Ideas</a>
+  <a href="coffee/coffee.html">Coffee</a>
+</div>

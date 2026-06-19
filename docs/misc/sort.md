@@ -1,3 +1,7 @@
+---
+title: Alphabetical Order Sorter
+---
+
 # 🗂 Alphabetical Order Sorter
 
 Enter a list of items (either comma-separated or each item on a new line), and click "Sort" to see them in alphabetical order. Use the toggle to sort in reverse order.

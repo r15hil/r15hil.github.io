@@ -1,4 +1,6 @@
-[__Back to home__](../index.md)
+---
+title: Books
+---
 
 <script src="https://cdn.jsdelivr.net/npm/chart.js"></script>
 

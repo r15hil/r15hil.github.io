@@ -1,4 +1,6 @@
-[__Back to home__](../index.md)
+---
+title: Random Padel Player Selector
+---
 
 # 🎾 Random Padel Player Selector 🎾
 

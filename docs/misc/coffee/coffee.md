@@ -1,4 +1,6 @@
-[__Back to home__](../../index.md)
+---
+title: Coffee
+---
 
 ☕ I drink coffee black.
 

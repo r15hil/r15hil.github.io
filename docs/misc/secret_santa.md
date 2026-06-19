@@ -1,4 +1,6 @@
-[__Back to home__](../index.md)
+---
+title: Secret Santa Generator
+---
 
 # 🎅 Secret Santa Generator with Optional Exclusion Groups 🎅
 

@@ -1,3 +1,20 @@
-theme: jekyll-theme-primer
-
 title: Rishil
+description: Notes, projects, books, and small tools.
+
+defaults:
+  - scope:
+      path: ""
+    values:
+      layout: default
+
+nav:
+  - title: Home
+    url: /
+  - title: About
+    url: /introduction/introduction.html
+  - title: Books
+    url: /books/books.html
+  - title: Projects
+    url: /projects/projects.html
+  - title: Misc
+    url: /misc/misc.html

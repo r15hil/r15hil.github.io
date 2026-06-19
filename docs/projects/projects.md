@@ -1,5 +1,7 @@
-[__Back to home__](../index.md)
+---
+title: Projects
+---
 
 # Personal Projects
 
-- [Temperature controlled fan](temp_fan.md)
+Add personal projects here.
