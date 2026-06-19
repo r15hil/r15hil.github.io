@@ -467,9 +467,11 @@
 
 ## Books
 
+📚 Project Hail Mary: Andy Weir
+
 📚 I, Superorganism: Jon Turney
 
-📚 The Lonelisness of Sonia and Sunny: Kiran Desai
+✅ The Lonelisness of Sonia and Sunny: Kiran Desai - June 2026 😕
 
 ✅ Project Hail Mary: Andy Weir - April 2026 👍❤️
 
