@@ -469,9 +469,9 @@ title: Books
 
 ## Books
 
-📚 Project Hail Mary: Andy Weir
+📚 The Martian: Andy Weir
 
-📚 I, Superorganism: Jon Turney
+✅ Project Hail Mary: Andy Weir - July 2026 👍❤️
 
 ✅ The Lonelisness of Sonia and Sunny: Kiran Desai - June 2026 😕
 
