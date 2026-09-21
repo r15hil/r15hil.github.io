@@ -469,7 +469,9 @@ title: Books
 
 ## Books
 
-📚 The Martian: Andy Weir
+📚 The Three-Body Problem: Cixin Liu
+
+✅ The Martian: Andy Weir -  August 2026
 
 ✅ Project Hail Mary: Andy Weir - July 2026 👍❤️
 
