@@ -469,9 +469,11 @@ title: Books
 
 ## Books
 
-📚 The Three-Body Problem: Cixin Liu
+📚 The Handmaid's Tale: Margaret Atwood
 
-✅ The Martian: Andy Weir -  August 2026
+✅ The Three-Body Problem: Cixin Liu - October 2026 🆗
+
+✅ The Martian: Andy Weir -  August 2026 👍
 
 ✅ Project Hail Mary: Andy Weir - July 2026 👍❤️
 
