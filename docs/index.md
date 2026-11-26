@@ -22,4 +22,8 @@ title: Home
     <strong>Misc</strong>
     <span>Small utilities, recipes, experiments, and notes.</span>
   </a>
+  <a class="quick-card" href="{{ '/research/research.html' | relative_url }}">
+    <strong>Research</strong>
+    <span>Research questions and projects, with sources.</span>
+  </a>
 </section>
